@@ -27,7 +27,7 @@ jobs:
         pip install setuptools wheel twine pathlib pandas
     - name: DataGenerate
       run: |
-        python ./s1a22.py
+        python ./s1a.py
     - name: Pushes S1B folder
       uses: crykn/copy_folder_to_another_repo_action@v1.0.6
       env:
