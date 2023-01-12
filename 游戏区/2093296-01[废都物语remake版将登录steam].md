@@ -76,3 +76,10 @@
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59190113&amp;ptid=2093296" target="_blank">阿斯蓝 发表于 2023-1-3 19:27</a></blockquote>
 自制的吧，希望以后也能出个Switch版<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Ehekatl  
+##### 440#       发表于 2023-1-9 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">看了一眼 官博发的礼物居然是城镇小人吗 可恶好像要
+
