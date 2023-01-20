@@ -167,3 +167,28 @@ steam版还是没有内置工种管理吗
 
 矮人绝大多数AI很不错 大部分工作不太需要工种排序 不过Dwarf Therapist还是挺好的 有一些对UX的补完 不过最关键的civil alert还是没人做
 
+*****
+
+####  pgain2004  
+##### 117#       发表于 2023-1-14 18:12
+
+据说新版一个月就收入700+W刀，两兄弟应该暂时不用愁生计了
+
+
+
+*****
+
+####  luciffer  
+##### 118#       发表于 2023-1-17 15:00
+
+[https://github.com/DFHack/dfhack/releases](https://github.com/DFHack/dfhack/releases)
+
+
+
+*****
+
+####  shinnfin  
+##### 119#       发表于 2023-1-17 19:16
+
+编辑
+
