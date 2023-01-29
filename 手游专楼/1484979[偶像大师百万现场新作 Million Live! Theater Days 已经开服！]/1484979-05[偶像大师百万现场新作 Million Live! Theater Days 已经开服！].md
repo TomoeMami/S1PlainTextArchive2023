@@ -217,3 +217,24 @@ mltd不像邦邦那样搞协力live或者pvp打歌活动，如果不是冲分数
 这个心形围裙服怎么这么情趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 看前楼提到的管人妹子直播视频，看到也是大喊hentai<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  moonmagian  
+##### 7069#       发表于 2023-1-24 19:54
+
+<img src="https://p.sda1.dev/9/fc8b3394a5d7f46897c780e03129bf67/CMP_20230124195048806.png" referrerpolicy="no-referrer">
+下回居然就是米西西拉最终回了
+不过final season的做饭环节感觉没之前的吃饭环节有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我还以为四组走完会再来个团体曲给MTS系列收尾，这么看来是直接用百万十周年活动了？
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  花开安菲路  
+##### 7070#       发表于 2023-1-26 12:01
+
+玛德，活动又白打了，21w2600名，以后还是摸鱼拿低保吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
