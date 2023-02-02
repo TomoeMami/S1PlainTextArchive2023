@@ -2517,3 +2517,75 @@ deepl机翻：
 
 对庄知彦和ω-Force都很重要的title？那只有真三国无双了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 292#         楼主| 发表于 2023-1-26 23:15
+
+新实机演示：[https://youtu.be/_OvvUYWhwdQ](https://youtu.be/_OvvUYWhwdQ)
+
+
+
+*****
+
+####  TheOccuria  
+##### 293#       发表于 2023-1-27 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏和讨鬼相似度有多少
+
+
+
+*****
+
+####  葵  
+##### 294#       发表于 2023-1-27 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59507977&amp;ptid=2092050" target="_blank">TheOccuria 发表于 2023-1-27 21:54</a>
+
+这游戏和讨鬼相似度有多少</blockquote>
+我看了几个武器演示觉得基本上就是讨鬼传秽土转生2.0<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  415452356  
+##### 295#       发表于 2023-1-27 23:38
+
+  还用猜吗，这不就是不叫讨鬼3的讨鬼3
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  farland  
+##### 296#       发表于 2023-1-28 11:01
+
+讨鬼我就记得人设很讨喜，希望在战斗上能有世界崛起的一半水平。
+
+
+*****
+
+####  布拉德莱恩  
+##### 297#       发表于 2023-1-30 16:31
+
+官网列出了8种武器
+
+ 飞燕刀（很明显就是讨鬼传里的锁镰）
+
+ 弓
+
+ 络缲刃（太刀）
+
+ 刃伞
+
+ 大炮
+
+ 野太刀（这明摆着的大剑居然是野太刀？？？）
+
+ 锤
+
+ 络缲棍（可以变形成好几种武器的那个）
+
