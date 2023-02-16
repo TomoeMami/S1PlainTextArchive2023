@@ -5245,3 +5245,115 @@ WEB有意思的就是阿基拉的各种事后反省
 
 看了台版文库本和一些web版，这个小说是致敬重装机兵吧，怪物、boss、部分女性角色的名字都是重装机兵里的，看到出租战车遇到危险会自动逃回城市之类完全一致都设定，我赶紧把2R又拿出来玩了。
 
+*****
+
+####  selain.meneth  
+##### 423#       发表于 2023-2-6 21:48
+
+看到文库版10卷，主角下手有点狠啊
+
+
+*****
+
+####  redsouris  
+##### 424#       发表于 2023-2-7 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59638728&amp;ptid=1913585" target="_blank">selain.meneth 发表于 2023-2-6 21:48</a>
+看到文库版10卷，主角下手有点狠啊</blockquote>
+文库主角已经加了很多人情味了
+WEB版才是真心理扭曲
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kiralzb  
+##### 425#       发表于 2023-2-8 16:40
+
+看到这帖想起了11卷还没买，马上入手，找时间看了一点，大姐姐们真和谐，都不带吃醋的，就屑女人在心机，关键主角还吃这套<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+毕竟搞笑的是医生疯狂暗示主角换机械手，不过这切片手术确实看着就难顶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 426#       发表于 2023-2-8 18:48
+
+看了眼，19本书50万，加了倒贴后宫元素立本人好像也兴趣一般，漫画质量感觉算相当不错了，重装机兵like真不太支棱<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  selain.meneth  
+##### 427#       发表于 2023-2-9 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59664921&amp;ptid=1913585" target="_blank">ardito 发表于 2023-2-8 18:48</a>
+看了眼，19本书50万，加了倒贴后宫元素立本人好像也兴趣一般，漫画质量感觉算相当不错了，重装机兵like真不 ...</blockquote>
+看cy能不能把重装机兵带火了，要是来个赛马娘等级的现象级手游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 428#       发表于 2023-2-10 07:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59683269&amp;ptid=1913585" target="_blank">selain.meneth 发表于 2023-2-9 23:36</a>
+
+看cy能不能把重装机兵带火了，要是来个赛马娘等级的现象级手游</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起来也有点微妙，这部的版权在角川，角川又把重装机兵卖给了cy，硬蹭蹭也算沾亲带故了
+
+
+*****
+
+####  人生败犬河大吉  
+##### 429#       发表于 2023-2-10 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56414198&amp;ptid=1913585" target="_blank">鬼谷ask 发表于 2022-6-25 22:20</a>
+
+看完web296了，这几天连着看下来有些疲劳，尤其是一直高强度打架
+
+个人最喜欢的片段还是成为赏金目标然后当 ...</blockquote>
+请问护卫这段在WEB版是多少话开始的？
+
+
+*****
+
+####  Gooddays  
+##### 430#       发表于 2023-2-10 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58879773&amp;ptid=1913585" target="_blank">性欲モンスター 发表于 2022-12-11 02:14</a>
+女扒手那剧情有bug吧，现实里可以有科学方法验证那些钱有阿基拉的指纹在上面证明那些钱至少是他摸过的，科 ...</blockquote>
+女扒手那里问题是双方之间不单没互信还有敌意，Web 版男二青梅才刚让事态降温，男二立刻嘴臭让事情完全恶化，男主直接转身离去，根本没机会去到证明阶段。
+
+*****
+
+####  Gooddays  
+##### 431#       发表于 2023-2-10 12:44
+
+ 本帖最后由 Gooddays 于 2023-2-10 12:45 编辑 
+
+Delete
+
+
+*****
+
+####  新人马甲2  
+##### 432#       发表于 2023-2-13 09:00
+
+某只记得当年看到那个堪称写作反面教材的被轻小说用了一万多遍的开头就弃了，什么主角意义不明地狂奔与意义不明的魔兽生死搏斗之类的浪费了上千字然后用更长的篇幅交待世界观，原来后面评价还不错吗
+
+
+*****
+
+####  redsouris  
+##### 433#       发表于 2023-2-13 11:16
+
+ 本帖最后由 redsouris 于 2023-2-13 11:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59722384&amp;ptid=1913585" target="_blank">新人马甲2 发表于 2023-2-13 09:00</a>
+某只记得当年看到那个堪称写作反面教材的被轻小说用了一万多遍的开头就弃了，什么主角意义不明地狂奔与意义 ...</blockquote>你和其他作品搞混了吧？
+这小说开头不是在煞风景的废墟里看到一个不穿衣服的美女吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后面打怪所有行动都是这位美女给的指示，怎么就意义不明了？
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
