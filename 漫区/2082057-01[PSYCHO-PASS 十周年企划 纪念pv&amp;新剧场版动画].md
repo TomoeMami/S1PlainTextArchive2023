@@ -736,3 +736,90 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Piano-Forest  
+##### 77#       发表于 2023-2-17 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59327610&amp;ptid=2082057" target="_blank">Piano-Forest 发表于 2023-1-13 11:04</a>
+
+シリーズ最新作『剧场版 PSYCHO-PASS サイコパス PROVIDENCE』の公开日が决定しました！
+
+2023年5月12日（ ...</blockquote>
+特报PV：[https://youtu.be/huVtTW6_eCg](https://youtu.be/huVtTW6_eCg)
+
+
+*****
+
+####  LeonsCat  
+##### 78#       发表于 2023-2-17 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59328440&amp;ptid=2082057" target="_blank">meailove 发表于 2023-1-13 12:03</a>
+
+pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了啊第三季突发奇想换主角是为什么呢，继续 ...</blockquote>
+因为已经圣人化没法写了吧。
+
+
+*****
+
+####  aptx8285144  
+##### 79#       发表于 2023-2-17 11:02
+
+我还是觉得早点考虑完结落幕吧，剧情上限也就那样了，千万别整到朱爷她们人设不保<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nh_zzz  
+##### 80#       发表于 2023-2-17 13:50
+
+居然把EGOIST奶到了<img src="https://p.sda1.dev/9/be465c5e92e5b660a80bba4c81606119/CMP_20230217134516804.jpg" referrerpolicy="no-referrer">
+微博统计[cp]到PP3的时间点(2120年)——
+狡啮 36岁
+宜野 36岁
+小朱 28岁
+霜月 24岁
+小翔 26岁
+志恩 35岁
+须乡 30岁
+弥生 30岁
+————————————
+天国的星星如果活着也三十了[皱眉]
+从小鲜肉一路啃到老腊肉各位牙口还好么[允悲][允悲][允悲] ​​​[/cp]
+
+目前pv来说大几率是朱的案件（涉及灼爹死亡？）导致call去了外务省
+
+
+*****
+
+####  lvseqiji  
+##### 81#       发表于 2023-2-17 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">放弃看剧情了，就看看ntxl
+
+
+*****
+
+####  roxas.sora  
+##### 82#       发表于 2023-2-17 15:23
+
+冲方丁深见真...........剧情感觉没看头了，哎
+
+*****
+
+####  kisstv22  
+##### 83#       发表于 2023-2-17 15:25
+
+感觉是最终作了
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 84#       发表于 2023-2-17 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59783893&amp;ptid=2082057" target="_blank">kisstv22 发表于 2023-2-17 15:25</a>
+
+感觉是最终作了</blockquote>
+按规划的话这肯定不是最终作，毕竟这部只补了PP3前传的坑，PP3后续的坑还有呢（如法斑当了局长、小朱当了法定执行官）。当然，关键还是要看资方的商业评估。
+
