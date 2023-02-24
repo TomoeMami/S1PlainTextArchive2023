@@ -1005,3 +1005,10 @@ lz三年前的帖子要255权限，有备份吗</blockquote>
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  qiaoyicc  
+##### 110#       发表于 2023-2-21 19:44
+
+楼主去了，就相当于坛友们都去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
