@@ -1014,3 +1014,17 @@ show一下自己爱车刚提车时候的照片，注意这种轮毂的是最近�
 
 4v卖14w新台币，虽然有abs
 
+*****
+
+####  没什么bu好  
+##### 96#       发表于 2023-2-23 22:44
+
+<blockquote>引用第44楼菲特妹于2023-01-12 11:16发表的  :
+
+啊不对，复刻一个逮捕令同款电动小板凳，折叠放车尾箱，会更有市场</blockquote>
+[https://www.bilibili.com/video/BV1p84y1b7na/](https://www.bilibili.com/video/BV1p84y1b7na/)
+
+有没有就看这个了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi 22021211RC,Android 12](http://stage1.5j4m.com/?1.37)
+
