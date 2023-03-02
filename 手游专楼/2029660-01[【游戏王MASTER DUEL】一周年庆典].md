@@ -2011,3 +2011,74 @@ link杯拿海晶打着蛮舒服的。随便打打都能在黄金连胜
 
 日子过得真快，一路打一路喷的也玩了1年了
 
+*****
+
+####  osuppy38  
+##### 205#         楼主| 发表于 2023-2-26 14:33
+
+ 本帖最后由 osuppy38 于 2023-2-26 14:37 编辑 
+
+终于在月底拿雷碑上了钻一，打的过程太艰难了，中途醒悟了减少了点神碑组件尽量塞手坑胜率才上去了，虽然运气成分更大，先手各种吃3坑或者吃G没指没灰停的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在这环境组卡组越来越极端了
+
+
+*****
+
+####  格雷殿下  
+##### 206#       发表于 2023-2-26 18:50
+
+下个月对碑u不是很友好，怀疑国u会重返战场
+
+
+*****
+
+####  osuppy38  
+##### 207#         楼主| 发表于 2023-2-26 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59894395&amp;ptid=2029660" target="_blank">格雷殿下 发表于 2023-2-26 18:50</a>
+
+下个月对碑u不是很友好，怀疑国u会重返战场</blockquote>
+神碑那几张削掉的话纯雷碑这个环境应该是很难打了，国反正打不过雷碑，砍了那几张也一样（我自己拿国打了几把，然后雷碑碰到几把国，都是一个样子），国混点其他的东西的话不好说
+
+
+*****
+
+####  tvcx2010  
+##### 208#       发表于 2023-2-26 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59894395&amp;ptid=2029660" target="_blank">格雷殿下 发表于 2023-2-26 18:50</a>
+
+下个月对碑u不是很友好，怀疑国u会重返战场</blockquote>
+贴纸准限了一圈了，黄金国又没什么滤抽，感觉打不过雷精圆武和可能的珠泪
+
+
+*****
+
+####  arthes  
+##### 209#       发表于 2023-2-26 21:52
+
+贴纸其实问题不大，限这张就换那张，反正多的是，国后手打圆挺费劲的，圆的陷阱太难过了，我主卡下了两张魔封，对碑和烙印效果都很好，碑打起来很烦但是还算是有得打，体感纯碑比雷碑难缠，其他各种雷精很容易被拉扯到断续航，比起前几个感觉还算好打
+
+
+*****
+
+####  游蜓  
+##### 210#       发表于 2023-2-27 02:56
+
+下个月出不出白银城二姐啊，出了的话国彻底退环境了吧
+
+—— 来自 Xiaomi M2011K2C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  osuppy38  
+##### 211#         楼主| 发表于 2023-2-27 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59898271&amp;ptid=2029660" target="_blank">游蜓 发表于 2023-2-27 02:56</a>
+
+下个月出不出白银城二姐啊，出了的话国彻底退环境了吧
+
+—— 来自 Xiaomi M2011K2C, Android 13上的 S1Next ...</blockquote>
+等解包，但是一个月一个新包的可能性很小，4月出新卡比较正常，这个环境还要再打1个月。
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">不过白银城剩下的卡肯定凑不起一个包，应该还是哪个包顺带的，就跟这次雷精包顺带一些拔救卡一样
+
