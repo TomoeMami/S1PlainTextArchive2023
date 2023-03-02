@@ -139,3 +139,50 @@ section2 去掉了隧道 难度还是好大 section3改动比较大
 
 风景是真不错 gtplanet 出了好多细节截图 小动物 各种梗之类的囧
 
+*****
+
+####  轨迹老实人  
+##### 1736#       发表于 2023-2-27 11:09
+
+求助一下有dd pro 或者tgt2的朋友
+
+方向盘上的旋钮 比如节油模式那个 旋钮位置是一一对应每种节油模式么？
+
+就是比如我扭到4的位置 旋钮位置不变的话 关机重启再进游戏 仍然会是节油4的设置
+
+因为在用垃圾t300 vr下不方便切换节油模式 在考虑升级
+
+
+*****
+
+####  扑克脸军曹  
+##### 1737#       发表于 2023-2-27 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900557&amp;ptid=2027972" target="_blank">轨迹老实人 发表于 2023-2-27 11:09</a>
+
+求助一下有dd pro 或者tgt2的朋友
+
+方向盘上的旋钮 比如节油模式那个 旋钮位置是一一对应每种节油模式么？</blockquote>
+tgt2不是，点重试就重置成游戏设置里面那个值
+
+
+*****
+
+####  onemoment  
+##### 1738#       发表于 2023-2-27 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900557&amp;ptid=2027972" target="_blank">轨迹老实人 发表于 2023-2-27 11:09</a>
+
+求助一下有dd pro 或者tgt2的朋友
+
+方向盘上的旋钮 比如节油模式那个 旋钮位置是一一对应每种节油模式么？</blockquote>
+不能，旋钮也只能绑定已有的设置选项，选项里没有的就没法映射，自然也没法保存预设
+
+<img src="https://img.saraba1st.com/forum/202302/27/193818jlnazlqvabqvqxq5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1D472EE1-3570-4E6D-A084-9CEC877419A6.jpeg</strong> (221.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-27 19:38 上传
+
