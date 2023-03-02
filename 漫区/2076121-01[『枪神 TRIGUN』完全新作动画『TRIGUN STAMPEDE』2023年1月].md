@@ -3322,3 +3322,29 @@ No,no,no，前面的楼友不是说了嘛，新版这个叫跑神<img src="https
 
 好尴尬的兄弟爱，反派你们花大力气就改造出这种级别的东西？
 
+*****
+
+####  CCauchy  
+##### 314#       发表于 2023-2-26 00:05
+
+属于是烂到第一次知道这IP的动画党都察觉到一丝不妙了
+
+
+*****
+
+####  weige  
+##### 315#       发表于 2023-2-27 08:15
+
+新的一集还不错
+
+
+*****
+
+####  宝月夜宵  
+##### 316#       发表于 2023-2-27 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59898681&amp;ptid=2076121" target="_blank">weige 发表于 2023-2-27 08:15</a>
+
+新的一集还不错</blockquote>
+前一集败了口碑没人看了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
