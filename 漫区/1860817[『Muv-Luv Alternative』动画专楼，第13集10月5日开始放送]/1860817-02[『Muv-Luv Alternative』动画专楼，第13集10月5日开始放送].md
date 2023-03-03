@@ -3210,3 +3210,37 @@ AL的一半吧
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  再买自检星剁手  
+##### 2262#       发表于 2023-2-28 01:37
+
+20年前的今天，抹布拉布无印发售
+
+那么20周年应该有点表示吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/28/013607yylxlzla9ea3h6ay.jpg" referrerpolicy="no-referrer">
+
+<strong>4a13f7e3eeb2824e.jpg</strong> (273.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-28 01:36 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  若菜  
+##### 2263#       发表于 2023-2-28 08:52
+
+来点消息吧，那个破手游只见推特经常说改进了xxx，结果没任何实质进展
+
+*****
+
+####  Yeaha123  
+##### 2264#       发表于 2023-2-28 08:56
+
+大图书馆的牧羊人也是刚过了十周年，也就卖点谷子
+
