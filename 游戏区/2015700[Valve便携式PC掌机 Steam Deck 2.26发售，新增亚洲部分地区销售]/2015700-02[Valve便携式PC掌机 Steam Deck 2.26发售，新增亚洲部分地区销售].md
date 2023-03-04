@@ -2066,3 +2066,248 @@ Deck（以及Big Screen模式）上的帐号选择界面也有更新：
 
 —— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  Cybellybanana  
+##### 2169#       发表于 2023-2-25 03:32
+
+卧龙好像玩不了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  褪色的雪花  
+##### 2170#       发表于 2023-2-25 08:50
+
+官方都说玩不了，前几天一堆人还要说能玩<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Testament  
+##### 2171#       发表于 2023-2-25 09:38
+
+滑丝最后换一字螺丝刀解决的。
+
+*****
+
+####  Testament  
+##### 2172#       发表于 2023-2-25 09:38
+
+滑丝最后换一字螺丝刀解决的。
+
+
+*****
+
+####  夏之岚  
+##### 2173#       发表于 2023-2-26 22:17
+
+淘宝上512的要比64换1T的还贵1K，这是为什么？
+原装锁扣又是什么东西？
+512那个防眩光屏效果值得买吗？
+
+
+*****
+
+####  恋妖壶  
+##### 2174#       发表于 2023-2-26 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896346&amp;ptid=2015700" target="_blank">夏之岚 发表于 2023-2-26 22:17</a>
+
+淘宝上512的要比64换1T的还贵1K，这是为什么？
+
+原装锁扣又是什么东西？
+
+512那个防眩光屏效果值得买吗？ ...</blockquote>
+512自带专属个人资料啊，64换1T是什么臭鱼烂虾，一个过两年就变电子垃圾的东西也妄想和永恒稀有的专属个人资料比吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  硫黄  
+##### 2175#       发表于 2023-2-26 22:38
+
+ 本帖最后由 硫黄 于 2023-2-26 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896346&amp;ptid=2015700" target="_blank">夏之岚 发表于 2023-2-26 22:17</a>
+
+淘宝上512的要比64换1T的还贵1K，这是为什么？
+
+原装锁扣又是什么东西？
+
+512那个防眩光屏效果值得买吗？ ...</blockquote>
+1.因为sd售价64g的399刀，512g的649刀，G胖说64g售价是个艰难的决定（交个朋友
+
+而1tsdd，比如SN740，pdd最近售价已经500以下了
+
+而512g多了酷炫的内胆包（logo颜色不一样），酷炫的个人主题，酷炫的虚拟键盘
+
+2.包的拉链上有个锁扣，一般要剪开才能把机子拿出来，但据说也可以不剪
+
+3.贴了膜看不出来，去年有一批防眩光屏幕会有气泡，最近没听说有这问题
+
+
+*****
+
+####  GrayishWh0  
+##### 2176#       发表于 2023-2-26 22:43
+
+卧龙的demo一进去就会黑屏
+
+*****
+
+####  夏之岚  
+##### 2177#       发表于 2023-2-26 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896597&amp;ptid=2015700" target="_blank">硫黄 发表于 2023-2-26 22:38</a>
+1.因为sd售价64g的399刀，512g的649刀，G胖说64g售价是个艰难的决定（交个朋友
+
+而1tsdd，比如SN740，pdd最 ...</blockquote>
+谢谢。。。预算就4K，那就64再买个1T的TF卡算了。。。
+
+
+*****
+
+####  硫黄  
+##### 2178#       发表于 2023-2-26 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896685&amp;ptid=2015700" target="_blank">夏之岚 发表于 2023-2-26 22:47</a>
+
+谢谢。。。预算就4K，那就64再买个1T的TF卡算了。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也以为用TF就够了，最后还是换了ssd
+
+如果手边有闲置的tf先试用一下，能接受再买吧，1t好贵的
+
+
+*****
+
+####  夏之岚  
+##### 2179#       发表于 2023-2-26 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896771&amp;ptid=2015700" target="_blank">硫黄 发表于 2023-2-26 22:57</a>
+我也以为用TF就够了，最后还是换了ssd
+
+如果手边有闲置的tf先试用一下，能接受再买吧，1t好贵的 ...</blockquote>
+蛤？TF不是速度跟固态差不多嘛？
+
+*****
+
+####  zris  
+##### 2180#       发表于 2023-2-26 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896859&amp;ptid=2015700" target="_blank">夏之岚 发表于 2023-2-26 23:06</a>
+蛤？TF不是速度跟固态差不多嘛？</blockquote>
+那速度肯定还是有差距
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Deay店长  
+##### 2181#       发表于 2023-2-26 23:30
+
+<blockquote>夏之岚 发表于 2023-2-26 23:06
+蛤？TF不是速度跟固态差不多嘛？</blockquote>
+差了不少
+
+
+*****
+
+####  Cybellybanana  
+##### 2182#       发表于 2023-2-27 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896597&amp;ptid=2015700" target="_blank">硫黄 发表于 2023-2-26 22:38</a>
+
+1.因为sd售价64g的399刀，512g的649刀，G胖说64g售价是个艰难的决定（交个朋友
+
+而1tssd，比如SN740，pdd最 ...</blockquote>
+锁扣应该各版本都有，有一个V社的标
+
+
+*****
+
+####  maninhole  
+##### 2183#       发表于 2023-2-27 11:37
+
+ 本帖最后由 maninhole 于 2023-2-27 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896906&amp;ptid=2015700" target="_blank">zris 发表于 2023-2-26 23:11</a>
+那速度肯定还是有差距
+
+—— 来自 S1Fun</blockquote>
+理论速度是差点
+
+问题是v社卡住了deck的极限读取速度，上限就是tf的极限，导致你换ssd也没办法超模
+
+*****
+
+####  maninhole  
+##### 2184#       发表于 2023-2-27 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59897067&amp;ptid=2015700" target="_blank">Deay店长 发表于 2023-2-26 23:30</a>
+差了不少</blockquote>
+你确定?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唯一有影响的其实是着色器缓存
+
+*****
+
+####  zris  
+##### 2185#       发表于 2023-2-27 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900973&amp;ptid=2015700" target="_blank">maninhole 发表于 2023-2-27 11:37</a>
+
+理论速度是差点
+
+问题是deck的极限读取速度上限就是tf的极限差不多</blockquote>
+我自己就捣鼓过这两个方案，换的SSD还是好些。
+
+
+*****
+
+####  我被骗了五块钱  
+##### 2186#       发表于 2023-2-27 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59618651&amp;ptid=2015700" target="_blank">柠檬渣 发表于 2023-2-5 10:58</a>
+
+拆机俩螺丝滑丝    这问题应该不止我一个
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+这螺丝适合用一字螺丝刀小号那种轻轻拧
+
+
+*****
+
+####  慕容断月  
+##### 2187#       发表于 2023-2-27 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896685&amp;ptid=2015700" target="_blank">夏之岚 发表于 2023-2-26 22:47</a>
+谢谢。。。预算就4K，那就64再买个1T的TF卡算了。。。</blockquote>
+tf卡一定不够，我也是这么想的，最后还是换了2t的sn740<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LMBS  
+##### 2188#       发表于 2023-2-27 17:46
+
+可能是我的TF太拉，有时传输数据开始速度还行，过一会速度就掉到20m，卡的不行
+
+
+*****
+
+####  violettor  
+##### 2189#       发表于 2023-3-1 20:36
+
+请教下大家，想拿两张储存卡，一张用来存在steamos下玩的游戏，一张用来装wintogo玩一些老gal，请教点问题
+
+1. 请问这个方案可行吗？
+
+2. 装好wintogo之后关机换一张卡再开机是不是就恢复成普通的steamos了呀，
+
+3. 反过来也一样吗？
+
+4. wintogo能不能休眠呢？
+
+谢谢！
+
