@@ -599,3 +599,138 @@ P流汗.jpg
 
 试抽了30连2ssr都歪了，就不强抽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  moonmagian  
+##### 7107#       发表于 2023-2-21 23:59
+
+打活动好累，感觉要燃尽了
+平常一年肝一次就已经觉得很累了，一想到今年有两次就很绝望<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  花开安菲路  
+##### 7108#       发表于 2023-2-22 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59840583&amp;ptid=1484979" target="_blank">moonmagian 发表于 2023-2-21 23:59</a>
+
+打活动好累，感觉要燃尽了
+
+平常一年肝一次就已经觉得很累了，一想到今年有两次就很绝望</blockquote>
+是打那个周年排名牌子，还全收集黑白牌子啊？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我自动券摸鱼就挺爽的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moonmagian  
+##### 7109#       发表于 2023-2-22 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59847425&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-2-22 17:08</a>
+
+是打那个周年排名牌子，还全收集黑白牌子啊？
+
+我自动券摸鱼就挺爽的 ...</blockquote>
+打了30多张黑牌，打不动了，剩下打算摸鱼搬白牌了
+
+
+*****
+
+####  killcal  
+##### 7110#       发表于 2023-2-22 17:26
+
+我是把miki的黑牌拿了，剩下拿完白牌拉倒
+
+
+*****
+
+####  cckuku  
+##### 7111#       发表于 2023-2-22 20:47
+
+是你们太肝了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我每天只打10把双倍就下线。
+
+
+*****
+
+####  花开安菲路  
+##### 7112#       发表于 2023-2-23 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59847638&amp;ptid=1484979" target="_blank">killcal 发表于 2023-2-22 17:26</a>
+
+我是把miki的黑牌拿了，剩下拿完白牌拉倒</blockquote>
+和我想的差不多
+
+我也是把杏奈黑牌子打了，剩下的看情况收集下白牌子。
+
+
+*****
+
+####  kria  
+##### 7113#       发表于 2023-2-25 09:46
+
+<img src="https://img.saraba1st.com/forum/202302/25/094615dnoauiuqqdhnlvai.jpg" referrerpolicy="no-referrer">
+
+<strong>FpuLcdIaMAEmr_K.jpg</strong> (200.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 09:46 上传
+
+
+*****
+
+####  しろの舞  
+##### 7114#       发表于 2023-2-26 13:24
+
+198w能拿完因为浪费要打到200w
+
+
+*****
+
+####  花开安菲路  
+##### 7115#       发表于 2023-2-26 20:07
+
+前几天摸鱼，最后两天把剩余白牌子拿了，总共68W，
+
+其实还有几个想拿的黑牌子，但肝不动也不想多碎石买体力了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+点开排行榜才发现，原来只有一个活动曲的分数榜<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 7116#       发表于 2023-2-27 11:15
+
+10周年，不容易啊，虽然不是土豆周年
+
+
+*****
+
+####  吉诺爱比利  
+##### 7117#       发表于 2023-2-27 12:29
+
+气的直接拍桌子了，上个月刚井的白毛72，这次又让我抽到了，出点重复的老限定也不会这么难受<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7118#       发表于 2023-2-27 13:21
+
+抽到了和服女儿、紫红发色丽花，不好不坏还行吧。
+
+
+*****
+
+####  花开安菲路  
+##### 7119#       发表于 2023-3-2 00:06
+
+<img src="https://p.sda1.dev/10/6f0de741ac2b66044969986129ef3378/CMP_20230301235509090.jpg" referrerpolicy="no-referrer">
+草草，如果第二个没重复就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+正好可以和之前抽的女儿丽花组个da队<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
