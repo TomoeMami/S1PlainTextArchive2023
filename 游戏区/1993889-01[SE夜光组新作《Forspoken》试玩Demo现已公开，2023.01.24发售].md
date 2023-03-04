@@ -5707,3 +5707,246 @@ PDD百亿补贴已经可以半价拿下了<img src="https://static.saraba1st.com
 
 等pdd价格降到100块以下买个实体纪念下夜光遗作吧
 
+*****
+
+####  Piano-Forest  
+##### 576#         楼主| 发表于 2023-2-28 14:23
+
+[https://m.weibo.cn/1622008051/4874122510993126](https://m.weibo.cn/1622008051/4874122510993126)
+
+Square Enix宣布，《ForSpoken》开发工作室Luminous Productions（夜光组）将于5月1日并入SE本社，不再作为独立的全资子公司存在。SE表示此次合并是为了加强集团开发工作室的竞争能力所做的一部分，也是公司业务战略中提到的目标。合并完成后，夜光组之前在3A级游戏与游戏引擎方面的经验将进一步加强SE集团开发高清游戏的能力。
+<img src="https://p.sda1.dev/10/94108309ec405141c9624f632d971a85/20230228_142136.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/b598351baeb444c8d701763f73ef76a6/20230228_142131.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/4037e6808eec914043aefa7379d9124a/a4pfm-oxf75-001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/54b31b62a9c83ed69eb8ebe0aa48ac7c/ad6v7-m4rum-001.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cqc1021  
+##### 577#       发表于 2023-2-28 14:35
+
+SE：游戏做得很好，以后不要再做了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  2082082012  
+##### 578#       发表于 2023-2-28 14:36
+
+好似<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ff2077  
+##### 579#       发表于 2023-2-28 14:37
+
+这下是给别的组打工了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Pipcat  
+##### 580#       发表于 2023-2-28 14:40
+
+啪一下，没了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sad6504  
+##### 581#       发表于 2023-2-28 14:43
+
+好死
+
+*****
+
+####  415452356  
+##### 582#       发表于 2023-2-28 14:43
+
+  本身就没搞下去的必要，不如把人员分过去帮忙优化引擎和画面才是正道。
+
+*****
+
+####  ShiKi847  
+##### 583#       发表于 2023-2-28 14:44
+
+跑酷系统积累的技术倒是可以分享给王国之心
+
+*****
+
+####  qiyu1234  
+##### 584#       发表于 2023-2-28 14:47
+
+别的组没有在用夜光的吧，搞不好有些人要被清退喽
+
+*****
+
+####  umbasa  
+##### 585#       发表于 2023-2-28 14:50
+
+换成ea早给你解散了，se它真的，我哭死
+
+*****
+
+####  Rowen233  
+##### 586#       发表于 2023-2-28 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59650419&amp;ptid=1993889" target="_blank">lazycat233 发表于 2023-2-7 18:49</a>
+坐等xgp或者psn二档
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+ps两年独占<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  karastar  
+##### 587#       发表于 2023-2-28 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这是要把技术人员吸收了吗
+
+*****
+
+####  山岚夜雨  
+##### 588#       发表于 2023-2-28 14:54
+
+日本人还是委婉，搁ea确实直接解散了
+
+*****
+
+####  Guildenstern  
+##### 589#       发表于 2023-2-28 14:56
+
+并入本社，下一步就是解散，有用的人并到三个开发部，没用的卷铺盖走人。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  戏言学者  
+##### 590#       发表于 2023-2-28 14:59
+
+怀疑这个组真能留下什么技术遗产分给其他组共用吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  415452356  
+##### 591#       发表于 2023-2-28 15:09
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无非就是让这个组的头头带他们重新学虚幻4然后去给FF7R、KH3以及以后用虚幻的项目打工呗，还能咋的，SE也不至于多养几个码农就喊穷。
+
+  不如说当初被小甜甜说服真给夜光单独开了子公司的高层也要背锅，怎么就被忽悠了，FF15到现在浪费的钱恐怕平均分给近年来的外包游戏都能让质量飞跃吧。
+
+
+*****
+
+####  炯Ⅺ  
+##### 592#       发表于 2023-2-28 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59915576&amp;ptid=1993889" target="_blank">415452356 发表于 2023-2-28 15:09</a>
+无非就是让这个组的头头带他们重新学虚幻4然后去给FF7R、KH3以及以后用虚幻的项目打工呗，还能咋 ...</blockquote>
+<img src="https://p.sda1.dev/10/ff2fb121690a582f4bd11daaa455230a/CMP_20230228151939798.jpg" referrerpolicy="no-referrer">
+小田田这忽悠力简直是拉满了，你不得不服啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就这样都还能拉到这么多大财团的投资呢，简直就是诈骗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22021211RC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  415452356  
+##### 593#       发表于 2023-2-28 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59915699&amp;ptid=1993889" target="_blank">炯Ⅺ 发表于 2023-2-28 15:21</a>
+
+小田田这忽悠力简直是拉满了，你不得不服啊
+
+就这样都还能拉到这么多大财团的投资呢，简直就是诈 ...</blockquote>
+   <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">RPG届庞氏骗局第一人
+
+*****
+
+####  karastar  
+##### 594#       发表于 2023-2-28 15:28
+
+小田田这个水平当个制作人比较合适，不适合当导演
+
+
+*****
+
+####  十六夜镜月  
+##### 595#       发表于 2023-2-28 15:31
+
+小田田残奥巨着，希望大家能多多捧场
+
+*****
+
+####  zfz4869  
+##### 596#       发表于 2023-2-28 15:34
+
+等出完补丁入一个二手  试玩版还是可以一玩的
+
+
+*****
+
+####  唯_change  
+##### 597#       发表于 2023-2-28 15:54
+
+这垃圾质量说明夜光组的人已经摸鱼很久了，这引擎基本报废
+
+
+*****
+
+####  kitano  
+##### 598#       发表于 2023-2-28 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59915727&amp;ptid=1993889" target="_blank">415452356 发表于 2023-2-28 15:24</a>
+RPG届庞氏骗局第一人</blockquote>
+星际公民惨被开除出RPG行列，萝卜痛失第一头衔
+
+
+*****
+
+####  葵  
+##### 599#       发表于 2023-2-28 22:26
+
+这游戏现在值崩到100多一张了，但是我不买，我觉得半年内必上二档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 600#       发表于 2023-3-1 19:45
+
+夜光引擎一开始就不应该交由没太大名声游戏製作者来负责
+
+负责技术的桥本他们走了，就应该另外花钱找回一个明星级或有点名气的技术人员来补回位置，而不是叫游戏导演一併负责，
+
+至于FF15元宇宙已经完全失败前例下，这样还叫他再负责多次元宇宙规模，只能说给钱的老闆根本不会理会游戏内容，做了成品就算，之后变成赔钱货时就将对方砍了
+
+游戏成品和玩家期望愈来愈脱节...
+
+
+*****
+
+####  eilot  
+##### 601#       发表于 2023-3-1 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59915323&amp;ptid=1993889" target="_blank">qiyu1234 发表于 2023-2-28 14:47</a>
+
+别的组没有在用夜光的吧，搞不好有些人要被清退喽</blockquote>
+14年野村另搞王3时，就表示引擎问题转用UE，夜光组分拆出来是更之后
+
+可能也是这时被说服要15和夜光绑在一起，令其他游戏也不会用到，最后就演变成小田田要同时成为15及引擎开发人...
+
+
+*****
+
+####  病態極端  
+##### 602#       发表于 2023-3-1 22:08
+
+<img src="https://i.4cdn.org/v/1677675839892211.png" referrerpolicy="no-referrer">
+
