@@ -1753,3 +1753,86 @@ BLUE PROTOCOL
 
 ネットワークテスト実施准备状况のご报告について続报をお伝えするため、2月28日(火)20时から「ブルプロ通信」#6.2を配信いたします
 
+*****
+
+####  kuglv  
+##### 193#       发表于 2023-3-1 21:26
+
+ 本帖最后由 kuglv 于 2023-3-1 21:31 编辑 
+
+[https://blue-protocol.com/download/benchmark](https://blue-protocol.com/download/benchmark)
+
+官方放跑分demo了，下来捏了个人跑了一下，不得不说这画面和场景设计看起来还是很舒服，而且优化看着还行，我1070最高画质基本全程60帧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浅川雏羽  
+##### 194#       发表于 2023-3-2 04:41
+
+跑分demo最高分辨率只有1080p，没什么道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViviR  
+##### 195#       发表于 2023-3-2 05:30
+
+<blockquote>浅川雏羽 发表于 2023-3-2 04:41
+跑分demo最高分辨率只有1080p，没什么道理</blockquote>
+目前只能把系统缩放改回100%来解决
+
+
+*****
+
+####  elven119  
+##### 196#       发表于 2023-3-2 07:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59934059&amp;ptid=2103199" target="_blank">浅川雏羽 发表于 2023-3-2 04:41</a>
+
+跑分demo最高分辨率只有1080p，没什么道理</blockquote>
+为什么我有2k选
+
+
+*****
+
+####  laputah  
+##### 197#       发表于 2023-3-2 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59934216&amp;ptid=2103199" target="_blank">elven119 发表于 2023-3-2 07:30</a>
+
+为什么我有2k选</blockquote>
+笔记本系统缩放的事 我这1080P笔记本只给15xx的分辨率选 系统缩放整回100就好了 他应该是2K的笔记本 
+
+
+*****
+
+####  浅川雏羽  
+##### 198#       发表于 2023-3-2 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59934293&amp;ptid=2103199" target="_blank">laputah 发表于 2023-3-2 07:55</a>
+笔记本系统缩放的事 我这1080P笔记本只给15xx的分辨率选 系统缩放整回100就好了 他应该是2K的笔记本  ...</blockquote>
+我是4k台式来着，不过你这么一说我感觉应该确实是系统缩放问题
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  printer22  
+##### 199#       发表于 2023-3-2 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59934095&amp;ptid=2103199" target="_blank">ViviR 发表于 2023-3-2 05:30</a>
+
+目前只能把系统缩放改回100%来解决</blockquote>
+D3P出的御姐武戏起源也有这个问题，分辨率跟着系统缩放走，也就是万代的水平与D3P一个档次wwwwwww
+
+
+*****
+
+####  defer  
+##### 200#       发表于 2023-3-2 21:55
+
+5800x3d+6800，4K最高画质（预设），总分8133评价good
+
+四人本那段只有40帧，陨石下来那几秒20帧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
