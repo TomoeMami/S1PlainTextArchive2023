@@ -1000,3 +1000,339 @@ im中坚出走太多要推新人上来补位了来自: iPhone客户端
 
 <img src="https://p.sda1.dev/9/99fe65fc571a15a75c74587cda11ac2a/CMP_20230214132045021.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 106#       发表于 2023-2-27 17:05
+
+正式PV：[https://youtu.be/Sld5uW_BJU4](https://youtu.be/Sld5uW_BJU4)
+
+放送情报
+
+TOKYO MX：2023年4月1日（土）より毎週土曜日22:00～
+
+RKB毎日放送：2023年4月1日（土）より毎週土曜日26:00～
+
+テレビ爱知：2023年4月1日（土）より毎週土曜日26:25～
+
+北海道テレビ：2023年4月1日（土）より毎週土曜日26:35～ ※初回のみ26:00～
+
+MBS：2023年4月1日（土）より毎週土曜日26:38～
+
+BS11：2023年4月1日（土）より毎週土曜日22:00～
+
+AT-X：2023年4月1日（土）より毎週土曜日23:00～ ※リピート放送あり、毎週水曜日11:00～、毎週金曜日17:00～
+
+RKK熊本放送：2023年4月14日（金）より毎週金曜日26:23～
+
+配信情报
+
+ディズニープラスにて世界见放题独占配信
+
+スタッフ
+
+原作：石黒正数 『天国大魔境』（月刊アフタヌーン／讲谈社 连载）
+
+监督：森大贵
+
+シリーズ构成：深见真
+
+キャラクターデザイン：うつした（南方研究所）
+
+ヒルコデザイン：古川良太
+
+プロップデザイン：富坂真帆、泽田譲治
+
+铳器デザイン：高田晃
+
+メカデザイン：常木志伸
+
+色彩设计：広瀬いづみ
+
+美术监督：金子雄司
+
+美术设定：ブリュネ・スタニスラス / 伊井蔵、上田瑞香、平泽晃弘、高桥武之
+
+3D：directrain、IG3D、5(five)
+
+モーショングラフィックス：大城丈宗
+
+2DW：CAPSULE、滨中亜希子
+
+撮影监督：胁显太朗
+
+编集：坂本久美子
+
+音响监督：木村絵理子
+
+音楽：牛尾宪辅
+
+アニメ―ション制作：Production I.G
+
+製作：天国大魔境製作委员会
+
+キャスト
+
+マル：佐藤元
+
+キルコ：千本木彩花
+
+稲崎露敏：中井和哉
+
+トキオ：山村响
+
+コナ：豊永利行
+
+ミミヒメ：福圆美里
+
+シロ：武内骏辅
+
+クク：黒沢ともよ
+
+アンズ：松冈美里
+
+タカ：新佑树
+
+园长：矶辺万沙子
+
+猿渡：武藤正史
+
+青岛：种崎敦美
+
+
+*****
+
+####  是这样  
+##### 107#       发表于 2023-2-27 17:15
+
+pv还行啊看起来
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  feliznavidad  
+##### 108#       发表于 2023-2-27 17:28
+
+这个pv食完，我已经HIGH到不行啦！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  forgetit  
+##### 109#       发表于 2023-2-27 17:47
+
+感觉可以
+
+*****
+
+####  吃货红毛  
+##### 110#       发表于 2023-2-27 17:50
+
+PV看着经费十分充足 感觉稳了呀<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宅方泉  
+##### 111#       发表于 2023-2-27 18:07
+
+迫不及待了 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mono  
+##### 112#       发表于 2023-2-27 18:10
+
+一季够做漫画几本啊 多来点 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zego  
+##### 113#       发表于 2023-2-27 18:42
+
+pv质量有点高 就是不知道能做到哪了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  carrasco21  
+##### 114#       发表于 2023-2-27 18:59
+
+被最新高质量pv安利到了，这几天考完试可以恶补一波漫画，世界观和怪物设计看起来很有意思
+
+
+*****
+
+####  Litccc  
+##### 115#       发表于 2023-2-27 19:44
+
+pv真不错，期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zerocount  
+##### 116#       发表于 2023-2-27 19:56
+
+姐姐我进来了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊猫roey  
+##### 117#       发表于 2023-2-27 20:56
+
+质量真不错，期待拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 118#         楼主| 发表于 2023-2-27 21:55
+
+趁人多宣群<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+欢迎加入天国大魔境讨论群：642652325
+主要成员来自贴吧和S1<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛尾宪辅  
+##### 119#       发表于 2023-2-27 22:32
+
+这pv太强了，追了追了
+
+
+*****
+
+####  最强惠酱  
+##### 120#       发表于 2023-2-27 23:29
+
+这pv质量高得吓人，还以为是哪个老炮监督整得新剧场版动画，一看居然是第一次当监督<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  feliznavidad  
+##### 121#       发表于 2023-2-27 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59908362&amp;ptid=2088657" target="_blank">蚊仔蚊仔蚊仔 发表于 2023-2-27 21:55</a>
+趁人多宣群
+欢迎加入天国大魔境讨论群：642652325
+主要成员来自贴吧和S1 ...</blockquote>
+群里多少人啊
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  精神  
+##### 122#       发表于 2023-2-27 23:35
+
+这PV猛一看还以为是剧场版，期待拉满，4月必看
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 123#         楼主| 发表于 2023-2-27 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59909334&amp;ptid=2088657" target="_blank">feliznavidad 发表于 2023-2-27 23:31</a>
+
+群里多少人啊
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+130持续增长中！
+
+
+*****
+
+####  ylssb10438  
+##### 124#       发表于 2023-2-28 00:07
+
+一把子期待住了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ylssb10438  
+##### 125#       发表于 2023-2-28 00:07
+
+一把子期待住了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  klmmmx  
+##### 126#       发表于 2023-2-28 00:12
+
+厉害了，还说等漫画出完了一口气看了来理时间线，居然动画都来了
+
+*****
+
+####  sohryu  
+##### 127#       发表于 2023-2-28 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59908362&amp;ptid=2088657" target="_blank">蚊仔蚊仔蚊仔 发表于 2023-2-27 21:55</a>
+趁人多宣群
+欢迎加入天国大魔境讨论群：642652325
+主要成员来自贴吧和S1 ...</blockquote>
+后续可以拓展为石黑正数粉丝群，顺便还可以宣传下你的街猫微博
+
+
+*****
+
+####  shqingda_  
+##### 128#       发表于 2023-2-28 00:51
+
+这pv质量，隔壁水上悟志都馋哭了
+
+
+*****
+
+####  葛饰应为  
+##### 129#       发表于 2023-2-28 01:11
+
+PV看着不错
+
+
+*****
+
+####  被子十三  
+##### 130#       发表于 2023-2-28 03:09
+
+期待值直线上升<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊猫roey  
+##### 131#       发表于 2023-3-2 21:57
+
+bish虽然红白车祸，但是好几首歌我还挺喜欢，之前给哥斯拉奇点唱的op就不错，这次pv里流出来的部分也挺好听，期待全曲
+
+
+*****
+
+####  thez  
+##### 132#       发表于 2023-3-2 22:40
+
+PV确实不错
+
+
+*****
+
+####  laiteweimu  
+##### 133#       发表于 2023-3-2 23:33
+
+pv看着不错
+
