@@ -222,3 +222,48 @@
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  宛若青空  
+##### 455#       发表于 2023-3-2 00:19
+
+话说官博在微博玩的在线跑团开年游戏在2月最后一天28日圆满结束了，最后拼出了这张图
+
+<img src="https://img.saraba1st.com/forum/202303/02/001913z4rlrfjf8hk886pt.jpg" referrerpolicy="no-referrer">
+
+<strong>008vgXEVgy1hbjdy8zl0jj32hc2iub2c.jpg</strong> (488.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-2 00:19 上传
+
+附赠呱呱一箱
+
+<img src="https://img.saraba1st.com/forum/202303/02/001933feteaa6atnm0xdxe.jpg" referrerpolicy="no-referrer">
+
+<strong>008vgXEVgy1hbjdye7wp5j30rs0rs1b6.jpg</strong> (146.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-2 00:19 上传
+
+
+*****
+
+####  水千秋  
+##### 456#       发表于 2023-3-4 00:43
+
+没在STEAM上看到预售啊  什么时候发售啊
+
+
+*****
+
+####  Rainwedell  
+##### 457#       发表于 2023-3-4 05:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59958707&amp;ptid=2093296" target="_blank">水千秋 发表于 2023-3-4 00:43</a>
+没在STEAM上看到预售啊  什么时候发售啊</blockquote>
+没说，估计还早
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
