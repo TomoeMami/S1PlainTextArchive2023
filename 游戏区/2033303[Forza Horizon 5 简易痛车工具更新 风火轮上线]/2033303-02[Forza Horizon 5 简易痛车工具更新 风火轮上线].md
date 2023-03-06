@@ -233,3 +233,20 @@
 
 什么新算法，你要就全体玩家重新搞啊
 
+*****
+
+####  天神十三煞  
+##### 2530#         楼主| 发表于 2023-3-3 15:12
+
+摆烂这么久
+
+俱乐部功能终于修好
+
+
+*****
+
+####  cxasuka  
+##### 2531#       发表于 2023-3-4 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">md把拍卖场重置技能刷抽奖给修了nnd
+
