@@ -4026,3 +4026,69 @@ RP守恒了
 
 —— 来自 OPPO PDRM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  朝仓和美  
+##### 44176#       发表于 2023-3-2 08:35
+
+这福尔摩斯巧克力剧情怎么回事……感觉应该有伏笔，又看不出来。
+
+巧克力今天下午就停止兑换了，还好看了一眼。本来还打算晚上领完的……
+
+
+*****
+
+####  shimotsuki14  
+##### 44177#       发表于 2023-3-2 09:14
+
+早上起床之前总算是把过去一年新增的30个从者相关语音听完了，累。
+剩下的十个一领算是进步
+
+
+*****
+
+####  DET  
+##### 44178#       发表于 2023-3-2 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戴眼镜才能看到敌人很P4呢
+
+
+*****
+
+####  电波系腑海林  
+##### 44179#       发表于 2023-3-2 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情</blockquote>
+随便抽一下呼符居然出了狂娜和阿一，不过我两次杀狐池子都沉了只能看今年福袋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 44180#       发表于 2023-3-2 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59870771&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-2-24 13:37</a>
+
+笑死，妖精的那几个会有c呆出场
+
+—— 来自 OPPO PDRM00, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+C呆几乎全程乐子人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+2.6这几个在迦勒底还是都过得蛮开心，倒是个不错的归宿了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 44181#       发表于 2023-3-3 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59942472&amp;ptid=1712412" target="_blank">DET 发表于 2023-3-2 19:30</a>
+
+戴眼镜才能看到敌人很P4呢</blockquote>
+连片头风格都是
+
