@@ -679,3 +679,127 @@ k9那时还是开荒，营收太低，底薪才是大头
 
 一个星律动有限公司企业号，一个星律动虚拟主播企划号，感觉挺好理解的，不知道为什么这么多人发散<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">手里掌握一个蓝v企业号应该在卖货、抽实体礼物或者投诉维权这些方面更容易吧
 
+*****
+
+####  喜闻乐见  
+##### 3072#         楼主| 发表于 2023-2-24 20:09
+
+卡姐抵达10w
+
+身傍xox社交约束没吃饱
+
+
+*****
+
+####  ladiesman802  
+##### 3073#       发表于 2023-2-24 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59875776&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2023-2-24 20:09</a>
+
+卡姐抵达10w
+
+身傍xox社交约束没吃饱</blockquote>
+好事，没有千舰无法毕业
+
+
+*****
+
+####  喜闻乐见  
+##### 3074#         楼主| 发表于 2023-2-25 16:21
+
+<img src="https://pic1.58cdn.com.cn/nowater/webim/big/n_v27710394c565d4f899af6a0fa1c92c819.png" referrerpolicy="no-referrer">
+<img src="https://pic4.58cdn.com.cn/nowater/webim/big/n_v2ca0fb8880ce24988921af2be44aa16ba.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ladiesman802  
+##### 3075#       发表于 2023-2-25 20:00
+
+能够面对过去，对于叶子来说不容易啊。中之人都走出歌姬的影子了，粉丝们也要往前走了
+
+
+*****
+
+####  喜闻乐见  
+##### 3076#         楼主| 发表于 2023-2-25 21:09
+
+<img src="https://pic4.58cdn.com.cn/nowater/webim/big/n_v2685fb5f244dd4a969ffcca8b02c52b72.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 3077#       发表于 2023-2-27 11:30
+
+saku这个企划不会也是v吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  ladiesman802  
+##### 3078#       发表于 2023-2-27 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900892&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2023-2-27 11:30</a>
+
+saku这个企划不会也是v吧
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+估计是love live那样吧
+
+至少声优出来营业就不像是vtb
+
+
+*****
+
+####  ladiesman802  
+##### 3079#       发表于 2023-2-28 19:59
+
+卡姐10w粉了
+
+仓鼠佬大气
+
+
+*****
+
+####  MinFOrder  
+##### 3080#       发表于 2023-2-28 20:10
+
+12日2D生日，17日3D生日回，不好说了
+
+
+*****
+
+####  喜闻乐见  
+##### 3081#         楼主| 发表于 2023-2-28 22:48
+
+卡姐看来要给评论的全点赞一遍
+
+
+*****
+
+####  佛皇  
+##### 3082#       发表于 2023-3-2 13:06
+
+综艺直播，也算厂子一直深耕的领域，看看有没有新突破吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喜闻乐见  
+##### 3083#         楼主| 发表于 2023-3-3 13:13
+
+美工上大分
+
+
+*****
+
+####  ladiesman802  
+##### 3084#       发表于 2023-3-3 13:30
+
+厂长画得太年轻了
+
+没有束缚感
+
