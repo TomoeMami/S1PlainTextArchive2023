@@ -4858,3 +4858,37 @@ http://b23.tv/3ihRFM7 录了个卡尔三阶段格挡 除了一个招数没展示
 
 —— 来自 samsung SM-S9060, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  kyonkoism  
+##### 464#       发表于 2023-3-4 20:03
+
+谢谢hifi rush的神级优化和顶级游戏体验治愈了被卧龙大变一样的优化强碱了一早上的我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DTCPSS  
+##### 465#       发表于 2023-3-4 22:50
+
+刚通关，这个质量加上不会过时的美术风格，可以在很多年依然被玩家推荐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DTCPSS  
+##### 466#       发表于 2023-3-4 22:50
+
+刚通关，这个质量加上不会过时的美术风格，可以在很多年依然被玩家推荐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xgazer  
+##### 467#       发表于 2023-3-5 00:55
+
+VH通关 太嗨了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
