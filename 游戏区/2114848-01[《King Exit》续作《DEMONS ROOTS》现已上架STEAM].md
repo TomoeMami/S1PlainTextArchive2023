@@ -1986,3 +1986,47 @@ gog版本装完是英语，没有能改中文的setting项怎么整？看到loca
 
 gog版本装完是英语，没有能改中文的setting项怎么整？看到locales目录下有Ch-cn.pak啊。
 
+*****
+
+####  pf67  
+##### 155#       发表于 2023-3-5 13:05
+
+终于通了，好爽啊
+体感打了很久，结果游戏统计时间才10多个小时。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 156#       发表于 2023-3-5 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883956&amp;ptid=2114848" target="_blank">windzz 发表于 2023-2-25 17:07</a>
+这种剧情好的H/非H rpgmaker还有其他推荐吗
+
+除了ke dr 冲突意志 praygame</blockquote>
+首推勇者大战魔物娘rpg
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  pf67  
+##### 157#       发表于 2023-3-5 13:42
+
+ 本帖最后由 pf67 于 2023-3-5 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59404463&amp;ptid=2114848" target="_blank">LrGsite 发表于 2023-1-18 20:54</a>
+打完了那个镜中世界的，感觉算是番外吧，就是路易斯出来之后跑来结晶这里试探了一下波琉卡嘛。
+
+通 ...</blockquote>
+dr线其实就是解决了咒福的问题，对人魔大战的火种问题并没有去解决。
+
+至于接ke正史，但ke里压根就没有咒福，如果真按dr的设定那魔族再怎么折腾弄也绝逼打不过帝国……
+
+按ke的说法帝国高层还是被暗中替换，才逐渐衰落，然后九团都被卖了，就dr里皇帝和魔族那三个渣滓的水平对比下这怎么可能发生。
+
+洋葱一行能打过皇帝都纯粹是主角光环爆棚运气爆表。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

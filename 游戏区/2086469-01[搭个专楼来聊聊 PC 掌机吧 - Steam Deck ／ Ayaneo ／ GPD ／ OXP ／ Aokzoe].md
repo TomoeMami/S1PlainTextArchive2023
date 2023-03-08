@@ -1096,3 +1096,28 @@ https://www.kickstarter.com/projects/handheld-game-device/peakdo-mm-wave-streami
 
 本次 AYANEO AIR 扬声器免费换新计划将提供「官方换新」与「自助换新」两种升级渠道，用户可自行选择适合的方式进行换新，具体升级流程以官方公告为准。 由于目前仍需评估物料情况与工期，此次免费换新计划的具体开展时间及更多详情我们将择日（预计 3 月内）另行通知，玩家可通过 AYANEO 官网以及官方媒体平台获取相关资讯。
 
+*****
+
+####  revoer  
+##### 661#       发表于 2023-3-3 16:56
+
+1688的 air plus 1215u 可太香了 
+
+
+*****
+
+####  妄想中毒  
+##### 662#       发表于 2023-3-3 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59953422&amp;ptid=2086469" target="_blank">revoer 发表于 2023-3-3 16:56</a>
+1688的 air plus 1215u 可太香了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得预订价和正式价差这么多其实就是为了安抚999预订等了大半年的用户，aya根本不指望有多少人会去买原价plus，那定价买个性能更强的deck不香吗
+
+
+*****
+
+####  医生狼多  
+##### 663#       发表于 2023-3-3 18:14
+
+peakdo预计这个月支付尾款了
+
