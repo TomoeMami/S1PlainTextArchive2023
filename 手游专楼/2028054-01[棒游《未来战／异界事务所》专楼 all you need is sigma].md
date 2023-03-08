@@ -344,3 +344,118 @@ ep10会有卢德米拉觉醒。ep10说是第二季最终章。ep11章节名是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">zl当然是不改给你原汁原味的氪金体验 
 
+*****
+
+####  rgauss  
+##### 851#         楼主| 发表于 2023-2-26 19:56
+
+ 本帖最后由 rgauss 于 2023-2-26 19:59 编辑 
+
+我在想紫龙当初为啥代理这游戏 而且看起来还没啥权限的样子，也不上心，有时候更新公告都不完整，更完了才发完整的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初紫龙弄封印者手游也没见这么八行。
+ 不会是跟柳有py交易吧
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 852#         楼主| 发表于 2023-2-28 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/10/284d8a1ce44ad8abf2987781bfe0a103/CMP_20230228143757737.jpg" referrerpolicy="no-referrer">你加这个有啥用 能把我的觉醒还回来么
+<img src="https://p.sda1.dev/10/113d7f84541f559b569d38f124a08871/CMP_20230228143845499.jpg" referrerpolicy="no-referrer">抽卡界面旁边那个真的迷 还没以前的好看 还容易误触
+<img src="https://p.sda1.dev/10/f1b94d8db1869c191ee2b078780e0553/CMP_20230228143845618.jpg" referrerpolicy="no-referrer">
+这里仿的哪款游戏大家都清楚 但太烂了 我随便点一个 都要卡俩三秒
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">沃日 打pvp闪退了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 853#       发表于 2023-3-2 15:40
+
+好久没关注消息，这次更新一下懵了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">改版资源返不返还啊
+
+
+*****
+
+####  rgauss  
+##### 854#         楼主| 发表于 2023-3-2 15:53
+
+ 本帖最后由 rgauss 于 2023-3-2 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59939769&amp;ptid=2028054" target="_blank">仓鼠吃火锅 发表于 2023-3-2 15:40</a>
+好久没关注消息，这次更新一下懵了改版资源返不返还啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反啊 挑战点数换成新副本那些了 原来挑战换的现在用星球点数换 你有俩个一样加起来主动技超15级的可以直接换
+
+拆的人别想了
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仓鼠吃火锅  
+##### 855#       发表于 2023-3-2 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59939925&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-3-2 15:53</a>
+
+反啊 挑战点数换成新副本那些了 原来挑战换的现在用星球点数换 你有俩个一样加起来主动技超15级的 ...</blockquote>
+那之前用同卡喂的能补白核换同卡返还升命座吗，觉醒帝皇这种好亏啊
+
+
+*****
+
+####  rgauss  
+##### 856#         楼主| 发表于 2023-3-2 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59940011&amp;ptid=2028054" target="_blank">仓鼠吃火锅 发表于 2023-3-2 15:59</a>
+
+那之前用同卡喂的能补白核换同卡返还升命座吗，觉醒帝皇这种好亏啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">不能呢 但这次更新送了俩觉醒自选和觉醒随机一个
+
+*****
+
+####  rgauss  
+##### 857#         楼主| 发表于 2023-3-2 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这三队副本听说有60层...
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 858#         楼主| 发表于 2023-3-3 15:43
+
+改版后的激战推荐每天摸一下，每日奖励是十个点数？
+
+改版后的高难本都简单了，殿堂不太推荐，虽然现在伤害中克制乘区的优势很大
+
+
+*****
+
+####  要嗝屁了  
+##### 859#       发表于 2023-3-3 18:31
+
+这游戏太凉了 激战这种 自动攻略都没人愿意做 越来越凉恶性循环
+
+
+*****
+
+####  smdzh2  
+##### 860#       发表于 2023-3-3 18:57
+
+省服不清楚什么情况，国服再武装塔琳气跑了很多人，然后就一直这样半死不活了
+唯一的好处是立绘再也不会被和谐了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 861#         楼主| 发表于 2023-3-5 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">只差杰哥了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
