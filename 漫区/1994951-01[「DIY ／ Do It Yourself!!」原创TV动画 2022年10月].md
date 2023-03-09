@@ -9252,3 +9252,25 @@ Music Collection
 [https://twitter.com/dai_gazacy/status/1631285554426920964](https://twitter.com/dai_gazacy/status/1631285554426920964)
 <img src="https://p.sda1.dev/10/4ba922f59e99918c0a94030faba21d9b/20230303_140811.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 671#         楼主| 发表于 2023-3-6 20:10
+
+お待たせいたしました！
+
+「Do It Yourself!! -どぅ－・いっと・ゆあせるふ-」
+
+おつかれさま本📚
+
+✨4/2(日)発売决定！✨
+
+🔨4月のDIYの日です🔨
+
+キャラクターデザイン松尾佑辅さん描き下ろし
+
+せるふ一家のかわいらしい表纸が目印！
+
+详细は顺次お知らせしますので、お楽しみに！
+<img src="https://p.sda1.dev/10/10f560d41b48d5729f27575e52d8d20d/20230306_200927.jpg" referrerpolicy="no-referrer">
+

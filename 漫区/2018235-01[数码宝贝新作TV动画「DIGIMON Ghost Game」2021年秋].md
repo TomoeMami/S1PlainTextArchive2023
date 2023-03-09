@@ -331,3 +331,44 @@ DGG确定这一季完结，这...进了数码世界只有2、3集的篇幅了，
 
 主线开始
 
+*****
+
+####  abysmal  
+##### 452#       发表于 2023-3-5 17:23
+
+这作剧情怎么样啊?话说今年还是25周年，连个动画企划也没有。
+
+
+*****
+
+####  liekong  
+##### 453#       发表于 2023-3-6 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59974276&amp;ptid=2018235" target="_blank">abysmal 发表于 2023-3-5 17:23</a>
+
+这作剧情怎么样啊?话说今年还是25周年，连个动画企划也没有。</blockquote>
+这作剧情还行吧，建议看成数码兽版鬼太郎，单元剧为主，主线含量太低。
+
+比较猎奇的几集有一点点出圈热度。
+
+25周年官方只有一个小说策划，暂时没别的。
+
+
+*****
+
+####  kria  
+##### 454#       发表于 2023-3-6 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59974276&amp;ptid=2018235" target="_blank">abysmal 发表于 2023-3-5 17:23</a>
+
+这作剧情怎么样啊?话说今年还是25周年，连个动画企划也没有。</blockquote>
+只有小说+暴龙机企划
+
+家用机已有移植版switch
+
+02电影基本上未完成好....
+
+东映接了逃走中...动画版。
+
+今话停播一周
+
