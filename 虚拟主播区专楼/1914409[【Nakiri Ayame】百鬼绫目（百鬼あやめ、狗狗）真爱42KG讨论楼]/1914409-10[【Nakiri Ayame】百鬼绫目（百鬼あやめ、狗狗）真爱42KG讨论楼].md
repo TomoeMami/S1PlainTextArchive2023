@@ -474,3 +474,167 @@ lck真有职业女选手了，不由得想起当年绫总的电竞梦<img src="h
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  stedckk  
+##### 14524#       发表于 2023-2-25 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以绫总这个月是不是没有直播，新年时说好的目标呢
+
+*****
+
+####  一仙  
+##### 14525#       发表于 2023-2-25 21:36
+
+发了翻唱可是完成了一个新年目标的三分之一了，走这么大的进度当然要好好奖励自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  因为你不会  
+##### 14526#       发表于 2023-2-26 01:37
+
+绫总就播了次游戏（第一天事故了第二天补播）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stedckk  
+##### 14527#       发表于 2023-2-26 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">工商罢了
+
+
+*****
+
+####  因为你不会  
+##### 14528#       发表于 2023-2-26 22:28
+
+那怎么办呢，这个月还剩两天，彻底烂完了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14529#       发表于 2023-2-27 15:38
+
+绫总今天更是一动不动
+
+
+*****
+
+####  stedckk  
+##### 14530#       发表于 2023-2-27 23:29
+
+放寒假罢了
+
+
+*****
+
+####  因为你不会  
+##### 14531#       发表于 2023-2-28 16:43
+
+绫总看样子今天也是躺平
+
+
+*****
+
+####  Fami水  
+##### 14532#       发表于 2023-2-28 21:08
+
+爱绫等绫信绫<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14533#       发表于 2023-3-1 11:01
+
+三月咯绫总
+
+
+*****
+
+####  一仙  
+##### 14534#       发表于 2023-3-1 17:15
+
+<img src="https://img.saraba1st.com/forum/202303/01/171410a5vqfyfyqxygmj3e.jpg" referrerpolicy="no-referrer">
+
+<strong>Fp-90kVaMAAsy8C.jpg</strong> (228.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-1 17:14 上传
+
+才看到这个企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 14535#       发表于 2023-3-1 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个啥时间开播
+
+
+*****
+
+####  Fami水  
+##### 14536#       发表于 2023-3-2 12:14
+
+明天 日本时间24点
+
+
+*****
+
+####  因为你不会  
+##### 14537#       发表于 2023-3-3 23:55
+
+<img src="https://img.saraba1st.com/forum/202303/03/235519wwk1z559iwscrw44.png" referrerpolicy="no-referrer">
+
+<strong>搜狗截图20230304005419.png</strong> (99.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-3 23:55 上传
+
+今天不上班，这就只是收个投稿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 14538#       发表于 2023-3-4 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总的精神状况又咋了，上个月没播几次，不会是家里人又出问题了吧。
+
+
+*****
+
+####  因为你不会  
+##### 14539#       发表于 2023-3-4 19:06
+
+绫总说的话属于信则有不信则无<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14540#       发表于 2023-3-6 13:23
+
+玩失踪了，看来真的精神问题了，我信了，不会是因为翻唱还没过百万玉玉了吧
+
+
+*****
+
+####  stedckk  
+##### 14541#       发表于 2023-3-6 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次要停播多久呢
+
+
+*****
+
+####  因为你不会  
+##### 14542#       发表于 2023-3-6 20:58
+
+然后推特动了，绫总你TM<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
