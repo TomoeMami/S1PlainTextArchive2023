@@ -1140,3 +1140,20 @@ openAI我报的是虚拟号码/达到上限/你今天验证太多了之后再试
 
 —— 来自 vivo V2172A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+*****
+
+####  scstriker  
+##### 100#       发表于 2023-3-7 18:56
+
+问个正经问题，这怎么充值啊，我试了下浦发的外币信用卡好像不行啊？
+
+
+*****
+
+####  unlsycn  
+##### 101#         楼主| 发表于 2023-3-7 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60002486&amp;ptid=2122163" target="_blank">scstriker 发表于 2023-3-7 18:56</a>
+问个正经问题，这怎么充值啊，我试了下浦发的外币信用卡好像不行啊？</blockquote>
+为什么要充值呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">没钱了换个号不就好了
+
