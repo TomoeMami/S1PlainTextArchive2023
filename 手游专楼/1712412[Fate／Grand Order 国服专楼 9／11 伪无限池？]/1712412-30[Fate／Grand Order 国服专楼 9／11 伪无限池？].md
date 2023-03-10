@@ -4092,3 +4092,20 @@ C呆几乎全程乐子人<img src="https://static.saraba1st.com/image/smiley/fac
 戴眼镜才能看到敌人很P4呢</blockquote>
 连片头风格都是
 
+*****
+
+####  苍蓝之枪  
+##### 44182#       发表于 2023-3-7 00:10
+
+下个活动送新卡吗，狗粮爆仓得不像话了
+
+
+*****
+
+####  Blackson  
+##### 44183#       发表于 2023-3-7 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993418&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-3-7 00:10</a>
+ 下个活动送新卡吗，狗粮爆仓得不像话了</blockquote>
+下个活动是传统的XX祭无限池活动，没有新角UP。估计要到四月份的水怪活动才有新角UP和赠送
+
