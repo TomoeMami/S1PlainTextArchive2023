@@ -186,3 +186,24 @@ tgt2不是，点重试就重置成游戏设置里面那个值
 
 2023-2-27 19:38 上传
 
+*****
+
+####  轨迹老实人  
+##### 1739#       发表于 2023-3-7 09:27
+
+感谢楼上二位的解答
+
+买了个准新的DDF1，扭矩的确不能同日而语<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+F1盘子上旋钮虽然比较松感觉也没那么好用不过起码是有了个更方便的方式来切换节油 满意了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+现在唯一的问题就是这个最早是PS4设备的玩意即使升级到最新firmware也偶尔会突然失去连接（部分按键失灵，之前买的喂狗组PS4手台也有这个问题应该是兼容问题，DDF1更新firmware后失灵周期由5分钟上升到几十分钟了，凑合用）
+
+
+*****
+
+####  WhiteGlint  
+##### 1740#       发表于 2023-3-7 09:53
+
+手动挡应该怎么入门啊，我现实里开车是自动挡从没摸过手排的，这个升档降档完全没有概念了
+
