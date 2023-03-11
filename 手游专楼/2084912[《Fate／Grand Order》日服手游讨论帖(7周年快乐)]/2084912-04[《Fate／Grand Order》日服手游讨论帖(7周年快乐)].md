@@ -12509,3 +12509,52 @@ D0194C36-520D-4F94-9A60-9F82A28D61D4.png
 ----发送自 STAGE1 App for Android. ...</blockquote>
 还真这样，下面就送了一张<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
 
+*****
+
+####  alucardcz  
+##### 5660#       发表于 2023-3-8 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上线  all in 无事发生 下线
+
+
+*****
+
+####  qixinno2  
+##### 5661#       发表于 2023-3-8 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">果然没出芭娜娜 滚了
+
+
+*****
+
+####  eilot  
+##### 5662#       发表于 2023-3-8 20:12
+
+没有新的强化/幕间
+
+看来会草到16日后才来活动
+
+
+*****
+
+####  gpx234mqx  
+##### 5663#       发表于 2023-3-8 20:27
+
+这次活动真tm烦啊，打了100盘周回<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 5664#       发表于 2023-3-8 20:47
+
+艹，翻了下发现前两张侦探埃德蒙怎么找不到了，不会被我无意中卖了吧，这下强迫症只能抽下那两年的池子了，顺便碰瓷下极恶非道23333
+
+
+*****
+
+####  白金口袋  
+##### 5665#       发表于 2023-3-8 21:44
+
+已经连金苹果都不给了开始给银的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
