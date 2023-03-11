@@ -2030,3 +2030,10 @@ dr线其实就是解决了咒福的问题，对人魔大战的火种问题并没
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  yuwe0714  
+##### 158#       发表于 2023-3-9 00:13
+
+打完了，如果是没有参加工作的时候，能几天之内一口气打完，估计能更爽，虽然说这部都合和争议之处不少，但是感觉红唯的剧本创作水平是明显有进步的，而且ke和这部的数值平衡性都很爽，下一部看着是个白毛萝莉女主，很期待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
