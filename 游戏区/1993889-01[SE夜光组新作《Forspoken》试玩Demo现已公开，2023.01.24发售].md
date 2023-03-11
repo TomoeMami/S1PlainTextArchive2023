@@ -5950,3 +5950,19 @@ RPG届庞氏骗局第一人</blockquote>
 
 <img src="https://i.4cdn.org/v/1677675839892211.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 603#         楼主| 发表于 2023-3-8 14:59
+
+村山竜大
+[https://twitter.com/ovopack/status/1633290394577563648](https://twitter.com/ovopack/status/1633290394577563648)
+
+スクウェア・エニックスより発売の『FORSPOKEN』にて自分が担当したモンスターデザインの一部です。
+
+普段描かないフォトリアルかつダークなテイストのお仕事だったんで楽しかったなー。
+<img src="https://p.sda1.dev/10/9e1e74c6d0e2ec88f5700ebaaec1a7c3/20230308_145619.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/dc728e4459ac702f6e156c7057115872/20230308_145620.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/ade9eac7361f40e8c933a5e9befd87f4/20230308_145621.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/34745509ecda186618087f8087d9e1a1/20230308_145623.jpg" referrerpolicy="no-referrer">
+
