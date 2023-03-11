@@ -3348,3 +3348,82 @@ No,no,no，前面的楼友不是说了嘛，新版这个叫跑神<img src="https
 新的一集还不错</blockquote>
 前一集败了口碑没人看了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  UNacher  
+##### 317#       发表于 2023-3-2 22:54
+
+这雷咖特的形象low出天际了....
+
+
+*****
+
+####  Piano-Forest  
+##### 318#         楼主| 发表于 2023-3-4 23:23
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+　  『#TRIGUN STAMPEDE』
+
+　クライマックスビジュアル解禁
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+‶惑星を震わす、双子の呗”
+
+ヴァッシュとナイヴズが対峙する
+
+跃动感溢れるビジュアル!!
+
+最后までどうぞ、お见逃しなく!
+<img src="https://p.sda1.dev/10/ab167fcf45b7b3d3c34b0251cadc3cae/20230304_232059.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/827c54d473d7667c273c1121a554cf9f/20230304_231938.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草从  
+##### 319#       发表于 2023-3-5 02:10
+
+这是什么海报欺诈
+
+可惜了这制作 oped都还挺好听 剧情白瞎了 
+
+
+*****
+
+####  赛U灵  
+##### 320#       发表于 2023-3-5 08:08
+
+本来想一直追下去看看会写成什么样，结果确实追着追着真的追不动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Ichthys  
+##### 321#       发表于 2023-3-7 23:34
+
+以前看的小说男主特异功能也是手里的黑洞
+
+
+*****
+
+####  zrssss  
+##### 322#       发表于 2023-3-8 03:45
+
+制作水平真的高。就是剧情恩不好评价
+
+
+*****
+
+####  毛头小希  
+##### 323#       发表于 2023-3-8 09:52
+
+没看这片子也不懂原作
+
+但是在腐女那边评价好像挺高的
+
+推特首页关注的好几个太太要么爬灌篮要么爬蓝锁要么就是爬这个了而且产的图转的图点赞数都是几百起步<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
