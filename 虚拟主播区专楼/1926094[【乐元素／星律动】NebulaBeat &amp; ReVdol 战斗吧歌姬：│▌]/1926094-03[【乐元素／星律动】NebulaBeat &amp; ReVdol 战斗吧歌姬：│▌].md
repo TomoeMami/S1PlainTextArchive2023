@@ -803,3 +803,44 @@ saku这个企划不会也是v吧
 
 没有束缚感
 
+*****
+
+####  黄金鸡屁屁  
+##### 3085#       发表于 2023-3-6 20:00
+
+厂长测带货漏勺疑似有新人
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  ladiesman802  
+##### 3086#       发表于 2023-3-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59990979&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2023-3-6 20:00</a>
+
+厂长测带货漏勺疑似有新人
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+厂长只是说有新人我怎么会漏给你们
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 3087#       发表于 2023-3-9 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60003254&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-3-7 19:51</a>
+
+厂长只是说有新人我怎么会漏给你们</blockquote>
+这样吗，我给弹幕发散歪了
+
+
+*****
+
+####  喜闻乐见  
+##### 3088#         楼主| 发表于 2023-3-9 19:06
+
+开播不到五分钟，厂长禅让
+
