@@ -877,3 +877,31 @@
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/005.png" referrerpolicy="no-referrer">更新频率是有点快
 
+*****
+
+####  MEKA  
+##### 296#       发表于 2023-3-10 18:37
+
+新卡池它又来啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 297#         楼主| 发表于 2023-3-10 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60038462&amp;ptid=2101146" target="_blank">MEKA 发表于 2023-3-10 18:37</a>
+新卡池它又来啦，这次卡池应该是出pvp卡的尝试，希望后面出的pvp低排名也能多给点钻吧 ...</blockquote>
+不是剧情活动吗？怎么还pvp啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MEKA  
+##### 298#       发表于 2023-3-10 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60038978&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2023-3-10 19:21</a>
+
+不是剧情活动吗？怎么还pvp啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
