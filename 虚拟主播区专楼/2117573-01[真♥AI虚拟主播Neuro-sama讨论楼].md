@@ -1049,3 +1049,84 @@ https://azure.microsoft.com/zh-tw/products/cognitive-services/text-to-speech/#fe
 
 这下被Filian拷打了，泥潭没有Filian专楼吗？已经入脑！
 
+*****
+
+####  Wondering  
+##### 83#         楼主| 发表于 2023-3-6 16:51
+
+通过neuro最近的联动对欧美v圈有了很多了解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poptopzip  
+##### 84#       发表于 2023-3-7 10:32
+
+4月要和veibae联动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vneeto  
+##### 85#       发表于 2023-3-9 09:25
+
+|今早vedal在直播中给自己套了个可爱的卡通龟龟形象，而不是之前看起来凶巴巴的真实系龟龟，我才不会承认老父亲有那么可爱！(||๐_๐)|
+
+
+*****
+
+####  Vneeto  
+##### 86#       发表于 2023-3-9 09:40
+
+今天的直播中也算是演示了未来这ai桌面助手（聊天机器人）的发展方向，在你工作的时候陪你聊天（也可以是在干扰你工作）
+
+
+*****
+
+####  与天争锋_LZ  
+##### 87#       发表于 2023-3-9 17:56
+
+国产的木几萌训练库用的贴吧吗
+
+
+*****
+
+####  与天争锋_LZ  
+##### 88#       发表于 2023-3-9 18:08
+
+本来语言像小孩，声音也像的话两者可以打一个配合
+完全像真人了就没那味了
+
+
+*****
+
+####  Kanoya  
+##### 89#       发表于 2023-3-9 18:20
+
+<img src="https://p.sda1.dev/10/af6b8ea6f308a2b54d95a25489cbd1cf/CMP_20230309181533104.png" referrerpolicy="no-referrer">
+
+完蛋球<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这是第二个说自己呆在「屋子里」的AI了，之前是Sydney<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这下不仅科学的心理学追赶不上AI伦理学了，连神棍都快追赶不上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  沧兰殇  
+##### 90#       发表于 2023-3-10 01:35
+
+呜呜呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/10/370d3d6c11f89c0dcf7c047a8a908bb9/CMP_20230310013438755.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  与天争锋_LZ  
+##### 91#       发表于 2023-3-10 14:00
+
+ 本帖最后由 与天争锋_LZ 于 2023-3-10 14:01 编辑 
+
+emo<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/9128a6a4986dc33472b89c0d21f6298c/CMP_20230310141152101.jpg" referrerpolicy="no-referrer">
+
