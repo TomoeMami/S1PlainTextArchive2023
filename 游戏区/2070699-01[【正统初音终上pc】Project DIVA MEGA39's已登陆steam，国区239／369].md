@@ -1939,3 +1939,119 @@ abxy只能映射两套按键</blockquote>
 [https://discord.gg/SxVM6kg](https://discord.gg/SxVM6kg)
 [https://discord.gg/cvBVGDZ](https://discord.gg/cvBVGDZ)
 
+*****
+
+####  土路生優里  
+##### 196#       发表于 2023-3-9 13:35
+
+好久以前买的退款了，请问现在四个肩键能分别映射⭕X□▲了吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">  
+
+sega不出新曲包心痒痒， 想用pc玩自制note
+
+
+*****
+
+####  医生狼多  
+##### 197#       发表于 2023-3-9 13:43
+
+今天39，打五折促销中
+
+
+*****
+
+####  psvsd  
+##### 198#       发表于 2023-3-9 14:31
+
+我记得future tone有三百多首？
+什么时候把那些全移植过来
+
+
+*****
+
+####  alingzero  
+##### 199#       发表于 2023-3-11 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60021401&amp;ptid=2070699" target="_blank">psvsd 发表于 2023-3-9 14:31</a>
+
+我记得future tone有三百多首？
+
+什么时候把那些全移植过来</blockquote>
+mod可以实现
+
+
+*****
+
+####  慕容断月  
+##### 200#       发表于 2023-3-11 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60020809&amp;ptid=2070699" target="_blank">土路生優里 发表于 2023-3-9 13:35</a>
+好久以前买的退款了，请问&amp;#x7 ...</blockquote>
+应该不行但你可以试试steam的手柄映射功能
+
+*****
+
+####  脚本水平  
+##### 201#       发表于 2023-3-11 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60020809&amp;ptid=2070699" target="_blank">土路生優里 发表于 2023-3-9 13:35</a>
+好久以前买的退款了，请问&amp;#x7 ...</blockquote>
+可以 不过还是只能映射两套
+第三套用steam映射
+
+hold会被吞
+反正不如ps4
+
+
+*****
+
+####  Fun_Sun  
+##### 202#       发表于 2023-3-11 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60048685&amp;ptid=2070699" target="_blank">慕容断月 发表于 2023-3-11 17:11</a>
+应该不行但你可以试试steam的手柄映射功能</blockquote>
+游戏缺了一套键，这个问题手柄映射也解决不了
+反应到游戏里的问题就是复杂谱面会冲键，hold没法切
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Fun_Sun  
+##### 203#       发表于 2023-3-11 17:28
+
+这游戏PC版唯一的好处就是随便打自制谱和模型mod了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+ns版也是狗屎，要便携不如买个PSV，假如搞个类似大乱斗的息屏省电播放器都会好很多
+
+没有手台还想推分建议PS版，最省事
+
+不过PC版作为播放器的体验还是挺好的，全套整完就跟直接上iwara看MMD差不多了（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  慕容断月  
+##### 204#       发表于 2023-3-11 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60048800&amp;ptid=2070699" target="_blank">Fun_Sun 发表于 2023-3-11 17:23</a>
+
+游戏缺了一套键，这个问题手柄映射也解决不了
+
+反应到游戏里的问题就是复杂谱面会冲键，hold没法切</blockquote>
+我的意思是如果映射的按键改成键盘呢？如果键盘跟手柄同时输入不冲键那应该算是解决问题了
+
+
+*****
+
+####  慕容断月  
+##### 205#       发表于 2023-3-11 18:39
+
+ 本帖最后由 慕容断月 于 2023-3-11 18:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60048800&amp;ptid=2070699" target="_blank">Fun_Sun 发表于 2023-3-11 17:23</a>
+
+游戏缺了一套键，这个问题手柄映射也解决不了
+
+反应到游戏里的问题就是复杂谱面会冲键，hold没法切</blockquote>
+我自己试了下，肩键映射键盘。其余维持不变不会冲，当然我是个菜鸡，打不了高难度，你可以试试看，或许有用
+
