@@ -255,3 +255,19 @@ revuestarlight.com/news/9172/
 
 新project就一个剪影九朵花，属于新建文件夹都没建了
 
+*****
+
+####  Alicest  
+##### 732#       发表于 2023-3-10 18:23
+
+补了bd，怎么光连这儿都在跑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/811082aa19cad7a98365bf03f8cbd7a5/IMG_CMP_126242104.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makece  
+##### 733#       发表于 2023-3-10 18:41
+
+三外校的实力并不高啊，外校首席级在特定主题加持下才能够到圣翔顶级全开鹅恋水平，外校其他人弱于无执念露花叶
+

@@ -1121,3 +1121,20 @@ https://www.kickstarter.com/projects/handheld-game-device/peakdo-mm-wave-streami
 
 peakdo预计这个月支付尾款了
 
+*****
+
+####  フカミ  
+##### 664#       发表于 2023-3-10 18:35
+
+peakdo过几天要发货了。看最新视频似乎4m以内任意角度和姿势都能正常游玩，续航4h以上，比预想中要强<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 665#         楼主| 发表于 2023-3-10 21:08
+
+补个 Peakdo 的视频：
+
+[https://www.bilibili.com/video/BV1fM411s73C/](https://www.bilibili.com/video/BV1fM411s73C/)
+
