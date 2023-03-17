@@ -4249,3 +4249,26 @@ mod系统也更新了，现在可以给mod角色增加特殊表情，也可以�
 
 感觉可以蹲一波今晚有没有更新
 
+*****
+
+####  Tnsbilws  
+##### 245#         楼主| 发表于 2023-3-14 11:14
+
+ 本帖最后由 Tnsbilws 于 2023-3-14 11:16 编辑 
+
+<img src="https://img.saraba1st.com/forum/202303/14/111329rsroo3pzsxrr5xud.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (75.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-14 11:13 上传
+
+两个新推文
+
+翻译
+
+扩展MOD功能、大型平衡及BUG修复，以及大量被取消内容即将到来
+
+不负责任猜测：1.0BETA）
+
