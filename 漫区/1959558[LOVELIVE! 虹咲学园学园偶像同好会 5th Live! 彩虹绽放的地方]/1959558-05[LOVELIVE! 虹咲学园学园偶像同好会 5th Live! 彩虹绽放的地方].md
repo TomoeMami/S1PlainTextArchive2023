@@ -3704,3 +3704,159 @@ https://twitter.com/ohkowai/status/1630908746544340995
 fami通组的学园偶像之神、火星人，电击组的玩具老鼠
 <img src="https://p.sda1.dev/10/ceefc1d0cf0a2b9db1da43c6ca91163a/CMP_20230303231525924.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 7088#       发表于 2023-3-10 11:41
+
+10 かすみとせつ菜とドッキリ 先行图
+<img src="https://p.sda1.dev/10/145333620a9304ec44b130bb23d0ecf8/CMP_20230310114108581.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/7e6c82843563659420501f6bfe25425c/6tffmh2i6lsakr1ou4kvn66dj.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7089#       发表于 2023-3-10 11:43
+
+sifAS 新单曲
+发售时间：6月7日
+售价：1540日元 ​​​
+<img src="https://p.sda1.dev/10/29e63743ba45432215d81e369603aa2f/CMP_20230310114256643.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7090#       发表于 2023-3-10 12:30
+
+新单曲，按之前的说法，应该是录音的时候都见过新人了。
+
+诶，那ova到底要卡到什么时候再发。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  DarthAka  
+##### 7091#       发表于 2023-3-10 16:18
+
+live都是当天人齐，单曲这种更不用指望，估计别人去录的时候听过2号机录的部分了
+
+
+*****
+
+####  稀勢のささ  
+##### 7092#       发表于 2023-3-10 16:34
+
+这种一般不是各录各的然后合成吗
+
+
+*****
+
+####  仟音一心  
+##### 7093#       发表于 2023-3-10 21:07
+
+<img src="https://p.sda1.dev/10/3dc30f83f331bc73bc91fa5a122f5c08/1e27d5a9e4037832.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/40420f81a9c9cb017bc1a7cc2fbdfa39/CMP_20230310210709031.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7094#       发表于 2023-3-10 21:29
+
+BD BOX收录第13话「侑と同好会1」先行图
+<img src="https://p.sda1.dev/10/52aa11e9f4c56f7843954ad2123dabd0/3t4x5lazncpn49bmm4fkkfk1q.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/945c970bbe1aecd918ca4e50a5946c88/3epr553zh58otyb3izhnbqagj.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/7fce1faa3ccd20c035d7ec049a0d7e0b/2m3eiox4il9il4j5en5t5aa3y.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/03bc9d4cfedd4421a1ca22a3082552d9/6sqac9piuyka5g3m3bqxpxg1g.jpg" referrerpolicy="no-referrer"> ​​​
+
+*****
+
+####  仟音一心  
+##### 7095#       发表于 2023-3-10 21:30
+
+ミヤコヒト老师的第10话原作(前半)及(躺在病床上完成还没上色的)贺图
+<img src="https://p.sda1.dev/10/05fde071a0546d7e1893b2563561db75/CMP_20230310212951079.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/8a68bad2d474fc471c93d7dcc6c5a040/CMP_20230310212951139.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  馬斯特壺  
+##### 7096#       发表于 2023-3-10 21:54
+
+放chase，下集11话步梦回，制作组还真懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Huanghaozheng  
+##### 7097#       发表于 2023-3-10 21:56
+
+快进到致敬夹脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7098#       发表于 2023-3-10 22:14
+
+<img src="https://p.sda1.dev/10/2aba155557f2d4e2faa83313686c60a0/CMP_20230310221410695.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dozen  
+##### 7099#       发表于 2023-3-10 22:39
+
+怎么说，这四格搞笑的部分不再加把劲吗
+
+
+*****
+
+####  仟音一心  
+##### 7100#       发表于 2023-3-11 10:08
+
+<img src="https://p.sda1.dev/10/77ad028536c374b7c80afbe7380fa966/CMP_20230311100803082.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/41feaef269c0cb1502a4d10cfeec133b/CMP_20230311100805487.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 7101#       发表于 2023-3-11 20:00
+
+给了一个雪菜回头海星<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7102#       发表于 2023-3-11 20:45
+
+第17回声优赏 歌唱赏
+<img src="https://p.sda1.dev/10/11901c19fd8ccdb8d1f1aede1142de59/CMP_20230311204440426.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/5c9565733fcfe74bbf9a30f3077e45c0/CMP_20230311204440486.jpg" referrerpolicy="no-referrer">
+缪水都是获奖第二年上的东蛋
+
+
+*****
+
+####  cybernetics31  
+##### 7103#       发表于 2023-3-12 00:54
+
+该上东蛋了
+
+
+*****
+
+####  Piano-Forest  
+##### 7104#       发表于 2023-3-14 22:19
+
+[https://twitter.com/kerorira1/status/1634970744487821312](https://twitter.com/kerorira1/status/1634970744487821312)
+<img src="https://p.sda1.dev/10/ee2278fce41c7b68ee14e3fcb0f69e2a/20230314_221535.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/siiteiebahiro/status/1635643207043399680](https://twitter.com/siiteiebahiro/status/1635643207043399680)
+<img src="https://p.sda1.dev/10/6697187738a77613ec13da2545a6ac5c/20230314_221643.jpg" referrerpolicy="no-referrer">
+
