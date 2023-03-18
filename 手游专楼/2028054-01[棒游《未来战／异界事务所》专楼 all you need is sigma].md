@@ -459,3 +459,50 @@ ep10会有卢德米拉觉醒。ep10说是第二季最终章。ep11章节名是�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 862#         楼主| 发表于 2023-3-14 00:26
+
+取消船跃入每秒掉血，殿堂回溯到原来的版本
+
+
+*****
+
+####  rgauss  
+##### 863#         楼主| 发表于 2023-3-14 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">玩天地劫的给我说国服官网氪金98折
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 864#       发表于 2023-3-15 16:33
+
+日服没关注过是不是寄了，日配好久没更新都没兴趣买最近几个皮肤了
+
+*****
+
+####  rgauss  
+##### 865#         楼主| 发表于 2023-3-15 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60097134&amp;ptid=2028054" target="_blank">仓鼠吃火锅 发表于 2023-3-15 16:33</a>
+
+日服没关注过是不是寄了，日配好久没更新都没兴趣买最近几个皮肤了</blockquote>
+日服是跟国际服合并了。
+
+你说的日配没更新纯粹是sb社自己太弱智了，跟内裤松交接这么久都没弄好与事务所的联系。新总监已经道歉并说已经在录音了。
+
+
+*****
+
+####  rgauss  
+##### 866#         楼主| 发表于 2023-3-15 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">对了 最近推特举办了个同人活动 有不少挺好看的同人图
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
