@@ -86,3 +86,12 @@
 
 <img src="https://p.sda1.dev/9/6a856965c1da530ad1767d1e4b5f57db/20230214_130617.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  新人马甲2  
+##### 1046#       发表于 2023-3-15 20:37
+
+[https://mangatoto.com/series/102086](https://mangatoto.com/series/102086)
+
+忽然想起来翻了翻，找到一个进度还可以的英肉站
+
