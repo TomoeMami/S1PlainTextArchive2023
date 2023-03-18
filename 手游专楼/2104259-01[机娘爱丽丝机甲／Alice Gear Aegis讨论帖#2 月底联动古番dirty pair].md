@@ -2256,3 +2256,21 @@ syl，回楼上的坛友
 居然只是加强数值吗，技能盘什么的都不给啊</blockquote>
 开游戏后看看啊，轰雷都开盘子了。
 
+*****
+
+####  江戸前ルナ  
+##### 322#         楼主| 发表于 2023-3-15 13:24
+
+笑死，看到推特的拍照模式FAG巨大化的BUG，经爱花佬试出来了，梦回台服<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+ <blockquote>先长按一般角色
+
+然后滑开再点fag
+
+而且操作必须照顺序
+
+先选小人（拍照目标以外）
+
+长按大人
+
+在选要拍的小人</blockquote>
+
