@@ -1007,3 +1007,43 @@ Hard最后两张图，分别要12w战力和16w战力
 
 EXNOA，你值得信赖，笑死
 
+*****
+
+####  kal_008  
+##### 72#       发表于 2023-3-14 16:13
+
+建议早点关服卖画册，真心的，这样对大家都好
+
+*****
+
+####  whzfjk  
+##### 73#       发表于 2023-3-14 16:16
+
+土屋，回来做单机少女调合吧
+
+
+*****
+
+####  6030sylar  
+##### 74#       发表于 2023-3-15 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60036299&amp;ptid=2102602" target="_blank">V2ABGundam 发表于 2023-3-10 16:00</a>
+
+哈哈哈哈
+
+经过本次活动，《蓝反灿》粪游确定
+
+可以判死刑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">dmm小霸王服务器是这样的啦，当年玩神姬raid活动就是折磨卡得要死，神奇的是神姬现在都还没死
+
+
+*****
+
+####  kria  
+##### 75#       发表于 2023-3-16 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60083253&amp;ptid=2102602" target="_blank">kal_008 发表于 2023-3-14 16:13</a>
+
+建议早点关服卖画册，真心的，这样对大家都好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">小心岸田看到...他很少气...BD DVD 动画都取消了
+
