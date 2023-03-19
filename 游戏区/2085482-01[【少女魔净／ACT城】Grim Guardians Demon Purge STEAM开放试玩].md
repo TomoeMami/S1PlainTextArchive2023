@@ -1424,3 +1424,2176 @@ galgun啊，本家联动了属于是</blockquote>
 如果真要捏画廊库洛那大概连管家都混不上 ...</blockquote>
 既然开头是库落娜碰到镜子造出了城，那么房东位可能是镜子吧？但预告中库萝娜二阶段释放“接地雷电”就很让人在意。
 
+*****
+
+####  cmyk1234  
+##### 135#         楼主| 发表于 2023-2-22 20:09
+
+官方演示植物园关卡截图
+
+<img src="https://p.sda1.dev/10/1e7c798821fe1ff77701a221a8281b03/IMG_CMP_142214513.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/2daf39d6ff6a3bb7c1e271c7f22dded2/IMG_CMP_55953857.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/5de3166e8dce4a1545417cfdc6671aa6/IMG_CMP_220819728.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/f99abe90ae14441ae7e984bd68e0dc34/IMG_CMP_240531164.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  cmyk1234  
+##### 136#         楼主| 发表于 2023-2-22 20:10
+
+官方演示植物园关卡截图2，双人喝茶回血
+
+<img src="https://p.sda1.dev/10/89b43bc9f875fd85b2aa385385d94d69/IMG_CMP_43841169.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/2d813bb27191e8a2601a5be5800bfd0a/IMG_CMP_98889163.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/a5a114398a2abbfb0d4d4317eeb7d102/IMG_CMP_17965882.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/10/9f4eea0b46f83ce93fc15eaae5c7b1a2/IMG_CMP_197128642.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 137#         楼主| 发表于 2023-2-22 23:06
+
+ns日区解锁
+
+
+*****
+
+####  112zero  
+##### 138#       发表于 2023-2-23 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这次的点阵水平一言难尽啊，等视频通关吧
+
+
+*****
+
+####  格雷殿下  
+##### 139#       发表于 2023-2-23 00:58
+
+有说steam多少钱没有
+
+
+*****
+
+####  wsdbyh  
+##### 140#       发表于 2023-2-23 01:11
+
+看了别人直播，还蛮不错，但就是BGM实在不怎么好听
+
+
+*****
+
+####  cmyk1234  
+##### 141#         楼主| 发表于 2023-2-23 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59854377&amp;ptid=2085482" target="_blank">112zero 发表于 2023-2-23 00:51</a>
+这次的点阵水平一言难尽啊，等视频通关吧</blockquote>
+难度高的要命。
+
+
+*****
+
+####  cmyk1234  
+##### 142#         楼主| 发表于 2023-2-23 02:56
+
+二周目才是正式开始。
+
+
+*****
+
+####  cmyk1234  
+##### 143#         楼主| 发表于 2023-2-23 07:12
+
+ 本帖最后由 cmyk1234 于 2023-2-23 07:15 编辑 
+
+二周目开头解锁射击强化和蓄力斩。射击强化，可上方向、下方向射击，长按射击追加两枚破盾火箭。蓄力斩，蓄力完成向前释放飞轮，空中释放朝着飞轮的反方向大跳。
+
+二周目解锁基地，在基地可传送至任意关卡，可承接收集小任务，可强化副武器（或者叫魔法）。
+
+
+*****
+
+####  陈玉礼  
+##### 144#       发表于 2023-2-23 07:59
+
+所以这游戏其实是个横版刷子？
+
+
+*****
+
+####  tsubaki  
+##### 145#       发表于 2023-2-23 08:34
+
+血轮关卡式结果二周才能蓄力斩？……
+
+
+*****
+
+####  cmyk1234  
+##### 146#         楼主| 发表于 2023-2-23 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855436&amp;ptid=2085482" target="_blank">tsubaki 发表于 2023-2-23 08:34</a>
+血轮关卡式结果二周才能蓄力斩？……</blockquote>
+披着蓄力斩外表的二段跳。
+
+*****
+
+####  cmyk1234  
+##### 147#         楼主| 发表于 2023-2-23 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855436&amp;ptid=2085482" target="_blank">tsubaki 发表于 2023-2-23 08:34</a>
+血轮关卡式结果二周才能蓄力斩？……</blockquote>
+披着蓄力斩外表的二段跳。
+
+
+*****
+
+####  oyss  
+##### 148#       发表于 2023-2-23 09:37
+
+能不能开头故意送一个,然后单人通关
+
+
+*****
+
+####  cmyk1234  
+##### 149#         楼主| 发表于 2023-2-23 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59855918&amp;ptid=2085482" target="_blank">oyss 发表于 2023-2-23 09:37</a>
+能不能开头故意送一个,然后单人通关</blockquote>
+下一关会双人复活，不过不按换人就是了
+
+
+*****
+
+####  死线  
+##### 150#       发表于 2023-2-23 11:53
+
+妹妹的站姿……
+
+怎么和豪血寺一族里王子的站姿一模一样？
+
+
+*****
+
+####  jellyhero  
+##### 151#       发表于 2023-2-23 15:25
+
+请问玩上的老哥，ns版卡吗？不卡我就入ns了
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bbbuster  
+##### 152#       发表于 2023-2-23 15:33
+
+双人模式能联机么
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  kalavinka  
+##### 153#       发表于 2023-2-23 15:47
+
+ 本帖最后由 kalavinka 于 2023-2-23 15:50 编辑 
+
+手机上用app买了，回去看看sd上表现如何<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">----
+
+草 还没解锁
+
+
+*****
+
+####  cmyk1234  
+##### 154#         楼主| 发表于 2023-2-23 16:08
+
+解锁了，原价93人民币，限时一周9折。
+
+
+*****
+
+####  ak47m107  
+##### 155#       发表于 2023-2-23 16:52
+
+有刷子要素吗
+
+
+*****
+
+####  cmyk1234  
+##### 156#         楼主| 发表于 2023-2-23 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59860699&amp;ptid=2085482" target="_blank">ak47m107 发表于 2023-2-23 16:52</a>
+有刷子要素吗</blockquote>
+救出人质，收集隐藏道具，二周目支线任务。
+
+
+*****
+
+####  RUANHYC  
+##### 157#       发表于 2023-2-23 18:22
+
+玩了三个小时才到中庭，但是好爽
+
+
+*****
+
+####  moonmagian  
+##### 158#       发表于 2023-2-23 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59859618&amp;ptid=2085482" target="_blank">jellyhero 发表于 2023-2-23 15:25</a>
+请问玩上的老哥，ns版卡吗？不卡我就入ns了
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 S1Next-鹅版 v2.5 ...</blockquote>
+不卡
+这种16bit点阵要做卡才不容易吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  oidoid  
+##### 159#       发表于 2023-2-23 23:09
+
+差评一半是联机有问题，好吧日厂的联机向来都这样……
+
+一半是不喜欢老城……
+
+……这一看就知道是老恶魔城（而且特指恶魔城3）的模式啊
+
+
+*****
+
+####  notromeo  
+##### 160#       发表于 2023-2-23 23:44
+
+win11系统玩是不是有啥问题啊，手柄时不时就自动重启，那时就无法操作了，受不了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 161#         楼主| 发表于 2023-2-24 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59864974&amp;ptid=2085482" target="_blank">oidoid 发表于 2023-2-23 23:09</a>
+差评一半是联机有问题，好吧日厂的联机向来都这样……
+
+一半是不喜欢老城……</blockquote>
+一开始只考虑本地双人设计。
+
+
+*****
+
+####  真蓝眼红Z  
+##### 162#       发表于 2023-2-24 00:11
+
+奇妙的bug，要进了菜单再退出来，就有可能变成一控二还切不掉角色
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  jxzeroga0  
+##### 163#       发表于 2023-2-24 00:55
+
+与其说是老恶魔城，不如说更像是传统洛克人
+
+二周目用各种武器能力寻找强化道具和隐藏要素那味很正
+
+
+*****
+
+####  xiaocheng  
+##### 164#       发表于 2023-2-24 10:10
+
+地下洞窟摔死了n次
+
+我恨平台跳跃（
+
+
+*****
+
+####  realgyf1985  
+##### 165#       发表于 2023-2-24 10:25
+
+可以用steam共享玩耍来远程联机。两个人合作很有意思。但是网速是个问题。
+
+
+*****
+
+####  cmyk1234  
+##### 166#         楼主| 发表于 2023-2-24 12:07
+
+次元裂隙收集在地图中不显示
+
+
+*****
+
+####  quanlix  
+##### 167#       发表于 2023-2-24 14:17
+
+好像x6救人质
+
+
+*****
+
+####  cmyk1234  
+##### 168#         楼主| 发表于 2023-2-24 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59871192&amp;ptid=2085482" target="_blank">quanlix 发表于 2023-2-24 14:17</a>
+好像x6救人质</blockquote>
+更麻烦。三个金色成就相当麻烦
+第一个金色收集成就，要找到所有的次元裂隙取出物品，但裂隙不会在罗盘上显示。
+第二个金色结局成就，要满足第一条收集所有裂隙物品。
+第三个金色挑战成就，要以传奇难度通过boss rush，传奇难度和boss rush由二周目任意结局解锁。
+
+
+*****
+
+####  RUANHYC  
+##### 169#       发表于 2023-2-24 17:03
+
+第二次入城是不是每个boss都能打两次拿两颗点心啊，中庭的植物boss我打完拿了紧身裤之后再跑一遍居然复活了？
+
+
+*****
+
+####  vance521  
+##### 170#       发表于 2023-2-24 18:38
+
+三个次元装置装好了有啥用啊？？
+
+到底有多少个同学要救啊？？？
+
+每个同学都还要找一次内裤？？？？
+
+
+*****
+
+####  RUANHYC  
+##### 171#       发表于 2023-2-24 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59874704&amp;ptid=2085482" target="_blank">vance521 发表于 2023-2-24 18:38</a>
+
+三个次元装置装好了有啥用啊？？
+
+到底有多少个同学要救啊？？？
+
+每个同学都还要找一次内裤？？？？ ...</blockquote>
+零件找齐和同学找齐是两个结局
+
+*****
+
+####  vance521  
+##### 172#       发表于 2023-2-24 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59873365&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-2-24 17:03</a>
+
+第二次入城是不是每个boss都能打两次拿两颗点心啊，中庭的植物boss我打完拿了紧身裤之后再跑一遍居然复活了 ...</blockquote>
+二周目BOSS应该都是无限打的，每次都能拿点心，拿到全部升级完为止。然后再过镜子的时候，天使就会来送兔女郎装。
+
+
+*****
+
+####  cmyk1234  
+##### 173#         楼主| 发表于 2023-2-24 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59874745&amp;ptid=2085482" target="_blank">vance521 发表于 2023-2-24 18:41</a>
+二周目BOSS应该都是无限打的，每次都能拿点心，拿到全部升级完为止。然后再过镜子的时候，天使就会来送兔 ...</blockquote>
+兔女郎装进入次元裂隙有什么效果呢？
+
+
+*****
+
+####  RUANHYC  
+##### 174#       发表于 2023-2-24 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59875013&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-2-24 19:07</a>
+
+兔女郎装进入次元裂隙有什么效果呢？</blockquote>
+没，就给一张CG而已，不知道后续会不会更新服装dlc
+
+
+*****
+
+####  MobileMeowbot  
+##### 175#       发表于 2023-2-24 20:08
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+construction.ggb
+(64.48 KB, 下载次数: 0)
+
+2023-2-24 20:07 上传
+
+点击文件名下载附件
+
+<img src="https://img.saraba1st.com/forum/202302/24/200724nlpypw6yl5ogowno.png" referrerpolicy="no-referrer">
+
+<strong>1stemp1.0.2.png</strong> (285.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-24 20:07 上传
+
+
+*****
+
+####  冰箱研会长  
+##### 176#       发表于 2023-2-24 20:58
+
+谁跟我说说这游戏怎么查看地图...
+
+啊啊 我已经习惯了带冲刺的横版游戏, 突然没有了还有点不习惯...
+
+*****
+
+####  冰箱研会长  
+##### 177#       发表于 2023-2-24 21:00
+
+说到横板动作 我一直想把在电脑上打了20%得龙之血印拿到NS上打通...
+
+不知道NS版本现在还有没有人打多人了...
+
+
+*****
+
+####  RUANHYC  
+##### 178#       发表于 2023-2-24 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59876337&amp;ptid=2085482" target="_blank">冰箱研会长 发表于 2023-2-24 20:58</a>
+
+谁跟我说说这游戏怎么查看地图...
+
+啊啊 我已经习惯了带冲刺的横版游戏, 突然没有了还有点不习惯...
+
+ ...</blockquote>
+答案是没有，只能在传送界面看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就用上面坛友的那张图对照着看吧
+
+
+*****
+
+####  uneedme  
+##### 179#       发表于 2023-2-25 00:24
+
+支持双人连携 
+
+不过有水平相当的好基友 可太难了
+
+
+*****
+
+####  zechin  
+##### 180#       发表于 2023-2-25 00:41
+
+ 本帖最后由 zechin 于 2023-2-25 00:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这里面要怎么进去，真的找不到了
+
+<img src="https://img.saraba1st.com/forum/202302/25/004103obke5g9ec9x9h9kg.jpg" referrerpolicy="no-referrer">
+
+<strong>7659O4$O@OJ7T509XPSBU6V.jpg</strong> (171.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-25 00:41 上传
+
+好吧，从二周目的门兜了一个圈到里面去了
+
+
+*****
+
+####  vance521  
+##### 181#       发表于 2023-2-25 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59875760&amp;ptid=2085482" target="_blank">MobileMeowbot 发表于 2023-2-24 20:08</a></blockquote>
+我试图理解这个地图！理解不能啊！哪个是哪个啊？出生点是哪个啊？
+
+
+*****
+
+####  tsubaki  
+##### 182#       发表于 2023-2-25 10:26
+
+中庭有个隐藏房里被柱子挡掉的学生怎么救来着，我看旁边没路的
+
+
+*****
+
+####  oidoid  
+##### 183#       发表于 2023-2-25 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59880462&amp;ptid=2085482" target="_blank">tsubaki 发表于 2023-2-25 10:26</a>
+中庭有个隐藏房里被柱子挡掉的学生怎么救来着，我看旁边没路的</blockquote>
+要从之前的另外一个路线上去
+
+
+*****
+
+####  tsubaki  
+##### 184#       发表于 2023-2-25 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59881819&amp;ptid=2085482" target="_blank">oidoid 发表于 2023-2-25 12:50</a>
+
+要从之前的另外一个路线上去</blockquote>
+好我再找找路
+
+*****
+
+####  oyss  
+##### 185#       发表于 2023-2-25 13:10
+
+谁来个双打无伤通关的
+
+
+*****
+
+####  KOL2022  
+##### 186#       发表于 2023-2-25 14:37
+
+大钟和食堂这俩隐藏房间有什么特殊作用么？
+
+
+*****
+
+####  RUANHYC  
+##### 187#       发表于 2023-2-25 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59882857&amp;ptid=2085482" target="_blank">KOL2022 发表于 2023-2-25 14:37</a>
+
+大钟和食堂这俩隐藏房间有什么特殊作用么？</blockquote>
+大钟的隐藏在哪里？
+
+食堂的锅子可以用伞的蓄力冲刺点燃，然后解锁一个成就
+
+
+*****
+
+####  KOL2022  
+##### 188#       发表于 2023-2-25 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883174&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-2-25 15:21</a>
+
+大钟的隐藏在哪里？
+
+食堂的锅子可以用伞的蓄力冲刺点燃，然后解锁一个成就 ...</blockquote>
+大钟在时钟塔，具体位置...那个地图太抽象了，我只记得在上下的电梯附近<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  notromeo  
+##### 189#       发表于 2023-2-25 15:49
+
+第二关后面有个少女要怎么解救，看上去像是很高的地方，难道后面有飞的能力？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  GYSS_  
+##### 190#       发表于 2023-2-25 15:58
+
+ 本帖最后由 GYSS_ 于 2023-2-25 16:01 编辑 
+
+demo玩起来好怪，感觉更像合金弹头，那种老式横版的味儿太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  x_ray_zero  
+##### 191#       发表于 2023-2-25 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883369&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-25 15:49</a>
+第二关后面有个少女要怎么解救，看上去像是很高的地方，难道后面有飞的能力？
+
+论坛助手,iPhone ...</blockquote>
+看B站有人试玩版修改出升级完的纸鹤，可以往上方扔
+
+— from samsung SM-G996B, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  oidoid  
+##### 192#       发表于 2023-2-25 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883564&amp;ptid=2085482" target="_blank">x_ray_zero 发表于 2023-2-25 16:17</a>
+看B站有人试玩版修改出升级完的纸鹤，可以往上方扔
+
+— from samsung SM-G996B, Android 13 of S1 Next G ...</blockquote>
+二周目路线，不需要修改
+
+*****
+
+####  RUANHYC  
+##### 193#       发表于 2023-2-25 16:54
+
+我现在发现的隐藏要素成就是第二关给厨房点火，第三章洞窟里帮幽灵成佛，第四章坐椅子上喝茶，第五章找到牢笼里的学生，入口处和时钟塔的在哪里？
+
+
+*****
+
+####  从零开始的ccc  
+##### 194#       发表于 2023-2-25 17:04
+
+这游戏全流程大概多少小时？
+
+
+*****
+
+####  oidoid  
+##### 195#       发表于 2023-2-25 17:25
+
+<img src="https://p.sda1.dev/10/fb86c8b2f52e98e35b911f7a25e14a65/CMP_20230225172334292.png" referrerpolicy="no-referrer">
+
+没全收集（也没办法确认有没有全收集）完全大概这么长的游戏时长
+不考虑最高难度那种自虐成就加上耐心极限的话，这个游戏大概也就8到9小时的时长吧
+
+
+*****
+
+####  oyss  
+##### 196#       发表于 2023-2-25 17:39
+
+这学校卧虎藏龙啊，目测能打的除了主角俩人还有五个以上
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 197#       发表于 2023-2-25 17:49
+
+东西太少了不够藏啊，一些需要纸鹤和冰冻垫脚才能到的地方居然就给红紫绿药
+
+
+*****
+
+####  notromeo  
+##### 198#       发表于 2023-2-25 18:56
+
+不是像素就好了，不过不是像素的话，敌人很多死亡动画就太血腥了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  smileboom  
+##### 199#       发表于 2023-2-25 20:52
+
+打了前三关拿到新能力之后总想回去旧关其他路线找隐藏物品，结果还有需要别的能力才能去得到的地方，干脆一口气全通关拿齐能力二周目回来再重新走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 200#       发表于 2023-2-25 21:34
+
+低开高走二周目体验飞跃性提高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smileboom  
+##### 201#       发表于 2023-2-26 00:18
+
+原来二周目才是正式开始<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oyss  
+##### 202#       发表于 2023-2-26 06:54
+
+原来这游戏最丰富的物品是内裤,每个人画一个内裤还都不重样
+
+
+*****
+
+####  cmyk1234  
+##### 203#         楼主| 发表于 2023-2-26 07:08
+
+总收集量：
+
+救出同学：32个
+
+黑洞收集：38个时触发特殊剧情对话，满40个出金色成就奖杯、
+
+
+*****
+
+####  永远的访客  
+##### 204#       发表于 2023-2-26 08:16
+
+老兵模式打到中庭，太受苦了，道中又长，每次只能打一关，估计就要用上存盘复制了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苦瓜师傅  
+##### 205#       发表于 2023-2-26 10:16
+
+为什么立绘和游戏风格不能统一？要么高清 要么马赛克
+
+— from Xiaomi Redmi Note 7 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  苦瓜师傅  
+##### 206#       发表于 2023-2-26 10:16
+
+为什么立绘和游戏风格不能统一？要么高清 要么马赛克
+
+— from Xiaomi Redmi Note 7 Pro, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  ParadiseMartyr  
+##### 207#       发表于 2023-2-26 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59890306&amp;ptid=2085482" target="_blank">苦瓜师傅 发表于 2023-2-26 10:16</a>
+为什么立绘和游戏风格不能统一？要么高清 要么马赛克
+
+— from Xiaomi Redmi Note 7 Pro, Android 13 of S1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  伊克路西安  
+##### 208#       发表于 2023-2-26 10:46
+
+强行像素，这么喜欢复古为什么不内置CRT滤镜
+
+
+*****
+
+####  猫坤  
+##### 209#       发表于 2023-2-26 10:56
+
+<blockquote>oyss 发表于 2023-2-25 17:39
+这学校卧虎藏龙啊，目测能打的除了主角俩人还有五个以上</blockquote>
+全都是GALGUN的主角，这学校就是个母猪培养基地（
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 210#       发表于 2023-2-26 11:19
+
+inti有做好高清2d的能力？最多做成魔女复仇之夜那样，你们不会喜欢这种皮影戏的
+
+
+*****
+
+####  quanlix  
+##### 211#       发表于 2023-2-26 14:37
+
+明明长大的库罗那就画的挺精细的
+
+
+*****
+
+####  zechin  
+##### 212#       发表于 2023-2-26 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59883845&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-2-25 16:54</a>
+
+我现在发现的隐藏要素成就是第二关给厨房点火，第三章洞窟里帮幽灵成佛，第四章坐椅子上喝茶，第五章找到牢 ...</blockquote>
+入口的在进城前的那个桥，炸掉掉下去就有成就
+
+时钟塔的在一周目路线的电梯，到最上面后左上的入口进去有一口大钟，敲了有成就
+
+
+*****
+
+####  alingzero  
+##### 213#       发表于 2023-2-26 16:37
+
+第七关隐藏成就怎么得啊，我打龙蛋全打了没出
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202302/26/163657z5yszy2959fmk3br.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230226163611.png</strong> (322.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-26 16:36 上传
+
+*****
+
+####  zechin  
+##### 214#       发表于 2023-2-26 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59893386&amp;ptid=2085482" target="_blank">alingzero 发表于 2023-2-26 16:37</a>
+
+第七关隐藏成就怎么得啊，我打龙蛋全打了没出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这里的成就是不能碰蛋，离开就有了
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 215#       发表于 2023-2-26 17:14
+
+二周目通关了搞收集才知道姐姐的钩锁能在空翻后再用，能像洛克人那样蹬墙跳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 216#       发表于 2023-2-26 18:05
+
+这游戏死区太小 手柄往左走松手容易马上变成右转 有办法改一下吗 steam版<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仓鼠吃火锅  
+##### 217#       发表于 2023-2-26 18:07
+
+胖次好像都是galgun老师的胖次
+
+
+*****
+
+####  quanlix  
+##### 218#       发表于 2023-2-26 20:17
+
+有全成就达成条件了吗，打完普通结局一共解锁28个成就，学生和老师全收集了，强化道具一共拿了7个，关键道具一共拿了8个，5个boss道具和3个次元传送装置零件，3个次元传送装置零件拿完了强化武器的npc说暂时做不了让先去打boss
+
+
+*****
+
+####  alingzero  
+##### 219#       发表于 2023-2-26 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59894026&amp;ptid=2085482" target="_blank">fuochai 发表于 2023-2-26 18:05</a>
+
+这游戏死区太小 手柄往左走松手容易马上变成右转 有办法改一下吗 steam版 ...</blockquote>
+steam用自带的控制器布局可以随便改，具体怎么改可以百度一下
+
+*****
+
+####  alingzero  
+##### 220#       发表于 2023-2-26 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59895177&amp;ptid=2085482" target="_blank">quanlix 发表于 2023-2-26 20:17</a>
+
+有全成就达成条件了吗，打完普通结局一共解锁28个成就，学生和老师全收集了，强化道具一共拿了7个，关键道 ...</blockquote>
+[https://www.psnine.com/psngame/34572](https://www.psnine.com/psngame/34572)
+
+psn的奖杯列表，不知道能不能做参考
+
+
+*****
+
+####  notromeo  
+##### 221#       发表于 2023-2-26 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">哪里有比较好的全收集攻略啊
+
+
+*****
+
+####  alingzero  
+##### 222#       发表于 2023-2-26 21:46
+
+这个第七关开头的地方下面有个怪，难道是能过去的地方吗，看地图上不像是有路啊
+
+<img src="https://img.saraba1st.com/forum/202302/26/214558caggm79cazc9kf1w.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230226214537.png</strong> (316.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-26 21:45 上传
+
+
+*****
+
+####  notromeo  
+##### 223#       发表于 2023-2-26 23:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不能用锁链的高处要怎么上啊，纸鹤升级后斜上方扔，跳不上去啊，纸鹤到底有啥卵用 。。。
+
+
+*****
+
+####  smileboom  
+##### 224#       发表于 2023-2-26 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896901&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-26 23:11</a>
+
+不能用锁链的高处要怎么上啊，纸鹤升级后斜上方扔，跳不上去啊，纸鹤到底有啥卵用 。。。
+
+ ...</blockquote>
+纸鹤往上扔之后用蓄力斩背着纸鹤跳起放蓄力斩就能跳上去了，时间都是够的
+
+
+*****
+
+####  RUANHYC  
+##### 225#       发表于 2023-2-26 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59895177&amp;ptid=2085482" target="_blank">quanlix 发表于 2023-2-26 20:17</a>
+
+有全成就达成条件了吗，打完普通结局一共解锁28个成就，学生和老师全收集了，强化道具一共拿了7个，关键道 ...</blockquote>
+强化道具有8个，两血两魔两子弹一攻一防
+
+
+*****
+
+####  quanlix  
+##### 226#       发表于 2023-2-26 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59895550&amp;ptid=2085482" target="_blank">alingzero 发表于 2023-2-26 20:59</a>
+
+https://www.psnine.com/psngame/34572
+
+psn的奖杯列表，不知道能不能做参考</blockquote>
+大概知道流程了，跑三周目才能全收集
+
+*****
+
+####  vance521  
+##### 227#       发表于 2023-2-26 23:40
+
+我感觉我已经跑遍了所有的角落了，人是救齐全了，内裤还是没齐。
+
+人我还能数一下多少人，内裤我现在也不知道收集多少条了，就差这个相关的成就了。很烦！
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 228#       发表于 2023-2-26 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59896981&amp;ptid=2085482" target="_blank">smileboom 发表于 2023-2-26 23:20</a>
+
+纸鹤往上扔之后用蓄力斩背着纸鹤跳起放蓄力斩就能跳上去了，时间都是够的
+
+另外第一关快到boss的地方有个火 ...</blockquote>
+用企鹅冻住打碎，还有另一个地方的火狗也能冻住当垫脚石
+
+*****
+
+####  notromeo  
+##### 229#       发表于 2023-2-26 23:58
+
+那个加血的副武器能打什么敌人来着？幽灵？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  tsubaki  
+##### 230#       发表于 2023-2-27 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59897375&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-26 23:58</a>
+
+那个加血的副武器能打什么敌人来着？幽灵？
+
+论坛助手,iPhone</blockquote>
+鬼魂系都可以，有个成就得用这个超度女学生
+
+*****
+
+####  tsubaki  
+##### 231#       发表于 2023-2-27 00:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">二周的库罗娜房间进去没BOSS是什么情况，也没镜子（峰的五个道具触发过了）
+
+
+*****
+
+####  afer  
+##### 232#       发表于 2023-2-27 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我要给库萝娜当狗
+
+
+*****
+
+####  oidoid  
+##### 233#       发表于 2023-2-27 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59897475&amp;ptid=2085482" target="_blank">tsubaki 发表于 2023-2-27 00:10</a>
+
+二周的库罗娜房间进去没BOSS是什么情况，也没镜子（峰的五个道具触发过了） ...</blockquote>
+砸墙
+
+
+*****
+
+####  zechin  
+##### 234#       发表于 2023-2-27 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也是剩下全内裤收集和对应的结局两个成就，直接等攻略了
+
+
+*****
+
+####  oyss  
+##### 235#       发表于 2023-2-27 02:32
+
+已经白金了,内裤比人还先找齐.
+
+连个列表都没有,谁知道哪里漏了.我最后是随便搜了一下视频看到一个花园水池下面,正好就是我漏的地方.找到最后一个人的.
+
+每个人肯定有每个人自己漏的地方,玩家之间都很难交流的.一没地图二没人物和收集列表.
+
+
+*****
+
+####  smileboom  
+##### 236#       发表于 2023-2-27 07:26
+
+我说是火狗后面有一个门，那个门进不去
+
+
+*****
+
+####  fuochai  
+##### 237#       发表于 2023-2-27 11:06
+
+boss二阶段是不救人才有吗 打了四个boss就一个有二阶段<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alingzero  
+##### 238#       发表于 2023-2-27 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900515&amp;ptid=2085482" target="_blank">fuochai 发表于 2023-2-27 11:06</a>
+
+boss二阶段是不救人才有吗 打了四个boss就一个有二阶段</blockquote>
+应该是那个boss的专有机制，只有第三关的骑士铠甲和最后的库萝娜有二阶段
+
+
+*****
+
+####  wujae  
+##### 239#       发表于 2023-2-27 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59898194&amp;ptid=2085482" target="_blank">oyss 发表于 2023-2-27 02:32</a>
+
+已经白金了,内裤比人还先找齐.
+
+连个列表都没有,谁知道哪里漏了.我最后是随便搜了一下视频看到一个花园水池 ...</blockquote>
+白金难度如何？
+
+
+*****
+
+####  cmyk1234  
+##### 240#         楼主| 发表于 2023-2-27 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900833&amp;ptid=2085482" target="_blank">wujae 发表于 2023-2-27 11:27</a>
+白金难度如何？</blockquote>
+三个金牌奖杯难做，其中另类结局要求救出全人质32个并且最终boss选择第三个对话，收集奖杯要求收集40件，boss rush奖杯要求传奇猎人难度通过。
+
+
+*****
+
+####  cmyk1234  
+##### 241#         楼主| 发表于 2023-2-27 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900833&amp;ptid=2085482" target="_blank">wujae 发表于 2023-2-27 11:27</a>
+白金难度如何？</blockquote>
+三个金牌奖杯难做，其中另类结局要求救出全人质32个并且最终boss选择第三个对话，收集奖杯要求收集40件，boss rush奖杯要求传奇猎人难度通过。
+
+*****
+
+####  alingzero  
+##### 242#       发表于 2023-2-27 12:23
+
+ 本帖最后由 alingzero 于 2023-2-27 12:26 编辑 
+
+风怒了
+
+*****
+
+####  alingzero  
+##### 243#       发表于 2023-2-27 12:26
+
+姐妹两个全程no pan跑完一二周目也太刺激了，给我幼小的心灵带来了强烈的震撼
+
+
+*****
+
+####  oyss  
+##### 244#       发表于 2023-2-27 13:01
+
+ 本帖最后由 oyss 于 2023-2-27 13:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900833&amp;ptid=2085482" target="_blank">wujae 发表于 2023-2-27 11:27</a>
+
+白金难度如何？</blockquote>
+就收集麻烦.
+
+没地图,没攻略,没地方记录进度.就靠遍历地图,通关后所有隐藏房间都要走个一遍,如果通关前去过了,那还得再重过一遍.
+
+
+*****
+
+####  wujae  
+##### 245#       发表于 2023-2-27 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59901983&amp;ptid=2085482" target="_blank">oyss 发表于 2023-2-27 13:01</a>
+
+就收集麻烦.
+
+没地图,没攻略,没地方记录进度.就靠遍历地图,通关后所有隐藏房间都要走个一遍,如果通关前去过 ...</blockquote>
+感谢，那等一个像样的攻略在玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fuochai  
+##### 246#       发表于 2023-2-27 13:17
+
+ 本帖最后由 fuochai 于 2023-2-27 13:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59900622&amp;ptid=2085482" target="_blank">alingzero 发表于 2023-2-27 11:14</a>
+
+应该是那个boss的专有机制，只有第三关的骑士铠甲和最后的库萝娜有二阶段 ...</blockquote>
+才一条啊
+
+这游戏boss血好薄 我一开始还躲 后来发现妹妹上纸人buff直接近战嗯吃伤害就行了 躲都是浪费时间
+
+
+*****
+
+####  RUANHYC  
+##### 247#       发表于 2023-2-27 16:08
+
+但凡有一张地图和标记<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+int你tmd
+
+
+*****
+
+####  alingzero  
+##### 248#       发表于 2023-2-27 19:36
+
+胖次好像只缺忍的了，有没有大佬知道忍的内裤藏在哪里
+
+
+*****
+
+####  alingzero  
+##### 249#       发表于 2023-2-27 20:58
+
+好了，全成就了。话说我到现在都不知道那个演示视频里的双人火箭炮大招是怎么发的
+
+
+*****
+
+####  RUANHYC  
+##### 250#       发表于 2023-2-27 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59907795&amp;ptid=2085482" target="_blank">alingzero 发表于 2023-2-27 20:58</a>
+
+好了，全成就了。话说我到现在都不知道那个演示视频里的双人火箭炮大招是怎么发的 ...</blockquote>
+你需要一个朋友一起玩，然后一起放大招<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 251#       发表于 2023-2-27 21:07
+
+操蛋啊，刚玩，这个纸鹤好难用，之前关卡有些上不去的还是上不去，是后期有二段跳吗？md纸鹤用完了又得重打地图好烦啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  RUANHYC  
+##### 252#       发表于 2023-2-27 21:07
+
+我去尝试了一下本家的galgun，挺离谱的(褒义)就是射击只能一下一下按有点费手和手柄
+
+
+*****
+
+####  ParadiseMartyr  
+##### 253#       发表于 2023-2-27 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59907868&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-2-27 21:05</a>
+你需要一个朋友一起玩，然后一起放大招</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">一个人也可以啊，俩手柄不就好了，看看演出就行了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cmyk1234  
+##### 254#         楼主| 发表于 2023-2-27 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59907891&amp;ptid=2085482" target="_blank">ParadiseMartyr 发表于 2023-2-27 21:07</a>
+操蛋啊，刚玩，这个纸鹤好难用，之前关卡有些上不去的还是上不去，是后期有二段跳吗？md纸鹤用完了又得重打 ...</blockquote>
+钩索跳上限极高，吊墙壁吊纸鹤吊敌人吊存档点，斜下斜上左右上方向都可以出跳跃。
+
+*****
+
+####  cmyk1234  
+##### 255#         楼主| 发表于 2023-2-27 21:37
+
+ 本帖最后由 cmyk1234 于 2023-2-27 21:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59907891&amp;ptid=2085482" target="_blank">ParadiseMartyr 发表于 2023-2-27 21:07</a>
+操蛋啊，刚玩，这个纸鹤好难用，之前关卡有些上不去的还是上不去，是后期有二段跳吗？md纸鹤用完了又得重打 ...</blockquote>
+转载一个钩索的高级应用 http://tieba.baidu.com/p/8284724468
+
+还有转载
+
+【少女魔净最难取得的隐藏女主角单人全程锁链取得-哔哩哔哩】 https://b23.tv/JoPxkY3
+
+
+*****
+
+####  RUANHYC  
+##### 256#       发表于 2023-2-27 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59907891&amp;ptid=2085482" target="_blank">ParadiseMartyr 发表于 2023-2-27 21:07</a>
+
+操蛋啊，刚玩，这个纸鹤好难用，之前关卡有些上不去的还是上不去，是后期有二段跳吗？md纸鹤用完了又得重打 ...</blockquote>
+等二进城升级了武器能往上扔
+
+*****
+
+####  仓鼠吃火锅  
+##### 257#       发表于 2023-2-27 21:58
+
+才发现柱之间右边还有个体育馆，原来找到的学生都在这
+
+
+*****
+
+####  notromeo  
+##### 258#       发表于 2023-2-27 22:58
+
+没地图真是恶心啊，都啥年代了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smileboom  
+##### 259#       发表于 2023-2-27 23:35
+
+这个位置的门要怎么进，难道门是从里面开的，得另外找路进？
+<img src="https://p.sda1.dev/10/447bbb265c5c2acee02f460f45be739e/ggdp1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  amuro_h  
+##### 260#       发表于 2023-2-27 23:56
+
+<blockquote>smileboom 发表于 2023-2-27 23:35
+这个位置的门要怎么进，难道门是从里面开的，得另外找路进？</blockquote>
+是的，别的路线的出口。选关时，可以看到一个虚线是通那边的。
+
+
+*****
+
+####  ViviR  
+##### 261#       发表于 2023-2-28 02:42
+
+ 本帖最后由 ViviR 于 2023-2-28 02:46 编辑 
+
+二进宫到了那个有之前救下来的角色的地方要怎么出来啊？往右走是体育馆，往左下方走的地方的门出不去，左右上侧两扇门也无法通过…不会是bug了吧
+
+syl：哦没事了，原来还要再跟所有角色对话一遍
+
+
+*****
+
+####  adretyu67  
+##### 262#       发表于 2023-2-28 10:02
+
+感觉隐藏要素收集这块这作相对月之诅咒和bmzero系列是倒退了。
+
+月之诅咒和bmzero的选图前都有要素收集提示的。
+
+这作啥都没有简直弱智
+
+*****
+
+####  461757753  
+##### 263#       发表于 2023-2-28 10:04
+
+怎么打着打着蹦出个男主
+
+
+*****
+
+####  RUANHYC  
+##### 264#       发表于 2023-2-28 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59911867&amp;ptid=2085482" target="_blank">461757753 发表于 2023-2-28 10:04</a>
+
+怎么打着打着蹦出个男主</blockquote>
+因为这是galgun的外传
+
+
+*****
+
+####  fuochai  
+##### 265#       发表于 2023-2-28 18:11
+
+第三关的钻石图标隐藏道具 真的是用姐姐钩爪上去的吗
+感觉好阴间 跳了半天上去了 房间里还要再跳一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+好在这里能无限重试 死了刷新紫瓶 
+
+
+*****
+
+####  cmyk1234  
+##### 266#         楼主| 发表于 2023-2-28 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59917884&amp;ptid=2085482" target="_blank">fuochai 发表于 2023-2-28 18:11</a>
+第三关的钻石图标隐藏道具 真的是用姐姐钩爪上去的吗
+感觉好阴间 跳了半天上去了 房间里还要再跳一次[f:001 ...</blockquote>
+强化纸鹤获得上投能力，然后上投纸鹤，接着用钩爪吊纸鹤上去。
+
+
+*****
+
+####  fuochai  
+##### 267#       发表于 2023-2-28 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59918044&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-2-28 18:22</a>
+
+强化纸鹤获得上投能力，然后上投纸鹤，接着用钩爪吊纸鹤上去。</blockquote>
+谢谢
+
+看来还是得先多升几个技能再来做收集
+
+
+*****
+
+####  notromeo  
+##### 268#       发表于 2023-2-28 20:19
+
+歌剧院那个厨房的房间有啥谜题呢?
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  amuro_h  
+##### 269#       发表于 2023-2-28 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59919293&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-28 20:19</a>
+
+歌剧院那个厨房的房间有啥谜题呢?</blockquote>
+用伞的冲刺点炉子
+
+*****
+
+####  notromeo  
+##### 270#       发表于 2023-2-28 20:25
+
+这也行。。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  notromeo  
+##### 271#       发表于 2023-2-28 20:29
+
+黑洞里掏内裤是啥操作、需要什么实践引发吗<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alingzero  
+##### 272#       发表于 2023-2-28 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59919417&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-28 20:29</a>
+
+黑洞里掏内裤是啥操作、需要什么剧情引发吗</blockquote>
+应该是二周目通关一次吧，至少我的情况是二周目路上一个都没见着
+
+
+*****
+
+####  RUANHYC  
+##### 273#       发表于 2023-2-28 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59919417&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-2-28 20:29</a>
+
+黑洞里掏内裤是啥操作、需要什么剧情引发吗</blockquote>
+至少通关一个结局
+
+*****
+
+####  notromeo  
+##### 274#       发表于 2023-2-28 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好吧，再次抱怨没地图没藏品标识
+
+
+*****
+
+####  notromeo  
+##### 275#       发表于 2023-2-28 22:47
+
+副武器完全强化是该二周目刷完还是等到三周目顺便做了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 276#       发表于 2023-3-1 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59917884&amp;ptid=2085482" target="_blank">fuochai 发表于 2023-2-28 18:11</a>
+
+第三关的钻石图标隐藏道具 真的是用姐姐钩爪上去的吗
+
+感觉好阴间 跳了半天上去了 房间里还要再跳一次[f:001 ...</blockquote>
+
+【【少女魔净】直角钩锁跳翻邪道 仅用钩锁获取第三关隐藏道具-哔哩哔哩】 [https://b23.tv/sRiHSOa](https://b23.tv/sRiHSOa)
+
+自己试出来了 掌握技巧其实还挺简单的 周围没有机关的话
+
+
+*****
+
+####  mrx3x  
+##### 277#       发表于 2023-3-3 11:54
+
+没地图也就算了,整什么单向门有病吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 278#       发表于 2023-3-3 13:45
+
+为了收集隐藏物品在尖塔区域来回跑，结果因为手残又挂了。先afk了。什么时候这游戏更新了地图引导什么时候再试试。
+
+
+*****
+
+####  quanlix  
+##### 279#       发表于 2023-3-3 14:45
+
+就剩最麻烦的裤衩子收集了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  此乃叛道  
+##### 280#       发表于 2023-3-3 17:47
+
+什么玩意儿，打完第一关出了个柱子，说是可以传送回第一关开头，我就想着先回去看看传送机制是咋样的，没想到传过去就传不回来了！！我还得重新打一遍第一关！！好tm蠢啊！
+
+
+*****
+
+####  notromeo  
+##### 281#       发表于 2023-3-4 17:50
+
+退出重进就是了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  notromeo  
+##### 282#       发表于 2023-3-4 18:03
+
+这内裤搜集了又看不到，真是……尖塔就是个迷宫，岔路太多了。除了内裤收集，大概10个小时出头，感觉价格还是有点小贵，总体还是玩得挺开心，最大问题是没地图和图鉴
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  MobileMeowbot  
+##### 283#       发表于 2023-3-5 17:20
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+construction.ggb
+(85.6 KB, 下载次数: 0)
+
+2023-3-5 17:18 上传
+
+点击文件名下载附件
+
+<img src="https://img.saraba1st.com/forum/202303/05/171826ems2jhq7ahdufjd7.png" referrerpolicy="no-referrer">
+
+<strong>1.0.4.png</strong> (343.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-5 17:18 上传
+
+//上色优先级升序
+
+房间（黑），走廊（灰，经过无扉门），鸟笼（蓝），隔断（目、鹅、伞、镰）：绿、浅蓝、橙、红，经过屏障机关；
+
+救援（姓氏，角色固定），失物（十字，归属随机），死路（叉，两端不通），回归（圆环，起止），头尾（菱形）；
+
+通路（线段），流道（虚线，两端点为同一房间），单向（向量，单向通路），多选（半圆，殊途同归）。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tsubaki| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  cmyk1234  
+##### 284#         楼主| 发表于 2023-3-5 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59974235&amp;ptid=2085482" target="_blank">MobileMeowbot 发表于 2023-3-5 17:20</a>
+//上色优先级升序
+
+房间（黑），走廊（灰，经过无扉门），鸟笼（蓝），隔断（目、鹅、伞、镰）：绿、浅蓝、 ...</blockquote>
+太强了地图画法比洛克人zx好多了。
+
+
+*****
+
+####  zechin  
+##### 285#       发表于 2023-3-5 22:31
+
+觉得钩锁偷跑难按都可以试下先强化，可以向斜角钩后原地跳对着地面钩再跳，比纸鹤好用多了
+
+纸鹤真的是不知道来干啥的
+
+
+*****
+
+####  cmyk1234  
+##### 286#         楼主| 发表于 2023-3-6 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59978823&amp;ptid=2085482" target="_blank">zechin 发表于 2023-3-5 22:31</a>
+
+觉得钩锁偷跑难按都可以试下先强化，可以向斜角钩后原地跳对着地面钩再跳，比纸鹤好用多了
+
+纸鹤真的是不知 ...</blockquote>
+拿到钩锁后改到右肩键手感更好。
+
+
+*****
+
+####  adretyu67  
+##### 287#       发表于 2023-3-6 00:28
+
+钩锁跳墙学会了，我看有些是钩锁钩怪跳过去就是怎么操作的？
+
+*****
+
+####  猫坤  
+##### 288#       发表于 2023-3-6 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59907892&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-2-27 21:07</a>
+
+我去尝试了一下本家的galgun，挺离谱的(褒义)就是射击只能一下一下按有点费手和手柄 ...</blockquote>
+游戏提倡打弱点一下秒，虽然某些地方还是需要硬性连射
+
+打光枪游戏有鼠标不用用手柄您可真是真爱（初代刚出在XBOX上面的时候就是给手柄玩的）
+
+
+*****
+
+####  RUANHYC  
+##### 289#       发表于 2023-3-6 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59980925&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-3-6 00:28</a>
+
+游戏提倡打弱点一下秒，虽然某些地方还是需要硬性连射
+
+打光枪游戏有鼠标不用用手柄您可真是真爱（初代刚 ...</blockquote>
+习惯用手柄打游戏所以没反应过来其实能用键鼠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cmyk1234  
+##### 290#         楼主| 发表于 2023-3-6 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59980925&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-3-6 00:28</a>
+
+游戏提倡打弱点一下秒，虽然某些地方还是需要硬性连射
+
+打光枪游戏有鼠标不用用手柄您可真是真爱（初代刚 ...</blockquote>
+但是光枪游戏的double peace中文版只有ns才有。
+
+
+*****
+
+####  猫坤  
+##### 291#       发表于 2023-3-6 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59980996&amp;ptid=2085482" target="_blank">RUANHYC 发表于 2023-3-6 00:34</a>
+
+习惯用手柄打游戏所以没反应过来其实能用键鼠</blockquote>
+1代和DP游戏本身难度很低，说不定要用手柄才能体现那味道吧
+
+但2代需要经常大幅度转镜头，用手柄就真找不痛快了（本来是开发用于VR的游戏）
+
+*****
+
+####  猫坤  
+##### 292#       发表于 2023-3-6 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59981066&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-3-6 00:39</a>
+
+但是光枪游戏的double peace中文版只有ns才有。</blockquote>
+爱莫能助，我会看日文所以直接打，还录了个剧情视频（本来是打了个全收集流程的，但在叔叔站过不了审只能剪掉战斗部分只看剧情，如果想看包括战斗部分的话可以看视频下方评论区某管地址）
+[https://www.bilibili.com/video/B ... 7102b1caed3c46a7b0c](https://www.bilibili.com/video/BV1FY411X71A/?spm_id_from=333.999.0.0&amp;vd_source=4632db293c05c7102b1caed3c46a7b0c)
+
+
+*****
+
+####  RUANHYC  
+##### 293#       发表于 2023-3-6 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59981492&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-3-6 01:32</a>
+
+1代和DP游戏本身难度很低，说不定要用手柄才能体现那味道吧
+
+但2代需要经常大幅度转镜头，用手柄就真找不 ...</blockquote>
+确实，我现在在玩NS版的DP，射击部分还好，但是找东西的支线好难，很多时候刚瞄上闪光点去镜头就切走了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiaocheng  
+##### 294#       发表于 2023-3-7 14:58
+
+真结局群殴还挺燃的（
+
+另外bossrush只要开副武器无限连我这种手残都能过传奇猎人难度了。
+
+
+*****
+
+####  ultraseven  
+##### 295#       发表于 2023-3-9 11:38
+
+痛失原名<img src="https://pbs.twimg.com/media/Fqvtdi2agAERCpF?format=jpg&amp;name=large" height="1131" id="aimg_mUUJm" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+*****
+
+####  stage111st  
+##### 296#       发表于 2023-3-9 11:41
+
+<blockquote>zechin 发表于 2023-3-5 22:31
+觉得钩锁偷跑难按都可以试下先强化，可以向斜角钩后原地跳对着地面钩再跳，比纸鹤好用多了
+
+纸鹤真的是不知 ...</blockquote>
+纸鹤突出一个落地点无法预测
+
+
+*****
+
+####  cmyk1234  
+##### 297#         楼主| 发表于 2023-3-9 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60019631&amp;ptid=2085482" target="_blank">ultraseven 发表于 2023-3-9 11:38</a>
+痛失原名</blockquote>
+那还不如全部区域改名Gal Guardians。
+
+
+*****
+
+####  冰箱研会长  
+##### 298#       发表于 2023-3-9 12:59
+
+今天在车上打了两关...中途有个女学生没救到 还被迫重新打了中庭...
+
+
+*****
+
+####  xiaocheng  
+##### 299#       发表于 2023-3-9 17:36
+
+<blockquote>冰箱研会长 发表于 2023-3-9 12:59
+今天在车上打了两关...中途有个女学生没救到 还被迫重新打了中庭...</blockquote>
+其实没必要，反正到时候找内裤还得重打（
+
+*****
+
+####  adretyu67  
+##### 300#       发表于 2023-3-9 17:41
+
+不装了，啥时候标题用回gal gun
+
+
+*****
+
+####  moonmagian  
+##### 301#       发表于 2023-3-11 00:34
+
+越玩越觉得这游戏最大的问题还是关卡设计和角色性能十分割裂
+最典型的例子就是勾爪，不少时候让纸鹤和蓄力跳完全失去价值
+而且很多地方都是以假定角色是短手这种老恶魔城的地图设计思路做了各种配置和难点，导致忍的超远距离攻击能无视掉各种地图设计一路平推
+而且bgm真的好难听<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  smileboom  
+##### 302#       发表于 2023-3-11 09:39
+
+为了拿中庭喝茶的隐藏成就，一键盘和一手柄竟然没法单机分配1p2p开双打，都只能控制1p，
+
+后来用手机装了steamlink生出一个虚拟手柄来搞成2个手柄才可以分配1p2p双打，我服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 303#         楼主| 发表于 2023-3-11 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60044395&amp;ptid=2085482" target="_blank">smileboom 发表于 2023-3-11 09:39</a>
+
+为了拿中庭喝茶的隐藏成就，一键盘和一手柄竟然没法单机分配1p2p开双打，都只能控制1p，
+
+后来用手机装了ste ...</blockquote>
+中庭喝茶成就：让一人坐下，按换人键调出第二人，让第二人坐下。
+
+*****
+
+####  smileboom  
+##### 304#       发表于 2023-3-11 09:50
+
+原来单人也能弄，我还特意开双打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫坤  
+##### 305#       发表于 2023-3-11 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60042945&amp;ptid=2085482" target="_blank">moonmagian 发表于 2023-3-11 00:34</a>
+
+越玩越觉得这游戏最大的问题还是关卡设计和角色性能十分割裂
+
+最典型的例子就是勾爪，不少时候让纸鹤和蓄力 ...</blockquote>
+我还是用真夜多，毕竟真夜攻击高，近身死角小，而且忍需要上弹，并且忍的子弹可以在后台的时候自动缓慢补充，也就真夜不好打的位置才换忍打一下
+
+BGM没问题吧，不过我觉得平时过场对话时那个BGM是不是用力过头了，非常阴间，非常适合出现在本格恐怖游戏里，但这是致敬恶魔城游戏，不是初代恶魔城本身以恐怖要素为卖点的游戏啊，在她们的欢乐无厘头对话的同时出现这个BGM就很诡异，加上那些BOSS的死亡血腥演出，甚至让我产生了一种这游戏本身是一个原创（？）作品，但强行安上了GALGUN这个IP换皮成了美少女游戏的错觉
+
+
+*****
+
+####  stage111st  
+##### 306#       发表于 2023-3-11 17:36
+
+<blockquote>猫坤 发表于 2023-3-11 13:12
+我还是用真夜多，毕竟真夜攻击高，近身死角小，而且忍需要上弹，并且忍的子弹可以在后台的时候自动缓慢补 ...</blockquote>
+但是bossrush真夜开式神加忍射火箭真的无脑啊
+
+
+*****
+
+####  猫坤  
+##### 307#       发表于 2023-3-12 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60048904&amp;ptid=2085482" target="_blank">stage111st 发表于 2023-3-11 17:36</a>
+
+但是bossrush真夜开式神加忍射火箭真的无脑啊</blockquote>
+火箭打不痛啊
+
+
+*****
+
+####  reficul  
+##### 308#       发表于 2023-3-12 14:38
+
+今天刚开始玩，地图要到后面才能获取吗？打完第一关boss后进入第二关之前倒是能看到一点地图
+
+
+*****
+
+####  oidoid  
+##### 309#       发表于 2023-3-12 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60058232&amp;ptid=2085482" target="_blank">reficul 发表于 2023-3-12 14:38</a>
+
+今天刚开始玩，地图要到后面才能获取吗？打完第一关boss后进入第二关之前倒是能看到一点地图 ...</blockquote>
+没有地图，你能看到简略线路图的机会也只有在选关这个画面
+
+
+*****
+
+####  reficul  
+##### 310#       发表于 2023-3-12 16:16
+
+<blockquote>oidoid 发表于 2023-3-12 14:57
+没有地图，你能看到简略线路图的机会也只有在选关这个画面</blockquote>
+地图居然不是标配…惊了
+
+
+*****
+
+####  stage111st  
+##### 311#       发表于 2023-3-12 17:39
+
+<blockquote>reficul 发表于 2023-3-12 16:16
+地图居然不是标配…惊了</blockquote>
+https://keigame.net/archives/4090.html
+
+这里有传统蓝色地图
+
+
+*****
+
+####  节艾司  
+##### 312#       发表于 2023-3-12 17:47
+
+最大的问题还有开门动画太长了，联机甚至要看两遍
+
+
+*****
+
+####  oidoid  
+##### 313#       发表于 2023-3-12 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60059176&amp;ptid=2085482" target="_blank">reficul 发表于 2023-3-12 16:16</a>
+
+地图居然不是标配…惊了</blockquote>
+要是告诉你不显示单向门，不显示收集完成度，不显示道具位置你怕不是还得惊3次……
+
+
+*****
+
+####  reficul  
+##### 314#       发表于 2023-3-12 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60060145&amp;ptid=2085482" target="_blank">oidoid 发表于 2023-3-12 18:02</a>
+
+要是告诉你不显示单向门，不显示收集完成度，不显示道具位置你怕不是还得惊3次…… ...</blockquote>
+草...100%地图可是一大乐趣来着
+
+
+*****
+
+####  oyss  
+##### 315#       发表于 2023-3-12 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60060480&amp;ptid=2085482" target="_blank">reficul 发表于 2023-3-12 18:37</a>
+
+草...100%地图可是一大乐趣来着</blockquote>
+全收集结局基本等于100%地图了,没地方显示而已.
+
+
+*****
+
+####  reficul  
+##### 316#       发表于 2023-3-13 08:07
+
+流程有点短，已经到二周目第一个boss了…
+
+
+*****
+
+####  dookiee  
+##### 317#       发表于 2023-3-13 12:14
+
+为啥我这边本地手柄和键盘都是识别到1p？是ds4的锅吗？求教
+
+*****
+
+####  dookiee  
+##### 318#       发表于 2023-3-13 12:14
+
+为啥我这边本地手柄和键盘都是识别到1p？是ds4的锅吗？求教
+
+*****
+
+####  dookiee  
+##### 319#       发表于 2023-3-13 12:14
+
+为啥我这边本地手柄和键盘都是识别到1p？是ds4的锅吗？求教
+
+*****
+
+####  dookiee  
+##### 320#       发表于 2023-3-13 12:14
+
+为啥我这边本地手柄和键盘都是识别到1p？是ds4的锅吗？求教
+
+
+*****
+
+####  永远的访客  
+##### 321#       发表于 2023-3-13 12:21
+
+磨磨蹭蹭刚刚老兵打到成人版库罗娜，卡了2天了，看看别人视频是可以解锁人帮助的，我还在用姐姐硬抗硬躲第3阶段的那些玩意（2阶段练到可以无伤，但3阶段明显不是一个级别）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 这种情况是不是应该先去转转前面关补收集？我到现在只找到个蓝上限和血上限
+
+
+*****
+
+####  stage111st  
+##### 322#       发表于 2023-3-13 12:32
+
+<blockquote>永远的访客 发表于 2023-3-13 12:21
+磨磨蹭蹭刚刚老兵打到成人版库罗娜，卡了2天了，看看别人视频是可以解锁人帮助的，我还在用姐姐硬抗硬躲第3 ...</blockquote>
+三阶段很简单的，第一波小库洛那火箭炮，第二波那堆紫色的式神，之后出现小平台背靠外侧的，硬吃地刺伤害别跳来跳去最后坠崖，第四波左侧两个什么玩意用跳跃解决，第五波横斩无视没血了原地回血，当然如果你没吃那个def+1的每次都会多伤一点hp
+
+
+*****
+
+####  stage111st  
+##### 323#       发表于 2023-3-13 12:39
+
+<blockquote>永远的访客 发表于 2023-3-13 12:21
+磨磨蹭蹭刚刚老兵打到成人版库罗娜，卡了2天了，看看别人视频是可以解锁人帮助的，我还在用姐姐硬抗硬躲第3 ...</blockquote>
+hp和wp各两，hp不是太重要，wp一定吃到40，atkdef也最好吃了
+
+
+*****
+
+####  永远的访客  
+##### 324#       发表于 2023-3-13 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60068634&amp;ptid=2085482" target="_blank">stage111st 发表于 2023-3-13 12:32</a>
+
+三阶段很简单的，第一波小库洛那火箭炮，第二波那堆紫色的式神，之后出现小平台背靠外侧的，硬吃地刺伤害 ...</blockquote>
+我现在战术是小库洛蹲着射死一个，紫球时来回跑牵扯射击+跳，小平台时挂钩，冰火两重天时可以击落，等平台上去了跳上去摸对方几下再赶紧下来躲横斩。这套动作基本无法做到不失误，就算全做完也才摸到boss丝血，逼得全程不敢加血，琢磨只能指望站小平台时输出了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cmyk1234  
+##### 325#         楼主| 发表于 2023-3-13 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60068634&amp;ptid=2085482" target="_blank">stage111st 发表于 2023-3-13 12:32</a>
+三阶段很简单的，第一波小库洛那火箭炮，第二波那堆紫色的式神，之后出现小平台背靠外侧的，硬吃地刺伤害 ...</blockquote>
+第四波能量够多的话，赶着中间地板升起时放炸药，要叠五个以上连锁爆炸。
+
+
+*****
+
+####  oyss  
+##### 326#       发表于 2023-3-13 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60069088&amp;ptid=2085482" target="_blank">永远的访客 发表于 2023-3-13 13:24</a>
+
+我现在战术是小库洛蹲着射死一个，紫球时来回跑牵扯射击+跳，小平台时挂钩，冰火两重天时可以击落，等平 ...</blockquote>
+次元斩的时候放弃输出，在下面加血。前面紫球可以放弃回避尽量打了补副武器
+
+
+*****
+
+####  notromeo  
+##### 327#       发表于 2023-3-13 14:17
+
+简单版我是吃着加血天使硬打的，不知道老兵版够不够用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zechin  
+##### 328#       发表于 2023-3-13 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实打不过的时候他提示你多用副武器
+
+第三阶段出三个小的一个rpg解决，
+
+紫球开个围着你转的式神的话就不用躲了，那球会被打掉
+
+出平台的时候钩子
+
+冰火不知道怎么打掉，不过节奏刚好跳一下打一下，无所谓了
+
+次元斩的时候蹲着就打不到你了（站着也打不到？）
+
+就是血量低的时候那个砸个球下来的怎么挡，无敌的伞好像也没办法挡
+
+
+*****
+
+####  cmyk1234  
+##### 329#         楼主| 发表于 2023-3-13 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60069798&amp;ptid=2085482" target="_blank">zechin 发表于 2023-3-13 14:21</a>
+其实打不过的时候他提示你多用副武器
+
+第三阶段出三个小的一个rpg解决，
+
+紫球开个围着你转的式神的话 ...</blockquote>
+大月球可以用纸鹤跳出地板边缘躲，也可以钩爪钩悬崖边躲，也可以吊纸鹤躲。
+
+好像站在纸鹤上祈祷会升高纸鹤。
+
+
+*****
+
+####  MobileMeowbot  
+##### 330#       发表于 2023-3-13 15:48
+
+<img src="https://img.saraba1st.com/forum/202303/13/154822idddn7f3kxf5d9xk.png" referrerpolicy="no-referrer">
+
+<strong>1.1.0.png</strong> (238.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-13 15:48 上传
+
+
+*****
+
+####  stage111st  
+##### 331#       发表于 2023-3-13 17:19
+
+<blockquote>notromeo 发表于 2023-3-13 14:17
+简单版我是吃着加血天使硬打的，不知道老兵版够不够用</blockquote>
+够，因为前两波小怪都可以击杀补wp点数，
+
+
+*****
+
+####  stage111st  
+##### 332#       发表于 2023-3-13 17:21
+
+<blockquote>zechin 发表于 2023-3-13 14:21
+其实打不过的时候他提示你多用副武器
+
+第三阶段出三个小的一个rpg解决，
+
+紫球开个围着你转的式神的话 ...</blockquote>
+回血，次元展不用蹲，召唤大币才是硬道理，血够多就不怕第六招
+
+
+*****
+
+####  xiaocheng  
+##### 333#       发表于 2023-3-14 16:16
+
+成人库洛娜掌握打法后极其简单。招分身只要打掉最下面那个，也可以在冲过来的时候火箭筒还能补充副武器。六个球直接开式神，一样补充副武器。地刺用钩锁吊在中间那个小平台，机枪正好可以输出。冰火两重天边跳边往中间丢TNT，运气好能炸掉大半的血。大黑球用大币挥一下就没了。
+
+
+*****
+
+####  reficul  
+##### 334#       发表于 2023-3-15 00:22
+
+二周目还是有不少新意的，可以走新的路线，boss招式也有变化，目前到第四关了
+
+但是还有些地方上不去，怀疑要到三周目才能拿，也可能我走错路了。。
+
+
+*****
+
+####  notromeo  
+##### 335#       发表于 2023-3-15 00:53
+
+二周目除了胖次应该都解锁了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  猫坤  
+##### 336#       发表于 2023-3-15 01:28
+
+成人库萝娜第二形态半血以下才会出的大球可以用大币消除，其实这算是个对中文玩家不太友好的隐藏设计
+
+因为她喊的是【亡魂よ集え】，这是个幽灵聚集的球，所以可以用大币除灵
+
+如果不知道这点的话就需要在平台边缘勾爪半天吊或者纸鹤垫脚之类的麻烦方法了，虽然我也一开始有想过以这游戏简单的设计尿性总不能非要要求玩家用这些不太直观的方法去对应，应该是有什么方法可以直接整掉大球的。但考虑到纸鹤+大币上浮也是个稳妥手段，设计时应该有想过会被人无意中用大币消掉大球
+
+
+*****
+
+####  oyss  
+##### 337#       发表于 2023-3-15 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60069798&amp;ptid=2085482" target="_blank">zechin 发表于 2023-3-13 14:21</a>
+
+其实打不过的时候他提示你多用副武器
+
+第三阶段出三个小的一个rpg解决，
+
+紫球开个围着你转的式神的话 ...</blockquote>
+蓄力斩二段跳就能躲,时间足够,她蓄你也蓄.
+
+
+*****
+
+####  cmyk1234  
+##### 338#         楼主| 发表于 2023-3-15 16:45
+
+FAMI通评分7/7/8/6=28分，为Inti Creates出品游戏史低。
+
+*****
+
+####  notromeo  
+##### 339#       发表于 2023-3-15 16:53
+
+发霉桶的评分有啥好看的，自己喜欢就行<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 340#       发表于 2023-3-15 16:59
+
+这作比gv出圈多了，视频常上b站推荐。与此相比gv要曝光只能靠“史上最虐”这样噱头足的标题。
+
+
+*****
+
+####  cmyk1234  
+##### 341#         楼主| 发表于 2023-3-15 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60097370&amp;ptid=2085482" target="_blank">notromeo 发表于 2023-3-15 16:53</a>
+发霉桶的评分有啥好看的，自己喜欢就行
+
+论坛助手,iPhone</blockquote>
+因为Inti和FAMI通不经意间有着奇奇怪怪的交流，所以做个记录。
+
+
+*****
+
+####  oidoid  
+##### 342#       发表于 2023-3-15 18:48
+
+抛开对现在fami通的印象和评分问题，这作问题也挺多的，完全对不起这个价格和期待值。
+
+
+*****
+
+####  猫坤  
+##### 343#       发表于 2023-3-16 18:40
+
+已经研究出来BOSS BR模式H难度传奇猎人配置只有20点WP上限的条件下，可以在成人库萝娜出大球之前击杀，但要全无伤还是得练
+
