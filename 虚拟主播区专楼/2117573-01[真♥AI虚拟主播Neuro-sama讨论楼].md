@@ -1130,3 +1130,73 @@ https://azure.microsoft.com/zh-tw/products/cognitive-services/text-to-speech/#fe
 emo<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/9128a6a4986dc33472b89c0d21f6298c/CMP_20230310141152101.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  kuhailz  
+##### 92#       发表于 2023-3-13 20:37
+
+vedal听着挺年轻的
+
+
+*****
+
+####  ltycomputer  
+##### 93#       发表于 2023-3-16 09:31
+
+真正的养成系主播
+
+
+*****
+
+####  Wondering  
+##### 94#         楼主| 发表于 2023-3-16 23:18
+
+现在ai主播越来越多了
+
+
+*****
+
+####  seawindfog  
+##### 95#       发表于 2023-3-17 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60034672&amp;ptid=2117573" target="_blank">与天争锋_LZ 发表于 2023-3-10 14:00</a>
+
+emo</blockquote>
+想太多了吧，AI的可解释性目前还是难题，除非这玩意是单纯基于规则弄的
+
+*****
+
+####  jrjwcf  
+##### 96#       发表于 2023-3-17 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60034672&amp;ptid=2117573" target="_blank">与天争锋_LZ 发表于 2023-3-10 14:00</a>
+emo</blockquote>
+虽然，但是vedal只能说知道代码，不能说知道运行逻辑，他要是知道，不去（），在这小小的（）干什么
+
+
+*****
+
+####  与天争锋_LZ  
+##### 97#       发表于 2023-3-17 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60116742&amp;ptid=2117573" target="_blank">jrjwcf 发表于 2023-3-17 03:00</a>
+虽然，但是vedal只能说知道代码，不能说知道运行逻辑，他要是知道，不去（），在这小小的（）干什么 ...</blockquote>
+昨天看了个chatgpt4科普懂了一点，好像都是黑箱？
+
+*****
+
+####  与天争锋_LZ  
+##### 98#       发表于 2023-3-17 11:22
+
+ 本帖最后由 与天争锋_LZ 于 2023-3-17 11:23 编辑 
+
+风怒
+
+
+*****
+
+####  海苹果suki  
+##### 99#       发表于 2023-3-17 14:04
+
+我早就是牛肉推了啊😻
+
