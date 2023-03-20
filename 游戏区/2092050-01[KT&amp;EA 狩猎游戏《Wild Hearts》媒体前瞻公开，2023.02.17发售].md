@@ -6357,3 +6357,125 @@ xsx版，拖拖拉拉的今天才过了天照守剧情，强怪物也只打过�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然卖不太好是不是可以期待半年后进eaplay了
 
+*****
+
+####  hqtkkb  
+##### 665#       发表于 2023-3-11 00:03
+
+这都三个版本了还没弄好优化，甚至更差了，这游戏不凉都说不过去<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  upisud20  
+##### 666#       发表于 2023-3-11 01:11
+
+ 本帖最后由 upisud20 于 2023-3-11 01:12 编辑 
+
+最近通关卧龙终于有空试试这款了，下完调了一下设置看了个片头就存档去吃饭。回来直接进不了游戏，狗屎一样的EA APP还总是提示我登录错误需要重登，两秒闪退。买了一周总共玩了7分钟，还没下载时间长，直接退款<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+脱光的码农究竟都招了些什么人啊
+
+
+*****
+
+####  布拉德莱恩  
+##### 667#       发表于 2023-3-11 05:01
+
+新补丁修复内容列表长得吓人，可见发售时那版有多粗糙，根本就没测试<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tsubaki  
+##### 668#       发表于 2023-3-11 09:48
+
+新版加个一个BOSS，猴子系，其余都是BUG修复啥的，我反正打完天照守就坑着了
+
+
+*****
+
+####  bm7号  
+##### 669#       发表于 2023-3-11 09:55
+
+弓箭削了，我还没做肉料理，吃生肉打的猴子。
+
+现在一次引爆不全，以后感觉得带深矢了。
+
+
+*****
+
+####  Booorunestud  
+##### 670#       发表于 2023-3-12 03:39
+
+这破逼猴子我飞燕刀打了一个小时才过，这不比卧龙硬核…拿飞燕刀通完主线后就一直在玩机关棍，刀伤害太低了，刮十几分钟
+气不过下午刷了点素材把刀词条刷到毕业级别，不到十分钟就一次过了
+
+
+*****
+
+####  yanhan0410  
+##### 671#       发表于 2023-3-12 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">新加的猴子任务怎么触发
+
+
+*****
+
+####  火红之眼  
+##### 672#       发表于 2023-3-12 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60059295&amp;ptid=2092050" target="_blank">yanhan0410 发表于 2023-3-12 16:30</a>
+
+新加的猴子任务怎么触发</blockquote>
+家里接任务，然后切外传章节
+
+
+*****
+
+####  yanhan0410  
+##### 673#       发表于 2023-3-12 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60059517&amp;ptid=2092050" target="_blank">火红之眼 发表于 2023-3-12 17:54</a>
+家里接任务，然后切外传章节</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感谢
+
+
+*****
+
+####  yanhan0410  
+##### 674#       发表于 2023-3-14 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60059517&amp;ptid=2092050" target="_blank">火红之眼 发表于 2023-3-12 17:54</a>
+
+家里接任务，然后切外传章节</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那个不好意思，凑之村里没看见有能接任务的地方。
+
+
+*****
+
+####  Booorunestud  
+##### 675#       发表于 2023-3-14 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60083395&amp;ptid=2092050" target="_blank">yanhan0410 发表于 2023-3-14 16:23</a>
+
+那个不好意思，凑之村里没看见有能接任务的地方。</blockquote>
+要打完四个极限愤怒怪，接任务的点在铁匠铺右边上楼
+
+*****
+
+####  yanhan0410  
+##### 676#       发表于 2023-3-14 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60083528&amp;ptid=2092050" target="_blank">Booorunestud 发表于 2023-3-14 17:32</a>
+要打完四个极限愤怒怪，接&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感谢感谢
+
+
+*****
+
+####  cnwind042  
+##### 677#       发表于 2023-3-15 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下飞天流变形棍可太好玩了，之前只用太刀遇到攻击欲望强的只敢大居合蹭血，现在是追着怪的屁股打武器槽，看形势不妙一蹦飞出去老远
+

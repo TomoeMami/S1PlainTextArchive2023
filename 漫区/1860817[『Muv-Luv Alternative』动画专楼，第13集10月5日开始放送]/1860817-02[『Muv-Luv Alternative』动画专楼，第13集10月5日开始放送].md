@@ -3244,3 +3244,47 @@ AL的一半吧
 
 大图书馆的牧羊人也是刚过了十周年，也就卖点谷子
 
+*****
+
+####  再买自检星剁手  
+##### 2265#       发表于 2023-3-13 01:22
+
+ 本帖最后由 再买自检星剁手 于 2023-3-13 01:30 编辑 
+
+[AI纯夏-MURAMASA](https://www.bilibili.com/video/BV1rx4y1N7vj)
+
+有这么一个galgame角色，她出自一部机甲题材的作品，在这部作品中，子安武人配音的眼镜男给大家留下了深刻的印象；
+她身为女主角但是戏份在整个游戏中占比不多，主要存在于学园篇的回忆中；
+她的身边有一个兔子造型的无口女孩，她们之间有着重要的关系；
+她与男主角在一场灾难中分离，但是凭借着她的爱和思念以及他们共同的勇气，这个世界最终得到了拯救——
+她，就是
+
+水无月空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+
+*****
+
+####  ReginaldMorgan  
+##### 2266#       发表于 2023-3-13 02:12
+
+水无月空草
+
+抹布和bsd在某些地方的相似性确实是老生常谈了，也经常被拿出来比较
+
+syl，最近打神之天平，男主从阿努比斯系统里面把青梅脑子拿出来的时候我想的也是“我草纯夏”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  再买自检星剁手  
+##### 2267#       发表于 2023-3-15 04:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60065282&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2023-3-13 02:12</a>
+
+水无月空草
+
+抹布和bsd在某些地方的相似性确实是老生常谈了，也经常被拿出来比较</blockquote>
+甚至Nano Universe和マブラヴ的曲风都很像
+
