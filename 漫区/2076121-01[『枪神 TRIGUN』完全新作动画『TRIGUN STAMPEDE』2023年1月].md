@@ -3427,3 +3427,132 @@ No,no,no，前面的楼友不是说了嘛，新版这个叫跑神<img src="https
 
 推特首页关注的好几个太太要么爬灌篮要么爬蓝锁要么就是爬这个了而且产的图转的图点赞数都是几百起步<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+*****
+
+####  百里屠苏  
+##### 324#       发表于 2023-3-12 23:18
+
+嗯，24集确定
+
+wolfwood便当终究逃不了？开播前设定集里有两年后女主人设图果然暗示分割二期……
+
+
+*****
+
+####  charlespfan  
+##### 325#       发表于 2023-3-12 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60008000&amp;ptid=2076121" target="_blank">毛头小希 发表于 2023-3-8 09:52</a>
+
+没看这片子也不懂原作
+
+但是在腐女那边评价好像挺高的
+
+推特首页关注的好几个太太要么爬灌篮要么爬蓝锁要么就 ...</blockquote>
+看过漫画和旧TV的腐女居然没冲新版，看看腐女是怎么冲狗汉子版东京巴比伦的，直接给狗汉子冲垮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佛剑分说  
+##### 326#       发表于 2023-3-13 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60063995&amp;ptid=2076121" target="_blank">charlespfan 发表于 2023-3-12 23:25</a>
+
+看过漫画和旧TV的腐女居然没冲新版，看看腐女是怎么冲狗汉子版东京巴比伦的，直接给狗汉子冲垮了 ...</blockquote>
+谁让他抄袭的……其实是死于大妈、版权方和制作委员会的不满
+
+
+*****
+
+####  毛头小希  
+##### 327#       发表于 2023-3-13 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60063995&amp;ptid=2076121" target="_blank">charlespfan 发表于 2023-3-12 23:25</a>
+
+看过漫画和旧TV的腐女居然没冲新版，看看腐女是怎么冲狗汉子版东京巴比伦的，直接给狗汉子冲垮了 ...</blockquote>
+我也不知道她们看没看过旧动画和漫画，我只知道她们现在进行时地追动画嗨的要命，产出有日文英文韩文还有我不认识的语言<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+还有狗汉子的东京巴比伦片子都没出来只有PV和几张图就被冲是别的原因，垮了也不是因为被冲
+
+
+*****
+
+####  pzk  
+##### 328#       发表于 2023-3-15 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">男主这种圣母形象可能很适合出抹布同人吧
+
+感觉这片剧情就突出一个随便发展，什么都合怎么来，人物情感动机都莫名其妙。各种桥段基本就是“懂得都懂，不懂我也不细讲了，大家都这样的”。
+
+
+*****
+
+####  Mr1z  
+##### 329#       发表于 2023-3-16 09:45
+
+把原作漫画看完了，这动画更看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  UNacher  
+##### 330#       发表于 2023-3-16 10:52
+
+想来想去为啥这动画情节还挺还原原作的，但为啥看着那么不爽。只能是因为人设台词分镜造成的氛围太low了吧
+
+
+*****
+
+####  chdhdhd  
+##### 331#       发表于 2023-3-16 11:36
+
+<blockquote>UNacher 发表于 2023-3-16 10:52
+想来想去为啥这动画情节还挺还原原作的，但为啥看着那么不爽。只能是因为人设台词分镜造成的氛围太low了吧 ...</blockquote>
+差不多是这个道理，原作的stylish一点没继承下来。
+
+相当于地狱之歌如果用k-on的画风
+
+
+*****
+
+####  首领  
+##### 332#       发表于 2023-3-16 13:52
+
+当成奇怪同人来看一切都说得通了
+
+特别是ED
+
+这不得狠狠表扬
+
+
+*****
+
+####  米德  
+##### 333#       发表于 2023-3-19 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么？下周最终话了？
+
+
+*****
+
+####  赛U灵  
+##### 334#       发表于 2023-3-19 08:31
+
+有一说一微博上我看国内腐女还是骂的蛮厉害的吧，但lof那边也还是有人画新作，我是觉得骂的不会产粮，产粮的不会骂，也不可能有人跑新作党的同人下面去骂新作那么难看你怎么能产粮呢，那也太ky了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且感觉同人发出来一般也都会佛一点，看到过一个太太画了张旧作法修然后配字我永远喜欢原着法修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  hqtkkb  
+##### 335#       发表于 2023-3-19 09:23
+
+耐布滋的想法我倒是能理解，从他的角度来说为了自己的种族干掉人类无可厚非（虽然我才知道plant没有自我意识。。），而其他人我是真的一个都没看懂。
+
+话说这吊毛主角跟枪神有个锤子关系，大叔用枪都比他多，从头到尾就突出一个“都是我的错”和跑跑跑，什么背锅跑跑侠<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
