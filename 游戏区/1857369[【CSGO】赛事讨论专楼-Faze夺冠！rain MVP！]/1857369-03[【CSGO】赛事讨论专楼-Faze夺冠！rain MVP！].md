@@ -1313,3 +1313,166 @@ g2连胜断了
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59924379&amp;ptid=1857369" target="_blank"> heseran 发表于 2023-3-1 10:36</a>  本帖最后由 heseran 于 2023-3-1 10:49 编辑    想要niko的签名 附件： </blockquote>
 去三里屯或者工体蹲他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+*****
+
+####  PENTAX-DA  
+##### 3247#       发表于 2023-3-13 01:04
+
+互相14-1，这比赛真暴力<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  米德  
+##### 3248#       发表于 2023-3-13 01:14
+
+1分真的够了
+
+*****
+
+####  acacaclove  
+##### 3249#       发表于 2023-3-13 01:15
+
+鼠鼠真暴力啊
+
+*****
+
+####  恶搞之王  
+##### 3250#       发表于 2023-3-13 01:15
+
+一分真的够了，服了
+
+*****
+
+####  PENTAX-DA  
+##### 3251#       发表于 2023-3-13 01:16
+
+笑死了，马喜喜直播间说打平roll1万，蜜蜂赢roll3万
+
+血亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这下真在现场了
+
+*****
+
+####  DICE20  
+##### 3252#       发表于 2023-3-13 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来一分真的够啊 薯薯这都能杀回来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Reinhold  
+##### 3253#       发表于 2023-3-13 01:20
+
+apex梦回7年前吧<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DearRye  
+##### 3254#       发表于 2023-3-13 01:24
+
+我cnm，byd这样能输的啊
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Niyah  
+##### 3255#       发表于 2023-3-13 01:29
+
+豆载2v5那局，真看泪目了
+
+
+*****
+
+####  曼陀罗肥  
+##### 3256#       发表于 2023-3-13 02:45
+
+jackz真后期英雄了，这次居然打得这么牛
+
+
+*****
+
+####  dev2ce  
+##### 3257#       发表于 2023-3-13 13:52
+
+杜压力来了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3258#       发表于 2023-3-13 13:58
+
+今年应该不会有更离谱的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  曼陀罗肥  
+##### 3259#       发表于 2023-3-13 20:03
+
+没想到杰克居然不打淘汰赛，阿杜要不再生一个吧
+
+
+*****
+
+####  浊世臭臭泥  
+##### 3260#       发表于 2023-3-16 04:46
+
+ra2:0tl了，我来提一嘴
+
+*****
+
+####  NEIN  
+##### 3261#       发表于 2023-3-16 05:14
+
+cncs＞nacs
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  红白二色霉豆腐  
+##### 3262#       发表于 2023-3-16 05:46
+
+牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3263#         楼主| 发表于 2023-3-18 03:59
+
+RA现在确实打得可以啊
+
+*****
+
+####  cwlo  
+##### 3264#       发表于 2023-3-18 04:00
+
+RA小镇有东西的，ENCE都BAN不和他们打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3265#       发表于 2023-3-18 04:01
+
+可以，这夜没白熬
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  朔方原的星  
+##### 3266#         楼主| 发表于 2023-3-19 23:29
+
+a队打成这样居然赢了，我都不知道说啥好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+救救老汤
+
