@@ -115,3 +115,48 @@
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Sue  
+##### 1425#       发表于 2023-3-19 19:40
+
+求问一下，鹅球没法发图片，一直加载不出来，是手机的问题吗
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  翼宿一  
+##### 1426#       发表于 2023-3-19 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60146204&amp;ptid=1220112" target="_blank">Sue 发表于 2023-3-19 19:40</a>
+求问一下，鹅球没法发图片，一直加载不出来，是手机的问题吗
+
+—— 来自 nubia NX712J, Android 13上的 S1N ...</blockquote>
+Play 版在高版本安卓上的专属 bug，换普通版就行了
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sue  
+##### 1427#       发表于 2023-3-19 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60146232&amp;ptid=1220112" target="_blank">翼宿一 发表于 2023-3-19 19:43</a>
+Play 版在高版本安卓上的专属 bug，换普通版就行了
+
+—— 来自 Google Pixel 4, Android 13上的 S1Next- ...</blockquote>
+原来如此，感谢，这就去换普通版
+
+*****
+
+####  MixRadio  
+##### 1428#       发表于 2023-3-19 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60146204&amp;ptid=1220112" target="_blank">Sue 发表于 2023-3-19 19:40</a>
+
+求问一下，鹅球没法发图片，一直加载不出来，是手机的问题吗
+
+—— 来自 nubia NX712J, Android 13上的 S1N ...</blockquote>
+鹅球发图用的是p.sda1.dev这个图床，可能是网络的问题。
+
