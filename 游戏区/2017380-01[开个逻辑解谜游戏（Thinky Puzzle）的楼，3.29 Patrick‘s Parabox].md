@@ -1834,3 +1834,74 @@ bonfire peaks的dlc1打完了，花了本篇一半的时间，好难，showdown�
 bonfire peaks的dlc1打完了，花了本篇一半的时间，好难，showdown和car park这两关给我留下了深刻印象，不 ...</blockquote>
 好快，我还差5关
 
+*****
+
+####  shangshicc  
+##### 129#       发表于 2023-3-19 10:31
+
+现在steam春促，大佬们有没有推箱子解谜入门游戏推荐呀，BaBaIsYou太难了
+
+*****
+
+####  infinitesimal7  
+##### 130#       发表于 2023-3-19 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60140995&amp;ptid=2017380" target="_blank">shangshicc 发表于 2023-3-19 10:31</a>
+
+现在steam春促，大佬们有没有推箱子解谜入门游戏推荐呀，BaBaIsYou太难了</blockquote>
+Patrick's Parabox
+
+A Monster's Expedition
+
+*****
+
+####  infinitesimal7  
+##### 131#       发表于 2023-3-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59946825&amp;ptid=2017380" target="_blank">kara2000 发表于 2023-3-3 08:52</a>
+
+baba is you更新以后加入了很多第一人称的关卡，太无聊了，变成了纯粹的短期记忆力测试而不是逻辑推理观察 ...</blockquote>
+New Adventures总共一百六十多关，其中只有六关是3D。从任何角度来看都不能说是“很多”。
+
+*****
+
+####  shangshicc  
+##### 132#       发表于 2023-3-19 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60141011&amp;ptid=2017380" target="_blank">infinitesimal7 发表于 2023-3-19 10:33</a>
+
+Patrick's Parabox
+
+A Monster's Expedition</blockquote>
+感谢大佬，去年怪兽远征买过了，我看看另一个游戏
+
+
+*****
+
+####  weiyun  
+##### 133#         楼主| 发表于 2023-3-20 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60140995&amp;ptid=2017380" target="_blank">shangshicc 发表于 2023-3-19 10:31</a>
+
+现在steam春促，大佬们有没有推箱子解谜入门游戏推荐呀，BaBaIsYou太难了</blockquote>
+[Snakebird Primer](https://store.steampowered.com/app/1014140/Snakebird_Primer/)是非常适合入门的，然后可以玩本体[Snakebird](https://store.steampowered.com/app/357300/Snakebird/)搬箱子[Bonfire Peaks](https://store.steampowered.com/app/1147890/Bonfire_Peaks/)也很不错
+
+其他推箱子还有几个新史低的
+[Altered](https://store.steampowered.com/app/973250/Altered/)
+[Magnet Block](https://store.steampowered.com/app/2092660/Magnet_Block/)
+[SquishCraft](https://store.steampowered.com/app/2081180/SquishCraft/)
+[Candle Prick](https://store.steampowered.com/app/1920700/Candle_Prick/)
+[Jelly Is Sticky](https://store.steampowered.com/app/1492620/Jelly_Is_Sticky/)
+
+
+*****
+
+####  shangshicc  
+##### 134#       发表于 2023-3-20 17:40
+
+<blockquote>weiyun 发表于 2023-3-20 12:45
+Snakebird Primer是非常适合入门的，然后可以玩本体Snakebird搬箱子Bonfire Peaks也很不错
+
+其他推箱子还 ...</blockquote>
+感谢大佬推荐
+
