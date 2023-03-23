@@ -3860,3 +3860,105 @@ BD BOX收录第13话「侑と同好会1」先行图
 [https://twitter.com/siiteiebahiro/status/1635643207043399680](https://twitter.com/siiteiebahiro/status/1635643207043399680)
 <img src="https://p.sda1.dev/10/6697187738a77613ec13da2545a6ac5c/20230314_221643.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 7105#       发表于 2023-3-18 12:38
+
+ 本帖最后由 仟音一心 于 2023-3-18 12:39 编辑 
+
+ミヤコヒト老师原作（前半）
+第11话「侑与青梅竹马」
+翻译：潮风
+嵌字：crusader ​​​
+<img src="https://p.sda1.dev/10/b617e873967048f3b7a76f1bf22043a2/CMP_20230318123723047.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/3f5682d59d0c731c2c31cd59bc1488c6/CMP_20230318123723111.jpg" referrerpolicy="no-referrer">
+贺图
+<img src="https://p.sda1.dev/10/6eb660258900048115b4c1ee9815f7d8/CMP_20230318123938394.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7106#       发表于 2023-3-18 12:49
+
+BD 第14话 侑与同好会2 先行图
+<img src="https://p.sda1.dev/10/ed8eda8cea8c76163cdad54fd5583738/CMP_20230318124919690.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7107#       发表于 2023-3-18 12:52
+
+<img src="https://p.sda1.dev/10/0ee4eea8d0e5901251c699fb277b0722/CMP_20230318125141611.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/41ecc559f388da38aca503733478e689/CMP_20230318125141751.jpg" referrerpolicy="no-referrer">qu4rtz flurry magic
+群里的花篮
+
+
+*****
+
+####  仟音一心  
+##### 7108#       发表于 2023-3-20 14:55
+
+<img src="https://img.saraba1st.com/forum/202303/20/145138essvw3tv4riwqq2z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>94312920-AA87-4476-B07D-8BCBD9C1E926.jpeg</strong> (187.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-20 14:51 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/145144w0z6p33vxey5c6eu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4D767C41-0FB9-449F-AB82-655725E7F144.jpeg</strong> (192.02 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-20 14:51 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/145155n2ii29n2nn9n6nqn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C17897C1-4197-4B21-8D4B-A07F6C905EA9.jpeg</strong> (266.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-20 14:51 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/145207plzao6abe3oc32o4.png" referrerpolicy="no-referrer">
+
+<strong>94A68FF2-4084-4D76-AAFD-61BAB66CB867.png</strong> (97.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-20 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/145215o18t0bj9fze1s0b9.png" referrerpolicy="no-referrer">
+
+<strong>CEA05069-4E03-4ABF-9558-E39D198EF76E.png</strong> (47.17 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-20 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/145225feavggudbjnj8man.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9940DDE2-8CCE-4435-994F-4BD1F1BDA51C.jpeg</strong> (653.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-20 14:52 上传
+
+
+*****
+
+####  ads147147  
+##### 7109#       发表于 2023-3-20 16:05
+
+这个拱火太好笑了，等一下广播剧反馈。
+
