@@ -734,3 +734,51 @@ P流汗.jpg
 草草，如果第二个没重复就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 正好可以和之前抽的女儿丽花组个da队<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  四宫家印  
+##### 7120#       发表于 2023-3-19 23:12
+
+查询百友精神状态（
+
+*****
+
+####  cckuku  
+##### 7121#       发表于 2023-3-19 23:13
+
+别叫，已经不想上线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摆到fes再说吧。
+
+
+*****
+
+####  hellightning  
+##### 7122#       发表于 2023-3-19 23:26
+
+比起别家的幸福，还是百自己这边最近摆烂的态度更让人愤怒吧。动画生放都把赤羽根拉过来了结果P都没有；NEW SONGS生放以为要公布新系列，结果告诉你直接摆到七月，这都已经摆了半年了。最近现实里事情还贼多，要不这个月FES完了就弃坑到下次FES吧（
+
+
+*****
+
+####  OBW  
+##### 7123#       发表于 2023-3-19 23:51
+
+很稳定，反正准备4月去看新出的vtb了。觉得vtb资源会更好。
+
+
+*****
+
+####  花开安菲路  
+##### 7124#       发表于 2023-3-20 09:28
+
+不是应该早就看透了么，百万早就被运营的一眼能看到头了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+sc虽然页游内核烂的一笔，但人家青春靓丽还有很多潜力可挖，
+cg虽然也是老女人了，但人有个好干爹啊，生的“女儿”又有铜矿可挖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  supergilaboy  
+##### 7125#       发表于 2023-3-20 09:40
+
+早就退坑边缘的表示全放出来然后看完安心彻底退休也未尝不是一件好事，哪家都不是全盛期了还在搁着狗咬狗争高下<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
