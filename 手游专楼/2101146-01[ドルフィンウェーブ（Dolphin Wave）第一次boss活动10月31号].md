@@ -905,3 +905,72 @@
 不是剧情活动吗？怎么还pvp啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+*****
+
+####  小五的拖鞋  
+##### 299#         楼主| 发表于 2023-3-20 17:08
+
+这下真限定来了，还是联动卡，应该是绝版的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MEKA  
+##### 300#       发表于 2023-3-20 19:03
+
+紫苑的好看，杏里那套真的不是送的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MEKA  
+##### 301#       发表于 2023-3-20 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看岔了，还真是送的...那应该还有个绿枪手还没公布了
+
+
+*****
+
+####  startea15  
+##### 302#       发表于 2023-3-22 00:49
+
+呃呃，这紫苑感觉挺好看的，但是这也能联动的咯，只有一个十连的石头了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羽出  
+##### 303#       发表于 2023-3-22 16:15
+
+这联动角色性能貌似一般啊
+
+
+*****
+
+####  MEKA  
+##### 304#       发表于 2023-3-22 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">爆死...累了
+
+
+*****
+
+####  小五的拖鞋  
+##### 305#         楼主| 发表于 2023-3-22 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60182273&amp;ptid=2101146" target="_blank">羽出 发表于 2023-3-22 16:15</a>
+
+这联动角色性能貌似一般啊</blockquote>
+跳了好几期池子没关注了，一般吗？我看有普攻升星，应该还挺厉害的吧
+
+
+*****
+
+####  无念  
+##### 306#       发表于 2023-3-23 17:49
+
+50抽抽到了，还是一贯的建模要给美工磕头
+不过考虑到绘师是number2，不给他扣头的建模不存在吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这次活动最大的提升是把我的4号位换掉了，这次四号位作为活动角强度还可以
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
