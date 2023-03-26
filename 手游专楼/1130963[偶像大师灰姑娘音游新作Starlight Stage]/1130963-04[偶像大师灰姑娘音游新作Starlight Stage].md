@@ -184,3 +184,28 @@ FnIChuJaAAAwnLw (1).jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">久川飒足控
 
+*****
+
+####  wfhtony  
+##### 5367#       发表于 2023-3-21 22:17
+
+這次的新歌《ミライコンパス（未來指南針）》，一方面是慣例的畢業季歌曲，另一方面，也可以說是運營對頁遊方面的餞別禮（整個活動都是）。
+
+組合名「エフェメラ（ephemera）」，在希臘語中指的是「一日間（或：短時間/期限）」。
+
+頁遊3/30（15:00 UTC+9）結束運營，和本次活動的結束日期是同一天。
+
+然後本次活動的OP部分也設置了一個直接了當的問題（主題）：
+
+「如果，製作人不在了/不做了，（作爲偶像的妳）會怎麼樣？」
+
+（當然，OP裏的製作人也說了，他根本沒想過要不做，「這只是這次的主題罷了」）
+
+
+*****
+
+####  Erikas  
+##### 5368#       发表于 2023-3-22 11:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">也能说是命如蜉蝣一瞬即逝
+

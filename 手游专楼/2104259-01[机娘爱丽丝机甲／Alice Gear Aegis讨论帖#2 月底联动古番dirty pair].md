@@ -2274,3 +2274,34 @@ syl，回楼上的坛友
 
 在选要拍的小人</blockquote>
 
+*****
+
+####  江戸前ルナ  
+##### 323#         楼主| 发表于 2023-3-21 19:36
+
+这武器和动作模组都是新做的了，但是gear不做新只是改色，什么鬼思路<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 324#       发表于 2023-3-21 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">gear太jb偷懒了吧...
+
+
+*****
+
+####  madcow  
+##### 325#       发表于 2023-3-21 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">光从诚意来看有一种仿佛动画播完就会关服的美（（
+
+
+*****
+
+####  alialex  
+##### 326#       发表于 2023-3-21 21:39
+
+要真动画播完就会关服也算经典复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+

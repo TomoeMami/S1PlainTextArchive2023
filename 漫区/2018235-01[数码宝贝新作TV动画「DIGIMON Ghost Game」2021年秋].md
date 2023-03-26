@@ -395,3 +395,145 @@ DGG确定这一季完结，这...进了数码世界只有2、3集的篇幅了，
 
 梦回鬼太郎五期，估计没讲完的也很难有续集了
 
+*****
+
+####  新HGCG  
+##### 458#       发表于 2023-3-19 08:24
+
+啊这集作画真好
+
+*****
+
+####  6030sylar  
+##### 459#       发表于 2023-3-19 08:30
+
+弟弟！
+
+
+*****
+
+####  西人  
+##### 460#       发表于 2023-3-19 12:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">花开领主真的不是隔壁鲜花女男爵？
+
+
+*****
+
+####  格雷殿下  
+##### 461#       发表于 2023-3-19 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60142386&amp;ptid=2018235" target="_blank">西人 发表于 2023-3-19 12:51</a>
+
+花开领主真的不是隔壁鲜花女男爵？</blockquote>
+在是，在是
+
+
+*****
+
+####  RainbowSealife  
+##### 462#       发表于 2023-3-19 18:15
+
+轩辕十四兽
+
+<img src="https://img.saraba1st.com/forum/202303/19/181306cd53rwrd07y70j73.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-19 18:13 上传
+
+下周完结？！铁定烂尾<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  feiwuwang  
+##### 463#       发表于 2023-3-19 19:12
+
+完全体压着皇骑级究极体来打？
+
+
+*****
+
+####  maoyou  
+##### 464#       发表于 2023-3-19 19:40
+
+不愧是最牛逼的存在，完全体都乱杀究极体
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 465#       发表于 2023-3-19 19:43
+
+完全体这么吊吗
+
+
+*****
+
+####  格雷殿下  
+##### 466#       发表于 2023-3-19 21:42
+
+牛马了，宰猪宰猪
+
+
+*****
+
+####  haruhiismer  
+##### 467#       发表于 2023-3-19 22:09
+
+数码宝贝设定的确很方便进化阶段不完全和实力挂钩，进化也是网格
+就这还天天吃书麻了
+
+*****
+
+####  haruhiismer  
+##### 468#       发表于 2023-3-19 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60142386&amp;ptid=2018235" target="_blank">西人 发表于 2023-3-19 12:51</a>
+花开领主真的不是隔壁鲜花女男爵？</blockquote>
+花开的确是绿色植物妖精强一点的都能进有点那意思
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 469#       发表于 2023-3-21 03:03
+
+完全体 但是最终boss<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yotta  
+##### 470#       发表于 2023-3-22 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59974276&amp;ptid=2018235" target="_blank">abysmal 发表于 2023-3-5 17:23</a>
+
+这作剧情怎么样啊?话说今年还是25周年，连个动画企划也没有。</blockquote>
+5周年前夕 第四部完结
+
+10周年前夕 第五部完结
+
+15周年前夕 第六部完结
+
+20周年期间 第七部完结
+
+now→25周年期间 第九部完结
+
+
+*****
+
+####  黑夜守望者  
+##### 471#       发表于 2023-3-22 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60184217&amp;ptid=2018235" target="_blank">Yotta 发表于 2023-3-22 18:49</a>
+5周年前夕 第四部完结
+
+10周年前夕 第五部完结
+
+15周年前夕 第六部完结</blockquote>
+现在是5年出一部的节奏吗
+
