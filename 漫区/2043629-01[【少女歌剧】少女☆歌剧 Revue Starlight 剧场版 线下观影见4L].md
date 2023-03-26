@@ -271,3 +271,18 @@ revuestarlight.com/news/9172/
 
 三外校的实力并不高啊，外校首席级在特定主题加持下才能够到圣翔顶级全开鹅恋水平，外校其他人弱于无执念露花叶
 
+*****
+
+####  Piano-Forest  
+##### 734#       发表于 2023-3-23 17:27
+
+🎨描き下ろしイラスト公开🎨
+
+3月24日(金)より开始する
+
+「少女☆歌剧 レヴュースタァライト くじメイト」はめばちさんの描き下ろしイラストを使用❣️
+
+9人の舞台少女たちの新规描き下ろしイラストを大公开😳
+<img src="https://p.sda1.dev/10/8a4278c5d69bc3d05f1d3a21da0e008c/RS_slide_230323.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/fd3a68cff71e697e39d53b7cca7efbff/50486d13-6ece-47c1-8900-d685fed5db01.jpg" referrerpolicy="no-referrer">
+
