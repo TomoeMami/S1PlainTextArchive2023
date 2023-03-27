@@ -506,3 +506,50 @@ ep10会有卢德米拉觉醒。ep10说是第二季最终章。ep11章节名是�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 867#         楼主| 发表于 2023-3-21 18:00
+
+ 本帖最后由 rgauss 于 2023-3-21 18:02 编辑 
+
+爱乐组织真的小丑吧 一大圈势力全得罪完了
+学会基本宣告gg了 看好圣皇厅接任剧情位置
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 868#         楼主| 发表于 2023-3-22 20:15
+
+ 本帖最后由 rgauss 于 2023-3-22 20:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">兔枪太强了 比乌鸦妹还强
+今天爽吃500分
+
+<img src="https://p.sda1.dev/10/b911ee68aa98d5d6efb5d45a9ec7a805/CMP_20230322201614887.jpg" referrerpolicy="no-referrer">
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 869#         楼主| 发表于 2023-3-23 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">ai真的好棒 能跑好多同人图
+过几天自己试试跑跑
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 870#         楼主| 发表于 2023-3-24 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">sb社的ch又发啥癫 咋突然有给小兵角色出mv
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
