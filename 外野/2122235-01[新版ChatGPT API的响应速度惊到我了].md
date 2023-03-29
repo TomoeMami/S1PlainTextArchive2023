@@ -2129,3 +2129,64 @@ gpt4目前掐到四小时五十个request
 你这个咒语好有意思，分享一下啊</blockquote>
 参照179楼
 
+*****
+
+####  bixinhaner  
+##### 207#       发表于 2023-3-26 11:12
+
+好像访问不进去了，还有类似的镜像站点吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宵神乐  
+##### 208#       发表于 2023-3-26 11:24
+
+这网站不是用3.5的api？
+
+
+*****
+
+####  titians  
+##### 209#       发表于 2023-3-26 11:39
+
+试了下，好多错误啊。训着玩还行
+
+
+*****
+
+####  treexper  
+##### 210#       发表于 2023-3-26 11:41
+
+<blockquote>宵神乐 发表于 2023-3-26 11:24
+这网站不是用3.5的api？</blockquote>
+肯定3.5，4现在3小时25问。挂上去瞬间就没了。
+
+
+*****
+
+####  田黄石  
+##### 211#       发表于 2023-3-26 23:05
+
+今天想起来去试了试，感觉也就那样啊，我还以为吹上天会有什么突破性的功能
+
+这不就是网络数据收集然后报告吗
+
+
+*****
+
+####  南条一间  
+##### 212#       发表于 2023-3-27 00:42
+
+在chatgpt的理念里，库里还只有三个冠军<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嘟帝  
+##### 213#       发表于 2023-3-27 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60128820&amp;ptid=2122235" target="_blank">吃为是 发表于 2023-3-18 02:26</a>
+第一次玩ai，这正常问答的答案都不正确的程度</blockquote>
+你教他他就能答对了
+
