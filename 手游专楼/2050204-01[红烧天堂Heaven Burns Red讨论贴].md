@@ -2279,3 +2279,1398 @@ gamekee上也有红烧的wiki<img src="https://static.saraba1st.com/image/smiley
 https://game8.jp/heavenburnsred</blockquote>
 谢谢。
 
+*****
+
+####  白帽子  
+##### 1067#       发表于 2023-3-4 17:30
+
+话说活动优先搬哪些东西比较好啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森下未散  
+##### 1068#       发表于 2023-3-4 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59964238&amp;ptid=2050204" target="_blank">白帽子 发表于 2023-3-4 17:30</a>
+话说活动优先搬哪些东西比&amp;#x8 ...</blockquote>
+联动s角色，s角色突破碎片，钻，ss万能突破碎片，s角色必出卡，斩突打素材效率不如棱镜本不用换
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  poor  
+##### 1069#       发表于 2023-3-4 17:53
+
+联动角色凸碎片其实也不用换，以后要凸用万能凸好了，反正值得凸的S也没几个，而且以后抽卡多了卡池里那些总能凸个七七八八的，到时候也没什么地方用
+
+
+*****
+
+####  pf67  
+##### 1070#       发表于 2023-3-4 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59964432&amp;ptid=2050204" target="_blank">poor 发表于 2023-3-4 17:53</a>
+
+联动角色凸碎片其实也不用换，以后要凸用万能凸好了，反正值得凸的S也没几个，而且以后抽卡多了卡池里那些 ...</blockquote>
+如果没有ss的治疗角色，我觉得入江非常值得换满的，10破后硬度超过了大部分ss，全体补血加防御正好也能应对boss大攻击的回合
+
+
+*****
+
+####  pf67  
+##### 1071#       发表于 2023-3-4 20:54
+
+这次积分挑战35居然是抗光暗，直接把我的小奏废了。但是去雷池抽了10连居然雷月哥就出货了，运气不错。
+
+选个97-35打完直接19w分，后面可以咸鱼了。
+
+
+*****
+
+####  poor  
+##### 1072#       发表于 2023-3-4 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59966124&amp;ptid=2050204" target="_blank">pf67 发表于 2023-3-4 20:51</a>
+如果没有ss的治疗角色，我觉得入江非常值得直接换满的，10破后硬度超过了大部分0破的ss，全体补血加防御正 ...</blockquote>
+入江以后可以满，SS碎跟石英还有S券错过就永远少一点，除非你5个SS都凑不出来，要不0凸也够用了
+
+
+*****
+
+####  白帽子  
+##### 1073#       发表于 2023-3-5 01:23
+
+这游戏是有内存溢出的bug么？在ipad上怎么有的时候长时间玩会突然ppt然后闪退<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  范坚强  
+##### 1074#       发表于 2023-3-5 09:43
+
+<blockquote>白帽子 发表于 2023-3-5 01:23
+这游戏是有内存溢出的bug么？&amp; ...</blockquote>
+有么 我在air4 18pro 21pro上面都没遇过这状况
+
+
+*****
+
+####  ardito  
+##### 1075#       发表于 2023-3-5 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白虎怎么连泡澡都跟苍井一起的
+
+
+*****
+
+####  千魄万斩  
+##### 1076#       发表于 2023-3-5 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59973717&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-5 16:45</a>
+白虎怎么连泡澡都跟苍井一起的</blockquote>
+后面就一个虎泡澡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  一之江瑞江  
+##### 1077#       发表于 2023-3-5 23:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打完第三章之后这再开始补前面活动剧情
+
+一想到她们本体是 活动剧情打着就没什么感觉啊(甚至充满疑惑
+
+
+*****
+
+####  暗影之诗  
+##### 1078#       发表于 2023-3-6 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59979704&amp;ptid=2050204" target="_blank">一之江瑞江 发表于 2023-3-5 23:18</a>
+
+打完第三章之后这再开始补前面活动剧情
+
+一想到她们本体是 活动剧情打着就没什么感觉啊(甚至充满疑惑 ...</blockquote>
+没事，从时不时出来刷一波存在感的黑猫来看，这个世界少说像LB那样一层套娃，如果麻子磕嗨了估计会写成十三机兵那样的俄罗斯套娃。
+
+这样看来不管在这层世界发生什么都只能认为是用来塑造角色让大家认识的，反正要像LB那样用完丢掉的。
+
+
+*****
+
+####  ardito  
+##### 1079#       发表于 2023-3-6 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59975078&amp;ptid=2050204" target="_blank">千魄万斩 发表于 2023-3-5 18:40</a>
+
+后面就一个虎泡澡了
+
+—— 来自 HUAWEI YAL-AL00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的吗，那太好了
+
+
+*****
+
+####  yuan96  
+##### 1080#       发表于 2023-3-6 08:17
+
+后面白虎是和李李凑一起了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我还在自由时间看到过李李在白虎面前喵喵叫。
+
+
+*****
+
+####  何处分可  
+##### 1081#       发表于 2023-3-6 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">麻子是真敢写死人啊，第二章就上这么高的强度，后面aoi还出不出新皮了。好不容易算个各方面都戳我xp的角色
+
+
+*****
+
+####  xiongxingyu  
+##### 1082#       发表于 2023-3-6 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59983583&amp;ptid=2050204" target="_blank">何处分可 发表于 2023-3-6 10:36</a>
+
+麻子是真敢写死人啊，第二章就上这么高的强度，后面aoi还出不出新皮了。好不容易算个各方面都戳我xp ...</blockquote>
+活动的时间点都是分散在主线之中的，所以死人完全不影响出卡，只要你不介意推图时编队界面**的感叹号就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实上aoi的ss皮和藏的活动s皮不都是便当之后才实装的吗。
+
+
+*****
+
+####  cckuku  
+##### 1083#       发表于 2023-3-6 17:29
+
+这游戏氪吗，现在入坑会不会错过什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 1084#       发表于 2023-3-6 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏ip监控这么严格吗，今天换了个wifi连，登录直接报p403
+
+
+*****
+
+####  maertz  
+##### 1085#       发表于 2023-3-6 20:47
+
+有什么关系，死人出卡算什么，剧透反白反正大家都是死人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫枫客  
+##### 1086#       发表于 2023-3-6 20:48
+
+现在入坑来得及么   半成品还是初始咋选
+
+
+*****
+
+####  pf67  
+##### 1087#       发表于 2023-3-6 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59991487&amp;ptid=2050204" target="_blank">紫枫客 发表于 2023-3-6 20:48</a>
+
+现在入坑来得及么   半成品还是初始咋选</blockquote>
+现在买个石头号可以去人气池子抽爆
+
+
+*****
+
+####  ardito  
+##### 1088#       发表于 2023-3-6 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">活动棱镜战这个战力推定好迷，队伍5500只能打的过3000出头的
+
+
+*****
+
+####  何处分可  
+##### 1089#       发表于 2023-3-6 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59992711&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-6 22:53</a>
+活动棱镜战这个战力推定好迷，队伍5500只能打的过3000出头的
+
+草，打错了，是积分战
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把技能一开，开了就好打点了
+
+总结一下就是要把对面秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 1090#       发表于 2023-3-7 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993282&amp;ptid=2050204" target="_blank">何处分可 发表于 2023-3-6 23:54</a>
+
+没开技能吧，先打棱镜战(不是活动)把技能一开，开了就好打点了
+
+总结一下就是要把对面秒了 ...</blockquote>
+主力技能只点到第二个，比如5000的boss回血技能一次能回6500-15000，dp打掉也不够回合打hp<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ashice  
+##### 1091#       发表于 2023-3-7 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993415&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-7 00:10</a>
+主力技能只点到第二个，比如5000的boss回血技能一次能回6500-15000，dp打掉也不够回合打hp ...</blockquote>
+这游戏是这样的，小技能对付杂兵，有次数限制的大招上齐buff一轮秒boss
+你队伍才5500，怕不是解锁大招的等级都没到，先推主线和给斩打突三种素材的棱镜战练级吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ardito  
+##### 1092#       发表于 2023-3-7 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993754&amp;ptid=2050204" target="_blank">Ashice 发表于 2023-3-7 01:03</a>
+
+这游戏是这样的，小技能对付杂兵，有次数限制的大招上齐buff一轮秒boss
+
+你队伍才5500，怕不是解锁大招的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实，队里三个突，主输出还是白虎，突的材料在解锁最晚，三技能都点不出来
+
+
+*****
+
+####  有这个可能  
+##### 1093#       发表于 2023-3-7 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993415&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-7 00:10</a>
+
+主力技能只点到第二个，比如5000的boss回血技能一次能回6500-15000，dp打掉也不够回合打hp ...</blockquote>
+建议研究一下这游戏的buff机制
+
+平A时
+
+<img src="https://img.saraba1st.com/forum/202303/07/011455lht95l36k020i5kt.png" referrerpolicy="no-referrer">
+
+<strong>2023-03-07-00_39_44-screenshot.png</strong> (61.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-7 01:14 上传
+
+敌人血量
+
+<img src="https://img.saraba1st.com/forum/202303/07/011657p7d5llq3gboofd4q.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230307011614.png</strong> (78.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-7 01:16 上传
+
+叠好buff开技能
+
+<img src="https://img.saraba1st.com/forum/202303/07/011734mqz8f8q4q3anhafa.png" referrerpolicy="no-referrer">
+
+<strong>2023-03-07-01_06_41-screenshot.png</strong> (75.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-7 01:17 上传
+
+战斗就是先扎针，然后扔核弹，现在你只用到了扎针就会觉得刮
+
+
+*****
+
+####  ardito  
+##### 1094#       发表于 2023-3-7 04:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993826&amp;ptid=2050204" target="_blank">有这个可能 发表于 2023-3-7 01:23</a>
+
+建议研究一下这游戏的buff机制
+
+平A时</blockquote>
+一直摸着没过二章day14，打完刷了点突素材，开了两个三技能，勉强能过6000的难度41，好像目前就到这了
+
+还是比队伍战斗力要低一点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nwc32167  
+##### 1095#       发表于 2023-3-7 04:56
+
+470抽终于把AB组拉满了，没有遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 1096#       发表于 2023-3-7 08:00
+
+刚玩两天，为什么月哥哥三个皮肤三个主动技能都是一个动作啊，特效都不带换的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  飞天意面怪  
+##### 1097#       发表于 2023-3-7 10:57
+
+<blockquote>ardito 发表于 2023-3-7 01:19
+确实，队里三个突，主输出又是白虎，突的材料在解锁最晚，三技能都点不出来 ...</blockquote>
+白虎是打破坏率的，最好有个ss的打手才好打，比如送的ss月歌和联动签到送的ss百合
+
+
+*****
+
+####  chenzhi11  
+##### 1098#       发表于 2023-3-7 11:32
+
+<blockquote>Yugao 发表于 2023-3-7 08:00
+刚玩两天，为什么月哥哥三个皮肤三个主动技能都是一个动作啊，特效都不带换的 ...</blockquote>
+因为普通技能是通用的a卡 s卡的我技能可以给ss卡，写着专属的技能才是卡面特别的技能。
+
+
+*****
+
+####  ardito  
+##### 1099#       发表于 2023-3-7 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59996460&amp;ptid=2050204" target="_blank">飞天意面怪 发表于 2023-3-7 10:57</a>
+
+白虎是打破坏率的，最好有个ss的打手才好打，比如送的ss月歌和联动签到送的ss百合 ...</blockquote>
+送的月歌技能刚点出来，试试能不能摸下积分15000，到这层容易boss摸一下就break，头疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前是靠白虎点了技能打到13900，由理技能还缺2个矿，感觉不太赶得上了
+
+
+*****
+
+####  Ashice  
+##### 1100#       发表于 2023-3-7 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59997168&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-7 11:41</a>
+送的月歌技能刚点出来，试试能不能摸下积分15000，到这层容易boss摸一下就break，头疼
+
+之前是靠白 ...</blockquote>
+前期可以看这个练级https://ngabbs.com/read.php?tid=35384225
+不过会缺另外两种素材
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ardito  
+##### 1101#       发表于 2023-3-7 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59998278&amp;ptid=2050204" target="_blank">Ashice 发表于 2023-3-7 13:10</a>
+
+前期可以看这个练级https://ngabbs.com/read.php?tid=35384225
+
+不过会缺另外两种素材</blockquote>
+记忆迷宫目前20，这个机制这真是神烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总要操作，不推又不好刷素材
+
+不过感觉最后两天也拿不到太多奖牌了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 1102#       发表于 2023-3-7 16:49
+
+这个阵容只能过1.2w战力那个活动棱镜图还不是稳过，想抄b站的作业打积分站结果发现大家人手一个无敌<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+F5C313DB-33AB-4F46-8671-65283A26ED3C.png
+(812.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-7 16:43 上传
+
+<img src="https://img.saraba1st.com/forum/202303/07/164326f8zvb8ncrq3vqrcr.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ashice  
+##### 1103#       发表于 2023-3-7 16:55
+
+ 本帖最后由 Ashice 于 2023-3-7 16:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60000940&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-7 16:38</a>
+
+记忆迷宫目前20，这个机制这真是神烦总要操作，不推又不好刷素材
+
+不过感觉最后两天也拿不到太多 ...</blockquote>
+打完记忆迷宫还有宝珠迷宫和装备迷宫还有活动迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你现在20层好歹还能auto，后边为了省能量都是手打的
+
+好在现在的新活动好像不出迷宫了，谢天谢地
+
+*****
+
+####  LMBS  
+##### 1104#       发表于 2023-3-7 16:58
+
+请问SS碎片 S卷 技能指南这几个哪个优先级高，有必要烧生命石吗？后面体力缺不缺
+
+
+*****
+
+####  叶雾  
+##### 1105#       发表于 2023-3-7 17:03
+
+SS碎片优先级最高
+
+抽卡券看自己
+
+技能书可以不要
+
+玩几个月后体力就会大量溢出了
+
+
+*****
+
+####  有这个可能  
+##### 1106#       发表于 2023-3-7 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60001096&amp;ptid=2050204" target="_blank">cckuku 发表于 2023-3-7 16:49</a>
+
+这个阵容只能过1.2w战力那个活动棱镜图还不是稳过，想抄b站的作业打积分站结果发现大家人手一个无敌 ...</blockquote>
+你这个阵容不用AOI，我来云一个活动棱镜最高难度打法
+
+配队双神+奏+绯雨+百合+入江，奏堆力量，其它人尽可能堆体力精神
+
+双神，绯雨和百合平A是3hit，尽可能站前面攒OD，SS卡比S卡肉，破盾无所谓，不死就行，看这个强化等级不高，估计100级上下吧，打几把突最高级磨刀不误砍柴功，强化一下直接最高难度开冲
+
+T1平A，9点能量，单体攻击一人破盾
+
+T2换人，平A，9点能量，单体攻击一人破盾
+
+T3换奏上来开心眼，其它人平A，6点能量，BOSS使用AOE，如果只有奏破盾那就比较稳了，如果全破盾了要在T5凹几次
+
+T4蓄力回合，可以把破盾人换上来打OD，圣华大给奏，6点能量
+
+T5换入江上来奶并加防，其它人平A，6点能量，渡过这轮就赢了
+
+T6携带5星项链天命的情况下当前为16SP，孔明大给奏，绯雨用夜雨1hit，百合开大10hit，共计41次，马上点OD
+
+OD1+5SP奏开大，双神大给奏，收工
+
+
+*****
+
+####  leitingkai  
+##### 1107#       发表于 2023-3-7 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59993815&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-7 01:19</a>
+
+确实，队里三个突，主输出又是白虎，突的材料在解锁最晚，三技能都点不出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">白虎一点伤害都没有怎么主输出 你的其他SS呢 最起码也能用送的SS百合吧
+
+
+*****
+
+####  ardito  
+##### 1108#       发表于 2023-3-7 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60003739&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-3-7 20:39</a>
+
+白虎一点伤害都没有怎么主输出 你的其他SS呢 最起码也能用送的SS百合吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">不过目前点了电路月歌的技能已经打过15000分了，现在卡难度60
+
+*****
+
+####  ardito  
+##### 1109#       发表于 2023-3-7 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">草刚说完抽到天使了，噔噔咚
+
+
+*****
+
+####  fireawayac  
+##### 1110#       发表于 2023-3-8 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59994502&amp;ptid=2050204" target="_blank">Yugao 发表于 2023-3-7 08:00</a>
+
+刚玩两天，为什么月哥哥三个皮肤三个主动技能都是一个动作啊，特效都不带换的 ...</blockquote>
+别说一个人的三个技能了，同类武器的不同人，技能动作也一样。只有SS的大招各自不同。
+
+
+*****
+
+####  何处分可  
+##### 1111#       发表于 2023-3-9 00:24
+
+第三章这个大便迷宫，一个比一个长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 1112#       发表于 2023-3-9 08:10
+
+第三章那五个火力侦察任务，就是这么无聊的吗？没有快一点的方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  叶雾  
+##### 1113#       发表于 2023-3-9 11:26
+
+明天火队超强化
+
+送的百合原来在这等着
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1114#       发表于 2023-3-9 12:42
+
+ 本帖最后由 薛定谔的小猫 于 2023-3-9 12:46 编辑 
+
+你永远可以相信飞机社的数值膨胀。jpg
+顺便，什么时候出闪击阵啊，快点端上来罢，拯救zone荣光，我辈义不容辞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  魔法酪饼  
+##### 1115#       发表于 2023-3-9 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">奇妙的数值膨胀方向，怕是要开始收紧回合数限制了。
+
+
+*****
+
+####  白帽子  
+##### 1116#       发表于 2023-3-9 17:18
+
+初始号e1000006了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水樹奈奈  
+##### 1117#       发表于 2023-3-9 18:38
+
+同楼上，还好联动刚开始玩，没氪金，算了直接退坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白帽子  
+##### 1118#       发表于 2023-3-9 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60023590&amp;ptid=2050204" target="_blank">白帽子 发表于 2023-3-9 17:18</a>
+
+初始号e1000006了</blockquote>
+卖号的直接退钱了，就当体验了主线吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（第四章还没打过）
+
+
+*****
+
+####  何处分可  
+##### 1119#       发表于 2023-3-9 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">晚上一等号，发现e1000000006了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这游戏就体验到这里吧，有缘再相见（跟大便迷宫说掰掰喽
+
+
+*****
+
+####  pf67  
+##### 1120#       发表于 2023-3-9 21:46
+
+ 本帖最后由 pf67 于 2023-3-9 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60001096&amp;ptid=2050204" target="_blank">cckuku 发表于 2023-3-7 16:49</a>
+
+这个阵容只能过1.2w战力那个活动棱镜图还不是稳过，想抄b站的作业打积分站结果发现大家人手一个无敌 ...</blockquote>
+你这阵容不是用脚都能打过活动图？双神上两次大给奏直接秒boss的
+
+打不过怕是练度不够吧。（看你双神都只强化了一点）
+
+
+*****
+
+####  ardito  
+##### 1121#       发表于 2023-3-9 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">封号这么狠
+
+
+*****
+
+####  alucardcz  
+##### 1122#       发表于 2023-3-10 12:50
+
+ab活动刚结束我就p403了。。。又要挂梯子了
+
+
+*****
+
+####  Ashice  
+##### 1123#       发表于 2023-3-10 13:06
+
+经营一轮56w，调查10次差两次，不想为了蚊子腿再打一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+大家记得要留熔岩石最后一天做烤鱼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  サクラ  
+##### 1124#       发表于 2023-3-10 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我还挺喜欢摆摊的
+
+
+*****
+
+####  xiongxingyu  
+##### 1125#       发表于 2023-3-10 13:48
+
+非洲人老老实实交了一井，吐血的是歪了原皮yuki、前辈和圣华三个毫无提升的ss。不过2.0时代的拐真是强，本来火队还差个大姐打算明天抽一波，现在感觉已经没大姐什么事了（1000子：这世上怎么会有比姐姐更强的妹妹，咕啊......）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某皮肤人气投票第一名又一次免于了下岗的命运。
+
+
+*****
+
+####  帝下室の年糕  
+##### 1126#       发表于 2023-3-10 15:27
+
+ 本帖最后由 帝下室の年糕 于 2023-3-10 15:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/3c8797d6817cbc9b900fc97b100c737e/CMP_20230310151814491.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/0bc44d2044e151d56daa9e65dcfc5632/CMP_20230310151814585.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/44ccd13d232f1269c98a83e19df3fb86/CMP_20230310151814672.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 1127#       发表于 2023-3-10 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新活动会不会被喷爆 我已经看到有不少人吐槽我只想打boss清体力  结果剧情be不给打  还有人说失败后不能回到前2天 直接寄了
+
+-------------
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还没打  真的假的  还能卡死的？
+
+
+*****
+
+####  alucardcz  
+##### 1128#       发表于 2023-3-10 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被骗了  前2天乱搞  第3天也能轻松过线
+
+*****
+
+####  leitingkai  
+##### 1129#       发表于 2023-3-10 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60037899&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-3-10 17:49</a>
+这新活动会不会被喷爆 我已经看到有不少人吐槽我只想打boss清体力  结果剧情be不给打  还有人说失败 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">之前无人岛活动已经被喷爆了
+不差这一次了
+
+
+*****
+
+####  森下未散  
+##### 1130#       发表于 2023-3-10 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">随缘丢了30抽果然无事发生，还好这期弱火依然能用百合打18W，继续躺了
+
+
+*****
+
+####  辽远的海的相思  
+##### 1131#       发表于 2023-3-10 21:08
+
+再也不赌了。扔了半井无事发生。
+
+
+*****
+
+####  有这个可能  
+##### 1132#       发表于 2023-3-10 22:36
+
+四妹居然也能觉醒，一人顶全家（除了六妹）
+
+六妹和麻里这互动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，六妹什么时候找修女，杀手姐妹，洛丽塔进行一个友好沟通
+
+特别委托做完还有糖，月歌盯着yuki嘴角，司仔送可怜护肤品，剑圣和徒弟，等等慧慧你在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 1133#       发表于 2023-3-10 23:43
+
+第三章打完了，我怎么觉得这死人像是为了死而死呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只觉得莫名其妙完全没啥触动啊。。。
+
+
+*****
+
+####  白帽子  
+##### 1134#       发表于 2023-3-10 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60042571&amp;ptid=2050204" target="_blank">cckuku 发表于 2023-3-10 23:43</a>
+
+第三章打完了，我怎么觉得这死人像是为了死而死呢我只觉得莫名其妙完全没啥触动啊。。。 ...</blockquote>
+第二章还好（当然外传写的杀手姐妹更弱智了），第三章就突出一个“我死一个给大家看看”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  飞天意面怪  
+##### 1135#       发表于 2023-3-11 01:20
+
+70抽两个都抽到了，刚好免费石用完。不过这迷宫好烦啊啊啊，好不容易打完3天以为结束了结果还有第四天…明天再打完吧，今天受不了了
+
+
+*****
+
+####  pf67  
+##### 1136#       发表于 2023-3-11 05:37
+
+ 本帖最后由 pf67 于 2023-3-11 05:39 编辑 
+
+半井下去两个6妹....
+
+不得已又氪了1单，不过还好到13个10抽出4妹了
+
+中间歪了新年tama和礼服学姐，正好给雷队用也还不错
+
+
+*****
+
+####  chivalry  
+##### 1137#       发表于 2023-3-11 10:10
+
+<img src="https://img.saraba1st.com/forum/202303/11/100935zrfuf44tffm7z010.jpg" referrerpolicy="no-referrer">
+
+<strong>862997C3-C395-4A34-B180-C388712702EF.jpg</strong> (376.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-11 10:09 上传
+
+AB联动买的双神号，氪了一点点貌似趟过这次毒圈了，话说这次池子值得抽吗，是抽人气池还是继续抽活动池？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  乾理央  
+##### 1138#       发表于 2023-3-11 11:32
+
+第二章还好，第三章死人完全是为死而死了，最终（好像是这名字）暴走能单刷那只兽，结果一帮人还在“不能放任她在这种危险的地方啊，万一那只兽来了怎么办”，我寻思你们一群人都打不过，怎么还操心能单刷兽的最终了…
+
+
+*****
+
+####  pf67  
+##### 1139#       发表于 2023-3-11 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60044592&amp;ptid=2050204" target="_blank">chivalry 发表于 2023-3-11 10:10</a>
+
+AB联动买的双神号，氪了一点点貌似趟过这次毒圈了，话说这次池子值得抽吗，是抽人气池还是继续抽活动池 ...</blockquote>
+建议不抽等新
+
+
+*****
+
+####  maertz  
+##### 1140#       发表于 2023-3-11 14:52
+
+一更新又开始狂403，昨天早上还能直连，晚上403了，换了ip好了，今天起床又继续403<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  alucardcz  
+##### 1141#       发表于 2023-3-11 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60047414&amp;ptid=2050204" target="_blank">maertz 发表于 2023-3-11 14:52</a>
+
+一更新又开始狂403，昨天早上还能直连，晚上403了，换了ip好了，今天起床又继续403
+
+  -- 来自 能手 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老老实实的搞个梯子 你游就这么谜
+
+
+*****
+
+####  Ashice  
+##### 1142#       发表于 2023-3-11 16:06
+
+18w9了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+aoi真的是好用疯了
+
+我再也不吐槽我人气池200抽双神一个都没有但是三泳装了
+
+因为我还出了三aoi啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要还有sp，全队break都能继续打下去，爱死aoi了
+
+
+*****
+
+####  xiongxingyu  
+##### 1143#       发表于 2023-3-11 16:18
+
+aoi就是那种平时可以不用，但关键时刻不能没有的打分人权卡。面对这期boss这种全程攻击不带停，甚至还会给自己上buff再A的，不上aoi打120级boss分分钟全队暴毙，奶？奶什么奶，一发加攻大招连盾带人给你扬了。不带aoi估计得全员4破满级加毕业装备才能奶得过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  歪镜  
+##### 1144#       发表于 2023-3-11 16:54
+
+前三章觉得日常有趣，主线差口气，开了第四章刚觉得有意思起来了，day2主线完全打不过
+
+
+*****
+
+####  poor  
+##### 1145#       发表于 2023-3-12 00:53
+
+为什么中文版的活动ED是全英文的啊！满屏日语拼音谁TM看得懂啊！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+那么哪里有日文的ED可以看？懒得为了看这玩意切一次语言了，而且上次联动的也没了
+
+
+*****
+
+####  Re.Troy  
+##### 1146#       发表于 2023-3-13 09:26
+
+昨天刚开的号，看到一周年氪金快过期就在ios氪了，结果1w那单信用卡扣了款却没充上，app store历史里也没有，不知道结算的时候会不会把消费取消掉，真蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真绯瑠之眷属  
+##### 1147#       发表于 2023-3-13 10:27
+
+大佬们有个问题，我1w多小战力打B41和珠宝B1被两下就拍破盾了，这是为啥，是不是芯片啥的没搞好
+
+
+*****
+
+####  Ashice  
+##### 1148#       发表于 2023-3-13 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60067007&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-3-13 10:27</a>
+
+大佬们有个问题，我1w多小战力打B41和珠宝B1被两下就拍破盾了，这是为啥，是不是芯片啥的没搞好 ...</blockquote>
+全100级以上加五星装备再考虑B41<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就算这样路上的大章鱼也是boss级的，要开大招才能比较轻松地收掉
+
+问就是设定如此
+
+*****
+
+####  真绯瑠之眷属  
+##### 1149#       发表于 2023-3-13 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60067071&amp;ptid=2050204" target="_blank">Ashice 发表于 2023-3-13 10:31</a>
+
+全100级以上加五星装备再考虑B41
+
+就算这样路上的大章鱼也是boss级的，要开大招才能比较轻松地收掉 ...</blockquote>
+这....逼着刷棱镜和首饰咯...我不能开活动下一层的棱镜战真的好难受
+
+
+*****
+
+####  ardito  
+##### 1150#       发表于 2023-3-13 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">转生大概什么时候考虑，要先练满吗
+
+
+*****
+
+####  Ashice  
+##### 1151#       发表于 2023-3-13 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60068282&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-13 11:52</a>
+
+转生大概什么时候考虑，要先练满吗</blockquote>
+练满，扣90级经验
+
+而且那点蚊子腿属性没啥用，只有你一个角色要带超过三个技能才考虑转生
+
+
+*****
+
+####  pf67  
+##### 1152#       发表于 2023-3-13 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60048212&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2023-3-11 16:18</a>
+aoi就是那种平时可以不用，但关键时刻不能没有的打分人权卡。面对这期boss这种全程攻击不带停，甚至还会给 ...</blockquote>
+不打40w和异时空倒是也用不上就是了。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 1153#       发表于 2023-3-13 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60048212&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2023-3-11 16:18</a>
+aoi就是那种平时可以不用，但关键时刻不能没有的打分人权卡。面对这期boss这种全程攻击不带停，甚至还会给 ...</blockquote>
+不打40w和异时空倒是也用不上就是了。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  pf67  
+##### 1154#       发表于 2023-3-13 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60067007&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-3-13 10:27</a>
+大佬们有个问题，我1w多小战力打B41和珠宝B1被两下就拍破盾了，这是为啥，是不是芯片啥的没搞好 ...</blockquote>
+1w战斗力应该可以过b50了，就是一次顶多爬两层开传送点就得回去了，有时候还要多磕一个体力
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 1155#       发表于 2023-3-13 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60067007&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-3-13 10:27</a>
+大佬们有个问题，我1w多小战力打B41和珠宝B1被两下就拍破盾了，这是为啥，是不是芯片啥的没搞好 ...</blockquote>
+1w战斗力应该可以过b50了，就是一次顶多爬两层开传送点就得回去了，有时候还要多磕一个体力
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cckuku  
+##### 1156#       发表于 2023-3-13 15:34
+
+这游戏会不会出七濑的卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好喜欢七濑
+
+
+*****
+
+####  xiongxingyu  
+##### 1157#       发表于 2023-3-14 09:04
+
+装备打孔词条弄得七七八八只剩下手环了（这玩意儿坑太大，慢慢搞），打算从属性回廊正式转战宝珠迷宫。想问一下各位大佬一般是怎么刷的？姑且手动是过了50层，不过打属性比较缺，最后几层打得巨辛苦。试了下b1-b18的刷法，然后发现开自动只能刷到13层<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有什么比较安逸的自动阵容吗？或者是耗时短一些的手动打法，上班族手动只能晚上刷几把。
+
+
+*****
+
+####  Hemis  
+##### 1158#       发表于 2023-3-14 10:34
+
+ 本帖最后由 Hemis 于 2023-3-14 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60077902&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2023-3-14 09:04</a>
+
+装备打孔词条弄得七七八八只剩下手环了（这玩意儿坑太大，慢慢搞），打算从属性回廊正式转战宝珠迷宫。想问 ...</blockquote>
+boss层无法避免需要手动，自动小怪时游戏设定里开启根据敌方弱点配置，全体攻击的小招尽量选不带属性的
+
+从46开始拿完追加回合往回走，一般可以到30~32层左右（运气好可以28）
+
+2个buffer，剩余全部打手（突和打的大招最好是全体，斩无所谓）
+
+
+*****
+
+####  pf67  
+##### 1159#       发表于 2023-3-14 11:41
+
+上头去打了异时空，结果打了一晚上没过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+开始我以为瓶颈在我没有aoi，结果发现aoi可以用入江完全顶替，生存不是问题，反而瓶颈是输出小奏的练度不够，破盾后一发打不死boss，最后技能用完gg了。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  叶雾  
+##### 1160#       发表于 2023-3-14 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60077902&amp;ptid=2050204" target="_blank">xiongxingyu 发表于 2023-3-14 09:04</a>
+
+装备打孔词条弄得七七八八只剩下手环了（这玩意儿坑太大，慢慢搞），打算从属性回廊正式转战宝珠迷宫。想问 ...</blockquote>
+我是46走32
+
+双倍一场是72个
+
+全手动
+
+一般是40分钟-1小时，边干别的边刷
+
+
+*****
+
+####  cckuku  
+##### 1161#       发表于 2023-3-14 15:41
+
+我是应该把体力拿去打活动棱镜，还是拿去打属性回廊刷戒指还是应该刷宝石棱镜啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">宝石棱镜感觉不一定能打过第三关。
+
+
+*****
+
+####  范坚强  
+##### 1162#       发表于 2023-3-14 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60082790&amp;ptid=2050204" target="_blank">cckuku 发表于 2023-3-14 15:41</a>
+
+我是应该把体力拿去打活动棱镜，还是拿去打属性回廊刷戒指还是应该刷宝石棱镜啊宝石棱镜感觉不一定 ...</blockquote>
+活动可以以后打 育成周任务完了就没了
+
+*****
+
+####  范坚强  
+##### 1163#       发表于 2023-3-14 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60082790&amp;ptid=2050204" target="_blank">cckuku 发表于 2023-3-14 15:41</a>
+
+我是应该把体力拿去打活动棱镜，还是拿去打属性回廊刷戒指还是应该刷宝石棱镜啊宝石棱镜感觉不一定 ...</blockquote>
+活动可以以后打 育成周任务完了就没了
+
+
+*****
+
+####  白昼梦  
+##### 1164#       发表于 2023-3-14 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">买了个初始输完引继码还没登进去就提示已经被封了
+
+*****
+
+####  alucardcz  
+##### 1165#       发表于 2023-3-14 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60088684&amp;ptid=2050204" target="_blank">白昼梦 发表于 2023-3-14 23:26</a>
+
+买了个初始输完引继码还没登进去就提示已经被封了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏初始高概率暴毙  而且还会秋后算账  真想玩可能还得自己刷
+
+
+*****
+
+####  白昼梦  
+##### 1166#       发表于 2023-3-14 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60088707&amp;ptid=2050204" target="_blank">alucardcz 发表于 2023-3-14 23:27</a>
+这游戏初始高概率暴毙  而且还会秋后算账  真想玩可能还得自己刷</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刷了一晚上没出过双黄
+
+
+*****
+
+####  范坚强  
+##### 1167#       发表于 2023-3-15 07:07
+
+<blockquote>白昼梦 发表于 2023-3-14 23:26
+买了个初始输完引继码还没登进去就提示已经被封了</blockquote>
+说不好是早已经封了 号商不知道而已 引继码一开始发行了就一直有效不用上去确认的
+
+
+*****
+
+####  saitohimea  
+##### 1168#       发表于 2023-3-15 10:14
+
+现在没有ss奶，目前是用入江顶着，有必要再抽抽人气池吗？手上没多少钻。
+
+
+*****
+
+####  Hemis  
+##### 1169#       发表于 2023-3-15 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60092095&amp;ptid=2050204" target="_blank">saitohimea 发表于 2023-3-15 10:14</a>
+
+现在没有ss奶，目前是用入江顶着，有必要再抽抽人气池吗？手上没多少钻。 ...</blockquote>
+6妹作为healer是可以的 
+
+但没把握抽到还是不推荐抽
+
+
+*****
+
+####  chivalry  
+##### 1170#       发表于 2023-3-15 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第二章打完，感觉这剧情真的很麻子，aoi上来就是一身死旗，也太明显了吧
+
+
+*****
+
+####  乾理央  
+##### 1171#       发表于 2023-3-15 18:54
+
+第四章前篇看完了，可能我还是对不上麻子的电波…某人知道真相后摆了一整章臭脸，在大决战时面对沙鲁般未知的敌人，而自己是己方决胜唯一的关键，就这样还以身试险搞神风攻击，赢了还好说，要是寄了那这帮皮蛋可就回天乏术了啊…某人整个人（皮蛋）生就是不甘平庸结果活成了小丑吧…
+
+
+*****
+
+####  poor  
+##### 1172#       发表于 2023-3-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60098678&amp;ptid=2050204" target="_blank">乾理央 发表于 2023-3-15 18:54</a>
+第四章前篇看完了，可能我还是对不上麻子的电波…某人知道真相后摆了一整章臭脸，在大决战时面对沙鲁般未知 ...</blockquote>
+麻子的都合主义呗，3章的时候我就想说了，本来制定了个全员参加的大作战，你们一群人偷溜出去，万一那边因为少了你们死了个把人你们要怎么办？但是结果不但那边没死人这边还解决了一个**烦虽然这边还是寄了一个，那我能说什么，结果好一切都好呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pf67  
+##### 1173#       发表于 2023-3-17 21:41
+
+新规9635，火队孔明46妹各给百合上了一个大，本来想试试能不能破盾，结果直接就秒了boss，离谱
+
+
+*****
+
+####  辽远的海的相思  
+##### 1174#       发表于 2023-3-18 08:48
+
+把付费钻抽光了才出货。再也不赌了。
+
+
+*****
+
+####  一之江瑞江  
+##### 1175#       发表于 2023-3-18 12:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">明明主线水平不错
+
+今天补了个旧活动剧情把我看麻了 
+
+U140这活动最后这段真就只有霓虹人才写得出来
+
+
+*****
+
+####  leitingkai  
+##### 1176#       发表于 2023-3-18 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60131114&amp;ptid=2050204" target="_blank">一之江瑞江 发表于 2023-3-18 12:33</a>
+明明主线水平不错
+
+今天补了个旧活动剧情把我看麻了 
+
+U140这活动最后这段真就只有霓虹人才写得出来 ...</blockquote>
+支线大部分都不是麻子写的（虽然麻子写的无人岛评价也不好）
+不过u140这个活动是之前杂志投票人气活动第二位<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">（第一泳装第三白百合）
+
+
+*****
+
+####  白昼梦  
+##### 1177#       发表于 2023-3-18 15:25
+
+打完第一章了，剧情有点平啊。
+
+第二章看到day1就要开始跑迷宫，眼前一黑。
+
+这游戏战斗系统太糟糕了，清杂兵被做的既浪费时间体验又差
+
+*****
+
+####  cckuku  
+##### 1178#       发表于 2023-3-18 15:26
+
+别的都还好，主要迷宫还有体力限制真的很无语<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  辽远的海的相思  
+##### 1179#       发表于 2023-3-18 21:57
+
+这不发12000石说不过去吧。
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1180#       发表于 2023-3-19 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60132930&amp;ptid=2050204" target="_blank">cckuku 发表于 2023-3-18 15:26</a>
+别的都还好，主要迷宫还有体力限制真的很无语</blockquote>
+这也是前面有人说的莫名的古早rpg坐牢感的根源
+
+
+*****
+
+####  白昼梦  
+##### 1181#       发表于 2023-3-19 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第二章day11触发gameover了，死因是主线迷宫开头两条岔路我走了长的那条，想回头走另一条完成探索度100%条件的时候体力掉光了。
+
+这游戏游玩的部分真的是只有整蛊没有乐趣
+
+
+*****
+
+####  Hemis  
+##### 1182#       发表于 2023-3-19 19:33
+
+<blockquote>白昼梦 发表于 2023-3-19 13:25
+第二章day11触发gameover了，死因是 ...</blockquote>
+能量没了撤退就好，这个任务持续好几天完全不急
+
+
+*****
+
+####  ardito  
+##### 1183#       发表于 2023-3-20 00:45
+
+攒了点碎片，buff卡好像没什么突破的必要？用不着自身面板吧
+
+
+*****
+
+####  辽远的海的相思  
+##### 1184#       发表于 2023-3-20 05:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60149658&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-20 00:45</a>
+
+攒了点碎片，buff卡好像没什么突破的必要？用不着自身面板吧</blockquote>
+主要是看被动。buffer.对面板利用率不高。
+
+
+*****
+
+####  叶雾  
+##### 1185#       发表于 2023-3-20 06:59
+
+0破和1破差别巨大，最好是能全队都一破，比1个高破其他0破好很多
+
+
+*****
+
+####  ardito  
+##### 1186#       发表于 2023-3-20 10:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">那慢慢均给全队好了
+
+
+*****
+
+####  sin.yugi  
+##### 1187#       发表于 2023-3-20 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60149658&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-19 11:45</a>
+
+攒了点碎片，buff卡好像没什么突破的必要？用不着自身面板吧</blockquote>
+SP谁都不嫌多，一破追加的每回合SP+1很好用，而且110级的零破打难点的boss几乎都是摸一下就差不多被破盾了
+
+
+*****
+
+####  cckuku  
+##### 1188#       发表于 2023-3-21 15:40
+
+为什么我打了三次五星首饰迷宫，一个sp+3的项链都没有<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真绯瑠之眷属  
+##### 1189#       发表于 2023-3-23 17:16
+
+这次的两个新暗美竹兰和洛丽塔都提不起劲啊，再不出暗辅，暗队真的要埋了
+
+
+*****
+
+####  飞天意面怪  
+##### 1190#       发表于 2023-3-23 17:57
+
+<blockquote>cckuku 发表于 2023-3-21 15:40
+为什么我打了三次五星首饰迷宫，一个sp+3的项链都没有</blockquote>
+难道掉率改了？我觉得这个是最容易出的五星饰品了
+
+
+*****
+
+####  xiongxingyu  
+##### 1191#       发表于 2023-3-24 15:09
+
+有人知道debuff三破那个回合开始-10%防御的被动会和减防叠加吗？还是说会和属性阵一样被覆盖？抽了1井半多，就1破换皮萝莉塔前辈，反倒是直接把美竹兰给3破了（这一破还是拿大保底换出来的）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ardito  
+##### 1192#       发表于 2023-3-25 15:29
+
+绯雨的炽天使怎么是手枪型的，你也时代变了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  leitingkai  
+##### 1193#       发表于 2023-3-25 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60220131&amp;ptid=2050204" target="_blank">ardito 发表于 2023-3-25 15:29</a>
+绯雨的炽天使怎么是手枪型的，你也时代变了是吧</blockquote>
+她个人剧情第一段就很卖力地吐槽过自己明明是剑术大师炽天使却是手枪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">完全就是迫害
+
+*****
+
+####  ardito  
+##### 1194#       发表于 2023-3-25 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60222283&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-3-25 19:52</a>
+
+她个人剧情第一段就很卖力地吐槽过自己明明是剑术大师炽天使却是手枪完全就是迫害 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">徒弟倒是好端端的给刀
+
+*****
+
+####  暗黑能乐  
+##### 1195#       发表于 2023-3-26 02:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这又是美竹兰又是凑阿夸的。。
+
+
+*****
+
+####  辽远的海的相思  
+##### 1196#       发表于 2023-3-27 00:54
+
+实在受不了。强度摆了。以后就以14万为标准，有石头就抽。
+
+
+*****
+
+####  pf67  
+##### 1197#       发表于 2023-3-27 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60196323&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-3-23 17:16</a>
+
+这次的两个新暗美竹兰和洛丽塔都提不起劲啊，再不出暗辅，暗队真的要埋了 ...</blockquote>
+洛丽塔很给劲吧，如果真来个4妹这样的辅助，就直接上天了
+
