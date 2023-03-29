@@ -45,3 +45,21 @@ Illus.Ayumi Yamada (Concept Artist/Cutscene Artist)
 
 啊？这算什么系列新作啊，完全是别的系列了
 
+*****
+
+####  notromeo  
+##### 636#       发表于 2023-3-26 19:25
+
+打了快8、9个小时了吧，虽然有不少小问题，总体感觉还行，操作手感我也觉得可以，有没有比较好的攻略可看呢，感觉要全收集比较麻烦
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  notromeo  
+##### 637#       发表于 2023-3-26 19:28
+
+剧情有点刻意卖惨，不是很喜欢，真正让我感觉有点心紧的是白萝莉形象变化，一看就知道污染变重了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
