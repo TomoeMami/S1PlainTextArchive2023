@@ -6479,3 +6479,26 @@ xsx版，拖拖拉拉的今天才过了天照守剧情，强怪物也只打过�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下飞天流变形棍可太好玩了，之前只用太刀遇到攻击欲望强的只敢大居合蹭血，现在是追着怪的屁股打武器槽，看形势不妙一蹦飞出去老远
 
+*****
+
+####  hqtkkb  
+##### 678#       发表于 2023-3-25 22:56
+
+有人试过那把新的会心伞吗？对比主流的毕业伞伤害有提升吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  储安平  
+##### 679#       发表于 2023-3-27 23:38
+
+听说临时工了？那么哪里有能用的补丁了?
+
+
+*****
+
+####  病態極端  
+##### 680#       发表于 2023-3-28 00:29
+
+優化CPU效能＝移除D加密<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
