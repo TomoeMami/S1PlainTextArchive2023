@@ -12558,3 +12558,1614 @@ D0194C36-520D-4F94-9A60-9F82A28D61D4.png
 
 已经连金苹果都不给了开始给银的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  黑上シグマ  
+##### 5666#       发表于 2023-3-12 15:40
+
+五星弓高杉
+
+*****
+
+####  angelooo  
+##### 5667#       发表于 2023-3-12 15:40
+
+高杉落地了？
+
+*****
+
+####  khxooo  
+##### 5668#       发表于 2023-3-12 15:42
+
+NPC实装了啊，那么蝙蝠的机会真的是越来越大了。
+
+*****
+
+####  exiaexa  
+##### 5669#       发表于 2023-3-12 15:45
+
+快乐，除非性能爆炸，不然又省钱了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  J-002  
+##### 5670#       发表于 2023-3-12 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就弓阶那卷的跟魔境一样的现状……高杉小哥你真不考虑换个阶吗
+
+
+*****
+
+####  angelooo  
+##### 5671#       发表于 2023-3-12 15:54
+
+<blockquote>J-002 发表于 2023-3-12 15:52
+就弓阶那卷的跟魔境一样的现状……高杉小哥你真不考虑换个阶吗</blockquote>
+女玩家都疯了，强度什么的能吃吗.jpg看看今年侦探埃德蒙还会不会强行续一波233
+
+*****
+
+####  J-002  
+##### 5672#       发表于 2023-3-12 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60058958&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-3-12 15:54</a>
+
+女玩家都疯了，强度什么的能吃吗.jpg看看今年侦探埃德蒙还会不会强行续一波233
+
+ ...</blockquote>
+反正我是准备去伯爵池子里捞嘲讽礼装233
+
+
+*****
+
+####  quanlix  
+##### 5673#       发表于 2023-3-12 16:16
+
+今年白情给老德补补宝具，至今只有一宝
+
+
+*****
+
+####  angelooo  
+##### 5674#       发表于 2023-3-12 16:29
+
+<blockquote>J-002 发表于 2023-3-12 15:59
+反正我是准备去伯爵池子里捞嘲讽礼装233</blockquote>
+我也要顺便捞一波，因为我好像不小心把开头两年的侦探埃德蒙卖掉了……这两年还都是五星礼装，感觉要遭OTZ
+
+
+*****
+
+####  黑上シグマ  
+##### 5675#       发表于 2023-3-12 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60059285&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-3-12 16:29</a>
+
+我也要顺便捞一波，因为我好像不小心把开头两年的侦探埃德蒙卖掉了……这两年还都是五星礼装，感觉要遭OT ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">记录里能看不就行了（
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5676#       发表于 2023-3-12 16:50
+
+白情就没出过有强度的卡
+
+只要本身够菜弓阶就不显得卷了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 5677#       发表于 2023-3-12 17:02
+
+目前十二位五星弓，六位红光炮，一位红单体；两位蓝单体，一位蓝光炮，一位蓝辅助；一位绿光炮。
+
+高杉晋作如果是绿单体那就算是进了优势赛道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5678#       发表于 2023-3-12 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定绿卡单体弓不会被BX爆杀么
+
+
+*****
+
+####  Jamaisvu  
+##### 5679#       发表于 2023-3-12 17:12
+
+瞎奶一口高杉的宝具叫三千世界鸦杀尽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5680#       发表于 2023-3-12 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60059635&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-3-12 17:04</a>
+
+你确定绿卡单体弓不会被BX爆杀么</blockquote>
+都跟狂阶比就不用出卡了...
+
+比妖崔强就可以啦...
+
+
+*****
+
+####  土豆烧羊肉串  
+##### 5681#       发表于 2023-3-12 17:28
+
+徐徐下回游戏
+
+
+*****
+
+####  eilot  
+##### 5682#       发表于 2023-3-12 18:00
+
+高衫应该不会给红A这类帮宝具转色的技能吧...
+
+
+*****
+
+####  Jamaisvu  
+##### 5683#       发表于 2023-3-12 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60060129&amp;ptid=2084912" target="_blank">eilot 发表于 2023-3-12 18:00</a>
+
+高衫应该不会给红A这类帮宝具转色的技能吧...</blockquote>
+红A那个一回合宝具换色感觉就是给设计失败挽尊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">他最早的三技能甚至是蓝魔放...
+
+高杉的问题是弓阶太卷了...如果有faker那种换职介相性的技能倒不错...
+
+
+*****
+
+####  eilot  
+##### 5684#       发表于 2023-3-12 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60060326&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-3-12 18:21</a>
+
+红A那个一回合宝具换色感觉就是给设计失败挽尊他最早的三技能甚至是蓝魔放...
+
+高杉的问题是弓阶太 ...</blockquote>
+希望在明天，说不到高衫的光炮自带英雄杀、神话杀，发炮前先来宝具强化等...(金闪闪或信长吗...)
+
+红A的技能都有2次强化，简直就是最优惠角色，送钻佳品，至于会否使用就...百层塔清杂兵层吧
+
+
+*****
+
+####  eyeego  
+##### 5685#       发表于 2023-3-13 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60060326&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-3-12 18:21</a>
+红A那个一回合宝具换色感觉就是给设计失败挽尊他最早的三技能甚至是蓝魔放...
+
+高杉的问题是弓阶太 ...</blockquote>
+红A倒不是什么设计失败 就是开服被砍了一刀而已 
+最早的pv里他的宝具就是蓝色的 但这样np回收太高了作为四星太破格 懒得动hit数就直接改宝具色了 毕竟当时大概是真的打算捞一笔就跑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5686#       发表于 2023-3-13 07:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送的石头出芭娜娜了 
+
+
+*****
+
+####  UNISONIA  
+##### 5687#       发表于 2023-3-13 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60058958&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-3-12 15:54</a>
+
+女玩家都疯了，强度什么的能吃吗.jpg看看今年侦探埃德蒙还会不会强行续一波233
+
+ ...</blockquote>
+画侦探埃德蒙系列的数木夜音今年画了双教授和老福那张礼装
+
+侦探埃德蒙系列应该是真的完结了
+
+
+*****
+
+####  Jamaisvu  
+##### 5688#       发表于 2023-3-13 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60066130&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-3-13 08:52</a>
+
+画侦探埃德蒙系列的数木夜音今年画了双教授和老福那张礼装
+
+侦探埃德蒙系列应该是真的完结了 ...</blockquote>
+侦探爱德蒙～早春旅情篇～
+
+侦探爱德蒙～异乡潜入篇～
+
+侦探爱德蒙～真正黑幕篇～
+
+侦探爱德蒙～开启新章篇～
+
+侦探爱德蒙～复苏噩梦篇～
+
+侦探爱德蒙～最后事件篇～
+
+共计六部，堂堂完结！
+接下来该不会是忧国莫里亚蒂篇吧
+
+
+*****
+
+####  khxooo  
+##### 5689#       发表于 2023-3-13 12:07
+
+想了想，将所有狗粮全卖了，反正这辈子除了活动从者，估计也没有新从者了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5690#       发表于 2023-3-13 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60068429&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-3-13 12:07</a>
+
+想了想，将所有狗粮全卖了，反正这辈子除了活动从者，估计也没有新从者了 ...</blockquote>
+额，万一哪个周年或DL活动发了五星自选呢...
+
+不过狗粮这东西随便几个活动就攒回来了，为了省心换成绿方块应该也没啥问题...
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5691#       发表于 2023-3-13 21:29
+
+3000wdl得到明年了吧
+
+今年周年会不会给限定自选
+
+
+*****
+
+####  alucardcz  
+##### 5692#       发表于 2023-3-13 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60074865&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-3-13 21:29</a>
+
+3000wdl得到明年了吧
+
+今年周年会不会给限定自选</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4星要吗
+
+*****
+
+####  eilot  
+##### 5693#       发表于 2023-3-13 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60068596&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-3-13 12:26</a>
+
+额，万一哪个周年或DL活动发了五星自选呢...
+
+不过狗粮这东西随便几个活动就攒回来了，为了省心换成绿方 ...</blockquote>
+再次给你5星自选...礼装
+
+
+*****
+
+####  ddrr  
+##### 5694#       发表于 2023-3-14 02:01
+
+takolegs确实画得很好看
+
+
+*****
+
+####  UNISONIA  
+##### 5695#       发表于 2023-3-14 09:51
+
+TAKOLEGS是那种缺点和优点都很明显的插画师，而且上色风格更接近漫画那边
+
+我因为最近买了佣兵与小说家那个原作，感觉她男性角色比女性角色画的普遍要好一些
+
+
+*****
+
+####  angelooo  
+##### 5696#       发表于 2023-3-16 12:26
+
+<blockquote>黑上シグマ 发表于 2023-3-12 16:43
+记录里能看不就行了（</blockquote>
+后来虚惊一场，原来被我在仓库里按了个筛选隐藏掉了……今年看来埃德蒙是真的完结了，就看教授那张是不是新连载了233
+
+
+*****
+
+####  alucardcz  
+##### 5697#       发表于 2023-3-17 17:06
+
+绿卡只配拥有30充.jpg <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 5698#       发表于 2023-3-17 17:06
+
+3呼符出了，连活动礼装都没见着
+
+*****
+
+####  J-002  
+##### 5699#       发表于 2023-3-17 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">绿光炮，30自充，没特攻
+
+
+*****
+
+####  莉莉橙  
+##### 5700#       发表于 2023-3-17 17:15
+
+<img src="https://p.sda1.dev/10/c9a6799d33957b1148146c404cd5e4b3/IMG_CMP_22099666.jpeg" referrerpolicy="no-referrer">
+来豹豹
+
+
+*****
+
+####  莉莉橙  
+##### 5701#       发表于 2023-3-17 17:15
+
+ 本帖最后由 莉莉橙 于 2023-3-17 17:18 编辑 
+
+风怒编辑
+
+*****
+
+####  莉莉橙  
+##### 5702#       发表于 2023-3-17 17:15
+
+ 本帖最后由 莉莉橙 于 2023-3-17 17:18 编辑 
+
+编辑
+
+*****
+
+####  莉莉橙  
+##### 5703#       发表于 2023-3-17 17:15
+
+ 本帖最后由 莉莉橙 于 2023-3-17 17:18 编辑 
+
+编辑
+
+*****
+
+####  保罗赫伯特  
+##### 5704#       发表于 2023-3-17 17:19
+
+高杉二阶段和三阶段除了衣服颜色变了一下，好像没啥区别，技能和宝具和奇神高达绑定了，走科技路线<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl 真的有很多女玩家喜欢吗，个人感觉画的一般，造型有点非主流<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 5705#       发表于 2023-3-17 17:21
+
+出了个唐吉可德，以外之喜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Jamaisvu  
+##### 5706#       发表于 2023-3-17 17:21
+
+高杉晋作看着不咋强啊...算上宝具前置buff是三回合40绿魔放、30攻击力，经典30自充。
+
+二技能开玩笑一样的弱，总不能和1技能一起在多核队buff公主吧...感觉，不如直流。
+
+另外被动没骑乘反倒给了个蓝卡6%和暴击6%...估计是那种一张蓝暴满NP的人物？但放在现在没啥可稀罕的吧...
+
+（话说这个初始短发卡面看着好像幽游白书的刃雾要啊...我还挺喜欢那个角色的...）
+
+*****
+
+####  Jamaisvu  
+##### 5707#       发表于 2023-3-17 17:27
+
+ 本帖最后由 Jamaisvu 于 2023-3-17 17:29 编辑 
+
+转个解包图：
+
+<img src="https://img.saraba1st.com/forum/202303/17/172857qx3q33ubbzx3k3x3.jpg" referrerpolicy="no-referrer">
+
+<strong>BB2DFEBA4E032D6E20485BFA0C0C97F7.jpg</strong> (348.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-17 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202303/17/172659viuippwh29xmu09r.png" referrerpolicy="no-referrer">
+
+<strong>1679045184384.png</strong> (474.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-17 17:26 上传
+
+*****
+
+####  Jamaisvu  
+##### 5708#       发表于 2023-3-17 17:29
+
+新卫星，高杉的老师吉田松阴：
+
+<img src="https://img.saraba1st.com/forum/202303/17/172928pxgchhhhujntz87c.png" referrerpolicy="no-referrer">
+
+<strong>1679045296749.png</strong> (181.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-17 17:29 上传
+
+貌似是哥伦布的画师元村人画的？
+
+
+*****
+
+####  angelooo  
+##### 5709#       发表于 2023-3-17 17:36
+
+高杉卡面就这？元村人的松阴感觉也算半翻车，女玩家可没这么好糊弄啊23333
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5710#       发表于 2023-3-17 17:37
+
+元村人哪有这么干净
+
+和高杉一个画师吧
+
+*****
+
+####  exiaexa  
+##### 5711#       发表于 2023-3-17 17:39
+
+ 本帖最后由 exiaexa 于 2023-3-17 17:41 编辑 
+
+这卡面和性能，谢谢你唯一神，钱包的拯救者
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿提拉  
+##### 5712#       发表于 2023-3-17 17:42
+
+连吃两次保底，今年不顺
+
+
+*****
+
+####  Jamaisvu  
+##### 5713#       发表于 2023-3-17 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60123878&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-3-17 17:37</a>
+
+元村人哪有这么干净
+
+和高杉一个画师吧</blockquote>
+一开始看着线条有些硬就觉得是元村人。（其实是刘海有点像哥伦布的胡子）
+
+不过看了下徐福的卡面，好像用的是同一牌子的洗发水（误）
+
+估计takolegs要成为常驻画师了吧...
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5714#       发表于 2023-3-17 17:59
+
+怎么点开隔壁又在对着卡面哭天抢地的
+
+我觉得这两张还行啊
+
+*****
+
+####  AbigailWilliams  
+##### 5715#       发表于 2023-3-17 18:04
+
+粗看确实还行，细品确实会觉得有点潦草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是画师有个马琴在前，可能给的预期不一样吧
+
+
+*****
+
+####  Jamaisvu  
+##### 5716#       发表于 2023-3-17 18:15
+
+ 本帖最后由 Jamaisvu 于 2023-3-17 18:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60124116&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2023-3-17 18:04</a>
+
+粗看确实还行，细品确实会觉得有点潦草了主要是画师有个马琴在前，可能给的预期不一样吧 ...</blockquote>
+因为一开始的NPC认定，导致有些人把马琴当了高杉代餐...好在卡面够精致。
+
+结果现在这个糊弄人的一破三破甚至满破...
+
+这倒是坐实这家伙确实是从NPC改过来的<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+不过剪影宝具真的潮暴了，建模组一如既往上大分。
+
+*****
+
+####  angelooo  
+##### 5717#       发表于 2023-3-17 18:18
+
+ 本帖最后由 angelooo 于 2023-3-17 18:22 编辑 
+<blockquote>Jamaisvu 发表于 2023-3-17 18:15
+因为一开始的NPC认定，导致有些人把马琴当了高杉代餐...好在卡面够精致。
+
+结果现在这个糊弄人的一破三破甚 ...</blockquote>
+初始和一破光看立绘其实还可以，初始是四张里相对最好的，一破后面那背景太抢风头了……三破又给我糊成一团，满破我已经无话可说了OTZ
+
+喷了看到隔壁有人搬画师的贺图，这才看到龙马活动时画的那张，这不比满破强出几个次元？
+
+
+*****
+
+####  Jamaisvu  
+##### 5718#       发表于 2023-3-17 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60124231&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-3-17 18:18</a>
+
+初始和一破光看立绘其实还可以，初始是四张里相对最好的，一破后面那背景太抢风头了……三破又给我糊成一 ...</blockquote>
+初始卡面的纹路配上黑白背景挺有美感的，但是一破从白变红就显得...不知道想表达什么，和红发放在一起显得没啥对比度，寓意可能是从报国学子踏上攘夷革命的不归血路？
+
+然后三破满破那个乱糟糟的东西，让我觉得他是站在什么光污染严重的迪厅里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5719#       发表于 2023-3-17 18:28
+
+<img src="https://img.saraba1st.com/forum/202303/17/182801oczcjsj49jocafh9.jpg" referrerpolicy="no-referrer">
+
+<strong>34343.jpg</strong> (490.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-17 18:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心肺骤停
+
+*****
+
+####  Jamaisvu  
+##### 5720#       发表于 2023-3-17 18:32
+
+<blockquote>angelooo 发表于 2023-3-17 18:18
+初始和一破光看立绘其实还可以，初始是四张里相对最好的，一破后面那背景太抢风头了……三破又给我糊成一 ...</blockquote>
+
+我也看到贺图了，确实好看...
+
+FGO的卡面审核部门是不是只有一台全自动的低质量扫图机啊？！
+
+突然感觉smdrr能把剑兰立绘改一下真的是破天荒的伟业2333
+
+*****
+
+####  Jamaisvu  
+##### 5721#       发表于 2023-3-17 18:33
+
+<blockquote>angelooo 发表于 2023-3-17 18:18
+初始和一破光看立绘其实还可以，初始是四张里相对最好的，一破后面那背景太抢风头了……三破又给我糊成一 ...</blockquote>
+
+我也看到贺图了，确实好看...
+
+FGO的卡面审核部门是不是只有一台全自动的低质量扫图机啊？！
+
+突然感觉smdrr能把剑兰立绘改一下真的是破天荒的伟业2333
+
+*****
+
+####  qixinno2  
+##### 5722#       发表于 2023-3-17 18:33
+
+<blockquote>alucardcz 发表于 2023-3-17 18:28
+心肺骤停</blockquote>
+狗萌新怎么总出货 
+
+话说绿卡是不是只配30充
+
+
+*****
+
+####  quanlix  
+##### 5723#       发表于 2023-3-17 19:25
+
+黑a强化了也不给个up让抽
+
+
+*****
+
+####  qixinno2  
+##### 5724#       发表于 2023-3-17 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金卡弓 马老师+1 滚了
+
+*****
+
+####  alucardcz  
+##### 5725#       发表于 2023-3-17 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60125166&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-3-17 19:47</a>
+
+金卡弓 马老师+1 滚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+
+*****
+
+####  qixinno2  
+##### 5726#       发表于 2023-3-17 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60125223&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-17 19:51</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不如狗萌新
+
+*****
+
+####  Jamaisvu  
+##### 5727#       发表于 2023-3-17 20:16
+
+<img src="https://img.saraba1st.com/forum/202303/17/201519sma4jokuk13quna1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230317_201459.jpg</strong> (91.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-17 20:15 上传
+
+看了下活动加成从者，魔王信长竟然享受EX机的加成，估计下周三可能得开个卡池吧...先为她省点石头了。
+
+
+*****
+
+####  alucardcz  
+##### 5728#       发表于 2023-3-17 23:15
+
+<img src="https://img.saraba1st.com/forum/202303/17/231433my44w24hrphqxq4e.jpg" referrerpolicy="no-referrer">
+
+<strong>3434.jpg</strong> (490.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-17 23:14 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好耶 甚至没到第10发
+
+*****
+
+####  黑上シグマ  
+##### 5729#       发表于 2023-3-17 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60127607&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-17 23:15</a>
+
+好耶 甚至没到第10发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不到10发俩五星，轮狗还是你最狗
+
+
+*****
+
+####  里村紅葉  
+##### 5730#       发表于 2023-3-17 23:57
+
+狗萌新稳定发挥，说明世界线没变动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5731#       发表于 2023-3-18 01:11
+
+<blockquote>alucardcz 发表于 2023-3-17 23:15
+好耶 甚至没到第10发</blockquote>
+艹 为什么狗萌新能这么狗
+
+
+*****
+
+####  kuarwbwe  
+##### 5732#       发表于 2023-3-18 07:45
+
+我一进这楼就看到狗萌新在豹跳.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 5733#       发表于 2023-3-18 13:15
+
+抽友情池，保龄球都满破两张了3老头那张都没有满破<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 5734#       发表于 2023-3-18 13:19
+
+<blockquote>引用第5732楼khxooo于2023-03-18 13:15发表的  :
+
+抽友情池，保龄球都满破两张了3老头那张都没有满破</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我就不一样了，各一张结束，懒得点了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  khxooo  
+##### 5735#       发表于 2023-3-18 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60131565&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-3-18 13:19</a>
+
+像我就不一样了，各一张结束，懒得点了
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+算是有点强迫症吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5736#       发表于 2023-3-18 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了 连一张都懒得抽
+
+
+*****
+
+####  exiaexa  
+##### 5737#       发表于 2023-3-19 11:07
+
+卧槽这三破模组好帅，感觉要被骗氪了
+
+你特么能打roket punch为什么不是红.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xiongxingyu  
+##### 5738#       发表于 2023-3-21 11:49
+
+白情更新以后礼装卡面上的男从者都追加语音了啊，真就是小作坊经营，配音都是打包顺便配的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏露露的3破几乎就是重配了一遍啊，良平难得的霸气声线。
+
+
+*****
+
+####  UNISONIA  
+##### 5739#       发表于 2023-3-21 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60165204&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2023-3-21 11:49</a>
+
+白情更新以后礼装卡面上的男从者都追加语音了啊，真就是小作坊经营，配音都是打包顺便配的吗夏露露 ...</blockquote>
+而且不是最近配音的，估计是去年冬天
+
+大卫那个也顺带为某个还没实装的角色服务了
+
+
+*****
+
+####  alucardcz  
+##### 5740#       发表于 2023-3-23 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了 这次90++ 第1面血最高 60万（
+
+*****
+
+####  alucardcz  
+##### 5741#       发表于 2023-3-23 17:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好起来了 这次属于把奥师傅给ban了  
+
+
+*****
+
+####  eilot  
+##### 5742#       发表于 2023-3-23 17:30
+
+第一层是只得一隻的60万狂，之后只得20万的一隻剑...最后才得3隻怪最高血是40万的剑
+
+
+*****
+
+####  J-002  
+##### 5743#       发表于 2023-3-23 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">本来只想捞个嘲讽礼装的，结果伯爵都出来了礼装没有……
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5744#       发表于 2023-3-23 17:37
+
+道满妖崔奥可以不换六
+
+*****
+
+####  qixinno2  
+##### 5745#       发表于 2023-3-23 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次90艹非洲平民怎么打
+
+*****
+
+####  保罗赫伯特  
+##### 5746#       发表于 2023-3-23 17:40
+
+他但凡不是剑我都能用妖兰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 5747#       发表于 2023-3-23 17:47
+
+ 本帖最后由 eilot 于 2023-3-23 17:49 编辑 
+
+狂娜第一层需要再多自己1张红卡才能3T杀，再没有非洲组合前都是打完一次就算
+
+
+*****
+
+####  alucardcz  
+##### 5748#       发表于 2023-3-23 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑杯弓呆轻松3回合  等会录个视频玩玩
+
+*****
+
+####  angelooo  
+##### 5749#       发表于 2023-3-23 17:56
+
+<blockquote>J-002 发表于 2023-3-23 17:36
+本来只想捞个嘲讽礼装的，结果伯爵都出来了礼装没有……</blockquote>
+我放弃了一镜……啊不是，我放弃了在伯爵池子捞极恶非道
+
+
+*****
+
+####  alucardcz  
+##### 5750#       发表于 2023-3-23 18:09
+
+[https://www.bilibili.com/video/BV1km4y1k73S/](https://www.bilibili.com/video/BV1km4y1k73S/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过审了 5加成稳定3t
+
+
+*****
+
+####  qixinno2  
+##### 5751#       发表于 2023-3-23 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60197051&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-23 18:09</a>
+
+https://www.bilibili.com/video/BV1km4y1k73S/
+
+过审了 5加成稳定3t  6加成就不研究了 反正我也就5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两宝弓呆配置太高了 顺便欧羡慕
+
+*****
+
+####  alucardcz  
+##### 5752#       发表于 2023-3-23 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60197199&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-3-23 18:22</a>
+
+两宝弓呆配置太高了 顺便欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新非了那么久了 好意思吗
+
+*****
+
+####  qixinno2  
+##### 5753#       发表于 2023-3-23 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60197207&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-23 18:22</a>
+
+萌新非了那么久了 好意思吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要算非我们干脆就是黑洞了
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5754#       发表于 2023-3-23 18:42
+
+摩根祭抽的克姐总算能上周回了
+
+
+*****
+
+####  qixinno2  
+##### 5755#       发表于 2023-3-23 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这低难 还是后面扔个雪B好使
+
+
+*****
+
+####  保罗赫伯特  
+##### 5756#       发表于 2023-3-23 20:39
+
+这个高难的机制让我第一次打出了同归于尽的结局，原来这样算是通关失败啊，多年的疑惑得到了解答<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5757#       发表于 2023-3-23 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60198370&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-3-23 20:09</a>
+
+这低难 还是后面扔个雪B好使</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202303/23/204104lcawdpb9zx2dw2a9.jpg" referrerpolicy="no-referrer">
+
+<strong>1245.jpg</strong> (308.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-23 20:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把撒卡是最强的 （顺便欧羡慕
+
+
+*****
+
+####  qixinno2  
+##### 5758#       发表于 2023-3-23 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60198723&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-23 20:41</a>
+
+把撒卡是最强的 （顺便欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕我非气多么 送你点
+
+
+*****
+
+####  onemoment  
+##### 5759#       发表于 2023-3-23 21:17
+
+这90++大姐姐随便打了
+
+
+*****
+
+####  J-002  
+##### 5760#       发表于 2023-3-23 22:47
+
+<img src="https://img.saraba1st.com/forum/202303/23/224620zw7cuwjzeulrje9e.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230323224455.jpg</strong> (514.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-23 22:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">打完高杉重工御一行后惯例一抽~圆满完成目标
+
+
+*****
+
+####  eilot  
+##### 5761#       发表于 2023-3-23 23:28
+
+刚好十张符，活动礼装见不到，和一隻高衫
+
+不知道街机联动何时才开始
+
+
+*****
+
+####  exiaexa  
+##### 5762#       发表于 2023-3-24 03:36
+
+有5宝摩根的话
+摩根+双兔子+rba是可以打的，就是出牌要动一下脑子
+
+一二面反正都是一张红卡死，不推荐狂那的原因是极端情况下你可能会砸手机，比如第一面看不到红卡的时候，摩根可以靠特攻强杀
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 5763#       发表于 2023-3-24 17:57
+
+<blockquote>eilot 发表于 2023-3-23 23:28
+刚好十张符，活动礼装见不到，和一隻高衫
+
+不知道街机联动何时才开始</blockquote>
+这个白情活动延续的是咕哒咕哒的剧情，又是up魔信又是up枪龙马，我怀疑每年中下旬的咕哒咕哒系列这次会让位给街机联动...
+
+*****
+
+####  黑上シグマ  
+##### 5764#       发表于 2023-3-24 17:59
+
+<blockquote>引用第5762楼Jamaisvu于2023-03-24 17:57发表的  :
+
+引用:eilot 发表于 2023-3-23 23:28刚好十张符，活动礼装见不到，和一隻高衫不知道......</blockquote>
+哈？联动不都放5月黄金周吗？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Jamaisvu  
+##### 5765#       发表于 2023-3-24 18:28
+
+ 本帖最后由 Jamaisvu 于 2023-3-24 18:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60209856&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-3-24 17:59</a>
+
+哈？联动不都放5月黄金周吗？</blockquote>
+看了一下2017年的活动流程，白情后面是3月本能寺复刻，4月咕哒咕哒明治维新，5月CCC联动。
+
+（正好17年的白情和咕哒咕哒系列紧挨着）
+
+这次白情感觉是合并了咕哒咕哒吧，然后5月顺理成章接联动也挺好...
+
+不过如果真的是当咕哒咕哒用的话，岂不是少了一个活动四星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+希望街机联动送点好的...比如首个四卡面三模型的活动从者AE提妈之类的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5766#       发表于 2023-3-24 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60210247&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-3-24 18:28</a>
+
+看了一下2017年的活动流程，白情后面是3月本能寺复刻，4月咕哒咕哒明治维新，5月CCC联动。
+
+（正好17年的白 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时代变了 没给你继续长草已经谢天谢地了
+
+*****
+
+####  Jamaisvu  
+##### 5767#       发表于 2023-3-24 19:54
+
+<blockquote>alucardcz 发表于 2023-3-24 18:50
+时代变了 没给你继续长草已经谢天谢地了</blockquote>
+就螺旋社的生产力，4.7白情结束后，真可能花一个月给街机联动预热...
+
+*****
+
+####  gpx234mqx  
+##### 5768#       发表于 2023-3-25 13:08
+
+90++原来是即死周回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+道满两仪式可以上了
+
+*****
+
+####  quanlix  
+##### 5769#       发表于 2023-3-25 13:27
+
+看明天有啥消息，生放请了川澄，信长，李依感觉又要动画化哪个章节
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5770#       发表于 2023-3-25 13:45
+
+第二部最适合动画的还是251吧
+
+黄金树海太新了要防剧透，妖精国做出来肯定烂
+
+
+*****
+
+####  黑上シグマ  
+##### 5771#       发表于 2023-3-26 13:22
+
+联动是提妈！！抽抽抽！
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5772#       发表于 2023-3-26 13:25
+
+这个新技能树怎么也不多解释下
+
+*****
+
+####  exiaexa  
+##### 5773#       发表于 2023-3-26 13:27
+
+比起街机联动更关心职介技能树
+
+做好了能救术和杀，做不好又是全点狂
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 5774#       发表于 2023-3-26 13:31
+
+提妈实装挺好的，不知道有没有新东西...虽然照搬街机那几个造型我也很满意。
+
+话说这次活动是单方面联动街机啊...我还以为是双向联动然后同时出新卡呢...
+
+
+*****
+
+####  Jamaisvu  
+##### 5775#       发表于 2023-3-26 13:37
+
+ 本帖最后由 Jamaisvu 于 2023-3-26 13:41 编辑 
+
+<img src="https://img.saraba1st.com/forum/202303/26/133212ie48b0fqq8bcqb0p.png" referrerpolicy="no-referrer">
+
+<strong>1679808578663.png</strong> (71.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:32 上传
+
+奏章三人众，后面那个帅哥看着好棒啊...
+
+瞎奶几口：
+
+怖军出场在情人节活动，女教皇作为2.6.5的角色主笔应该是东出。而情人节活动莫名其妙有个东出负责的梅菲斯特，那么怖军估计也是东出的角色了。正好FGO第一个登场的ruler是东出的贞德...
+
+假如按这个思路，第一个登场的复仇者是基督山伯爵，是樱井的角色。
+
+卡里奥斯特罗伯爵首次被提到也是樱井的平安京章节，那么第二奏章的复仇者应该也是樱井光负责了...
+
+至于剩下的裸体披风雌小鬼...第一个AE是蘑菇的莉莉丝，不知道他老人家会不会亲自给奏章收尾呢...
+
+
+*****
+
+####  Jamaisvu  
+##### 5776#       发表于 2023-3-26 13:47
+
+搬一下街机提亚马特的相关数据：
+
+卡面：
+
+<img src="https://img.saraba1st.com/forum/202303/26/134722sixkfrnqqmfdfze7.jpg" referrerpolicy="no-referrer">
+
+<strong>15a4232714b2ba2f4d0162423a678a8e9e6f5607_raw.jpg</strong> (221.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202303/26/134723x4j3jug44zu3jj88.jpg" referrerpolicy="no-referrer">
+
+<strong>896bf1cb58c9889faf6a0c601bf54c79f8726a99_raw.jpg</strong> (223.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202303/26/134724sz81qn0iibcnqwb6.jpg" referrerpolicy="no-referrer">
+
+<strong>ec20eeec2dc6276a1b4dfcff61e2020be1cd1ce7_raw.jpg</strong> (240.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202303/26/134724s3cvwvsz336s2323.jpg" referrerpolicy="no-referrer">
+
+<strong>11a41b0227695344dd8f7041f7c31ac65b0df790_raw.jpg</strong> (226.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+宝具：
+
+<img src="https://img.saraba1st.com/forum/202303/26/134725lhc57dd7ee1z5y51.jpg" referrerpolicy="no-referrer">
+
+<strong>09c5ab1546bcb733f14a4bd545ce9abe449cd8c5_raw.jpg</strong> (59.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+技能：
+
+<img src="https://img.saraba1st.com/forum/202303/26/134725l79gndfzhyf7f7th.jpg" referrerpolicy="no-referrer">
+
+<strong>66572fec846c2cb6b366898346cb6bacc479f55a_raw.jpg</strong> (306.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+被动：
+
+<img src="https://img.saraba1st.com/forum/202303/26/134726lw27u8ul83hztlll.jpg" referrerpolicy="no-referrer">
+
+<strong>6c1f5a9bf33d8660b254d05af1d113**dfec18_raw.jpg</strong> (319.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 13:47 上传
+
+
+*****
+
+####  angelooo  
+##### 5777#       发表于 2023-3-26 13:51
+
+提妈必抽
+
+
+*****
+
+####  angelooo  
+##### 5778#       发表于 2023-3-26 14:02
+
+旧活动从者的硬币有救了，错过活动的也能补完了
+
+*****
+
+####  alucardcz  
+##### 5779#       发表于 2023-3-26 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60229027&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-3-26 13:37</a>
+
+奏章三人众，后面那个帅哥看着好棒啊...
+
+瞎奶几口：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这女的这么大 你一点都不懂什么叫雌小鬼
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外这女的怕不是魔神柱娘化
+
+*****
+
+####  holyblood  
+##### 5780#       发表于 2023-3-26 14:12
+
+新的三个里面只有一个女性从者么？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 5781#       发表于 2023-3-26 14:19
+
+这一井，我氪了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 5782#       发表于 2023-3-26 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">竟然落地提妈.....给所长存的石头又要没了
+
+
+*****
+
+####  Jamaisvu  
+##### 5783#       发表于 2023-3-26 14:23
+
+ 本帖最后由 Jamaisvu 于 2023-3-26 14:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60229248&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-26 14:06</a>
+
+这女的这么大 你一点都不懂什么叫雌小鬼
+
+另外这女的怕不是魔神柱娘化 ...</blockquote>
+没注意到无盖车灯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到挑衅表情和棒棒糖就脑补了一下杂鱼杂鱼的音效...
+
+（这个应该算雌巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+头发上这堆宝石真的和魔神柱身上的一样，衣服上还有橄榄枝，也许是基督教相关的魔神之类的...
+
+我有点怀疑她是CCC活动里那个被杀生院玩坏了的桀派...
+
+
+*****
+
+####  AbigailWilliams  
+##### 5784#       发表于 2023-3-26 14:32
+
+说起来ex职介还是没少出啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5785#       发表于 2023-3-26 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60229341&amp;ptid=2084912" target="_blank">森兰丸 发表于 2023-3-26 14:19</a>
+
+竟然落地提妈.....给所长存的石头又要没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你又要欧了吗 提前羡慕
+
+
+*****
+
+####  gpx234mqx  
+##### 5786#       发表于 2023-3-26 14:42
+
+也就一个月，人理？谁管他啊，更多的ae
+
+
+*****
+
+####  森兰丸  
+##### 5787#       发表于 2023-3-26 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60229451&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-26 14:34</a>
+
+你又要欧了吗 提前羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新要是能提前用小卡片给我增量更多石头那我就肯定能欧了
+
+
+*****
+
+####  保罗赫伯特  
+##### 5788#       发表于 2023-3-26 15:33
+
+我提妈社保<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+终于有点盼头了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 5789#       发表于 2023-3-26 15:52
+
+送的从者也可以奶起来，干脆直接送兽尼禄得了，人理？人理已经是敌人了啊哈哈哈哈哈
+
+
+*****
+
+####  v22325  
+##### 5790#       发表于 2023-3-26 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60230136&amp;ptid=2084912" target="_blank">angelooo 发表于 2023-3-26 15:52</a>
+
+送的从者也可以奶起来，干脆直接送兽尼禄得了，人理？人理已经是敌人了啊哈哈哈哈哈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有这好事，要真有这么大方就好了。幼体提妈没有大乃乃有点遗憾。
+
+
+*****
+
+####  黑上シグマ  
+##### 5791#       发表于 2023-3-26 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60230391&amp;ptid=2084912" target="_blank">v22325 发表于 2023-3-26 16:26</a>
+
+还有这好事，要真有这么大方就好了。幼体提妈没有大乃乃有点遗憾。 ...</blockquote>
+你在说啥，再临了不就变大了吗
+
+*****
+
+####  v22325  
+##### 5792#       发表于 2023-3-26 16:36
+
+ 本帖最后由 v22325 于 2023-3-26 16:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60230469&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-3-26 16:34</a>
+
+你在说啥，再临了不就变大&amp;# ...</blockquote>
+借机三破是少女形态吧，我记得当初七章特别大
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊我看了下奈子差不多，大概是同人图特别大篡改我的记忆了，特别电车里那张……
+
+*****
+
+####  qixinno2  
+##### 5793#       发表于 2023-3-26 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正只有30石 随缘了 好羡慕狗萌新随便出货啊
+
+
+*****
+
+####  الطائر  
+##### 5794#       发表于 2023-3-26 18:14
+
+完 全 一 致 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202303/26/181045amou1y9ef9guee1m.png" referrerpolicy="no-referrer">
+
+<strong>街机清姬3.png</strong> (91.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 18:10 上传
+
+
+*****
+
+####  qixinno2  
+##### 5795#       发表于 2023-3-26 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看那俩角我也觉得像清姬
+
+
+*****
+
+####  gpx234mqx  
+##### 5796#       发表于 2023-3-26 19:25
+
+清姬ae
+
+*****
+
+####  武男  
+##### 5797#       发表于 2023-3-26 19:30
+
+什么时候可以把人类恶们都收集齐，去跟人理自证清白
+
+
+*****
+
+####  eilot  
+##### 5798#       发表于 2023-3-26 20:05
+
+ 本帖最后由 eilot 于 2023-3-26 20:09 编辑 
+
+终于都能补回金时(骑)了
+
+不过也变相没了战国、圣诞合集活动吗...万圣合集已经可一不可再了
+
+
+*****
+
+####  里村紅葉  
+##### 5799#       发表于 2023-3-26 20:41
+
+怎么憋半天憋了个执照盘出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 5800#       发表于 2023-3-26 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60232286&amp;ptid=2084912" target="_blank">武男 发表于 2023-3-26 19:30</a>
+
+什么时候可以把人类恶们都收集齐，去跟人理自证清白</blockquote>
+人理欺软怕硬，ex太少罢了，你看他对外国人🈶️意见吗
+
+
+*****
+
+####  保罗赫伯特  
+##### 5801#       发表于 2023-3-26 21:28
+
+为了延长剧情，人理的塑造已经成了胖虎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 5802#       发表于 2023-3-26 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60232927&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-3-26 20:41</a>
+
+怎么憋半天憋了个执照盘出来</blockquote>
+全职业/个人技能盘也是不少推出多年的手游，在中期时就会推出
+
+不想再将旧角色强化，也可以说太迟才推出
+
+以营运的想法，就算弄了执照盘，也会一直卡在必要素材，再加上现在一个月才来一次活动，也是这新系统年内都是没甚么意思
+
+
+*****
+
+####  里村紅葉  
+##### 5803#       发表于 2023-3-26 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60233647&amp;ptid=2084912" target="_blank">eilot 发表于 2023-3-26 22:09</a>
+
+全职业/个人技能盘也是不少推出多年的手游，在中期时就会推出
+
+不想再将旧角色强化，也可以说太迟才推出
+
+ ...</blockquote>
+新的素材回收机制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们还是想不起来有个被人遗忘的音乐播放功能
+
+
+*****
+
+####  保罗赫伯特  
+##### 5804#       发表于 2023-3-26 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60233734&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-3-26 22:19</a>
+
+新的素材回收机制他们还是想不起来有个被人遗忘的音乐播放功能</blockquote>
+他们自己也知道这个功能很鸡肋吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 5805#       发表于 2023-3-26 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60233734&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-3-26 22:19</a>
+
+新的素材回收机制他们还是想不起来有个被人遗忘的音乐播放功能</blockquote>
+已经完全忘了有这功能...因为你提到才去manual介面，弹出有新功能提示
+
+可以自选2位英灵，在指定背景下帮他们拍照，背景还是限时定期更换...
+
+
+*****
+
+####  武男  
+##### 5806#       发表于 2023-3-26 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60233190&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-3-26 21:15</a>
+
+人理欺软怕硬，ex太少罢了，你看他对外国人🈶️意见吗</blockquote>
+人理：新迦勒底自现在起视为违法组织
+
+勇者王：那样的话，我们要抗争到底啊
+
+咕哒：人王将军，这次请你打头阵吧
+
+迦摩：咕哒有危险了，立刻去南极接管人理保障天球
+
+提亚马特：阁下，请您下决心吧
+
+
+*****
+
+####  黑上シグマ  
+##### 5807#       发表于 2023-3-26 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234396&amp;ptid=2084912" target="_blank">武男 发表于 2023-3-26 23:48</a>
+
+人理：新迦勒底自现在起视为违法组织
+
+勇者王：那样的话，我们要抗争到底啊
+
+咕哒：人王将军，这次请你打头 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后到最后发现人理就是beast7
+
+
+*****
+
+####  武男  
+##### 5808#       发表于 2023-3-27 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234455&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-3-26 23:57</a>
+
+然后到最后发现人理就是bea ...</blockquote>
+beast现在多少有点退版本了，打完ORT以后
+
+
+*****
+
+####  gpx234mqx  
+##### 5809#       发表于 2023-3-27 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60240740&amp;ptid=2084912" target="_blank">武男 发表于 2023-3-27 15:33</a>
+
+beast现在多少有点退版本了，打完ORT以后</blockquote>
+来个天之亡骸吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  武男  
+##### 5810#       发表于 2023-3-27 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60244261&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-3-27 19:51</a>
+
+来个天之亡骸吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个不给力，还是来个朱月吧
+
