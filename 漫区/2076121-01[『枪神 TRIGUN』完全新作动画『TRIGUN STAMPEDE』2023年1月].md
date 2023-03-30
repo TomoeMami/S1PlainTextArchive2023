@@ -3556,3 +3556,297 @@ wolfwood便当终究逃不了？开播前设定集里有两年后女主人设图
 
 话说这吊毛主角跟枪神有个锤子关系，大叔用枪都比他多，从头到尾就突出一个“都是我的错”和跑跑跑，什么背锅跑跑侠<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 336#         楼主| 发表于 2023-3-23 21:13
+
+[https://twitter.com/Kouji_Tajima/status/1637870253186367488](https://twitter.com/Kouji_Tajima/status/1637870253186367488)
+
+『TRIGUN STAMPEDE』エンドカード
+<img src="https://p.sda1.dev/10/fc2156082c3b9a9394f81dfcc6ec11bd/20230323_211207.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/476d81006d2f2d6da5d4b8dcd7637566/20230323_211209.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/f8ea85f97047c91d2f426d2d06133189/20230323_211211.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/a73dd414d27454b9a1334e219ada66af/20230323_211212.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/8970ec0dea167409b5c2a0055ebe65cd/20230323_211218.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/b53e95e027e7f5e849075fd0e7d38675/20230323_211220.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/0e02ccb55672db2dbfc611f25a3e1a9d/20230323_211222.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/7e2e55777ec0e4adf20df68ae16d936c/20230323_211224.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 337#         楼主| 发表于 2023-3-25 22:33
+
+◤◢◤◢◤◢◤◢◤◢◤◢
+
+ 『#TRIGUN STAMPEDE』
+
+ シリーズ完结编製作决定
+
+◤◢◤◢◤◢◤◢◤◢◤◢
+
+"Final Phase Coming Soon!"
+
+Final PV：[https://www.youtube.com/watch?v=byx2TVl_eiY](https://www.youtube.com/watch?v=byx2TVl_eiY)
+
+*****
+
+####  kria  
+##### 338#       发表于 2023-3-25 22:35
+
+兄变了机械骨头
+
+FsEm52SakAAaAr2.jpeg
+(38.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-25 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202303/25/223513u08zuvlfp88gii2q.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  露毛Lmao  
+##### 339#       发表于 2023-3-26 01:30
+
+唯一值得看的一集
+
+
+*****
+
+####  hqtkkb  
+##### 340#       发表于 2023-3-26 11:37
+
+稍微思考了一下主角的三观，感觉好扯好自私。
+
+人类和plant的矛盾本质可以粗略得看成地主和奴隶，或者侵略者和被侵略者，这两个群体的利益天然就是相冲的，矛盾根本无法调和——就像抗日时期某个国人呼吁老百姓放弃抵抗，要相互理解——这理解个球啊。。
+
+更搞笑的是这么多年过去了男主得出的结论就是被欺负被压迫了就逃跑，不是你能跑，但你那些被压迫的同胞根本跑不了啊，合着你跑掉了至于其他同胞是死是活根本无所谓吗？果然大刘说得对啊，某些圣母才是最自私的那群人，主角根本就是把自己当成人类完全背叛了自己的族群，偏偏人类根本不欢迎他，像极了某些想润美但又不被美丽国接受的小丑，属于两边都不讨好了。
+
+与之相比哥哥的行为反而才是符合正常三观的（换句说他可能比瓦修更像人类）。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hyde_caesar  
+##### 341#       发表于 2023-3-26 13:40
+
+虽然人设很潮, 但是剧情太迷惑了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tj8m23le  
+##### 342#       发表于 2023-3-26 13:51
+
+剧情什么的随便吧 看橘子憋了一季炫技就够了
+
+*****
+
+####  saturnus  
+##### 343#       发表于 2023-3-26 14:01
+
+最后高妹子出场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  幸运e少年  
+##### 344#       发表于 2023-3-26 14:29
+
+最后一集好几把炫酷呀，期待下半段<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+*****
+
+####  米德  
+##### 345#       发表于 2023-3-26 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全篇看下来的感觉就是 好无聊
+
+
+*****
+
+####  有钱多买小人  
+##### 346#       发表于 2023-3-26 19:31
+
+这制作配这剧情……
+
+续篇难道要打地球舰队？原作舰队算是作为vash互助共存理念的肯定，机械降神了，这下哥哥没了跟谁打……
+
+
+*****
+
+####  有钱多买小人  
+##### 347#       发表于 2023-3-26 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60228087&amp;ptid=2076121" target="_blank">hqtkkb 发表于 2023-3-26 11:37</a>
+
+稍微思考了一下主角的三观，感觉好扯好自私。
+
+人类和plant的矛盾本质可以粗略得看成地主和奴隶，或者侵略 ...</blockquote>
+按原作设定来说，plant是人类发明制造的活体核电站。没意识的不用说，即使是男主这类独立种也可能发生融合暴走等事故，所以实际上不能完全离开人类。
+
+原作哥哥只是纯粹想灭绝人类，并没有准备让其他plant产生独立意志，而是准备自己领导，其他plant只要乖乖交出能量就是。
+
+而男主则是通过百年来自己的感受试图教会plant们爱与和平，让其自行决定。男主的圣母源于其寿命。自坠落以来几百年来漫步于星球上，把所有人视为自己的亲人，所以不会下杀手。
+
+所以这版最后哥哥想让plant觉醒男主却去阻止就显得观感很烂……
+
+*****
+
+####  日日夜夜  
+##### 348#       发表于 2023-3-26 19:48
+
+ 本帖最后由 日日夜夜 于 2023-3-26 19:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60228087&amp;ptid=2076121" target="_blank">hqtkkb 发表于 2023-3-26 11:37</a>
+
+稍微思考了一下主角的三观，感觉好扯好自私。
+
+人类和plant的矛盾本质可以粗略得看成地主和奴隶，或者侵略 ...</blockquote>
+plant算人造生命体，消耗生命产生能源，表现来看能源压力大或生命耗尽时会有不安情绪，但没有主角这种程度的自我意识，目前只发现兄弟二人有这个自主意识
+
+主角的成长环境还是人类“母亲”带大的，她希望主角能与人类共存
+
+主角的实际能力类比超人，远超人类
+
+主角参与了兄弟的行动，在主角的主观意识中，造成过大量星际移民舰队中人类的灾难
+
+说实话，不管是“同族”的状态，成长环境，还是个人实力，这与某些想润美但又不被美丽国接受的小丑的处境还是挺不一样的
+
+
+*****
+
+####  Niu  
+##### 349#       发表于 2023-3-26 22:06
+
+结果真是以七月事件收尾的前传。但是魔改成这样第二季要怎么演。已经扭曲的不像Trigun了。
+
+
+*****
+
+####  hqtkkb  
+##### 350#       发表于 2023-3-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60232462&amp;ptid=2076121" target="_blank">日日夜夜 发表于 2023-3-26 19:48</a>
+
+plant算人造生命体，消耗生命产生能源，表现来看能源压力大或生命耗尽时会有不安情绪，但没有主角这种程度 ...</blockquote>
+主要动画的设定有点矛盾，我记得哪一话说过plant是没有自我意识的，但设定上主角又明确有何plant沟通的能力，快结局了又加了个莫名其妙的高次元设定。。。
+
+
+*****
+
+####  oneoutsider  
+##### 351#       发表于 2023-3-26 22:59
+
+好吧最后一集观感终于好一些，起码在说着莫名其妙的台词时还能看到酷炫的打斗，枪神开枪啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前看到的消息是“TRIGUN STAMPEDE 系列完结篇制作决定”，我没看过旧动画和漫画，大概知道本片结尾接漫画原作开头，而且已经用掉一部分原作情节，所以不知道这个所谓完结篇究竟是剧场版还是一季或两季电视动画呢？
+
+
+*****
+
+####  charlespfan  
+##### 352#       发表于 2023-3-26 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234026&amp;ptid=2076121" target="_blank">oneoutsider 发表于 2023-3-26 22:59</a>
+
+好吧最后一集观感终于好一&amp;#x4 ...</blockquote>
+怎么你的情报全是废话，建议微博关注 @切南瓜皮 呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oneoutsider  
+##### 353#       发表于 2023-3-26 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234226&amp;ptid=2076121" target="_blank">charlespfan 发表于 2023-3-26 23:26</a>
+
+怎么你的情报全是废话，建议微博关注 @切南瓜皮 呢</blockquote>
+看了下博主转的官推截图也没具体说明啊，当然如果博主有独家情报那确实厉害
+
+
+*****
+
+####  charlespfan  
+##### 354#       发表于 2023-3-27 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234338&amp;ptid=2076121" target="_blank">oneoutsider 发表于 2023-3-26 23:41</a>
+
+看了下博主转的官推截图也&amp;# ...</blockquote>
+[https://m.weibo.cn/7571849538/4876992405572538](https://m.weibo.cn/7571849538/4876992405572538)
+
+这条，透露了总共24集，第2季肯定是12集呗
+
+
+*****
+
+####  Niu  
+##### 355#       发表于 2023-3-27 00:28
+
+<blockquote>hqtkkb 发表于 2023-3-26 06:25
+主要动画的设定有点矛盾，我记得哪一话说过plant是没有自我意识的，但设定上主角又明确有何plant沟通的能 ...</blockquote>
+高次元原作就有。动画最大的问题是把Vash改成了‘’不杀跟逃避‘’的废物。而不是原作的‘’只要不杀我什么都能承受‘’。
+
+
+*****
+
+####  charlespfan  
+##### 356#       发表于 2023-3-27 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234648&amp;ptid=2076121" target="_blank">Niu 发表于 2023-3-27 00:28</a>
+
+高次元原作就有。动画最大的问题是把Vash改成了‘’不杀跟逃避‘’的废物。而不是原作的‘’只要不杀我什 ...</blockquote>
+高次元有吗？我怎么不记得了？
+
+
+*****
+
+####  chdhdhd  
+##### 357#       发表于 2023-3-27 01:30
+
+逃跑的法修这个立意傻的要死，不过好歹人物造型身份都接回原作了，前篇相当于交代人物背景。如果后面12集开始忠实还原maximum，把主要名场面和大戏做好，还有一丁丁挽回机会。不过不怎么期待，毕竟最后一集打戏仍然泄气
+
+
+*****
+
+####  terminator1990  
+##### 358#       发表于 2023-3-27 08:08
+
+还有续作？还是完结篇？？那先把法修在前传里的八发.22lr小左轮换成六发.45 long Colt大左轮吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNacher  
+##### 359#       发表于 2023-3-27 09:45
+
+好久没看了结果你告诉我你用了那么多原作桥段还真是前传？
+
+*****
+
+####  UNacher  
+##### 360#       发表于 2023-3-27 09:47
+
+希望后半好好把人设修一下吧，比法修人设更让我不能接受的是雷咖特怎么变成了个瘦子
+
+
+*****
+
+####  Niu  
+##### 361#       发表于 2023-3-27 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234682&amp;ptid=2076121" target="_blank">charlespfan 发表于 2023-3-26 08:33</a>
+
+高次元原作有吗？我怎么不记得了？第几卷第几话？</blockquote>
+不是漫画本体的内容。
+
+高次元的设定内容当初公开内藤泰弘的旧blog
+
+还有まんがの森2000年9月号的访谈裏。
+
