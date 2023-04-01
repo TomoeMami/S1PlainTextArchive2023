@@ -5357,3 +5357,30 @@ Delete
 后面打怪所有行动都是这位美女给的指示，怎么就意义不明了？
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  kria  
+##### 434#       发表于 2023-3-28 20:57
+
+右图传出宣动画化爱情片，转天出了小说销量67万
+
+百合不成功
+
+重组世界不来
+
+<img src="https://img.saraba1st.com/forum/202303/28/205655ly9079tz7tlusj70.jpg" referrerpolicy="no-referrer">
+
+<strong>5236e6ca2efad36c4680e94e284817efe3a4b7c0eb4bb38df9b35f1512ef9f3c (1).jpg</strong> (345.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-28 20:56 上传
+
+
+*****
+
+####  ardito  
+##### 435#       发表于 2023-3-29 07:53
+
+啥时候能动啊，感觉也差不多了吧，要是能跟暗影二期撞个阿尔法那还挺乐的，这边可烧多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
