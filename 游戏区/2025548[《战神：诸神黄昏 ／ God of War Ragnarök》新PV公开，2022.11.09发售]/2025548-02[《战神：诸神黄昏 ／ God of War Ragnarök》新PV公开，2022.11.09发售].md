@@ -208,3 +208,36 @@ https://youtu.be/5rkLhFU4X4s
 
 白金了，后面直接最低难度收集了，就算是最低难度一样被狂战士国王和女武神王打成狗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
 
+*****
+
+####  医生狼多  
+##### 1975#       发表于 2023-3-30 15:24
+
+迅哥又开始猜谜，应该是newgame＋要来了？<img src="https://p.sda1.dev/10/eab9d77747d3b2c8527d509bc3462557/IMG_20230330_151803_664.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 1976#       发表于 2023-3-30 15:30
+
+  来点NG+新装备
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  医生狼多  
+##### 1977#       发表于 2023-3-30 15:39
+
+202*45，应该是4月5号
+
+image.png
+(848 Bytes, 下载次数: 0)
+
+下载附件
+
+2023-3-30 15:38 上传
+
+<img src="https://img.saraba1st.com/forum/202303/30/153841zb6zuju4bzg67ual.png" referrerpolicy="no-referrer">
+
