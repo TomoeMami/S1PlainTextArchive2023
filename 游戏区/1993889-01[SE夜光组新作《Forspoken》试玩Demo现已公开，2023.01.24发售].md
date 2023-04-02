@@ -5966,3 +5966,72 @@ RPG届庞氏骗局第一人</blockquote>
 <img src="https://p.sda1.dev/10/ade9eac7361f40e8c933a5e9befd87f4/20230308_145621.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/34745509ecda186618087f8087d9e1a1/20230308_145623.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 604#         楼主| 发表于 2023-3-29 21:04
+
+DLC：Forspoken: In Tanta We Trust 5月26日推出
+<img src="https://p.sda1.dev/10/d0b560a090bdbe0ed2a49ab66787e630/20230329_210340.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 605#       发表于 2023-3-30 09:04
+
+还dlc?
+
+
+*****
+
+####  啊哈  
+##### 606#       发表于 2023-3-30 10:41
+
+这dlc封面看着就不想玩啊
+
+
+*****
+
+####  唯_change  
+##### 607#       发表于 2023-3-30 10:56
+
+这DLC估计早就做好了，SE也没想到夜光引擎和夜光组这么垃圾造成暴死中的暴死
+
+
+*****
+
+####  三千珈蓝  
+##### 608#       发表于 2023-3-30 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60269651&amp;ptid=1993889" target="_blank"> byisme001 发表于 2023-3-30 09:04</a> 还dlc? </blockquote>
+估计早就做好了吧来自: iPhone客户端
+
+
+*****
+
+####  chikankan  
+##### 609#       发表于 2023-3-30 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59915835&amp;ptid=1993889" target="_blank">zfz4869 发表于 2023-2-28 15:34</a>
+
+等出完补丁入一个二手  试玩版还是可以一玩的</blockquote>
+舒服 那我也蹲一下二手
+
+
+*****
+
+####  小米稀饭-  
+##### 610#       发表于 2023-3-30 21:38
+
+未来黎明dlc都能腰斩了，这个黑妹dlc居然能继续出<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 611#       发表于 2023-3-30 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60279177&amp;ptid=1993889" target="_blank">小米稀饭- 发表于 2023-3-30 21:38</a>
+未来黎明dlc都能腰斩了，这个黑妹dlc居然能继续出</blockquote>
+一个是还没做，一个是做完了，当然不一样
+
