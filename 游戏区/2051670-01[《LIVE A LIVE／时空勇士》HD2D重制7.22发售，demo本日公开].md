@@ -4285,3 +4285,109 @@ ed真不错，七位主角在朝阳下奔跑，在七个人的蒙太奇中，流
 
 另外首发特典是什么啊，我看了一家特典版就贵五块
 
+*****
+
+####  h122h  
+##### 413#       发表于 2023-3-30 17:19
+
+ 本帖最后由 h122h 于 2023-3-30 17:22 编辑 
+
+要登陆PS4,PS5和steam了，还搞了个第二版典藏版。SE真的想把IP榨干。[https://store.jp.square-enix.com/sp/livealive_ce2/index.html](https://store.jp.square-enix.com/sp/livealive_ce2/index.html)
+
+
+*****
+
+####  赤魔法师  
+##### 414#       发表于 2023-3-30 17:26
+
+PV开场剧透
+
+
+*****
+
+####  hentianwuya  
+##### 415#       发表于 2023-3-30 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60276348&amp;ptid=2051670" target="_blank">h122h 发表于 2023-3-30 17:19</a>
+
+要登陆PS4,PS5和steam了，还搞了个第二版典藏版。SE真的想把IP榨干。https://store.jp.square-enix.com/sp/ ...</blockquote>
+真就和微软脱钩了？草泥马啊，松田洋佑。
+
+我等着上XGP呢，连NS版都没玩。
+
+
+*****
+
+####  hentianwuya  
+##### 416#       发表于 2023-3-30 19:13
+
+而且上STEAM是379全价，又要被喷爆了，**SE。
+
+
+*****
+
+####  clstc  
+##### 417#       发表于 2023-3-30 19:25
+
+在psn美服预购了，白金支持下，se的steam策略一直是睿智操作
+
+
+*****
+
+####  空洞骑士  
+##### 418#       发表于 2023-3-30 22:39
+
+steam是不是还没有商店页面？国区价格应该还没出吧?真要比NS港版原价（350）贵也太睿智了，更别提NS版都已经史地7折了。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hentianwuya  
+##### 419#       发表于 2023-3-30 22:53
+
+日区7480日元，问题是SE的国服和日服一般是就是按汇率换算的，不过它好像在PS上是落地8折，不知道STEAM会有活动没。
+
+*****
+
+####  超赛锡纸烫  
+##### 420#       发表于 2023-3-30 23:00
+
+这个预购能参加psn港服的微信支付减免活动吗
+
+
+*****
+
+####  clstc  
+##### 421#       发表于 2023-3-30 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60279969&amp;ptid=2051670" target="_blank">超赛锡纸烫 发表于 2023-3-30 23:00</a>
+
+这个预购能参加psn港服的微信支付减免活动吗</blockquote>
+300-15是支付活动，就是个95折，应该不区分预不预购的，不过这个算下来还是么有某宝卖点卡划算
+
+
+*****
+
+####  subateur  
+##### 422#       发表于 2023-3-31 00:48
+
+steam国区298，预购8折238，比三角战略的定价友好多了
+
+
+*****
+
+####  byisme001  
+##### 423#       发表于 2023-3-31 09:21
+
+ps版没实体盘是吗
+
+
+*****
+
+####  医生狼多  
+##### 424#       发表于 2023-3-31 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60280925&amp;ptid=2051670" target="_blank">subateur 发表于 2023-3-31 00:48</a>
+steam国区298，预购8折238，比三角战略的定价友好多了</blockquote>
+照样被骂贵，还看到过说“怎么比ns定价还贵，卡带只要100多就行”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
