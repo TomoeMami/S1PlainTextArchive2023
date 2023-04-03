@@ -974,3 +974,21 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  MEKA  
+##### 307#       发表于 2023-3-31 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">广播组好像要实装了
+
+
+*****
+
+####  小五的拖鞋  
+##### 308#         楼主| 发表于 2023-3-31 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60289938&amp;ptid=2101146" target="_blank">MEKA 发表于 2023-3-31 20:41</a>
+
+广播组好像要实装了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">那是好事啊，抽抽抽
+
