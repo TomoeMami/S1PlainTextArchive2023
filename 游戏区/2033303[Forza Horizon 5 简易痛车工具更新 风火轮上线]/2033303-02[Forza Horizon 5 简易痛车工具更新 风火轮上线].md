@@ -250,3 +250,126 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">md把拍卖场重置技能刷抽奖给修了nnd
 
+*****
+
+####  天神十三煞  
+##### 2532#         楼主| 发表于 2023-3-30 06:31
+
+更新了
+
+18g
+
+
+*****
+
+####  叉加叉  
+##### 2533#       发表于 2023-3-30 19:47
+
+借楼问下，看steam现在在打折，买哪个版本比较好啊来自: iPhone客户端
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 2534#       发表于 2023-3-30 20:02
+
+我真是操了pg的吗不想做本地化可以不做，物理不改虚空领航员放我这都不是问题但中文路书直接空放我是真绷不住了，操**
+
+
+*****
+
+####  县警  
+##### 2535#       发表于 2023-3-30 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60278115&amp;ptid=2033303" target="_blank">爱护动物抓根宝 发表于 2023-3-30 20:02</a>
+我真是操了pg的吗不想做本地化可以不做，物理不改虚空领航员放我这都不是问题但中文路书直接空放我是真绷不 ...</blockquote>
+繁中路书语音好像是有的
+
+—— 来自 samsung SM-S901E, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  天神十三煞  
+##### 2536#         楼主| 发表于 2023-3-30 22:13
+
+我都直接英文英语的
+
+不然有些翻译根本就错的
+
+日活周活那些目标
+
+都找不到头猪
+
+*****
+
+####  Y.Cassano  
+##### 2537#       发表于 2023-3-30 22:15
+
+路书语音bug我已经见怪不怪了，之前一次活动好像简中语音变成了英文，然后简中列表周常翻译错误，马拉松bug也见过几次了，都懒得吐槽PG了。另外旧版调教方案没有特殊情况不要解除，重新装回去似乎会闪退不知道修复情况如何了。
+
+*****
+
+####  君往何处  
+##### 2538#       发表于 2023-3-30 22:21
+
+我悟了，进了XGP的游戏只玩XGP版就够了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yyyxxxrrr  
+##### 2539#       发表于 2023-3-30 23:07
+
+dlss一开卡成幻灯片了
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  萱时令  
+##### 2540#       发表于 2023-3-30 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60278701&amp;ptid=2033303" target="_blank">县警 发表于 2023-3-30 20:51</a>
+繁中路书语音好像是有的
+
+—— 来自 samsung SM-S901E, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+没有，DLC表演赛我换语言打了四次，简繁都没有
+
+
+*****
+
+####  天神十三煞  
+##### 2541#         楼主| 发表于 2023-3-31 03:41
+
+ 本帖最后由 天神十三煞 于 2023-3-30 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60280021&amp;ptid=2033303" target="_blank">yyyxxxrrr 发表于 2023-3-30 07:07</a>
+
+dlss一开卡成幻灯片了
+
+—— 来自 vivo V2243A, Android 13上的 S1Next-鹅版 v2.5.2-play</blockquote>
+这游戏大力水手不太行，
+
+光照暗一点尾巴残影多，
+
+而且增加了无故跳出几率。
+
+换成防晒乳才好一点。
+
+
+*****
+
+####  920619lqy  
+##### 2542#       发表于 2023-3-31 06:17
+
+这是最后一个DLC了吧，是不是打完可以删游戏了，已经很累了
+
+
+*****
+
+####  吐梦  
+##### 2543#       发表于 2023-4-1 15:32
+
+拉力提不起劲，夜间大量霓虹灯光污染<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
