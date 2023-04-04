@@ -4109,3 +4109,1143 @@ C呆几乎全程乐子人<img src="https://static.saraba1st.com/image/smiley/fac
  下个活动送新卡吗，狗粮爆仓得不像话了</blockquote>
 下个活动是传统的XX祭无限池活动，没有新角UP。估计要到四月份的水怪活动才有新角UP和赠送
 
+*****
+
+####  blackjeo1  
+##### 44184#       发表于 2023-3-11 01:53
+
+    这超级回忆副本的怪血也太厚了吧，感觉对零氪党和微氪党极度不友好，<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 44185#       发表于 2023-3-11 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60043403&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2023-3-11 01:53</a>
+这超级回忆副本的怪血也太厚了吧，感觉对零氪党和微氪党极度不友好， ...</blockquote>
+所以拿了呼符就走吧，别给自己找不自在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44186#       发表于 2023-3-11 11:25
+
+我都没看到回忆本........活动期间还搞这些，妨碍我搬商店
+
+
+*****
+
+####  J-002  
+##### 44187#       发表于 2023-3-11 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60043403&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2023-03-11 01:53:53</a>
+这超级回忆副本的怪血也太厚了吧，感觉对零氪党和微氪党极度不友好，</blockquote>一开始没掌握好度，超级回忆直接给了10倍血，大部分爆破难度极高甚至不可能爆破
+
+后面的降低了血量，普通回忆等倍血，超级回忆3倍血就基本白给了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  苍蓝之枪  
+##### 44188#       发表于 2023-3-11 19:12
+
+已经打掉两个了......皇女就打了普通的.....
+
+
+*****
+
+####  苍蓝之枪  
+##### 44189#       发表于 2023-3-11 20:00
+
+看了下好像还是能用苟队打，不过这500W皇女要苟到天荒地老了，对面好像还有技能封印和眩晕的，怕出意外
+
+
+*****
+
+####  qixinno2  
+##### 44190#       发表于 2023-3-11 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">费半天劲就为了30个茶壶 反正谁爱打谁打
+
+
+*****
+
+####  6030sylar  
+##### 44191#       发表于 2023-3-11 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">53个回合B呆梅才打了萨列里，原来后面还有啊
+
+*****
+
+####  DET  
+##### 44192#       发表于 2023-3-11 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摩呆梅老是不注意就暴毙，看了下奖励才十个茶壶，只能说感觉不如结晶了
+
+
+*****
+
+####  khxooo  
+##### 44193#       发表于 2023-3-11 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60051119&amp;ptid=1712412" target="_blank">6030sylar 发表于 2023-3-11 20:55</a>
+
+53个回合B呆梅才打了萨列里，原来后面还有啊</blockquote>
+等等， B是指卑弥呼吗？这可是逆克制啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 44194#       发表于 2023-3-11 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60052361&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-3-11 22:38</a>
+
+等等， B是指卑弥呼吗？这可是逆克制啊</blockquote>
+当然是BB<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">逆克制要80个回合
+
+*****
+
+####  6030sylar  
+##### 44195#       发表于 2023-3-11 22:44
+
+白牛牛要36个回合，梵呆梅
+
+*****
+
+####  khxooo  
+##### 44196#       发表于 2023-3-11 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60052400&amp;ptid=1712412" target="_blank">6030sylar 发表于 2023-3-11 22:42</a>
+
+当然是BB逆克制要80个回合</blockquote>
+BB带狐狸啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azccc52  
+##### 44197#       发表于 2023-3-11 23:13
+
+已经不是能打电池队的年轻人了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 44198#       发表于 2023-3-12 00:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">龙马呆梅53回合
+
+*****
+
+####  Yason  
+##### 44199#       发表于 2023-3-12 00:06
+
+拉二梅呆24t皇女，三个里面最麻烦的还是萨老师<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真红眼教授  
+##### 44200#       发表于 2023-3-12 00:18
+
+萨老师带个宝具有强化解除的，不停的解除BUFF就行，或者打满解除效果的纹章，等他把幽灵吃完了也不难打
+
+皇女是最墨迹的，各种减攻封印无敌战续太能拖
+
+
+*****
+
+####  匿名func  
+##### 44201#       发表于 2023-3-12 07:53
+
+毕竟有睿智运营给专楼涨流量嘛
+
+
+*****
+
+####  Ousia  
+##### 44202#       发表于 2023-3-12 13:04
+
+也不是很电池嘛，黑杯摩呆梅分别29、23、27回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  J-002  
+##### 44203#       发表于 2023-3-12 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">皇女懒得磨，直接刷发牌爆破了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Kon-El  
+##### 44204#       发表于 2023-3-13 00:29
+
+皇女用卑梅呆54回合，稳是稳，就是太磨人了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  johnkamsar  
+##### 44205#       发表于 2023-3-13 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kon-El  
+##### 44206#       发表于 2023-3-13 22:27
+
+萨老师40回合<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  艾尔特翔  
+##### 44207#       发表于 2023-3-15 09:40
+
+没注意是逆克制，进都进了，卑呆梅打萨老师，用了106回合<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 44208#       发表于 2023-3-15 09:45
+
+日服这几个hp翻倍本都通过一次，国服box更厚但是我懒得坐牢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霄度天  
+##### 44209#       发表于 2023-3-15 21:02
+
+皇女刷不出发牌，摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kon-El  
+##### 44210#       发表于 2023-3-16 12:06
+
+超级小牛以为第二管血也要打，一直没碰，直到今天看了下别人的视频<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Blackson  
+##### 44211#       发表于 2023-3-16 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60106441&amp;ptid=1712412" target="_blank">Kon-El 发表于 2023-3-16 12:06</a>
+ 超级小牛以为第二管血也要打，一直没碰，直到今天看了下别人的视频  论坛助手,iPhone ...</blockquote>
+回忆本都是血量加倍其它东西不变
+
+
+*****
+
+####  AbigailWilliams  
+##### 44212#       发表于 2023-3-16 13:24
+
+终于轮到国服吃这坨锁卡高难的屎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marxel  
+##### 44213#       发表于 2023-3-16 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60107436&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2023-3-16 13:24</a>
+
+终于轮到国服吃这坨锁卡高难的屎了</blockquote>
+见专楼标题<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真红眼教授  
+##### 44214#       发表于 2023-3-16 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60107436&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2023-3-16 13:24</a>
+
+终于轮到国服吃这坨锁卡高难的屎了</blockquote>
+这可是氪金抽卡回报的好时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kon-El  
+##### 44215#       发表于 2023-3-16 19:44
+
+这次无限池高难…
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  DET  
+##### 44216#       发表于 2023-3-16 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这活动里的人物人均颠佬
+
+*****
+
+####  苍蓝之枪  
+##### 44217#       发表于 2023-3-16 20:05
+
+一看到那么多高难就心累，上次的高难和回忆我都拖到最后两天打
+
+*****
+
+####  DET  
+##### 44218#       发表于 2023-3-16 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这锁卡真的太屎了
+
+
+*****
+
+####  AbigailWilliams  
+##### 44219#       发表于 2023-3-16 23:45
+
+一期锁卡搞定，都是老高难，敌方机制都没多少，感觉这个通关率应该不低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待二期的血雨腥风
+
+
+*****
+
+####  艾尔特翔  
+##### 44220#       发表于 2023-3-17 13:58
+
+不是已经有一键10箱吗，怎么又倒退了，什么垃圾程序员，30+高难也是有毛病，放弃了
+
+
+*****
+
+####  Urakawa  
+##### 44221#       发表于 2023-3-17 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60121045&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-3-17 13:58</a>
+不是已经有一键10箱吗，怎么又倒退了，什么垃圾程序员，30+高难也是有毛病，放弃了 ...</blockquote>
+11池开始才是一键百抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉莉橙  
+##### 44222#       发表于 2023-3-17 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60121045&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-3-17 13:58</a>
+不是已经有一键10箱吗，怎么又倒退了，什么垃圾程序员，30+高难也是有毛病，放弃了 ...</blockquote>
+抽完前10箱才有一键一箱，为了精神卫生，抽到大奖直接reset比较效率
+
+
+*****
+
+####  whateveryou  
+##### 44223#       发表于 2023-3-17 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60107436&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2023-3-16 13:24</a>
+
+终于轮到国服吃这坨锁卡高难的屎了</blockquote>
+这才哪到哪儿啊，不及田司令一根
+
+
+*****
+
+####  collincollin  
+##### 44224#       发表于 2023-3-18 00:39
+
+看了下奖励，这高难打来做甚
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  电波系腑海林  
+##### 44225#       发表于 2023-3-18 00:47
+
+有对策卡能2T快速打的高难还好，其他就是纯粹的折磨以及这少得可怜的奖励……算上中间弃坑这次要亏4个结晶，摆了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  johnkamsar  
+##### 44226#       发表于 2023-3-18 02:10
+
+第一部分锁卡还算简单，第二部分锁卡才要命<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  深渊骑士  
+##### 44227#       发表于 2023-3-18 08:50
+
+材料真不缺，有护符的就打，没有的跳过。与自己和解
+
+
+*****
+
+####  苍蓝之枪  
+##### 44228#       发表于 2023-3-19 22:50
+
+想想就觉得恶心，先刷五池拿礼装再说吧.....
+
+
+*****
+
+####  花星空  
+##### 44229#       发表于 2023-3-21 09:55
+
+没劲了……每天清一下体力摆烂了……
+
+
+*****
+
+####  sevenight  
+##### 44230#       发表于 2023-3-21 10:09
+
+每天清一下体力确实爽，高难什么的，坚决不碰了，反正也不会出货....
+
+
+*****
+
+####  深渊骑士  
+##### 44231#       发表于 2023-3-21 11:29
+
+活动其实最多2个高难就是极限了 。以前因为是第一次，还可以说是自我挑战，这次直接3期全部扔出来，是有多懒。
+
+
+*****
+
+####  Kon-El  
+##### 44232#       发表于 2023-3-21 11:53
+
+几个逼高难打得吐了，不打了不打了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  alex2092  
+##### 44233#       发表于 2023-3-21 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都摆烂了啊,其他游戏多的要命,连上b站抄作业都不想抄了,找看片的机会刷刷无限池已经是够给面子了
+
+
+*****
+
+####  花星空  
+##### 44234#       发表于 2023-3-21 17:05
+
+最近打红烧天堂上头，麻蛋，都是GAL公司做的手游，这FGO也能算是游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marxel  
+##### 44235#       发表于 2023-3-21 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60169303&amp;ptid=1712412" target="_blank">花星空 发表于 2023-3-21 17:05</a>
+
+最近打红烧天堂上头，麻蛋，都是GAL公司做的手游，这FGO也能算是游戏</blockquote>
+你这就不客观了，红烧天堂的游戏性来自飞机社（Wright Flyer Studios），麻子就出个脚本罢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44236#       发表于 2023-3-21 21:43
+
+什么玩意，作业根本不好抄......
+
+
+*****
+
+####  苍蓝之枪  
+##### 44237#       发表于 2023-3-21 21:57
+
+狂那开局三红根本刷不出来，吐了
+
+*****
+
+####  blackjeo1  
+##### 44238#       发表于 2023-3-21 22:03
+
+    B站上面那些作业看了一下大部分都要求高宝，要不就是卑呆梅慢慢耗，打个毛线<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 44239#       发表于 2023-3-21 22:17
+
+国服all in几张强力打手的环境，找几个有五宝狂光炮的好友自出拐感觉不难啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44240#       发表于 2023-3-21 23:34
+
+要么伤害差那么点，要么需要送嘲讽的高练度反而送不掉.....
+
+
+*****
+
+####  J-002  
+##### 44241#       发表于 2023-3-21 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60172833&amp;ptid=1712412" target="_blank">blackjeo1 发表于 2023-3-21 22:03</a>
+
+B站上面那些作业看了一下大部分都要求高宝，要不就是卑呆梅慢慢耗，打个毛线 ...</blockquote>
+你找这个ID：在下阿迪有何贵干
+
+大半都是百级1宝狂阿周那就能解决，剩下个别的也不难借
+
+
+*****
+
+####  苍蓝之枪  
+##### 44242#       发表于 2023-3-22 20:42
+
+龙娘本怎么打不过去了，我记得当初不是上一堆拐扶就行了
+
+*****
+
+####  angelooo  
+##### 44243#       发表于 2023-3-22 20:47
+
+<blockquote>苍蓝之枪 发表于 2023-3-22 20:42
+龙娘本怎么打不过去了，我记得当初不是上一堆拐扶就行了</blockquote>
+恶性bug，倍卡没有生效，已经在修了，程序员直接做出了fgo史上最难的高难，现在抢在修复前通关的是真正的勇者23333
+
+*****
+
+####  苍蓝之枪  
+##### 44244#       发表于 2023-3-22 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60185640&amp;ptid=1712412" target="_blank">angelooo 发表于 2023-3-22 20:47</a>
+
+恶性bug，倍卡没有生效，已经在修了，程序员直接做出了fgo史上最难的高难，现在抢在修复前通关的是真正的 ...</blockquote>
+我还硬打到四天王....这也未免......
+
+
+*****
+
+####  AbigailWilliams  
+##### 44245#       发表于 2023-3-22 20:55
+
+我就玩到关底了，怪不得伤害不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44246#       发表于 2023-3-22 20:58
+
+居然还能到关底的吗，这四天王的大眼根本处理不掉
+
+
+*****
+
+####  苍蓝之枪  
+##### 44247#       发表于 2023-3-22 21:01
+
+等一下，鬼魂不靠宝具打不出伤害也是bug?
+
+*****
+
+####  伊芙琳  
+##### 44248#       发表于 2023-3-22 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡B站，浪费我1个小时打龙娘高难，还没打过。有这时间干点啥不好
+
+
+*****
+
+####  qixinno2  
+##### 44249#       发表于 2023-3-22 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我是懒B 还没上线就看到帖子说有BUG
+
+*****
+
+####  6030sylar  
+##### 44250#       发表于 2023-3-22 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来是bug……浪费我两小时
+
+
+*****
+
+####  霄度天  
+##### 44251#       发表于 2023-3-23 16:25
+
+高难太多了，而且还锁船，我想和自己和解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  艾尔特翔  
+##### 44252#       发表于 2023-3-23 17:25
+
+还好我没打高难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44253#       发表于 2023-3-23 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">锁角色的不打不就得了 无非一点垃圾材料和两个结晶
+
+
+*****
+
+####  苍蓝之枪  
+##### 44254#       发表于 2023-3-23 20:11
+
+寻找高配武藏
+
+
+*****
+
+####  blackjeo1  
+##### 44255#       发表于 2023-3-23 22:24
+
+   哈哈哈，好在我放弃得早没有被BUG耍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朝仓和美  
+##### 44256#       发表于 2023-3-24 00:30
+
+md，我当年怎么打的示巴女王？
+
+
+*****
+
+####  Ousia  
+##### 44257#       发表于 2023-3-25 15:58
+
+<img src="https://img.saraba1st.com/forum/202303/25/155629fed6vy75umdu3533.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0067405E-8EBD-4C70-A9D4-E78433E94022.jpeg</strong> (582.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-25 15:56 上传
+
+就是要玩苟队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44258#       发表于 2023-3-26 00:50
+
+打掉了第一批锁卡高难，第二批更加头痛
+
+*****
+
+####  lixkang  
+##### 44259#       发表于 2023-3-26 04:00
+
+第2批锁卡我居然一晚打完了，算下来比第一批锁卡耗时少，看了下主要是其中几关可以抄作业刷发卡过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+第2关回家前都算特异点可以项羽单挑，第3关打XX可以用机械龙娘加舞娘、弓南丁、爱徒生3T过，基本0消耗拐，不过我刷发牌刷了差不多1小时；第4关打真实的爱用帕西瓦尔加几个小蓝拐冲浪一次过了，自带回血和无敌贯通比较简单。第5关打柴田抄别人，改了个水虞姬+CBA+孔明+原版BBA的攻略，刷下发牌也是3T过了。剩下就是第一关和和第5关黄泉之子难点了。我第一关没三丈，用术酒吞+孔明体系，最后直接1石头续关过了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hyx272  
+##### 44260#       发表于 2023-3-26 08:18
+
+1，政哥哥单挑
+2，贞德单挑
+4，小恩单挑
+5，妖高单挑
+几个单挑打完剩下的就舒服多了
+
+*****
+
+####  风行骓  
+##### 44261#       发表于 2023-3-26 10:40
+
+1梅林单挑（始皇帝也行）
+2尺贞德单挑（1宝项羽也行）
+3梵高单挑
+4恩都奇单挑
+5妖高单挑
+6水虞姬+CBA+孔明+水BB锁卡。这关貌似用梵高也可以单挑？
+最后舞台斗技靠蓝光炮冲浪，试了下我的百级3宝宇宙凛完全够用。
+
+狂娜杀狐陈宫等红卡爆破队全程待机结果没上过。
+全程只有妖高单挑时因失误用过1发令咒回血。
+
+几次翻车重打基本都是因为2个副手位置上了满练度的低星卡没能及时送掉拖慢了节奏。建议单挑前老老实实去友情池抽几张1级卡，开打后早点送掉才是正途。
+
+
+*****
+
+####  真幻魔  
+##### 44262#       发表于 2023-3-26 13:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这龙娘关卡打到我想摔手机，是bug还没修复？
+
+
+*****
+
+####  AbigailWilliams  
+##### 44263#       发表于 2023-3-26 14:37
+
+不至于吧，bug修了，确实脚打
+
+
+*****
+
+####  khxooo  
+##### 44264#       发表于 2023-3-26 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60229028&amp;ptid=1712412" target="_blank">真幻魔 发表于 2023-3-26 13:37</a>
+这龙娘关卡打到我想摔手机，是bug还没修复？</blockquote>
+修了，如果没修隔壁早就带节奏了。
+
+
+*****
+
+####  苍蓝之枪  
+##### 44265#       发表于 2023-3-26 18:32
+
+全打完了，重试次数最多的是小太郎......一开始想爆破，结果一看要求有点高，又是开局发牌又是高宝三藏
+
+
+*****
+
+####  J-002  
+##### 44266#       发表于 2023-3-26 23:05
+
+<img src="https://img.saraba1st.com/forum/202303/26/230529xusa2jjd39isss7s.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230326230405.jpg</strong> (406.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-26 23:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">总算都打完了……共计125场高难……
+
+
+*****
+
+####  苍蓝之枪  
+##### 44267#       发表于 2023-3-27 00:20
+
+我也不知道为什么yls给二期开头就放小太郎那个，给我一种后面会更难的感觉.......实际上可能这个才是最难的
+
+
+*****
+
+####  J-002  
+##### 44268#       发表于 2023-3-27 02:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60234598&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-3-27 00:20</a>
+
+我也不知道为什么yls给二期开头就放小太郎那个，给我一种后面会更难的感觉.......实际上可能这个才是最难的 ...</blockquote>
+爆破确实难，毕竟C阶输出不足，但耐久就一点难度都没有了，甚至可以让梅林单挑
+
+
+*****
+
+####  gearbox  
+##### 44269#       发表于 2023-3-27 07:21
+
+磨了周日一天把二期锁船高难清完了，抄的削人棍的推荐或者变体，也就帕西瓦尔单挑换成了3星神祖拖了一堆嘲讽链，也就最后那个男团随便打了。
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  qigeer  
+##### 44270#       发表于 2023-3-27 11:05
+
+妖高单挑绘里濑的那关试了好久都被连续暴击，最后直接上了6个克制xjb打过去的
+
+
+*****
+
+####  6030sylar  
+##### 44271#       发表于 2023-3-27 11:55
+
+ 本帖最后由 6030sylar 于 2023-3-27 11:56 编辑 
+
+<img src="http://s1.ax1x.com/2023/03/27/pps6w4A.png" referrerpolicy="no-referrer">
+<img src="http://s1.ax1x.com/2023/03/27/pps6rgP.png" referrerpolicy="no-referrer">
+
+终于通了，小次郎和不邢那两关真的折磨，后面那些单挑的反而没什么
+
+浪费一个周末
+
+
+*****
+
+####  DarthAka  
+##### 44272#       发表于 2023-3-30 02:30
+
+印象最深刻的反倒是倒腾纹章，上次正经用这东西还是给C狐装上打玩赏之兽……具体关卡反倒是后几关敌方血少，XX毛、俄里翁都是被XJB换血换死的
+
+
+*****
+
+####  麻花疼  
+##### 44273#       发表于 2023-3-30 08:02
+
+高难全打完，刷了100池。
+
+仔细一想根本没啥缺少的材料。。。我刷它又有何用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有演技  
+##### 44274#       发表于 2023-3-30 08:52
+
+锁船实在恶心。能单挑但是翻车点也很多，基本都要重开一遍，要么令咒补血。
+
+最后捡留下的三个本，红绿蓝爆破甚是出气
+
+
+*****
+
+####  whateveryou  
+##### 44275#       发表于 2023-3-30 09:06
+
+削人棍视频三小时，死亡冲锋真没心情看，还不如直接翻B站那些组合视频。
+
+1、棱镜白贞+棱镜C子+随便一个术单体，苟就完事了，小次郎宝具回合开白贞宝具无敌，下回合C子宝具解弱体。
+
+2、打好回血和八叶之镜的尺光炮单挑。
+
+3、同上条件的AE单挑。
+
+4、同上条件的男性枪光炮单挑。
+
+5、狂那陈宫爆破，狂那红卡打满20%及以上的暴击纹章。（这个应该是最难的，低配作业抄不动，太看脸不如爆破）
+
+6、绿卡单体3T爆破（考虑到CBA到这应该还没有）。
+
+7、武藏冲浪，开局花嫁上BUFF，常伴两拐是棱镜C呆和C狐。
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 44276#       发表于 2023-3-30 11:43
+
+高难放弃了，摆烂真舒坦<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 44277#       发表于 2023-3-30 12:06
+
+锁船懒得打，没抽卡资源打他做甚。我选择保护我的时间和血压。<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DET  
+##### 44278#       发表于 2023-3-30 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太摸了，这活动商店都没搬完，高难只要我不打就不存在
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Urakawa  
+##### 44279#       发表于 2023-3-30 14:46
+
+刷了130池，复刻高难都没打完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44280#       发表于 2023-3-30 15:18
+
+简单刷了20~30池，高难一个没打，包括本次的高难，摆烂一时爽，一直摆烂一直爽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  深渊骑士  
+##### 44281#       发表于 2023-3-30 15:38
+
+上礼拜有一天打高难打了几关，用了2小时。后来觉得我为什么要浪费这么时间来折磨自己呢？打开生化4跟卧龙爽一下不好吗？于是我就这么做了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  待宵  
+##### 44282#       发表于 2023-3-30 15:59
+
+为了升狂那技能缺狂之秘石刷到53池，顺便也发现了狂娜比摩根好在哪里
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 44283#       发表于 2023-3-30 16:51
+
+<img src="https://img.saraba1st.com/forum/202303/30/160134anwwwpykj5jn5zn1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-30 16:01 上传
+
+整个活儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  饭太稀  
+##### 44284#       发表于 2023-3-30 18:28
+
+昨晚连夜清高难，大号之前有打了一部分，昨晚清完了，小号没呼符的不打，有护符的剩了5个，打是打得了，就是没法爆破要打长线，实在顶不住，屁股都坐麻了。今天困得要死，而且都是抄作业，实在也没什么成就感，很后悔<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kon-El  
+##### 44285#       发表于 2023-3-30 21:44
+
+超级回忆本还得是卑梅呆膀胱队<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Ousia  
+##### 44286#       发表于 2023-3-30 22:12
+
+苏鲁特真恶心，看宝具数加倍<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有演技  
+##### 44287#       发表于 2023-3-30 22:26
+
+221池，高难全清
+
+qp已满，技能素材不够，揪心
+
+
+*****
+
+####  gearbox  
+##### 44288#       发表于 2023-3-31 07:21
+
+40池没掉礼装，算是第一次无限池礼装没满破，不知道回头会不会复刻了
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kyonkoism  
+##### 44289#       发表于 2023-3-31 08:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎嘿，我高难一个没打，好爽哦
+
+
+*****
+
+####  MMIno  
+##### 44290#       发表于 2023-3-31 09:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎嘿，我高难一个没打，好爽哦
+
+
+*****
+
+####  sevenight  
+##### 44291#       发表于 2023-3-31 10:36
+
+哎嘿，我高难一个没打，好爽哦
+
+
+*****
+
+####  Blackson  
+##### 44292#       发表于 2023-3-31 11:15
+
+我除了大部分锁船高难（唯有老福和柴田我打了，因为奖励的材料我很缺）、龙娘冒险、美分租凭没打外，其它都打了
+主要是没时间磨，只打了能爆破的关卡
+
+
+*****
+
+####  shimotsuki14  
+##### 44293#       发表于 2023-3-31 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60274777&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-3-30 15:18</a>
+简单刷了20~30池，高难一个没打，包括本次的高难，摆烂一时爽，一直摆烂一直爽 ...</blockquote>
+我这次象征性扔了点石头，没出五星礼装
+为了搬商店刷了十几池，剩了棋子没拿
+旧的高难一个没打
+就打了个三血条特斯拉带两个双血条闪的那个，三回合
+
+不用费神太好了
+
+
+*****
+
+####  艾尔特翔  
+##### 44294#       发表于 2023-3-31 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60287476&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2023-3-31 17:07</a>
+
+我这次象征性扔了点石头，没出五星礼装
+
+为了搬商店刷了十几池，剩了棋子没拿
+
+旧的高难一个没打</blockquote>
+我连特斯拉+双闪都没打，哈哈
+
+
+*****
+
+####  shimotsuki14  
+##### 44295#       发表于 2023-3-31 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60287582&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-3-31 17:14</a>
+我连特斯拉+双闪都没打，哈哈</blockquote>
+抄了个作业用65级陈宫就可以三回合，看到这个觉得挺亲民，就搞了一下，要不我也不想搞<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44296#       发表于 2023-3-31 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60287666&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2023-3-31 17:21</a>
+
+抄了个作业用65级陈宫就可以三回合，看到这个觉得挺亲民，就搞了一下，要不我也不想搞 ...</blockquote>
+作业我看了，而且都能组的出，但是我就是不想打了，估计是真的乏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimotsuki14  
+##### 44297#       发表于 2023-3-31 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60287843&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-3-31 17:37</a>
+作业我看了，而且都能组的出，但是我就是不想打了，估计是真的乏了 ...</blockquote>
+我每天搞两次无脑清体力也觉得有些疲劳了<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+体力溢出也无所谓了
+
+
+*****
+
+####  blackjeo1  
+##### 44298#       发表于 2023-3-31 21:24
+
+   这2.2的超级回忆本真是被气笑了，每个瓦尔基里150W+血就算了，呆毛被上集中后一回合被逆克制送走也是牛逼
+
+
+*****
+
+####  Blackson  
+##### 44299#       发表于 2023-4-1 09:54
+
+苏鲁特的三次强化无效太要命了
+
+
+*****
+
+####  shimotsuki14  
+##### 44300#       发表于 2023-4-1 10:50
+
+礼物箱里的10个石头怎么备注是test啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44301#       发表于 2023-4-1 10:58
+
+不是三次强化无效，是三回合，三次还能想办法顶掉呢.....
+
+我也就差这个还没打，看到有爆破作业的但是要求有点高又是满破黑杯又是刷牌暴击还要打纹章
+
+
+*****
+
+####  DET  
+##### 44302#       发表于 2023-4-1 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60294688&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2023-4-1 10:50</a>
+
+礼物箱里的10个石头怎么备注是test啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看官号
+
+
+*****
+
+####  DET  
+##### 44303#       发表于 2023-4-1 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来今天的愚人节卡面是国服特供了，看了这么多没看到巴姐的，求个巴姐的愚人节卡面
+
+
+*****
+
+####  电波系腑海林  
+##### 44304#       发表于 2023-4-1 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60295295&amp;ptid=1712412" target="_blank">DET 发表于 2023-4-1 12:18</a>
+原来今天的愚人节卡面是国服特供了，看了这么多没看到巴姐的，求个巴姐的愚人节卡面 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202304/01/132446vt51c0jnf3c0321l.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230401_132435.jpg</strong> (472.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-1 13:24 上传
+
+here
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kon-El  
+##### 44305#       发表于 2023-4-1 14:29
+
+超级苏鲁特47回合打过了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
