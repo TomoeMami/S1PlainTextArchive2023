@@ -791,3 +791,112 @@ cg虽然也是老女人了，但人有个好干爹啊，生的“女儿”又有
 <img src="https://p.sda1.dev/10/ac4d884ba7fb6b1848eba4521253aa4a/CMP_20230325171933679.jpg" referrerpolicy="no-referrer">
 雪步的活动异色服还是要稍微努力一下的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7127#       发表于 2023-3-29 14:40
+
+fes池来力，有白嫖10连，各位可以上线了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+第一天10连，寄<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 7128#       发表于 2023-3-29 22:01
+
+第一天寄<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  supergilaboy  
+##### 7129#       发表于 2023-3-29 22:38
+
+还是说下，双蛋黄但全歪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7130#       发表于 2023-3-30 19:34
+
+你游还真来新人了，最近几天老是有新号加我好友，之前几乎都没有过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7131#       发表于 2023-4-1 21:26
+
+新衣服不错，就该多来些，别每次都搞些花里胡哨的
+
+
+*****
+
+####  しろの舞  
+##### 7132#       发表于 2023-4-1 21:51
+
+偶像英雄百万女都给初期出演新曲了星战就没有，呵呵
+
+
+*****
+
+####  花开安菲路  
+##### 7133#       发表于 2023-4-1 23:19
+
+得，白嫖50连0ssr<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7134#       发表于 2023-4-1 23:41
+
+110抽一个fes没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/cc38200fac5c260d6ff7502849a74368/CMP_20230401234013035.jpg" referrerpolicy="no-referrer">
+歪到了一张我很喜欢的艾米莉常驻ssr<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/ee7b14ca90ba069d40f2ee26900fffe3/CMP_20230401234040404.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 7135#       发表于 2023-4-1 23:47
+
+它到时候那个联动卡池该不会还要绝版的吧？
+
+
+*****
+
+####  花开安菲路  
+##### 7136#       发表于 2023-4-2 15:27
+
+发型池20连出了hibiki常服发型，她之前的发型卡我已经有了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+想要志保，但是就剩2w石了，杏奈常服发色两个池子都还没出呢<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7137#       发表于 2023-4-2 16:03
+
+这是什么倒霉日子，我升个技能，70%+的成功率，连续失败7、8次<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+已经没SSR和SR券了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7138#       发表于 2023-4-2 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60305780&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-4-2 16:03</a>
+
+这是什么倒霉日子，我升个技能，70%+的成功率，连续失败7、8次
+
+已经没SSR和SR券了 ...</blockquote>
+用高级材料最好还是拉满，低级材料就随便了，最多损失点金币
+
+几率这种东西不好说的，好像出现过99+显示为100的bug，这都能失败的
+
