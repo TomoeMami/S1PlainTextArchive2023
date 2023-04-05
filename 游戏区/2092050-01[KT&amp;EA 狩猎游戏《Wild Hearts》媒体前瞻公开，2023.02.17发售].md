@@ -6502,3 +6502,12 @@ xsx版，拖拖拉拉的今天才过了天照守剧情，强怪物也只打过�
 
 優化CPU效能＝移除D加密<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Booorunestud  
+##### 681#       发表于 2023-4-3 02:00
+
+[【[狂野之心]你绝对没有见过的天弦工艺！-哔哩哔哩】 https://b23.tv/GxmgYHW](https://b23.tv/GxmgYHW)
+
+真的是天才游戏
+
