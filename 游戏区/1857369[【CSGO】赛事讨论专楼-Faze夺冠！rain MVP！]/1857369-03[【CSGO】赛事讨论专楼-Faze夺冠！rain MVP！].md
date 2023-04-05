@@ -1476,3 +1476,173 @@ RA小镇有东西的，ENCE都BAN不和他们打<img src="https://static.saraba1
 a队打成这样居然赢了，我都不知道说啥好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 救救老汤
 
+*****
+
+####  zpl123  
+##### 3267#       发表于 2023-3-23 00:32
+
+Valve正式官宣《反恐精英2》将于2023年夏季推出 ​​​
+
+
+*****
+
+####  saintsimpler  
+##### 3268#       发表于 2023-3-23 00:59
+
+g2太狂了，什么b选图
+
+
+*****
+
+####  andychen  
+##### 3269#       发表于 2023-3-23 01:17
+
+巴黎Major看来就是最后的CSGO Major了
+一个时代的结束
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dev2ce  
+##### 3270#       发表于 2023-3-23 01:37
+
+居然来真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  l⑨th_Knight  
+##### 3271#       发表于 2023-3-23 04:32
+
+CS2的第一个major能来中国吗，完美给点力啊，最有希望的一次了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Ik4ruga  
+##### 3272#       发表于 2023-3-24 00:22
+
+明天大行动
+后天起源2
+下一个箱子出刀
+我能反杀对面
+
+三大错觉有两个成真了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  缺德猫  
+##### 3273#       发表于 2023-3-24 04:22
+
+我记得早些年泄露的CSGO 2.0画面是写实风啊，怎么这么卡通？
+
+
+*****
+
+####  NEIN  
+##### 3274#       发表于 2023-3-25 09:25
+
+巴黎major真成最后一届csgomajor了……
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zpl123  
+##### 3275#       发表于 2023-3-25 10:21
+
+谢幕演出！Valve宣布巴黎Major将成为CSGO中举办的最后一届Major，而CS2的第一届Major将在2024年3月举行。考虑到CS2在今年夏季上线后需要大量的测试以及职业化场景的过渡，原定于今年11月份的Major取消。虽然此前有传闻完美世界将举办下半年的Major不会实现，但可以期待的是明年首届CS2 Major能来到中国，前提是CS2国服能够同步上线。
+
+*****
+
+####  绯影汐岚  
+##### 3276#       发表于 2023-3-25 13:14
+
+取消major没道理啊，也没见DOTA2引擎升级取消TI啊
+
+*****
+
+####  朔方原的星  
+##### 3277#         楼主| 发表于 2023-3-25 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60219076&amp;ptid=1857369" target="_blank">绯影汐岚 发表于 2023-3-25 13:14</a>
+取消major没道理啊，也没见DOTA2引擎升级取消TI啊</blockquote>
+我觉得这属于证实了我的推测，cs2会做为独立的新游戏运营
+
+*****
+
+####  zpl123  
+##### 3278#       发表于 2023-3-26 06:58
+
+这决赛又是经典faze打c9了
+
+
+*****
+
+####  周藤信彦  
+##### 3279#       发表于 2023-3-27 03:23
+
+faze upup！
+
+*****
+
+####  keleemo123  
+##### 3280#       发表于 2023-3-27 03:34
+
+ooooooooooooooooooooooooooooooooooooooooooooooooooooooooo！！！！！！！！！FAZE！！！！！！
+
+*****
+
+####  我是小卯  
+##### 3281#       发表于 2023-3-27 04:16
+
+牛比啊，恭喜了！
+
+*****
+
+####  Rainwedell  
+##### 3282#       发表于 2023-3-27 04:29
+
+这csgo时期应该是唯一一个双满贯荣誉了，毕竟夏天版本换了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zpl123  
+##### 3283#       发表于 2023-3-28 16:48
+
+[cp]PGL将在哥本哈根举办第一届CS2 Major锦标赛  比赛将于2024年3月17日至31日在丹麦🇩🇰首都哥本哈根举行，哥本哈根Major将是BLAST巴黎Major后举办的第一次Major。Valve上周五透露，2023年将不会有第二次Major，但尽管如此，比赛的奖池将保持自PGL Major Antwerp以来的不变的125万美元。  #CSGO[超话]##vkgame#[/cp]
+
+
+*****
+
+####  zpl123  
+##### 3284#       发表于 2023-3-30 23:23
+
+牛的RA<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ik4ruga  
+##### 3285#       发表于 2023-3-31 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60219076&amp;ptid=1857369" target="_blank">绯影汐岚 发表于 2023-3-25 13:14</a>
+ 取消major没道理啊，也没见DOTA2引擎升级取消TI啊</blockquote>
+csgo升级引擎的同时还做了更多底层改动
+dota2用起源2的时候就一个想法载入好快
+
+
+*****
+
+####  heseran  
+##### 3286#       发表于 2023-4-2 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">打了一把强度局，就差10分上铂金，结果赛点局停电了，平局了，草草草草草，我对不起我的队友。
+

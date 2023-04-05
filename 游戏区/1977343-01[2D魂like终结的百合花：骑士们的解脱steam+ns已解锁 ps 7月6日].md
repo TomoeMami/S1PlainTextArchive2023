@@ -63,3 +63,28 @@ Illus.Ayumi Yamada (Concept Artist/Cutscene Artist)
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  baizhi  
+##### 638#       发表于 2023-4-1 05:06
+
+能不能一个档完成白金阿？游戏意外的不错
+
+*****
+
+####  darkfall  
+##### 639#       发表于 2023-4-1 05:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60293547&amp;ptid=1977343" target="_blank">baizhi 发表于 2023-4-1 05:06</a>
+
+能不能一个档完成白金阿？游戏意外的不错</blockquote>
+能，只有3结局奖杯需要重打Boss，看完结局读档会回到Boss前继续
+
+
+*****
+
+####  baizhi  
+##### 640#       发表于 2023-4-2 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">周末20小时打完，真不错，内容意外的多，如果boss招式设计多一点就更好了。
+
