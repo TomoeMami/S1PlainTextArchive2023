@@ -1836,3 +1836,463 @@ D3P出的御姐武戏起源也有这个问题，分辨率跟着系统缩放走�
 
 四人本那段只有40帧，陨石下来那几秒20帧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  elven119  
+##### 201#       发表于 2023-3-31 15:02
+
+开服了，玩了2小时，删了。这游戏每一个系统都是坐牢。画面不错，风景不错。其他玩法系统都是5年前的mmo，而且大世界不是无缝的。战斗手感差，正反馈差。做武器肝材料。采集几十分钟，就在野外瞎跑。告辞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1024676511  
+##### 202#       发表于 2023-3-31 15:08
+
+这游戏一眼就是传统mmo 楼上的能不能再锐评一下换装系统
+
+
+*****
+
+####  elven119  
+##### 203#       发表于 2023-3-31 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60285988&amp;ptid=2103199" target="_blank">1024676511 发表于 2023-3-31 15:08</a>
+
+这游戏一眼就是传统mmo 楼上的能不能再锐评一下换装系统</blockquote>
+这次没有防具系统了，只有时装，时装分很多部位，很细。正式开服估计会送一些免费钻可以抽。因为没有防具系统，所以玩家大部分时间都是穿的初始衣服，主线会送一些外形。但都很丑
+
+*****
+
+####  elven119  
+##### 204#       发表于 2023-3-31 15:15
+
+简单来说，梦幻之星OL2那套时装系统，但捏人自由的没那么高
+
+*****
+
+####  elven119  
+##### 205#       发表于 2023-3-31 15:17
+
+用卷买
+
+<img src="https://img.saraba1st.com/forum/202303/31/151745dobag44b64jgaabi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>Fsh2ZvKacAAgPpo.jpeg</strong> (192.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-31 15:17 上传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Fsh2ZvKacAAgPpo.jfif
+
+2023-3-31 15:16 上传
+点击文件名下载附件
+
+192.31 KB, 下载次数: 0
+
+*****
+
+####  sdh45e6  
+##### 206#       发表于 2023-3-31 15:19
+
+大世界不是无缝的
+
+*****
+
+####  elven119  
+##### 207#       发表于 2023-3-31 15:20
+
+打牙齿采草药这种任务，真的是一言难尽
+
+
+*****
+
+####  aksasa  
+##### 208#       发表于 2023-3-31 15:33
+
+问一下，蒸汽🐂子能玩吗来自: iPhone客户端
+
+
+*****
+
+####  2014720  
+##### 209#       发表于 2023-3-31 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60286105&amp;ptid=2103199" target="_blank">elven119 发表于 2023-3-31 15:17</a>
+用卷买</blockquote>
+这个背景这个ui....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tsubaki  
+##### 210#       发表于 2023-3-31 15:52
+
+一测的多数问题这次二测改了吗
+
+
+*****
+
+####  sodah  
+##### 211#       发表于 2023-3-31 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每一个系统都是坐牢吗？哈人。
+
+*****
+
+####  战狼PTSD  
+##### 212#       发表于 2023-3-31 15:53
+
+我就说怎么顶上来了，原来开测试了，玩法没任何改变吗
+
+
+*****
+
+####  1024676511  
+##### 213#       发表于 2023-3-31 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60286105&amp;ptid=2103199" target="_blank">elven119 发表于 2023-3-31 15:17</a>
+
+用卷买</blockquote>
+时装也是5年前版本是吧 感觉可以判死刑了
+
+
+*****
+
+####  一品堂官  
+##### 214#       发表于 2023-3-31 18:02
+
+这就是老mmo厉害的地方了 吸引人的背景世界观增加代入让你当脚男也不觉得无聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 要是不懂日语还去玩可能真的无聊到爆
+
+
+*****
+
+####  Suny08  
+##### 215#       发表于 2023-3-31 18:46
+
+这次测试都是都可以玩吗，算是公测么
+
+
+*****
+
+####  elven119  
+##### 216#       发表于 2023-3-31 19:32
+
+大世界，空空空，啥都没有。无尽的挖矿打牙齿采草药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布里兰特  
+##### 217#       发表于 2023-3-31 19:40
+
+这位坛友说不好玩。。那应该是真的不好玩，好多无聊手游都能玩下去的猛人
+
+
+*****
+
+####  alingzero  
+##### 218#       发表于 2023-3-31 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60286105&amp;ptid=2103199" target="_blank">elven119 发表于 2023-3-31 15:17</a>
+
+用卷买</blockquote>
+这服装也太...性冷淡了吧，这真是拿出来卖钱的装扮？
+
+
+*****
+
+####  放大镜  
+##### 219#       发表于 2023-3-31 20:46
+
+[www.bilibili.com/video/BV1zD4y1L7Ke](http://www.bilibili.com/video/BV1zD4y1L7Ke)
+
+云玩家表示可惜了这个主城
+
+
+*****
+
+####  战狼PTSD  
+##### 220#       发表于 2023-3-31 21:37
+
+看直播，没感觉跟三年前有啥质变
+
+
+*****
+
+####  laosai13  
+##### 221#       发表于 2023-3-31 21:55
+
+这个不是当年和原神一起放的消息现在原都两三年了这个怎么还没上限。这套美术风格我还是挺喜欢的看着主城也不错，不过日本人怎么这么能拖，纯pc端的话日本还有那么多纯坐在电脑前打mmo的人吗？
+
+
+*****
+
+####  法拉  
+##### 222#       发表于 2023-3-31 22:07
+
+虽然没玩，云的，但是如果跟ngs比游戏内容已经赢太多了，就是装扮差了不少
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  七千星  
+##### 223#       发表于 2023-3-31 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉...有点像幻想神域,不知道是不是错觉
+
+
+*****
+
+####  Cranberries  
+##### 224#       发表于 2023-3-31 22:40
+
+看主玩手游的主播在说这个游戏还可以。
+
+
+*****
+
+####  アルメリア  
+##### 225#       发表于 2023-3-31 22:52
+
+看了会直播感觉动作有点僵硬。。
+
+
+*****
+
+####  格雷殿下  
+##### 226#       发表于 2023-3-31 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖急，这类游戏后面不都有大副本，大boss,各种组队打，世界BOSS的吗。睿智活动就不指望了，可以再观望一下。
+
+就是看着感觉新手村的小怪有点刮了
+
+
+*****
+
+####  五岳盟主左冷禅  
+##### 227#       发表于 2023-3-31 23:26
+
+感觉不如预期，可能是我预期太高了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 228#       发表于 2023-3-31 23:27
+
+看了下直播，这游戏感觉还搞不过pso2ngs<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 229#       发表于 2023-4-1 00:06
+
+我看日站主播吐槽最多的是说好不是P2W的结果还是P2W了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  柠奇无时  
+##### 230#       发表于 2023-4-1 00:14
+
+ 本帖最后由 柠奇无时 于 2023-4-1 00:18 编辑 
+
+大而空的地图和无尽的坐牢和意义不明的过图线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我开始无聊到思考人生的意义难道就只是不停在各种粪游中蝶泳吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">pso好歹还有能看的部分
+
+
+*****
+
+####  七千星  
+##### 231#       发表于 2023-4-1 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NGS捏人是好,可玩起来好虚无
+
+
+*****
+
+####  laputah  
+##### 232#       发表于 2023-4-1 07:15
+
+<blockquote>柠奇无时 发表于 2023-4-1 00:14
+大而空的地图和无尽的坐牢和意义不明的过图线
+
+我开始无聊到思考人生的意义难道就只是不停在各种粪游 ...</blockquote>
+大而空的地图对我来说是加分 近年隔壁韩国mmo烂了以后用半成品凑合凑合就推出想割一笔拉倒的那些游戏 在NPC接了杀怪的任务 要杀的怪就在离NPC不到十米远 密密麻麻堆好多只 这才是敷衍了事究极摆烂 
+
+
+*****
+
+####  Jietf  
+##### 233#       发表于 2023-4-1 08:33
+
+有家园玩法吗
+
+
+*****
+
+####  南猫猫猫猫  
+##### 234#       发表于 2023-4-1 08:53
+
+我看大地图上别人打怪在滑步，是我的问题吗
+
+*****
+
+####  冰风血羽  
+##### 235#       发表于 2023-4-1 08:54
+
+看到说采集点不会在地图上标出来，随机出素材而且只有一个，血压马上高了
+
+
+*****
+
+####  名守居  
+##### 236#       发表于 2023-4-1 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这优化大草
+关注的主播用4080t开1080p特效没开全，boss放几个aoe圈就必卡
+
+
+*****
+
+####  格雷殿下  
+##### 237#       发表于 2023-4-1 11:04
+
+虽然优化很答辩，但是开直播还要算上推流。总之优化真的有点答辩。 看主播10+级了，法师还是没有快速回技能的手段吗，攻击技能本身就要站着读条了，给充能又要再站在原地半天，这职业纯纯的答辩吧。
+
+
+*****
+
+####  mutoto  
+##### 238#       发表于 2023-4-1 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59118770&amp;ptid=2103199" target="_blank">jxzeroga0 发表于 2022-12-28 15:59</a>
+
+没中，闲鱼邀请一个1200</blockquote>
+这逼游戏测试3天居然要1200.比那啥都贵
+
+
+*****
+
+####  龙井橘  
+##### 239#       发表于 2023-4-1 19:55
+
+证明万代真不行，刀剑神域单机一坨屎，这个刀剑神域ol也是一坨屎
+
+
+*****
+
+####  最强惠酱  
+##### 240#       发表于 2023-4-1 20:08
+
+服了，一直102进不去游戏
+
+
+*****
+
+####  defer  
+##### 241#       发表于 2023-4-1 22:25
+
+忘记抽了，找了个up云了几个小时。
+
+早古味太浓，楼上那个说是5年前的太客气了，15年前都没问题。
+
+真出了应该会去试试，但如果不迅速补充内容的话估计会很快凉掉。
+
+
+*****
+
+####  山岚夜雨  
+##### 242#       发表于 2023-4-2 02:34
+
+这游戏有pay to win？
+
+
+*****
+
+####  leviathan  
+##### 243#       发表于 2023-4-2 12:52
+
+原x太幼齿了玩不进去，这个刚刚好，想玩
+
+
+*****
+
+####  elven119  
+##### 244#       发表于 2023-4-3 08:40
+
+日本人玩了一个周末，说全是坐牢，这个内容正式上线，1个月就暴毙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  超赛锡纸烫  
+##### 245#       发表于 2023-4-3 08:49
+
+这个的nt测试资格也太神必了，在延期之前明明帐号注册和邀请啥的都处理好了，结果开测了才发现又没参加资格了。
+
+只能等朋友玩差不多了拿来附体一下了。
+
+
+*****
+
+####  jbtc2224052  
+##### 246#       发表于 2023-4-3 09:15
+
+周末正好没什么事干，看一个主播播了三天，只能说究极坐牢，你需要做的就是点开任务，到XX打X个XX怪，或者到XX采X个XX原石/草，做完这些要么开启模块提升战力，要么给经验给钱，战斗方面又乏善可陈，技能上看似整了一堆东西，其实能用的就一套，最优解就一套
+
+别说一个月暴毙，只要你爆肝玩一周，就不会再点开这游戏了（可能都不需要一周
+
+
+*****
+
+####  山岚夜雨  
+##### 247#       发表于 2023-4-3 10:57
+
+ 本帖最后由 山岚夜雨 于 2023-4-3 10:58 编辑 
+
+所以这网游mmo方面算是最拉的那一档，二次元、rsq方面也不太行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 2023年，这还拿头打
+
+
+*****
+
+####  windaria  
+##### 248#       发表于 2023-4-3 19:33
+
+开发了那么多年，没内容，没玩法，就一个动画渲染画面，拖了这么多年万代居然没毙掉这个项目真是神奇
+
+
+*****
+
+####  Rainwedell  
+##### 249#       发表于 2023-4-3 20:12
+
+说不定当成技术路线的探索<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TheOccuria  
+##### 250#       发表于 2023-4-3 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前结论是被pso2吊打？
+
+话说102是什么问题，就是封中国ip？
+
+当初看xiv主播说这游戏出了给小吉上点压力，看来小吉可以继续躺了
+
+
+*****
+
+####  mumulyn  
+##### 251#       发表于 2023-4-3 20:22
+
+这游戏小吉不是派人过去支援了
+
+前两天的pll上小吉还亲自引流
+

@@ -3597,3 +3597,187 @@ FAMI通评分7/7/8/6=28分，为Inti Creates出品游戏史低。
 
 已经研究出来BOSS BR模式H难度传奇猎人配置只有20点WP上限的条件下，可以在成人库萝娜出大球之前击杀，但要全无伤还是得练
 
+*****
+
+####  猫坤  
+##### 344#       发表于 2023-3-27 11:29
+
+已经打出来了，BOSS RUSH模式 HARD难度 传奇猎人配置 武器有强化 WP有限 装逼无伤速通
+[https://www.bilibili.com/video/B ... 7102b1caed3c46a7b0c](https://www.bilibili.com/video/BV1dv4y1577u/?spm_id_from=333.999.0.0&amp;vd_source=4632db293c05c7102b1caed3c46a7b0c)
+[https://www.youtube.com/watch?v=JAkq7GCrbh4](https://www.youtube.com/watch?v=JAkq7GCrbh4)
+
+我看了一下，这个配置除了逼站就算油管也没有比我快的（其实是因为打的人少）（有个打挑战模式的玩家所用的方法更加高端，理论上全用上的话肯定比我更快，但他只打充满随机性的挑战模式）。不过还是有些基础设计我都不知道，例如伞巴风特的最终攻击可以击破，小库萝娜在转换状态时可以被打，伞可以挡弹之类的，真就隐藏要素促进社交是吧
+
+
+*****
+
+####  zhfatwork  
+##### 345#       发表于 2023-3-28 16:17
+
+昨天游戏卡刚寄到，打了第一遍的7关被扔回初始了。还挺爽的，某种程度满足了用“用魂斗罗打恶魔城的”怨念（笑）
+
+2周目过第一关让选一个副武器升级，我随便选了一个，但想知道下12个副武器升级后的效果是什么? 那里能查到？
+
+顺便我用Bing搜了下第一个结果是Gcore一个所谓测评，第一小节就是错的，文中作者对恶魔城和GALGUN都缺乏了解，也不知道他测评个什么…………
+
+
+*****
+
+####  cmyk1234  
+##### 346#         楼主| 发表于 2023-3-28 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60253040&amp;ptid=2085482" target="_blank">zhfatwork 发表于 2023-3-28 16:17</a>
+昨天游戏卡刚寄到，打了第一遍的7关被扔回初始了。还挺爽的，某种程度满足了用“用魂斗罗打恶魔城的”怨念 ...</blockquote>
+二周目的boss会刷新，所以副武器可以刷满，刷满后打完尖塔会有新的对话选项。
+
+*****
+
+####  cmyk1234  
+##### 347#         楼主| 发表于 2023-3-28 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60253040&amp;ptid=2085482" target="_blank">zhfatwork 发表于 2023-3-28 16:17</a>
+昨天游戏卡刚寄到，打了第一遍的7关被扔回初始了。还挺爽的，某种程度满足了用“用魂斗罗打恶魔城的”怨念 ...</blockquote>
+二周目的boss会刷新，所以副武器可以刷满，刷满后打完尖塔会有新的对话选项。
+
+
+*****
+
+####  猫坤  
+##### 348#       发表于 2023-3-28 21:10
+
+<blockquote>zhfatwork 发表于 2023-3-28 16:17
+昨天游戏卡刚寄到，打了第一遍的7关被扔回初始了。还挺爽的，某种程度满足了用“用魂斗罗打恶魔城的”怨念 ...</blockquote>
+我看逼站几个测评都说GALGUN的初代是VR，没硬件就不能玩。但凡这些人多看一眼也不至于搞错，初代是GALGUN RETURNS啊（其实这个是初代重制，但STEAM只能买到这个），GALGUN VR看介绍就知道是2代模板的东西（我没买过）
+
+
+*****
+
+####  zhfatwork  
+##### 349#       发表于 2023-3-29 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60254708&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-3-28 18:56</a>
+
+二周目的boss会刷新，所以副武器可以刷满，刷满后打完尖塔会有新的对话选项。 ...</blockquote>
+
+谢谢解答。
+
+这个游戏和以前的月之诅咒相比，2周目引入太粗暴了，直接告诉你真凶没打败还被扔回大门口，导致一周目通关满足感下降了。
+
+
+*****
+
+####  zhfatwork  
+##### 350#       发表于 2023-3-29 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60255965&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-3-28 21:10</a>
+
+我看逼站几个测评都说GALGUN的初代是VR，没硬件就不能玩。但凡这些人多看一眼也不至于搞错，初代是GALGUN ...</blockquote>
+是的，我怀疑就是因为那个错误测评出的快，所以其他媒体都抄它。
+
+未来媒体领域用AI产生文章会更快，这种错误信息的传播以后只会愈演愈烈。
+
+说回GALGUN这游戏，我玩过XBOX360和PS3的初代，最初的360版绝对是Kusogame,各种意义都是，PS3版由于可以用Move的光枪了，操作才算是及格了，不过比起其他光枪也是很单调，敌人就两种：喊话的和递情书的。比起一样可以在PS3上玩到的死亡之屋等无趣很多。总的来说，这游戏最大的特点是那种恶搞感，用枪击退成群冲上来递情书的女生，荒诞至极。
+
+
+*****
+
+####  cmyk1234  
+##### 351#         楼主| 发表于 2023-3-29 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60259424&amp;ptid=2085482" target="_blank">zhfatwork 发表于 2023-3-29 10:48</a>
+谢谢解答。
+
+这个游戏和以前的月之诅咒相比，2周目引入太粗暴了，直接告诉你真凶没打败还被扔回大门口， ...</blockquote>
+严格来说少女魔净的时间线是在GALGUN2（系列第四作）千留和奈奈子双人线结局之后，也在GALGUN DOUBLE PEACE（系列第二作）的神园姐妹双人线之后。
+
+我觉得少女魔净的开发的部分理由是填平苍蓝雷霆3的开发成本。
+
+
+*****
+
+####  猫坤  
+##### 352#       发表于 2023-3-29 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60259637&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-3-29 11:09</a>
+
+严格来说少女魔净的时间线是在GALGUN2（系列第四作）千留和奈奈子双人线结局之后，也在GALGUN DOUBLE PEA ...</blockquote>
+在DOUBLE PEACE里面小忍是看不到天使的，第一次看到天使时还大惊小怪；到了2里面就可以通过集中精神看到天使了，说明时间线还是按照游戏发行顺序的【DP-2代】
+
+
+*****
+
+####  猫坤  
+##### 353#       发表于 2023-4-1 00:32
+
+反正都打了，我又打了个无限WP的无伤BOSS RUSH，基本上就是TNT一路炸过去，真夜沦为辅助
+[https://www.bilibili.com/video/B ... 7102b1caed3c46a7b0c](https://www.bilibili.com/video/BV1kc411V7jV/?spm_id_from=333.999.0.0&amp;vd_source=4632db293c05c7102b1caed3c46a7b0c)
+
+
+*****
+
+####  zhfatwork  
+##### 354#       发表于 2023-4-3 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60292756&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-4-1 00:32</a>
+
+反正都打了，我又打了个无限WP的无伤BOSS RUSH，基本上就是TNT一路炸过去，真夜沦为辅助
+
+https://www.bilib ...</blockquote>
+我周末也把这个游戏圆满了，这个地雷打法确实爽，就是不设武器无限的条件下弹药肯定不够…………
+
+还有我也查资料的时候也看了几个B站的这个游戏的视频，…………发现B站有不少人认为这个游戏不值90元，认为也就是值50元。给我两重震惊，1是得知原来PC版才90元……而这个游戏的NS游戏卡要近300元，2是也意识到PC玩家对于游戏价格/价值的认知标尺确实和传统玩游戏机的人相差挺大，有一点小出乎意料。
+
+
+*****
+
+####  永远的访客  
+##### 355#       发表于 2023-4-3 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60259424&amp;ptid=2085482" target="_blank">zhfatwork 发表于 2023-3-29 10:48</a>
+
+谢谢解答。
+
+这个游戏和以前的月之诅咒相比，2周目引入太粗暴了，直接告诉你真凶没打败还被扔回大门口， ...</blockquote>
+这个模式至少魔界村就有了，考虑到玩这个系列的都是遗老，就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我真正觉得吃屎的是上次打完第7关的BOSS后卡住，不对话也不能动也不能叫菜单，最后只能关游戏出来算没打过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫坤  
+##### 356#       发表于 2023-4-3 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60320015&amp;ptid=2085482" target="_blank">zhfatwork 发表于 2023-4-3 16:32</a>
+
+我周末也把这个游戏圆满了，这个地雷打法确实爽，就是不设武器无限的条件下弹药肯定不够…………
+
+还有我 ...</blockquote>
+这游戏最好的对比对象就是自家的月之诅咒。我看了下月之诅咒2 50元，这个游戏90元，算上高清（对于月之诅咒来说）和CV（40多人呢，虽然一人只有几句）还有新游戏价格，其实差不多了。
+
+只不过从开口闭口就巫师3倥侗骑士的蒸小鬼来说，无聊是月之诅咒还是这个GGDP都肯定是算贵的，单线ACT又不是银河城不能反复刷，也就月之诅咒一看画面就劝退新时代玩家才没那么多声音罢了，这GGDP有美少女又银河城（看上去，还有很多人被骗的）才那么大声音。NS卡要300元就真就日厂特色了，是不是当成GAL卖，知道受众小就提高单价
+
+
+*****
+
+####  cmyk1234  
+##### 357#         楼主| 发表于 2023-4-3 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60321280&amp;ptid=2085482" target="_blank">猫坤 发表于 2023-4-3 17:55</a>
+
+这游戏最好的对比对象就是自家的月之诅咒。我看了下月之诅咒2 50元，这个游戏90元，算上高清（对于月之诅 ...</blockquote>
+steam内地区是日元区的半价，90多人民币，港澳地区和台湾省比日语区还要贵一点点，大约180人民币。NS数字版是3450日元也相当于160人民币，卡带版差不多要300人民币。
+
+
+*****
+
+####  猫坤  
+##### 358#       发表于 2023-4-3 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60321400&amp;ptid=2085482" target="_blank">cmyk1234 发表于 2023-4-3 18:04</a>
+
+steam内地区是日元区的半价，90多人民币，港澳地区和台湾省比日语区还要贵一点点，大约180人民币。NS数字 ...</blockquote>
+那还是有点小贵
+
+虽然要玩我还是买的
+

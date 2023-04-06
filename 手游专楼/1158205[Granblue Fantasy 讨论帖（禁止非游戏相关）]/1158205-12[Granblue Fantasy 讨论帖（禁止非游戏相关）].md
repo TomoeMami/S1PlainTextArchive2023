@@ -585,3 +585,501 @@ kmr靠赛马赚了很多钱，不需要gbf这样的朋友了
 
 肥猫还挺厉害的
 
+*****
+
+####  fsjrday  
+##### 17280#       发表于 2023-3-23 10:59
+
+最近nga热闹得和菜市场一样，泥潭的专楼仍然一潭死水，看来主要都是新玩家。
+
+
+*****
+
+####  DDWarrior  
+##### 17281#       发表于 2023-3-23 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个沙漏都不发，最近除了转盘互相暴晒之外还有啥好聊的吗
+
+让我去六龙/六属性高难/极巴高强度坐牢我还不如直接弃了
+
+*****
+
+####  kiralzb  
+##### 17282#       发表于 2023-3-23 11:56
+
+这新手抽300发下来出率都没有6%，而且0lm，感觉是骗局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  jxzeroga0  
+##### 17283#       发表于 2023-3-23 12:45
+
+沙漏直接堵死了接下来一年的塔罗终突，就没什么好聊了
+
+
+*****
+
+####  poor  
+##### 17284#       发表于 2023-3-23 13:01
+
+风剑豪怎么砸大红过5T？我试了下一般FA队主角一个330W，130+的9一个400W，后面有100+的7，风队也没有几个双奥的，5T能砸过？
+
+
+*****
+
+####  DDWarrior  
+##### 17285#       发表于 2023-3-23 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60192856&amp;ptid=1158205" target="_blank">poor 发表于 2023-3-23 13:01</a>
+
+风剑豪怎么砸大红过5T？我试了下一般FA队主角一个330W，130+的9一个400W，后面有100+的7，风队也没有几个双 ...</blockquote>
+砸倒是能砸死，就是对角色盘子什么的要求比较高，肯定不是FA盘丢手雷就能随随便便丢死的...
+
+角色比如小团长和黑道大姐狐狸这种，盘子就尽量多塞各种上限呗
+
+
+*****
+
+####  roxas.sora  
+##### 17286#       发表于 2023-3-23 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60192856&amp;ptid=1158205" target="_blank">poor 发表于 2023-3-23 13:01</a>
+
+风剑豪怎么砸大红过5T？我试了下一般FA队主角一个330W，130+的9一个400W，后面有100+的7，风队也没有几个双 ...</blockquote>
+试试召唤师带泥鳅小精灵，角色团长巫妖泳裁缝，盘子是正常方阵，全程大红
+
+
+*****
+
+####  Ky·Kiske  
+##### 17287#       发表于 2023-3-23 16:52
+
+召唤猫情军51，FA稳定5T
+
+增伤和技伤拉满就行
+
+这种时候就是猫比1509好用的地方
+
+
+*****
+
+####  poor  
+##### 17288#       发表于 2023-3-23 21:27
+
+谢谢大家，最后拳皇过了小精灵一个没农，试了N次，退出居然不耗次数，良心在了奇怪的地方
+
+
+*****
+
+####  里村紅葉  
+##### 17289#       发表于 2023-3-23 21:36
+
+火老王石头狗到满破了，但是没有炎帝剑，是不是还是丢着吃灰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  はちたや  
+##### 17290#       发表于 2023-3-23 21:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">现在gbf最大的乐趣也就是收集新的150金月武了，还得刨去几把特别脑残的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如5t就可以水铳和赫伦丁快快乐乐解决
+
+
+*****
+
+####  leeskies  
+##### 17291#       发表于 2023-3-24 06:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">风方低配可以试试【光机神跨属】
+
+
+*****
+
+####  fsjrday  
+##### 17292#       发表于 2023-3-24 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60199183&amp;ptid=1158205" target="_blank">poor 发表于 2023-3-23 21:27</a>
+谢谢大家，最后拳皇过了小精灵一个没农，试了N次，退出居然不耗次数，良心在了奇怪的地方 ...</blockquote>
+最强的泥鳅直接材料换就好，其他精灵大部分时间也用不上
+
+*****
+
+####  Aureth  
+##### 17293#       发表于 2023-3-24 14:53
+
+回坑了，整了个光老王胚子号，问问周年超。主要的选项大概是情军和圣诞鸡。情军看攻略好像强度依旧顶尖又是性欲角色，情人节还刚过。圣诞鸡主要是考虑到这个号主玩光，想拿个光属性的高难角，而且也很可爱。（其实情冰也没有，但看攻略讲有兔以后优先级下降了，就移出选项了）求各位大佬给点意见。
+
+*****
+
+####  fsjrday  
+##### 17294#       发表于 2023-3-24 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60207172&amp;ptid=1158205" target="_blank">Aureth 发表于 2023-3-24 14:53</a>
+回坑了，整了个光老王胚子号，问问周年超。主要的选项大概是情军和圣诞鸡。情军看攻略好像强度依旧顶尖又是 ...</blockquote>
+fa多情军，喜欢高难手操就鸡。不得不说情军多段技伤和尿分叉和增伤的契合度太高了，和他同批的lm都退得差不多了，也就情军越看越强，之后fa优化了把1技能扣掉还有望进一步提速。鸡fa没用，手操其实也就提升下极巴的舒适度，只是为了做武器的话没必要
+
+*****
+
+####  Aureth  
+##### 17295#       发表于 2023-3-24 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60207788&amp;ptid=1158205" target="_blank">fsjrday 发表于 2023-3-24 15:36</a>
+
+fa多情军，喜欢高难手操就鸡。不得不说情军多段技伤和尿分叉和增伤的契合度太高了，和他同批的lm都退得差 ...</blockquote>
+那就情军了，美滋滋。
+
+*****
+
+####  areklose  
+##### 17296#       发表于 2023-3-24 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">情军FA不如风巫妖。个人觉得风团200应该没情军事。。
+
+*****
+
+####  Sylpheed  
+##### 17297#       发表于 2023-3-24 17:27
+
+主要也没什么好聊的，农不农沙漏的都已经目标明确了，nga那边聊爆了也是一堆迷惑发言，还不如不聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  leeskies  
+##### 17298#       发表于 2023-3-24 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">情军好在后排可以送一个刻印 配合圣诞高文姐可以玩机神偷跑 平时fa可有可无
+
+鸡妹当然是高难贴膜
+
+*****
+
+####  poor  
+##### 17299#       发表于 2023-3-25 11:59
+
+现在这加成是去剑XX先农点理念好还是在杖XX农严选1.0也可以？
+
+*****
+
+####  fsjrday  
+##### 17300#       发表于 2023-3-25 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60212828&amp;ptid=1158205" target="_blank">leeskies 发表于 2023-3-24 21:45</a>
+情军好在后排可以送一个刻印 配合圣诞高文姐可以玩机神偷跑 平时fa可有可无
+
+鸡妹当然是高难贴膜 ...</blockquote>
+你说的是情冰吧
+
+*****
+
+####  leeskies  
+##### 17301#       发表于 2023-3-25 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看错了看错了 傻傻分不清楚
+
+
+*****
+
+####  poor  
+##### 17302#       发表于 2023-3-26 20:23
+
+老贝超越技不是50以后满豆出的吗？为什么每次我进去A一下第二T就出了？是我的错吗？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  はちたや  
+##### 17303#       发表于 2023-3-26 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60218399&amp;ptid=1158205" target="_blank">poor 发表于 2023-3-25 11:59</a>
+
+现在这加成是去剑XX先农点理念好还是在杖XX农严选1.0也可以？</blockquote>
+严选1.0难出，除非只是想要个浑身1这样的；
+
+理念是稳定提升
+
+不过这活动主要还是拿来练经验比较好... 掉落加成不大
+
+
+*****
+
+####  shinitakute  
+##### 17304#       发表于 2023-3-27 08:21
+
+昨天打土妹的时候掉了一个叫manatura的东西，当时没细看，现在才发现除了战斗记录外其他地方都找不到这个东西了，是做什么用的啊
+
+
+*****
+
+####  玛基  
+##### 17305#       发表于 2023-3-27 09:00
+
+<blockquote>shinitakute 发表于 2023-3-27 08:21
+昨天打土妹的时候掉了一个叫manatura的东西，当时没细看，现在才发现除了战斗记录外其他地方都找不到这个东 ...</blockquote>
+新c5职业的装备(类似帕拉丁的盾的系统)
+
+
+*****
+
+####  Charizard  
+##### 17306#       发表于 2023-3-27 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60194108&amp;ptid=1158205" target="_blank">roxas.sora 发表于 2023-3-23 14:50</a>
+
+试试召唤师带泥鳅小精灵，角色团长巫妖泳裁缝，盘子是正常方阵，全程大红 ...</blockquote>
+感谢分享，用这个队伍带着我只有1风龙刀1杖的垃圾风方过了，靠巫妖的回合后技伤打掉了最后的1%<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poor  
+##### 17307#       发表于 2023-3-27 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60233713&amp;ptid=1158205" target="_blank">はちたや 发表于 2023-3-26 22:17</a>
+严选1.0难出，除非只是想要个浑身1这样的；
+
+理念是稳定提升
+
+不过这活动主要还是拿来练经验比较好... 掉落 ...</blockquote>
+已经农了好几天了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便问下浑身1跟攻击2选哪个好点
+
+
+*****
+
+####  shinitakute  
+##### 17308#       发表于 2023-3-30 08:37
+
+在诺亚短和狗之间纠结了好久，最后还是井了诺亚短<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FrozenA  
+##### 17309#       发表于 2023-3-30 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是没有波塞冬炎帝火龙的1井
+
+好消息是出了牛牛井了猪，神将齐了
+
+
+*****
+
+####  玛基  
+##### 17310#       发表于 2023-3-30 15:43
+
+ 本帖最后由 玛基 于 2023-3-30 15:47 编辑 
+
+看完愚者终突领会到宇宙要断气了，想周年超土龙杖+1，买完才发现土龙还没过保护期<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+所以火方无炎帝火天司、有火龙nmn，不打算给火投入太多资源的前提下超泳银、小美谁更能改善生活？(不考虑武器价值，反正都不会砸的)
+
+
+*****
+
+####  Sylpheed  
+##### 17311#       发表于 2023-3-30 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60275044&amp;ptid=1158205" target="_blank">玛基 发表于 2023-3-30 15:43</a>
+看完愚者终突领会到宇宙要断气了，想周年超土龙杖+1，买完才发现土龙还没过保护期
+
+所以火方无炎帝火 ...</blockquote>
+但其实凯姆正位上来保底10独立25防10追和水转，也就还好，叠上来还能反超，旧宇宙算是多个选择和过度。
+专注打团的话火方肯定小美，但是农星7之类的想提速就不行了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  fsjrday  
+##### 17312#       发表于 2023-3-30 18:21
+
+该新沙盒遨游了，希望比2.0掉率再高点
+
+
+*****
+
+####  玛基  
+##### 17313#       发表于 2023-3-30 20:12
+
+好呀好呀，jgj开技能，玩还是小福你会玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sylpheed  
+##### 17314#       发表于 2023-3-31 15:06
+
+玩了这么多年头一次小美卡交得如此有底气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ky·Kiske  
+##### 17315#       发表于 2023-3-31 16:47
+
+假卡印的如此自然，我选择存金月
+
+恭喜蛤人回归猎金神仙境，可我只是个暗老王，不是蛤人
+
+
+*****
+
+####  jxzeroga0  
+##### 17316#       发表于 2023-3-31 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10连双new up，还行，不枉我之前把攒了一年的金月黑钢砸艾蕾和3把d天上去了
+
+这次最大遗憾就是没有白嫖到暗龙石头了
+
+
+*****
+
+####  leeskies  
+##### 17317#       发表于 2023-3-31 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">让暗老王再次伟大
+
+
+*****
+
+####  fsjrday  
+##### 17318#       发表于 2023-4-2 13:11
+
+研究了一天配队，2Takx，2+1 3T大巴，0键3格，3t FA DE+样样精通，这就是暗属性给我带来的自信
+
+
+*****
+
+####  はちたや  
+##### 17319#       发表于 2023-4-2 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在大巴猎金真的是疯狂，暗教官+周年后+4月底舔婊网倒闭的三重作用吗
+
+
+*****
+
+####  Sylpheed  
+##### 17320#       发表于 2023-4-2 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60309621&amp;ptid=1158205" target="_blank">はちたや 发表于 2023-4-2 20:59</a>
+
+现在大巴猎金真的是疯狂，暗教官+周年后+4月底舔婊网倒闭的三重作用吗 ...</blockquote>
+现在还减半期，又免门票，周年蜜月期buff叠满挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且说实话虽然这一年多强度又炸了好几圈，但好几个属性猎金效率实打实的上来了，大家都能10几秒打完下一只的话，就既有效率又有舒适度，很难不狠狠的打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ky·Kiske  
+##### 17321#       发表于 2023-4-2 22:56
+
+只自发，不瞎卷
+
+没艾没教我凭啥卷带巴
+
+
+*****
+
+####  adretyu67  
+##### 17322#       发表于 2023-4-3 09:59
+
+舔表网炸了以后真的还有备用方案吗，不会真准备对着你游那个弱智援救系统上吧
+
+
+*****
+
+####  Ky·Kiske  
+##### 17323#       发表于 2023-4-3 10:17
+
+小福在救了，敬请期待hhh
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17324#       发表于 2023-4-3 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这尿分叉真的很炫酷 但一想到gbf生命只剩下一个月就萎了
+
+
+*****
+
+####  poor  
+##### 17325#       发表于 2023-4-3 12:59
+
+想砸暗打各种短期，问个问题，现在有2D，看各种短期攻略貌似基本1D就够，那可以合吗？
+
+我现在关于转老王的情况，能转是想转，但是现在只有1棒槌，差2短1锤，还都是在月中，可能得三井，投入有点大而且棒槌感觉有点不想井，起码能狗到一个再考虑，所以不好说。短本身是计划找个合适的月中至少井一个，但是不知道是什么时候，最晚可能得明年周年（应该不会吧……）
+
+
+*****
+
+####  phoenixxj  
+##### 17326#       发表于 2023-4-3 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60317021&amp;ptid=1158205" target="_blank">poor 发表于 2023-4-3 12:59</a>
+
+想砸暗打各种短期，问个问题，现在有2D，看各种短期攻略貌似基本1D就够，那可以合吗？
+
+我现在关于转老王的 ...</blockquote>
+版头攻略不建议合
+
+我自己也没合
+
+毕竟顶配是2d 只是2d的成本有点高。所以1d是刚需，2d是pro。把pro的当钢用又不太合理。
+
+
+*****
+
+####  fsjrday  
+##### 17327#       发表于 2023-4-3 15:13
+
+ 本帖最后由 fsjrday 于 2023-4-3 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60317021&amp;ptid=1158205" target="_blank">poor 发表于 2023-4-3 12:59</a>
+
+想砸暗打各种短期，问个问题，现在有2D，看各种短期攻略貌似基本1D就够，那可以合吗？
+
+我现在关于转老王的 ...</blockquote>
+
+就差一钢的事，别合了吧。不行先用暗龙剑打打看，再慢慢优化。现在暗短期基本不打双面了，单面/零面下浑身暗龙剑和D剑差别不大
+
+
+*****
+
+####  Sylpheed  
+##### 17328#       发表于 2023-4-3 17:07
+
+ 本帖最后由 Sylpheed 于 2023-4-3 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60317021&amp;ptid=1158205" target="_blank">poor 发表于 2023-4-3 12:59</a>
+
+想砸暗打各种短期，问个问题，现在有2D，看各种短期攻略貌似基本1D就够，那可以合吗？
+
+我现在关于转老王的 ...</blockquote>
+2短配置的话，克属只放得下1d，沙盒不需要D，跨属大巴2d跟1d1方阵斧差10%左右，3短差5%。
+
+<img src="https://img.saraba1st.com/forum/202304/03/170836izdp0ccdqzwpifbc.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230403170427.png</strong> (21.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 17:08 上传
+
+但是大巴教官巨吃攻刃和船炉，都能扣一点是一点还是留着吧。
+
+然后棒槌现在仍然是FA打团和高难的优解，单面超限路目前还是玩具阶段，能玩但是性价比更低。现在就先不急看你能转的时候抽成啥样吧，能搞还是建议直接双棒槌，不然只能棒槌+班特了
+
+
+*****
+
+####  poor  
+##### 17329#       发表于 2023-4-3 20:04
+
+谢谢大家，我还是留着好了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
