@@ -4892,3 +4892,13 @@ http://b23.tv/3ihRFM7 录了个卡尔三阶段格挡 除了一个招数没展示
 
 VH通关 太嗨了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+*****
+
+####  GuardHei  
+##### 468#       发表于 2023-4-3 08:27
+
+一直没玩，不过看到竟然有致敬xg桥段
+[https://youtu.be/MqbR0SWS7R8](https://youtu.be/MqbR0SWS7R8)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
