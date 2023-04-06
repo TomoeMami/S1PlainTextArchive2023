@@ -3962,3 +3962,1236 @@ BD 第14话 侑与同好会2 先行图
 
 这个拱火太好笑了，等一下广播剧反馈。
 
+*****
+
+####  仟音一心  
+##### 7110#       发表于 2023-3-24 12:26
+
+TV最终话 钢琴与学园偶像
+<img src="https://p.sda1.dev/10/486e95abbdf10036faeb48cdedac6ffd/495F04F977049107D4247996225E52BB.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7111#       发表于 2023-3-24 12:42
+
+梦开始的地方其二。
+
+这个月底就该公开新人了吧。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7112#       发表于 2023-3-24 21:27
+
+TV完结
+
+从钢琴版chase! 到love U my friends
+
+<img src="https://img.saraba1st.com/forum/202303/24/212621lteo6f68uoeubbcp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E68EE751-29F9-4911-9C5E-3888E6E1D136.jpeg</strong> (142.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202303/24/212629lipaiwepmjjtpiwt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1D1F4CF8-FF1C-46CC-BF12-0305CC05CF3D.jpeg</strong> (219.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:26 上传
+
+<img src="https://img.saraba1st.com/forum/202303/24/212636u4tkts1quzccczq1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3F498EF8-E50E-4413-8A5A-D2485A0C14BD.jpeg</strong> (290.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:26 上传
+
+*****
+
+####  仟音一心  
+##### 7113#       发表于 2023-3-24 21:28
+
+第15话 侑与同好会3 先行图
+
+<img src="https://img.saraba1st.com/forum/202303/24/212800iworyxoyixr9oll3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D581E46A-3C11-412B-A4CB-0D5B4234FEFB.jpeg</strong> (112.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202303/24/212806vu5d5rfdz5fzetkz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>46BD79DD-2676-4955-8531-D385088B5A6B.jpeg</strong> (174.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202303/24/212813dltrvtd6wa1wuu1b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>42571D61-BCEB-4B7F-813A-DBB7980CAB14.jpeg</strong> (104.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202303/24/212818tsu8rw4hnrzi4z4w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>10368FE3-90C0-41D0-847C-4C26C9E50567.jpeg</strong> (159.29 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:28 上传
+
+*****
+
+####  仟音一心  
+##### 7114#       发表于 2023-3-24 21:48
+
+<img src="https://img.saraba1st.com/forum/202303/24/214842lct9j0c602yt3g3z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>88B0B36A-3FA3-46CB-B88A-5EC4B17BE0E2.jpeg</strong> (376.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-24 21:48 上传
+
+*****
+
+####  先日日  
+##### 7115#       发表于 2023-3-25 03:02
+
+BD收录的13-15话什么时候能看到啊
+我实在还想看<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7116#       发表于 2023-3-25 06:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60216304&amp;ptid=1959558" target="_blank">先日日 发表于 2023-3-25 03:02</a>
+
+BD收录的13-15话什么时候能看到啊
+
+我实在还想看</blockquote>
+3月29号发售，估计4月头两天能出来吧
+
+*****
+
+####  cybernetics31  
+##### 7117#       发表于 2023-3-25 18:28
+
+雪菜cv林鼓子<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7118#       发表于 2023-3-25 18:29
+
+ 本帖最后由 ads147147 于 2023-3-25 19:14 编辑 
+
+未梦事务所的。
+
+大，比大灯还大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  仟音一心  
+##### 7119#       发表于 2023-3-25 19:00
+
+<img src="https://p.sda1.dev/10/3ebcceb9ea815517b80dc1e9a06c0de0/CMP_20230325190036312.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/7488f4a3f7866ee34ba246bef2744aa0/CMP_20230325190036346.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  BlueDrii  
+##### 7120#       发表于 2023-3-25 19:14
+
+ 本帖最后由 BlueDrii 于 2023-3-25 19:16 编辑 
+
+草，为什么新CV萌百上的公式照第一眼那么像灯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DarthAka  
+##### 7121#       发表于 2023-3-25 19:29
+
+音泉高中生这个，白河是灯在sma那边的后辈，肯定也有人奶过她
+
+*****
+
+####  himfsz  
+##### 7122#       发表于 2023-3-25 19:58
+
+这样挺好的，其实我也有猜过林鼓子的，不过未公布前就不乱发言了
+
+*****
+
+####  仟音一心  
+##### 7123#       发表于 2023-3-25 20:11
+
+<img src="https://p.sda1.dev/10/c015df9c06d71e809e21f9234afd514c/CMP_20230325201139457.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cxj649  
+##### 7124#       发表于 2023-3-25 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下简中圈和日文圈
+
+简中：谁，不能接受
+
+日文：啊，灯的熟人啊，没事了
+
+*****
+
+####  天风绯炎  
+##### 7125#       发表于 2023-3-25 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">居然是林鼓子，我开始期待了，桃山雪菜
+
+<img src="https://img.saraba1st.com/forum/202303/25/201700urul8nr4k4md0633.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2023-03-25_20-16-28.png</strong> (79.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-25 20:17 上传
+
+*****
+
+####  李霞  
+##### 7126#       发表于 2023-3-25 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60222501&amp;ptid=1959558" target="_blank">cxj649 发表于 2023-3-25 20:12</a>
+
+看了下简中圈和日文圈
+
+简&amp;#x4 ...</blockquote>
+大朋友例外
+
+*****
+
+####  Piano-Forest  
+##### 7127#       发表于 2023-3-25 20:27
+
+新作OVA「NEXT SKY」PV：
+[https://youtu.be/ZnyCC_UCzCw](https://youtu.be/ZnyCC_UCzCw)
+
+2023年6月23日(金)公开！
+
+全国の剧场で４週间限定上映予定✨
+
+剧场にてBlu-ray同时発売！
+
+<img src="https://p.sda1.dev/10/2d84574b3ac7198009fbe595c0787528/clear.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 7128#       发表于 2023-3-25 20:37
+
+美妙旋律系列跟LL的CV重合度好高
+
+两个企划是合作伙伴关系吗
+
+*****
+
+####  天风绯炎  
+##### 7129#       发表于 2023-3-25 20:40
+
+<img src="https://img.saraba1st.com/forum/202303/25/203937h46bc2ceacw4je52.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230325203851.jpg</strong> (179.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-25 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202303/25/203937i477bqwbcbc6r7c5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230325203906.jpg</strong> (124.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-25 20:39 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 7130#       发表于 2023-3-25 20:55
+
+在《美妙频道》里林和楠木女士饰演一对桃山姐妹 现在姐姐接替妹妹
+林鼓子疑似是邦邦mygo鼓手 鼓手是挺辛苦的 别到时候和大桥一样呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有她所在的《Run Girls, Run!》宣布2023年3月31日解散 这下无缝衔接 不会再发生挑拨离间久保田所在的《i☆Ris》成员关系惹吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 7131#       发表于 2023-3-25 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60222725&amp;ptid=1959558" target="_blank">名津流 发表于 2023-3-25 20:37</a>
+
+美妙旋律系列跟LL的CV重合度好高
+
+两个企划是合作伙伴关系吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">只能说LOVELIVE很爱用81P的人...虽然绝大部分都是路人
+
+*****
+
+####  ALSE  
+##### 7132#       发表于 2023-3-25 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60222501&amp;ptid=1959558" target="_blank">cxj649 发表于 2023-3-25 20:12</a>
+
+看了下简中圈和日文圈
+
+简&amp;#x4 ...</blockquote>
+简中圈主要是真不熟她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（日本那推特关注都快翻倍了，虽然主要原因可能是她推特关注本来就低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  星降る森  
+##### 7133#       发表于 2023-3-26 00:54
+
+简中圈经常关注偶像声优的一批还是认识的，战吧只会复读扭曲怪的那批才会不知道吧，和灯音宝参加同一届sma选拔，又在水和星都配过路人，统计表多看看也眼熟了，除了动物配音的那位外，配过几代路人的人也不多
+
+*****
+
+####  stygian  
+##### 7134#       发表于 2023-3-26 01:17
+
+大概只有只看你拉的才会惊呼谁吧，这位和水野之前常年在各路脑补二代目雪菜候补top3的
+
+*****
+
+####  雨井绫  
+##### 7135#       发表于 2023-3-26 01:31
+
+ 本帖最后由 雨井绫 于 2023-3-26 01:39 编辑 
+
+美妙全系列和LoveLive全系列音监都是长崎行男，两边经常有相同的声优。鼓子当主人公的美妙频道的其他主角里就有久保田未梦和三森玲子和徳井青空和指出毬亚，大家都是一起开过演唱会的。然后楠木灯还配音了她的妹妹，是经常出场的常驻配角，大家从美妙频道第一年就盼着妹妹上舞台，结果她到全剧终才开始准备当偶像，当然也没有舞台。两边主角声优去对面当配角和龙套的情况就更多了，虹咲声优之前还组团来美妙魔法打过酱油。
+顺带一提LL初代监督京极尚彦是美妙旋律三部曲的监督菱田正和的徒弟，美妙旋律的live演出也基本都是他负责的。再顺带一提菱田正和是富野的徒弟……其实也说不上吧，光头提携过的人太多了。
+
+*****
+
+####  lanslort  
+##### 7136#       发表于 2023-3-26 07:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我只看拉拉（而且这几年也没怎么看）也知道啊，配过两次路人而且常年自称铁杆拉拉人的，刷推很容易就刷到了，我对她的认知也只有RGR而已。只刷微博倒是有可能不知道
+
+另一个我有印象高强度RP拉拉人的是隔壁天音妹妹，所以我之前还在想会不会把天音妹妹拉过来的。可惜了
+
+*****
+
+####  lanslort  
+##### 7137#       发表于 2023-3-26 07:20
+
+配过几代路人（而且是全系列唯一一个每代都有出现的角色）的还有隔壁灰灰的米库喵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 7138#       发表于 2023-3-26 09:09
+
+纷纷祝贺林鼓子作为铁血ller圆梦要有度啊...现在这个状况下，把当年参演水团剧场版的经历挖出来，配的文字是“天注定”“终圆梦”这样的词汇，很容易让人心里产生复杂的情绪，天注定这种说法就好像是在说前一任的遭遇也是天注定一样了，不知道过没过脑子...
+而且虹咲自我开盾刷太过了..到处刷到好多说和灯露关系好，上天注定是她的，这不是很明显的一眼营业开盾吗？你要说有缘分那真的是有，但是你要说关系好我就忍不住较真了，哪里冒出来的好朋友...夏吉 铃代还没说话呢
+
+*****
+
+####  toshima  
+##### 7139#       发表于 2023-3-26 09:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">声优不刷下关系你们脑补说关系不和，声优刷下关系你们又脑补营业声优盾，好话坏话全给说了
+
+*****
+
+####  DarthAka  
+##### 7140#       发表于 2023-3-26 10:10
+
+夏吉铃代刚新接马娘，shine post虽然眼瞧着开服即暴毙，但好赖看live是真练了，顾不上这边了
+
+
+*****
+
+####  稀勢のささ  
+##### 7141#       发表于 2023-3-26 10:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事到如今还在纠结接不接受是不是营业是不是开盾有啥意义吗？
+
+*****
+
+####  梶原ひかり  
+##### 7142#       发表于 2023-3-26 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">没有说开盾有什么不对..就是各路人抓个点就是天注定 关系如何如何好 是不是过头了？实在有种吃血馒头的感觉....
+
+*****
+
+####  DarthAka  
+##### 7143#       发表于 2023-3-26 10:25
+
+一帮人周末凑热闹，下星期就散了，先干点别的呗
+
+
+*****
+
+####  仟音一心  
+##### 7144#       发表于 2023-3-26 10:53
+
+这楼现在回帖的人比过去三个月都多，看来虹四格是真的没啥关注。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kerfars  
+##### 7145#       发表于 2023-3-26 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你楼的讨论环境真的支持正经讨论虹四吗，我都跑隔壁了
+
+*****
+
+####  ads147147  
+##### 7146#       发表于 2023-3-26 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60227700&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-3-26 10:53</a>
+这楼现在回帖的人比过去三个月都多，看来虹四格是真的没啥关注。</blockquote>
+讨论的都在隔壁了。反正都是同一批人，两个楼还是很难的。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  ads147147  
+##### 7147#       发表于 2023-3-26 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60227457&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-3-26 10:23</a>
+没有说开盾有什么不对..就是各路人抓个点就是天注定 关系如何如何好 是不是过头了？实在有种吃血馒 ...</blockquote>
+反正很多人都是突然自我感动一下就到处复制粘贴了，过两天就全消失了。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  名宵  
+##### 7148#       发表于 2023-3-26 11:08
+
+S1和NGA这点上还是反过来的：S1这边是星楼相对热闹，虹楼沉寂；NGA那边是虹楼相对热闹，星楼沉寂
+
+
+*****
+
+####  dozen  
+##### 7149#       发表于 2023-3-26 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60227457&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-3-26 10:23</a>
+没有说开盾有什么不对..就是各路人抓个点就是天注定 关系如何如何好 是不是过头了？实在有种吃血馒 ...</blockquote>
+哪次不是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddy2811  
+##### 7150#       发表于 2023-3-26 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60227700&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-3-26 10:53</a>
+
+这楼现在回帖的人比过去三个月都多，看来虹四格是真的没啥关注。</blockquote>
+人不是在NGA就是在贴吧啊<img src="https://static.saraba1st.com/image/smiley/carton2017/398.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7151#       发表于 2023-3-26 14:08
+
+ 本帖最后由 ddy2811 于 2023-3-26 14:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60225675&amp;ptid=1959558" target="_blank">星降る森 发表于 2023-3-26 00:54</a>
+
+简中圈经常关注偶像声优的一批还是认识的，战吧只会复读扭曲怪的那批才会不知道吧，和灯音宝参加同一届sma ...</blockquote>
+我觉得声优厨浓度下降不是一两个地方的问题，是整个简中圈子的问题……真要说的话我在NGA看到的声优相关离谱言论数量和离谱程度都高出贴吧不少<img src="https://static.saraba1st.com/image/smiley/carton2017/391.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hello0607  
+##### 7152#       发表于 2023-3-26 14:16
+
+草 是桃山
+
+
+*****
+
+####  himfsz  
+##### 7153#       发表于 2023-3-26 15:05
+
+其实林鼓子在虹动画一期里就出现了，就在台场那里站着，二年生侑散步那里也拍到了
+
+
+*****
+
+####  星降る森  
+##### 7154#       发表于 2023-3-27 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坛友被害妄想症真是强啊，什么叫不过头呢？偶像本来就是感情大于其他的东西，如果换的声优能迅速被粉丝接受，那反而是好事，难道要像当初星二期加人劝退一票人那样才满意吗？
+
+甭管有没有吃馒头，起码讨论这个的时候大家都比较和谐，坛友看不惯过几天也就过了，出来特立独行表现一下自己的不屑才是比较莫名其妙吧
+
+
+*****
+
+####  ads147147  
+##### 7155#       发表于 2023-3-27 14:53
+
+结果来说只是被星团整的ptsd吧，说实话现在的交接已经算顺畅了，接受的也是居多，也没什么声优盾啊，反而是底下的人应激反应太严重了，仿佛让我想起了428那天凌晨。
+
+
+*****
+
+####  adw667  
+##### 7156#       发表于 2023-3-27 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60226916&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-3-26 09:09</a>
+
+纷纷祝贺林鼓子作为铁血ller圆梦要有度啊...现在这个状况下，把当年参演水团剧场版的经历挖出来，配的文字 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就当这个“天注定”的意思是“这人天注定是要当LL配音的”不也行吗
+
+
+*****
+
+####  仟音一心  
+##### 7157#       发表于 2023-3-28 00:08
+
+未来八毛二上了热搜，起因是这个搞笑艺人的服装酷似打歌服，兔等人还点赞了。
+<img src="https://p.sda1.dev/10/5a421ff6bfa34228746ff9656670e498/1679924052777_edit_141350598867951.jpg" referrerpolicy="no-referrer">
+as官方也蹭了一下
+<img src="https://p.sda1.dev/10/e8899d91a9a6bb39f9196ecfe07b2eed/CMP_20230327234849283.jpg" referrerpolicy="no-referrer">
+菜宝在5th鉴赏会，觉得很生草
+<img src="https://p.sda1.dev/10/342b0e2bed324e912cb52c1e7806d046/1679924032513.jpg" referrerpolicy="no-referrer">
+灯重温八毛二听哭了
+<img src="https://p.sda1.dev/10/eb1e2dd3f8fcf2687ef3caf86b1806ef/CMP_20230328000819098.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 7158#       发表于 2023-3-28 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60222635&amp;ptid=1959558" target="_blank">Piano-Forest 发表于 2023-3-25 20:27</a>
+
+新作OVA「NEXT SKY」PV：
+
+https://youtu.be/ZnyCC_UCzCw</blockquote>
+30分钟：
+[https://www.amazon.co.jp/dp/B0BZHQR1MB/](https://www.amazon.co.jp/dp/B0BZHQR1MB/)
+
+
+*****
+
+####  仟音一心  
+##### 7159#       发表于 2023-3-28 14:08
+
+虹四格13～15话已偷跑
+
+
+*****
+
+####  ads147147  
+##### 7160#       发表于 2023-3-28 15:46
+
+好奇妙，tv的泡面反而再说一些很主线，补人设的事，bd的附加集反而是正经卖萌卖角色卖cp。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  笋狐  
+##### 7161#       发表于 2023-3-28 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以ED的DD要素大部分都塞到附加里去了，某种意义上蛮合理的
+
+
+*****
+
+####  仟音一心  
+##### 7162#       发表于 2023-3-28 16:24
+
+这三话侑DD的顺序是按照序号：
+第13话：2霞3雫4果林5爱
+第14话：6彼方7雪菜8艾玛9璃奈
+第15话：10栞子11米娅12岚珠1步梦​
+
+
+*****
+
+####  ddy2811  
+##### 7163#       发表于 2023-3-28 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60252500&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-3-28 15:46</a>
+
+好奇妙，tv的泡面反而再说一些很主线，补人设的事，bd的附加集反而是正经卖萌卖角色卖cp。
+
+—— 来自 OPPO ...</blockquote>
+也合理啊，主线还是重要的，应该让更多人看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lactone  
+##### 7164#       发表于 2023-3-29 16:17
+
+林鼓子挺好啊
+美妙天堂美妙频道那一帮CV现在在声优界混得不错的也不多吧
+相比美妙旋律时期的cv来说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  粉儿alice  
+##### 7165#       发表于 2023-3-29 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60263064&amp;ptid=1959558" target="_blank">lactone 发表于 2023-3-29 16:17</a>
+林鼓子挺好啊
+美妙天堂美妙频道那一帮CV现在在声优界混得不错的也不多吧
+相比美妙旋律时期的cv来说</blockquote>
+明坂聪美 米泽圆算差吗 何况还出了一个佐仓妖女 
+原纱友里 津田美波 高森奈津美 三宅麻理惠手上都有骗钱大师饭票 够了
+三女主阿澄大久保加藤大家也认识
+
+
+*****
+
+####  lactone  
+##### 7166#       发表于 2023-3-29 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60263383&amp;ptid=1959558" target="_blank">粉儿alice 发表于 2023-3-29 16:39</a>
+明坂聪美 米泽圆算差吗 何况还出了一个佐仓妖女 
+原纱友里 津田美波 高森奈津美 三宅麻理惠手上都有骗钱 ...</blockquote>
+我就是说美妙天堂和频道的cv不如旋律的混的好啊
+
+阿澄太太英美里rumi高森p津田美波未央佐仓三宅都算不错的了，但基本都是旋律出来的
+
+相比之下美妙天堂iris几个实力演技都不差但是混得就差不少
+尤其茜屋和若井友希两个人实力很强但是之后很多年也没有重要主役
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  DarthAka  
+##### 7167#       发表于 2023-3-29 18:13
+
+美妙系列女主不是81P自留地么，阿澄+大久保+加藤+茜屋+伊达+林……甚至个雀士
+
+*****
+
+####  DarthAka  
+##### 7168#       发表于 2023-3-29 18:16
+
+<img src="https://img.saraba1st.com/forum/202303/29/181607satbplbhnr2hpmn0.jpg" referrerpolicy="no-referrer">
+
+<strong>pic_quark_1680084939197.jpg</strong> (150.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-29 18:16 上传
+
+除了美妙魔法是里P
+
+
+*****
+
+####  梶原ひかり  
+##### 7169#       发表于 2023-3-29 18:36
+
+美妙系列前两作都选业界声优...
+从美妙旋律 美妙天堂开始就是81P和 艾回的自留地..
+主角首选自己事务所的人..业界混的都不太好 iris里声优 芹泽优算顶尖了
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 7170#       发表于 2023-3-29 20:20
+
+<img src="https://img.saraba1st.com/forum/202303/29/202023dyydtvoo0mio0mvi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (158.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-29 20:20 上传
+
+[けろりら @kerorira1](https://twitter.com/kerorira1/status/1641031904257294336)
+
+krrr这几天狂画爱姐
+
+
+*****
+
+####  仟音一心  
+##### 7171#       发表于 2023-3-30 01:00
+
+<img src="https://img.saraba1st.com/forum/202303/30/005943cl25n5unvxx7bxxe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4C12D940-80CF-460F-98BC-4E78A84E0FCD.jpeg</strong> (93.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-30 00:59 上传
+
+虹之咲字幕组
+
+“雪菜的头发真的很适合樱花的花瓣呢。”
+
+“是，是这样吗。侑同学的发型也特别适合呢。”
+
+Setsuna‘s episode
+
+一片，两片……在我的眼前樱花正不断飘落。看着这落下的花瓣，我仿佛忘记了时间流逝。
+
+在这春日的暖阳下，口中的丸子似乎也更美味了一些。
+
+“……嗯嗯”
+
+侑同学淡淡笑着，将手伸向我的发丝。
+
+“看啊雪菜，花瓣。”
+
+她一边说，一边向我展示着刚从我头发上取下的花瓣。
+
+她脸上带着的那份笑容，仿佛正闪闪发光般。
+
+“真……真是非常感谢！”
+
+大概是因为春日的暖意与较平日不同的这身穿着交织在一起吧，我的脸颊不由得热起来了。
+
+侑与同好会成员的两人出行企划本月来到侑与雪菜的暖春之旅！春日是不是令人特别惬意呢～
+
+次回将由艾玛陪伴侑出行！两人将会前往最近成为话题的某地♪
+
+详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
+
+<img src="https://img.saraba1st.com/forum/202303/30/005949dpu564nlpkpnqp85.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0E341433-E773-4753-BEE7-A55184C42880.jpeg</strong> (503.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-30 00:59 上传
+
+<img src="https://img.saraba1st.com/forum/202303/30/010007w4glhg0wp3n331pk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B13F6250-5160-40E1-AC55-2514E53ED1D8.jpeg</strong> (290.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-30 01:00 上传
+
+<img src="https://img.saraba1st.com/forum/202303/30/010013kduq0rcz4k5ldvw4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A6C6906C-C0EA-4DCC-8E6F-5E60E3D49CBF.jpeg</strong> (283.04 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-30 01:00 上传
+
+<img src="https://img.saraba1st.com/forum/202303/30/010018rjwzwygcufy3xn60.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>89928595-F678-4F8A-96A3-066F6C7471FC.jpeg</strong> (454.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-30 01:00 上传
+
+<img src="https://img.saraba1st.com/forum/202303/30/010022nq8emjzmwjpizjje.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BBD7D1D1-65FA-42D1-BACC-6A805CF1BCBE.jpeg</strong> (336.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-3-30 01:00 上传
+
+
+*****
+
+####  Alicest  
+##### 7172#       发表于 2023-3-30 01:13
+
+果然还是艾玛推（不是
+
+
+*****
+
+####  lactone  
+##### 7173#       发表于 2023-3-30 05:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60264832&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2023-3-29 18:36</a>
+美妙系列前两作都选业界声优...
+从美妙旋律 美妙天堂开始就是81P和 艾回的自留地..
+主角首选自己事务所的人 ...</blockquote>
+茜屋和佐仓都是94年的，发展轨迹就差不少
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  ads147147  
+##### 7174#       发表于 2023-3-30 08:54
+
+侑雪这种平平淡淡的感觉才是杀伤力最强的，步梦大危机jpg。
+
+侑扎辫子真的挺不错的。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  笋狐  
+##### 7175#       发表于 2023-3-30 09:22
+
+彩灯泯霜寒，冰上轮舞共氤氲
+
+暖风袭人醉，慢捻青丝总落花
+
+春日暖阳与优木雪菜，深冬白雪与樱坂雫
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然意境氛围浓度这块还是得看AZUNA
+
+
+*****
+
+####  仟音一心  
+##### 7176#       发表于 2023-3-30 10:47
+
+kami老师的侑与A·ZU·NA
+
+汉化嵌字：小蹄
+
+[[https://b23.tv/62i6qHg](https://b23.tv/62i6qHg)]
+<img src="http://img.nga.178.com/attachments/mon_202303/30/-9lddQpmy9-d6zoZqT3cSk0-eb.jpg.medium.jpg" referrerpolicy="no-referrer">
+<img src="http://img.nga.178.com/attachments/mon_202303/30/-9lddQpmy9-1bcbZaT3cSsg-kb.jpg.medium.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Huanghaozheng  
+##### 7177#       发表于 2023-3-30 18:04
+
+但对步梦，是刻骨铭心的爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 7178#       发表于 2023-3-30 21:14
+
+什么高咲无忌
+
+
+*****
+
+####  仟音一心  
+##### 7179#       发表于 2023-3-30 21:28
+
+生放送：兔妃菜麻鼓
+<img src="https://p.sda1.dev/10/54aab513fcf9a8f09178ada61f29068f/CMP_20230330212748641.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7180#       发表于 2023-3-30 21:30
+
+有趣的组合，不知道菜宝能不能当好拱火人。
+
+看看鼓子的吧友底力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7181#       发表于 2023-3-30 21:55
+
+菜宝的DIY节目请了水野朔
+<img src="https://p.sda1.dev/10/4a8abe21434070394b66c0961c6a9cba/CMP_20230330215534411.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  待宵  
+##### 7182#       发表于 2023-3-30 22:01
+
+上面那个和服侑我怎么觉得比12人更美腻
+
+
+*****
+
+####  仟音一心  
+##### 7183#       发表于 2023-3-31 13:12
+
+今晚九点 交接视频
+<img src="https://p.sda1.dev/10/8aecde8cb18c229d2e232ca5ebe4c9e0/CMP_20230331131206461.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/15df9a5defa8e768efd2ffce8a2a19c9/CMP_20230331131206506.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7184#       发表于 2023-3-31 21:25
+
+ 本帖最后由 仟音一心 于 2023-3-31 21:28 编辑 
+
+正式交接
+<img src="https://p.sda1.dev/10/b1a4c22b807a4c6a1b6700b80999b4f3/CMP_20230331212424686.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/8ba3097df21a955e8367492f9d919249/CMP_20230331212424751.jpg" referrerpolicy="no-referrer">
+[https://video.weibo.com/show?fid=1034:4885462540812309](https://video.weibo.com/show?fid=1034:4885462540812309)
+
+
+*****
+
+####  仟音一心  
+##### 7185#       发表于 2023-3-31 22:21
+
+妃灯小视频
+<img src="https://p.sda1.dev/10/724800483ea9e4b2549d60a4ed111ea8/-1030699905.jpg" referrerpolicy="no-referrer">
+[https://video.weibo.com/show?fid=1034:4885472162545882](https://video.weibo.com/show?fid=1034:4885472162545882)
+<img src="https://p.sda1.dev/10/b9394d72ad4d9a585588859e9c1e85be/CMP_20230331221951650.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  550616  
+##### 7186#       发表于 2023-3-31 23:10
+
+交接有完整视频么
+
+
+*****
+
+####  仟音一心  
+##### 7187#       发表于 2023-3-31 23:43
+
+ 本帖最后由 仟音一心 于 2023-3-31 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60291913&amp;ptid=1959558" target="_blank">550616 发表于 2023-3-31 23:10</a>
+
+交接有完整视频么</blockquote>
+【【中字】优木雪菜·中川菜菜 交接留言-哔哩哔哩】 [https://b23.tv/kTo7A0m](https://b23.tv/kTo7A0m)
+
+
+*****
+
+####  550616  
+##### 7188#       发表于 2023-4-1 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60292300&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-3-31 23:43</a>
+
+【【中字】优木雪菜·中川菜菜 交接留言-哔哩哔哩】 [https://b23.tv/kTo7A0m](https://b23.tv/kTo7A0m)</blockquote>
+感谢
+
+接替的声线要适应时间
+
+怎么感觉用力过猛了。。
+
+
+*****
+
+####  梶原ひかり  
+##### 7189#       发表于 2023-4-1 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60292978&amp;ptid=1959558" target="_blank">550616 发表于 2023-4-1 01:01</a>
+感谢
+接替的声线要适应时间
+怎么感觉用力过猛了。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 不仅用力过猛 而且感觉根本没有把握雪菜这个角色..配音实力也不行 还不如刚出道的伊达小百合强...
+
+
+*****
+
+####  仟音一心  
+##### 7190#       发表于 2023-4-1 13:21
+
+虹咲多视角大型连续剧复盘：鬼头家醉鬼们极度混乱的虹趴
+
+前情之前在厂长、麻圆的切片里提到过一部分，在菜宝秀秀的直播里和小组live后夜祭生放送里也有零星信息，现在通过兔和切咪的视角终于几乎拼出了当时的全貌：
+
+当天在鬼头家的成员，是11人，除了灯灯和前田没有来，其余都来齐了，原定的主要活动是庆祝小组live圆满结束和5th BD鉴赏会，阿卡林提出要不就各自带吃的过来吧，兔就提出带火锅食材吧，于是妃喵切咪萌P奈酱等人就各自带了食材大家煮火锅，就一个锅，为了丰富一些就换了好几种锅底。兔因为一直在厨房忙着切菜，于是被公认为了妈妈，当然妃喵也回来帮忙，最后洗盘子什么的也是妃兔一起，就和一期动画第10话一模一样。兔觉得大家应该向妃喵道谢。
+
+剩下的人大多就在不停地喝酒，烂醉如泥，妃兔就这样不停地给大家拿酒伺候着。
+
+尤其是麻圆，喝了三罐后就大喊“没有酒了！没有酒了！”然后就开始了众所周知的抱抱和坐大腿集体活动，玩得最high的就是厂长和麻圆。
+
+唯一例外的是菜宝，就一个人一遍吃着东西一遍看着5th BD一遍自言自语“好可爱好可爱啊”，于是被大家公认为了爸爸，因为家庭聚会家里一群女的，爸爸经常融入不进去。当麻圆向菜宝求抱抱和坐大腿时，菜宝百般推辞，麻圆都开始撒酒疯了“为什么不坐过来呢！为什么不坐过来呢！”
+
+此时切咪萌P还在后面跳悸动跑路人起哄，场面一度十分混乱。最后菜宝才勉为其难地坐了麻圆大腿，就这样在场全员都坐过了。
+
+最后就是兔一看都十二点半了在推上营业性地发了个晚安，凌晨一点被抓包根本还没睡的众所周知事件。
+
+
+*****
+
+####  X(iaolw)S  
+##### 7191#       发表于 2023-4-1 13:42
+
+ 本帖最后由 X(iaolw)S 于 2023-4-1 13:44 编辑 
+
+离开艾蛔都猜到了，但没想到81会放人
+<img src="https://p.sda1.dev/10/6962735fb9f8c3cde1711d762bf3da9b/IMG_CMP_67624230.jpeg" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  仟音一心  
+##### 7192#       发表于 2023-4-2 09:09
+
+<img src="https://p.sda1.dev/10/ea001d98729f1ca117c9daf49c31596f/CMP_20230402090913445.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/5e1ddb396aad8b92299bc1b5f86e0c2e/CMP_20230402090913491.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/0e8480b0ba2d6d286a5b9c47628add6a/CMP_20230402090913538.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7193#       发表于 2023-4-2 10:03
+
+菜宝，懂我们。
+
+今天开音乐还随机到了天降的op2，听到大suki的时候一股被刀的痛楚涌现出来。怎么会那么贴切。
+
+最初で最後の「スキ」
+
+最初的也是最后的“爱”
+
+最初で最後の「大スキ」
+
+最初的也是最后的“深爱”
+
+運命なんてなにも知らずにきめたミライだから
+
+因为这是我不知道命运如何而确定的未来
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  梶原ひかり  
+##### 7194#       发表于 2023-4-2 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60295812&amp;ptid=1959558" target="_blank">X(iaolw)S 发表于 2023-4-1 13:42</a>
+
+离开艾蛔都猜到了，但没想到81会放人</blockquote>
+合同期已经到了...只要想走不想留的 没有手段能不放人
+
+<img src="https://img.saraba1st.com/forum/202304/02/204356rpzjjg7uzzjqgih4.jpg" referrerpolicy="no-referrer">
+
+<strong>04.jpg</strong> (94.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-2 20:43 上传
+
+而且某林已经跟二刺螈切割了...最上面白色是退社之后的 下面黑色是退社之前的
+
+
+*****
+
+####  dozen  
+##### 7195#       发表于 2023-4-2 21:40
+
+删了喜欢动画、那大概没想走角色营业这条路吧
+
+
+*****
+
+####  ads147147  
+##### 7196#       发表于 2023-4-2 21:55
+
+接手这事不管哪个行业都是吃力不讨好，还是看看ova，还有之后live（和营业）的表现吧。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7197#       发表于 2023-4-3 14:23
+
+四格周边
+<img src="https://p.sda1.dev/10/c6695b797bcd5571cff9d51e3ecf98ae/CMP_20230403142243503.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/18fdda98e2ddbbe8fc30b8ff797e392d/34828399.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7198#       发表于 2023-4-3 16:38
+
+<img src="https://p.sda1.dev/10/a9e32ef65f8e9e3ccf01826378716236/-753d8e6abc4f635b.jpg" referrerpolicy="no-referrer">
+横田拓己樱坂雫生日贺图
+
+
+*****
+
+####  Piano-Forest  
+##### 7199#       发表于 2023-4-3 17:16
+
+[https://twitter.com/ohkowai/status/1642799224382423041](https://twitter.com/ohkowai/status/1642799224382423041)
+
+㊗️㊗️㊗️🎉🎉🎉しずくちゃん誕生日おめでとう～～🎂🎂🎂🎂🎊💪💧
+
+ #桜坂しずく生誕祭2023
+
+ #桜坂しずく誕生祭2023
+
+#桜坂しずく 
+
+#虹ヶ咲
+<img src="https://p.sda1.dev/10/e26cc2b9e57956848f762054c4fb2fa9/20230403_171526.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星降る森  
+##### 7200#       发表于 2023-4-3 19:45
+
+不是，不写在profile就叫切割了吗？还好人当年加入ll前确实拿着缪fl棒去看过fes，不然连成分都要被质疑了
+
+
+*****
+
+####  梶原ひかり  
+##### 7201#       发表于 2023-4-3 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60322723&amp;ptid=1959558" target="_blank">星降る森 发表于 2023-4-3 19:45</a>
+
+不是，不写在profile就叫切割了吗？还好人当年加入ll前确实拿着缪fl棒去看过fes，不然连成分都要被质疑了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别激动开玩笑的..我是也是听追RGR的大佬说的 
+
+不过另一方面 删除掉也算是一个暗示？
+
+反正当年佐仓小姐 删除唱歌以后 中文圈和日文圈？都流传着樱小姐被邦邦唱哭了 再也不唱了
+
+
+*****
+
+####  仟音一心  
+##### 7202#       发表于 2023-4-3 21:57
+
+FMT林鼓子全勤
+<img src="https://p.sda1.dev/10/b76a914049c8a9322bde3461e9554b7f/CMP_20230403215636275.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/e9d63d409d27f828540e613cd4fbb68b/CMP_20230403215636323.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/8ff6f382f2ddf38c6c40fc53f3a45084/CMP_20230403215636367.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/b39532601abdcaf478095e7c803c0314/CMP_20230403215636434.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  toshima  
+##### 7203#       发表于 2023-4-3 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">默默选择去隔壁mygo接近战聊天去
+
+*****
+
+####  仟音一心  
+##### 7204#       发表于 2023-4-3 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60323948&amp;ptid=1959558" target="_blank">toshima 发表于 2023-4-3 22:01</a>
+默默选择去隔壁mygo接近战聊天去</blockquote>
+日期还有撞了的<img src="https://p.sda1.dev/10/4e8a3aabd55ec6399663fb5942bd3df2/CMP_20230403220557427.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/774fcddaaa5429a953f99bf9de3e9913/CMP_20230403220557491.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7205#       发表于 2023-4-3 22:32
+
+<img src="https://p.sda1.dev/10/36163f9e35d7bafd4223555b2c121900/CMP_20230403221918425.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7206#       发表于 2023-4-3 23:02
+
+一样的姿势
+<img src="https://p.sda1.dev/10/839c26b3c4e8fa2aa5756f87857366eb/12904574202c6e33.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  toshima  
+##### 7207#       发表于 2023-4-3 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60323988&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-4-3 22:06</a>
+
+日期还有撞了的</blockquote>
+没撞，mygo这手渡会也不是全员都去的，已经有人都列好行程表了，挺满的也是
+
+<img src="https://img.saraba1st.com/forum/202304/03/231310rfqmememt854s7jq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230404001231.png</strong> (38.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 23:13 上传
+
+*****
+
+####  仟音一心  
+##### 7208#       发表于 2023-4-3 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60324725&amp;ptid=1959558" target="_blank">toshima 发表于 2023-4-3 23:13</a>
+没撞，mygo这手渡会也不是全员都去的，已经有人都列好行程表了，挺满的也是</blockquote>
+反正自由身了
+
+*****
+
+####  仟音一心  
+##### 7209#       发表于 2023-4-3 23:18
+
+还有鬼姐姐的团建
+<img src="https://p.sda1.dev/10/7891d04589c4ceb17a5cd0f546c03678/CMP_20230403231638736.jpg" referrerpolicy="no-referrer">
+
