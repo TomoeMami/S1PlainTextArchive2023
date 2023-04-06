@@ -771,3 +771,188 @@ deco这首原创还行
 
 噶得很好，下次还噶
 
+*****
+
+####  Fami水  
+##### 14558#       发表于 2023-3-24 11:23
+
+绫总要有新衣服了
+
+
+*****
+
+####  一仙  
+##### 14559#       发表于 2023-3-24 11:55
+
+竟然有新衣服了，上次新衣是多久以前了。
+
+
+*****
+
+####  Badwoman  
+##### 14560#       发表于 2023-3-24 15:26
+
+一年多了吧 nana画的让人印象深刻
+
+*****
+
+####  stedckk  
+##### 14561#       发表于 2023-3-24 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">希望这次发挥得好点
+
+*****
+
+####  因为你不会  
+##### 14562#       发表于 2023-3-24 21:03
+
+问题不是播多久能回本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14563#       发表于 2023-3-26 15:19
+
+不会绫总29号新衣服，四月复刻一月多上点班，五六月继续摆吧，一季度干一个月
+
+
+*****
+
+####  stedckk  
+##### 14564#       发表于 2023-3-27 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">眼药水工商，是不是要播多点试试效果
+
+
+*****
+
+####  stedckk  
+##### 14565#       发表于 2023-3-27 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么玩生化还能一边笑一边玩的。
+
+
+*****
+
+####  因为你不会  
+##### 14566#       发表于 2023-3-29 16:45
+
+就在今天
+
+
+*****
+
+####  Fami水  
+##### 14567#       发表于 2023-3-29 19:37
+
+半小时了 快端上来罢
+
+
+*****
+
+####  Fami水  
+##### 14568#       发表于 2023-3-29 19:49
+
+这个手势 感觉笑的更大声了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14569#       发表于 2023-3-29 20:19
+
+绫总这脖子我……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夏小筱ss  
+##### 14570#       发表于 2023-3-29 22:15
+
+这次不是辣辣画的了，骂不了辣辣
+
+*****
+
+####  夏小筱ss  
+##### 14571#       发表于 2023-3-29 22:15
+
+这次不是辣辣画的了，骂不了辣辣
+
+
+*****
+
+####  Badwoman  
+##### 14572#       发表于 2023-3-29 22:37
+
+抢生意了
+
+
+*****
+
+####  stmule  
+##### 14573#       发表于 2023-3-29 22:49
+
+<img src="https://p.sda1.dev/10/c121b870be4d67cc2b3c597412c1bd0d/CMP_20230329224852989.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/8abb0c84b60e662284f75032fe77b789/CMP_20230329224852936.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/e4c3be92b54ebdd5a3860d69fd981f9b/CMP_20230329224852876.jpg" referrerpolicy="no-referrer">
+木口必须要有一个樱巫女！
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  因为你不会  
+##### 14574#       发表于 2023-3-29 23:01
+
+找个绫总这种不上班的当巫女代餐是否有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14575#       发表于 2023-3-31 23:59
+
+绫总四月份能不能发愤图强，不行的话我下个月再来问一遍
+
+
+*****
+
+####  stedckk  
+##### 14576#       发表于 2023-4-1 02:18
+
+下个月五月病了，六月再来吧
+
+
+*****
+
+####  因为你不会  
+##### 14577#       发表于 2023-4-1 14:19
+
+六七八月份怕不是要到到绫历暑假了
+
+
+*****
+
+####  stedckk  
+##### 14578#       发表于 2023-4-1 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总最近两个月直播了4次（不算会限），工商、年会总结、工商、新衣服，肉眼可见的不想直播
+
+
+*****
+
+####  因为你不会  
+##### 14579#       发表于 2023-4-2 17:47
+
+反正搞集体活动的时候绫总没失踪就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14580#       发表于 2023-4-3 18:03
+
+绫总四月一号转个推又失踪两天，卖东西都摆得一
+
