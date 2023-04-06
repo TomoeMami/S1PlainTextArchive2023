@@ -553,3 +553,121 @@ ep10会有卢德米拉觉醒。ep10说是第二季最终章。ep11章节名是�
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 871#         楼主| 发表于 2023-3-31 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沃日 要有异格角色了 
+周姐和卡琳打赢复活赛了啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 872#       发表于 2023-4-1 19:21
+
+那是什么东西 别又是“黑化觉醒”
+
+
+*****
+
+####  rgauss  
+##### 873#         楼主| 发表于 2023-4-1 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60298241&amp;ptid=2028054" target="_blank">要嗝屁了 发表于 2023-4-1 19:21</a>
+那是什么东西 别又是“黑化觉醒”</blockquote>
+由于再武装消费过高，用其他方式来获取新战斗姿态的角色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官方是这么说的。第一批有红毛女仆
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  要嗝屁了  
+##### 874#       发表于 2023-4-1 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60298640&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-4-1 20:12</a>
+
+由于再武装消费过高，用其他方式来获取新战斗姿态的角色官方是这么说的。第一批有红毛女仆
+
+——  ...</blockquote>
+再武装不是白嫖战斗力吗
+
+
+*****
+
+####  rgauss  
+##### 875#         楼主| 发表于 2023-4-1 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60298668&amp;ptid=2028054" target="_blank">要嗝屁了 发表于 2023-4-1 20:14</a>
+再武装不是白嫖战斗力吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">改版前ssr的再武装还真不好弄。改版后消耗就是随便洒水了。
+这里的意思就是官方不想用低品质角色的再武装吃你资源了，想改变方式去消耗更多的资源 比如蓝票什么的（打个比方）
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 876#       发表于 2023-4-3 16:07
+
+委托跃入改版等级高了以后怎么打啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">110级autoboss顶不住debuff先炸了
+
+*****
+
+####  rgauss  
+##### 877#         楼主| 发表于 2023-4-3 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60319706&amp;ptid=2028054" target="_blank">仓鼠吃火锅 发表于 2023-4-3 16:07</a>
+
+委托跃入改版等级高了以后怎么打啊110级autoboss顶不住debuff先炸了</blockquote>
+咸鱼做法：等改回原版跃入
+
+不咸鱼：根据对面调整队伍，有些怪是对制裁者大额减伤还有晕同职介的角色。
+
+
+*****
+
+####  要嗝屁了  
+##### 878#       发表于 2023-4-3 16:30
+
+周四以后就不会掉血了 随便auto
+
+
+*****
+
+####  仓鼠吃火锅  
+##### 879#       发表于 2023-4-3 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60319735&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-4-3 16:09</a>
+
+咸鱼做法：等改回原版跃入
+
+&amp; ...</blockquote>
+那有没有直接关闭跃入的办法啊，一排占着茅坑不拉屎刷不出团本<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 880#         楼主| 发表于 2023-4-3 16:53
+
+ 本帖最后由 rgauss 于 2023-4-3 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60320188&amp;ptid=2028054" target="_blank">仓鼠吃火锅 发表于 2023-4-3 16:44</a>
+那有没有直接关闭跃入的办法啊，一排占着茅坑不拉屎刷不出团本</blockquote>
+关闭只有24小时自己关了啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">把定位仪拆了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 881#       发表于 2023-4-3 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么会希望多点boss的 boss放出去不是第一第二周都没人打24小时烂掉太恶心了 我现在2周结束就直接删除的
+
