@@ -992,3 +992,36 @@
 广播组好像要实装了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">那是好事啊，抽抽抽
 
+*****
+
+####  无念  
+##### 309#       发表于 2023-4-4 01:05
+
+百抽只有一个，算了攒钻等歪吧
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  羽出  
+##### 310#       发表于 2023-4-4 10:30
+
+抽一井一，还歪了个旗袍主角，算不错了
+
+
+*****
+
+####  小五的拖鞋  
+##### 311#         楼主| 发表于 2023-4-4 17:21
+
+<img src="https://img.saraba1st.com/forum/202304/04/172010gv5wz98htnn5pxwm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4BF89C67-A8C9-4C8E-9D84-1FEF38E6AB9C.jpeg</strong> (950.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-4 17:20 上传
+
+大就是好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
