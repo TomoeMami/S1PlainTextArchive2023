@@ -723,3 +723,43 @@ LIVE BD一场不落的表示很赞！
 不会又要死了吧</blockquote>
 我觉得是要死了
 
+*****
+
+####  宫宝兔丁  
+##### 79#         楼主| 发表于 2023-4-4 18:19
+
+果然还是死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  信长的呕吐  
+##### 80#       发表于 2023-4-4 18:26
+
+而且是死透了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unsh  
+##### 81#       发表于 2023-4-4 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">男人这边只剩下一个还没出的街机了
+
+*****
+
+####  キラ様  
+##### 82#       发表于 2023-4-4 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花礫  
+##### 83#       发表于 2023-4-4 19:13
+
+好好，啥时候bn死一死我放鞭炮。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
