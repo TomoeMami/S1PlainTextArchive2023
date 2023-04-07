@@ -1050,3 +1050,29 @@ saku上线
 
 白毛贝雷帽异色瞳 ，可以 
 
+*****
+
+####  龙娘777  
+##### 3113#       发表于 2023-4-4 20:15
+
+我听卡姐这意思要去4V待一段时间了 虽然承诺会一直播 但人生际遇这种重大变故很难说会不会影响继续做这行 也别怪兄弟们振
+
+
+*****
+
+####  ladiesman802  
+##### 3114#       发表于 2023-4-4 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60335273&amp;ptid=1926094" target="_blank">龙娘777 发表于 2023-4-4 20:15</a>
+
+我听卡姐这意思要去4V待一段时间了 虽然承诺会一直播 但人生际遇这种重大变故很难说会不会影响继续做这行  ...</blockquote>
+一段时间也不超过一个月，我看普通签证最多15天，而且也会开直播，总不能过去嫁给台湾人吧
+
+
+*****
+
+####  喜闻乐见  
+##### 3115#         楼主| 发表于 2023-4-4 22:20
+
+<img src="https://pic1.58cdn.com.cn/nowater/webim/big/n_v2f060984ed4094f6abce7b2aba1763050.png" referrerpolicy="no-referrer">
+
