@@ -1138,3 +1138,456 @@ peakdo过几天要发货了。看最新视频似乎4m以内任意角度和姿势
 
 [https://www.bilibili.com/video/BV1fM411s73C/](https://www.bilibili.com/video/BV1fM411s73C/)
 
+*****
+
+####  bypass  
+##### 666#         楼主| 发表于 2023-3-28 09:31
+
+我又在纠结要不要弄个 Ayaneo Air 玩点独立游戏 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 为了重量和那个屏幕。
+
+
+*****
+
+####  那由  
+##### 667#       发表于 2023-3-28 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60248500&amp;ptid=2086469" target="_blank">bypass 发表于 2023-3-28 09:31</a>
+
+我又在纠结要不要弄个 Ayaneo Air 玩点独立游戏  为了重量和那个屏幕。</blockquote>
+5560u除了玩模拟器还是有点吃力以外都还好，上周就尝试性挂了一下闲鱼还是有很多人想要的
+
+
+*****
+
+####  忽克連  
+##### 668#       发表于 2023-3-28 11:59
+
+gpd好像要出七寸7840u笔记本了
+
+
+*****
+
+####  Winder07  
+##### 669#       发表于 2023-3-28 12:09
+
+<blockquote>忽克連 发表于 2023-3-28 11:59
+gpd好像要出七寸7840u笔记本了</blockquote>
+win2的空间其实比win3和win4都小，所以功耗释放是个问题
+
+
+*****
+
+####  饭冢武也  
+##### 670#       发表于 2023-3-28 12:17
+
+便携这个赛道感觉还需要再等一年
+
+
+*****
+
+####  bypass  
+##### 671#         楼主| 发表于 2023-3-28 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60249806&amp;ptid=2086469" target="_blank">那由 发表于 2023-3-28 11:53</a>
+
+5560u除了玩模拟器还是有点吃&amp;#x52 ...</blockquote>
+嗯闲鱼买了个感觉价格还可以的，玩两天看看，不行再出。
+
+
+*****
+
+####  luffyzhou  
+##### 672#       发表于 2023-3-28 13:58
+
+我手里的5560u的air pro，在上面玩了p5r的大部分迷宫（演出效果比较好的情节还是用pc大屏玩了，这点也算是steam方便的地方），神之天平和血污也在air pro上玩来的
+
+
+*****
+
+####  Mzi  
+##### 673#       发表于 2023-3-28 14:54
+
+整了几个月之后已经不太想用掌机手柄打游戏了，感觉手汗被加重了很多。换无线手柄之后又开始怀疑自己的初心<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  紫煜  
+##### 674#       发表于 2023-3-29 23:28
+
+毫米波买了个玩玩，发射端发热好厉害玩一会就烫手了，不知道对寿命有多大影响<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+peakdo给的那个手柄转换器延迟真高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  医生狼多  
+##### 675#       发表于 2023-3-30 00:55
+
+【搭载AMD 7XXX系处理器，AOKZOE掌机新品A1 Pro即将内测-哔哩哔哩】 https://b23.tv/VZOE5O6
+
+
+*****
+
+####  bypass  
+##### 676#         楼主| 发表于 2023-3-30 16:08
+
+<img src="https://img.saraba1st.com/forum/202303/30/160406l6wi5ii9iu9zbq9i.jpg" referrerpolicy="no-referrer">
+
+<strong>d9572c0156391b084691fc27c2538fd.jpg</strong> (343.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-30 16:04 上传
+
+Ayaneo Air 到了，体验了半天，感觉还是更喜欢 Deck 一些，准备还是挂回闲鱼了。
+
+体积的确小，屏幕的确好，但是习惯了 SteamOS 之后用 Windows + AYASpace 感觉好麻烦，AYASpace 没有预期的好，也不想去刷 HoloISO 了，太麻烦。
+
+另外我不能理解的一点是，不提供物理西瓜键就算了，为什么 AYASpace 里面的自定义按键映射也不提供啊，里面的 Xbox 导航实际是 Win + G，我用 Steam 的大屏幕模式还是很依赖西瓜键的啊…
+
+
+*****
+
+####  旧梦囚心  
+##### 677#       发表于 2023-3-31 14:30
+
+一口气爬完了六百多楼，掌机萌新来提问了：
+
+1、WIN掌机怎么解决那种鼠标才能体验的游戏呢，像正义之怒、极乐迪斯科、永恒之柱这种拿鼠标点点点、圈圈圈的游戏。
+
+2、不太想过多折腾的话，如果是买个SD，Steam OS系统玩没有汉化的游戏，打汉化补丁方便吗，比如人狼村之谜、428被封锁的涩谷、质量效应传奇版。
+
+3、我目前的需求上限就是能玩正义之怒和质量效应传奇版这种游戏，顶多再加个ppsspp模拟器玩玩ps2的游戏，3A的话不做指望。那么以下三种掌机，ayaneo air pro或者steam deck亦或者aokzoe 6800u该如何选择最好呢。
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  硫黄  
+##### 678#       发表于 2023-3-31 14:35
+
+<blockquote>旧梦囚心 发表于 2023-3-31 14:30
+一口气爬完了六百多楼，掌机萌新来提问了：
+
+1、WIN掌机怎么解决那种鼠标才能体验的游戏呢，像正义之怒、极 ...</blockquote>
+sd汉化最容易的办法
+
+电脑下一遍游戏，打了补丁
+
+然后sd下了游戏再复制替换
+
+*****
+
+####  qappip  
+##### 679#       发表于 2023-3-31 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60285568&amp;ptid=2086469" target="_blank">旧梦囚心 发表于 2023-3-31 14:30</a>
+
+一口气爬完了六百多楼，掌机萌新来提问了：
+
+1、WIN掌机怎么解决那种鼠标才能体验的游戏呢，像正义之怒、极 ...</blockquote>
+我就一句话 win掌机只要用小摇杆一律pass，（我印象中全是小摇杆）玩fps和tps跟残疾人一样，精度超级烂。
+
+用鼠标基本没得解决，不能用触摸板模拟。
+
+sd可以打汉化补丁， 人狼村我就是sd玩的。
+
+
+*****
+
+####  haoyumena  
+##### 680#       发表于 2023-3-31 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60285568&amp;ptid=2086469" target="_blank"> 旧梦囚心 发表于 2023-3-31 14:30</a> 一口气爬完了六百多楼，掌机萌新来提问了：  1、WIN掌机怎么解决那种鼠标才能体验的游戏呢，像正义之怒、极乐迪斯科、永恒之柱这种拿鼠标点点点、圈圈圈的游戏。  2、不太想过多折腾的话，如果是买个SD，Steam OS系统玩没有汉化的游戏，打汉化补丁方便吗，比如人狼村之谜、428被封锁的涩谷、质量效应传奇版。  3、我目前的需求上限就是能玩正义之怒和质量效应传奇版这种游戏，顶多再加个ppsspp模拟 </blockquote>
+1.基本无法解决，可以摇杆模拟鼠标，或者部分机子带触摸板，但是玩起来和鼠标体验还是差太远。来自: iPhone客户端
+
+
+*****
+
+####  blueelf  
+##### 681#       发表于 2023-3-31 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60285568&amp;ptid=2086469" target="_blank">旧梦囚心 发表于 2023-3-31 14:30</a>
+
+一口气爬完了六百多楼，掌机萌新来提问了：
+
+1、WIN掌机怎么解决那种鼠标才能体验的游戏呢，像正义之怒、极 ...</blockquote>
+1.正义之怒和极乐迪斯科都是原生支持手柄的，手柄操作不比鼠标麻烦多少，永恒之柱不行，只能靠触摸板
+
+2.很方便，替换文件或者红酒杯运行汉化补丁都行
+
+3.现在的WIN掌机最大的卖点就是可以像模像样的运行大多数3A游戏，你这点需求买个SD就好
+
+*****
+
+####  医生狼多  
+##### 682#       发表于 2023-3-31 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60285568&amp;ptid=2086469" target="_blank">旧梦囚心 发表于 2023-3-31 14:30</a>
+一口气爬完了六百多楼，掌机萌新来提问了：
+
+1、WIN掌机怎么解决那种鼠标才能体验的游戏呢，像正义之怒、极 ...</blockquote>
+针对第三点，不玩鼠标类点点点的ayaair更合适，sd太大了不适合外带，aya你口袋大点勉强还能装
+
+
+*****
+
+####  ynqsqz  
+##### 683#       发表于 2023-4-2 13:00
+
+想买个，看了一圈评论这几个牌子好像都有各种各样的问题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 684#         楼主| 发表于 2023-4-2 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60304093&amp;ptid=2086469" target="_blank">ynqsqz 发表于 2023-4-2 13:00</a>
+
+想买个，看了一圈评论这几个牌子好像都有各种各样的问题</blockquote>
+现在没有完美的掌机，选个自己能忍受缺点的吧
+
+
+*****
+
+####  83913536  
+##### 685#       发表于 2023-4-2 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60285641&amp;ptid=2086469" target="_blank">qappip 发表于 2023-3-31 14:37</a>
+
+我就一句话 win掌机只要用小摇杆一律pass，（我印象中全是小摇杆）玩fps和tps跟残疾人一样，精度超级烂。 ...</blockquote>
+有三种摇杆，Air和Win Max这类用的是小摇杆，onexplayer mini用的是比普通手柄摇杆小一号的，大号的onexplayer的摇杆尺寸好像和xbox手柄一样
+
+*****
+
+####  杉田悠一  
+##### 686#       发表于 2023-4-2 20:49
+
+不知道要多密集的点点点，SD的触摸板我玩老战棋就很舒服了，又快又准，还有震动反馈好像实体键，
+
+—— 来自 Xiaomi 2206122SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  qappip  
+##### 687#       发表于 2023-4-2 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60309446&amp;ptid=2086469" target="_blank">83913536 发表于 2023-4-2 20:45</a>
+
+有三种摇杆，Air和Win Max这类用的是小摇杆，onexplayer mini用的是比普通手柄摇杆小一号的，大号的onexp ...</blockquote>
+大号小号我都持有过都是小摇杆，只有sd才是真的大摇杆。
+
+
+*****
+
+####  ynqsqz  
+##### 688#       发表于 2023-4-2 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60307636&amp;ptid=2086469" target="_blank">bypass 发表于 2023-4-2 18:22</a>
+
+现在没有完美的掌机，选个自己能忍受缺点的吧</blockquote>
+准备买奥克，8寸屏感觉字不会太小，价格512G的五千出头还能接受
+
+
+*****
+
+####  医生狼多  
+##### 689#       发表于 2023-4-2 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60310843&amp;ptid=2086469" target="_blank">ynqsqz 发表于 2023-4-2 22:33</a>
+准备买奥克，8寸屏感觉字不会太小，价格512G的五千出头还能接受</blockquote>
+奥克在预热7000系了，从几家一起预热7840来看我估摸7月份左右能出，我建议你现在买个升级权益还没用的二手就行
+
+
+*****
+
+####  ynqsqz  
+##### 690#       发表于 2023-4-2 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60311043&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-4-2 22:48</a>
+
+奥克在预热7000系了，从几家一起预热7840来看我估摸7月份左右能出，我建议你现在买个升级权益还没用的二 ...</blockquote>
+这更新换代有够快<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  フカミ  
+##### 691#       发表于 2023-4-2 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60309446&amp;ptid=2086469" target="_blank">83913536 发表于 2023-4-2 20:45</a>
+ 有三种摇杆，Air和Win Max这类用的是小摇杆，onexplayer mini用的是比普通手柄摇杆小一号的，大号的onexp ...</blockquote>
+joycon的大小大概对应哪一种类型？
+
+
+*****
+
+####  83913536  
+##### 692#       发表于 2023-4-3 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60311142&amp;ptid=2086469" target="_blank">フカミ 发表于 2023-4-2 22:57</a>
+
+joycon的大小大概对应哪一种类型？</blockquote>
+Air Winmax用的那种
+
+
+*****
+
+####  ultraseven  
+##### 693#       发表于 2023-4-3 08:18
+
+华硕也进场做Win掌机了 ROG Ally
+<img src="https://pisces.bbystatic.com/image2/BestBuy_US/Gallery/SOL-106757-ASUS-EmailCapture-section1_img-218854.jpg" referrerpolicy="no-referrer">
+
+竟然选择在愚人节官宣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 694#         楼主| 发表于 2023-4-3 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60313214&amp;ptid=2086469" target="_blank">ultraseven 发表于 2023-4-3 08:18</a>
+
+华硕也进场做Win掌机了 ROG Ally</blockquote>
+之前还跟华硕台湾工作的一个朋友聊，说他们部门买了 Steam Deck 和三台大陆的掌机（OXP，Aya 和 GPD）研究要不要也做 Windows 掌机，得出结论是太屎了不要做。这个后来是另一个部门做的 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 695#       发表于 2023-4-3 09:33
+
+不觉得华硕进场能改变啥，再拉高价格上限？
+
+
+*****
+
+####  彩虹肥宅  
+##### 696#       发表于 2023-4-3 09:44
+
+还是等新一代的安卓掌机吧，坐等奥丁2
+
+
+*****
+
+####  ynqsqz  
+##### 697#       发表于 2023-4-3 09:54
+
+华硕定价不会便宜吧，怕不是一万起步
+
+
+*****
+
+####  时空之旅  
+##### 698#       发表于 2023-4-3 10:04
+
+<blockquote>bypass 发表于 2023-4-3 09:09
+之前还跟华硕台湾工作的一个朋友聊，说他们部门买了 Steam Deck 和三台大陆的掌机（OXP，Aya 和 GPD）研 ...</blockquote>
+啥意思哦？太屎是指？
+
+*****
+
+####  bypass  
+##### 699#         楼主| 发表于 2023-4-3 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60314313&amp;ptid=2086469" target="_blank">时空之旅 发表于 2023-4-3 10:04</a>
+
+啥意思哦？太屎是指？</blockquote>
+续航、重量、性能取舍太大。
+
+
+*****
+
+####  Thrangdan  
+##### 700#       发表于 2023-4-3 12:48
+
+win机现在太难做平衡了。
+
+
+*****
+
+####  bypass  
+##### 701#         楼主| 发表于 2023-4-3 14:11
+
+Ayaneo Slide 
+
+<img src="https://img.saraba1st.com/forum/202304/03/141049yscstfbdsn4zpf9t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202304/03/141056gkds5p5ngfp5m2pu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 14:10 上传
+
+<img src="https://img.saraba1st.com/forum/202304/03/141106esckscukissur2jc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (32.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 14:11 上传
+
+
+*****
+
+####  Fuero  
+##### 702#       发表于 2023-4-4 22:41
+
+第一次用本地传输，还挺实用的
+
+<img src="https://img.saraba1st.com/forum/202304/04/224113d3gxt536he6gf5gh.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (392.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-4 22:41 上传
+
+
+*****
+
+####  87742035  
+##### 703#       发表于 2023-4-6 17:39
+
+现在pdd最低3400的价格怎么样啊，我看到最低的据说几个月前才2600
+
+
+*****
+
+####  大暴死  
+##### 704#       发表于 2023-4-6 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60354988&amp;ptid=2086469" target="_blank">87742035 发表于 2023-4-6 17:39</a>
+现在pdd最低3400的价格怎么样啊，我看到最低的据说几个月前才2600</blockquote>
+春节前2599<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bypass  
+##### 705#         楼主| 发表于 2023-4-6 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60354988&amp;ptid=2086469" target="_blank">87742035 发表于 2023-4-6 17:39</a>
+
+现在pdd最低3400的价格怎么样啊，我看到最低的据说几个月前才2600</blockquote>
+什么，我的 Deck 又升值了 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
