@@ -1072,3 +1072,32 @@ PS XONE版还好，除了PS3/PC移植版的遗留问题外帧数稳定 ...</bloc
 本来有点兴趣的结果这样，现在要补的话玩哪一版最好啊</blockquote>
 ngc版有60帧和更原生的特效效果但没有追加内容，要么直接选这次的re版就行
 
+*****
+
+####  qiyu1234  
+##### 107#         楼主| 发表于 2023-4-6 17:53
+
+经过玩家不懈的轰炸努力
+
+英文官推终于上线了一个关于TOSR的线上问卷（不需要注册）
+
+地址 [https://bnent.eu/TOSR-Survey](https://bnent.eu/TOSR-Survey)
+
+<img src="https://img.saraba1st.com/forum/202304/06/175310z5wr1y5k3hwhdu1z.jpg" referrerpolicy="no-referrer">
+
+<strong>0.jpg</strong> (156.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:53 上传
+
+涵盖了一些问题，包括本作的游玩平台，游玩时间，游玩中遇到了什么技术问题（你这选项不是已经基本覆盖全了吗<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">），还有就是对玩家个人使用平台，游戏习惯等的调查，还问玩家玩过什么具体的什么其他游戏，（选项里没有）也能自己填，但是他列出的选项看上去值得玩味。。。
+
+<img src="https://img.saraba1st.com/forum/202304/06/175314pnwnkntohyfggngo.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (77.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:53 上传
+
