@@ -258,3 +258,36 @@ via [Twitter](https://twitter.com/imascg_chihiro/status/1641320400885018624?s=19
 
 做土味MV真开心啊（才怪）；好几个特效真的很有抖音味，要不和抖音联动算了 #MVメイカー
 
+*****
+
+####  Unlight  
+##### 5373#       发表于 2023-4-6 00:51
+
+U149圆盘会塞王之力吗（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kobushi  
+##### 5374#       发表于 2023-4-6 01:13
+
+有游戏内特典啊，不过对（极少数）强度党没用再说是糊糊养老手游了
+
+
+*****
+
+####  unsh  
+##### 5375#       发表于 2023-4-6 08:34
+
+BD全卷特典有u149的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宵神乐  
+##### 5376#       发表于 2023-4-6 21:28
+
+动画开播都不送白嫖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
