@@ -241,3 +241,329 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202303/30/153841zb6zuju4bzg67ual.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Yason  
+##### 1978#       发表于 2023-4-6 01:56
+
+【《战神：诸神黄昏》新游戏+已上线】《战神：诸神黄昏》的NG+模式为玩家带来了新装备、提高的等级上限、新的附魔等多个更新。同时，玩家还可以利用上一轮游戏中的装备和技能来迎接新的挑战。此外，新的护甲、新的盾牌以及各种新的战斗附魔等也将为玩家提供更多的选择和玩法。
+
+*****
+
+####  性兽阿怪  
+##### 1979#       发表于 2023-4-6 03:51
+
+更新！
+
+*****
+
+####  415452356  
+##### 1980#       发表于 2023-4-6 04:28
+
+  NG+新加的饰品可以直接用其他胸甲的被动，不错啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  性兽阿怪  
+##### 1981#       发表于 2023-4-6 08:31
+
+二周目送的黑熊套还挺好的，和延长闪避距离的符文一起用手感比较舒服
+
+
+*****
+
+####  黑暗之眼  
+##### 1982#       发表于 2023-4-6 11:54
+
+一周目升哪套比较好，打到开诸神黄昏了还是穿的矮人毒套
+
+
+*****
+
+####  奇里奥斯  
+##### 1983#       发表于 2023-4-6 12:02
+
+有没有更新文档能看看具体更新了点啥？
+
+*****
+
+####  JudgmentEye  
+##### 1984#       发表于 2023-4-6 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60351099&amp;ptid=2025548" target="_blank">奇里奥斯 发表于 2023-4-6 12:02</a>
+
+有没有更新文档能看看具体更新了点啥？</blockquote>
+This XML file does not appear to have any style information associated with it. The document tree is shown below.
+
+&lt;changeinfo&gt;
+
+&lt;changes app_ver="01.01"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="01.02"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="01.03"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="02.00"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="02.01"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="02.02"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="02.03"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="02.04"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="03.00"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="03.01"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="03.02"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;changes app_ver="04.00"&gt;
+
+&lt;![CDATA[ • 多方面进行问题修复及体验优化 ]]&gt;
+
+&lt;/changes&gt;
+
+&lt;/changeinfo&gt;
+
+*****
+
+####  SergeGlenn  
+##### 1985#       发表于 2023-4-6 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60351099&amp;ptid=2025548" target="_blank">奇里奥斯 发表于 2023-4-6 12:02</a>
+
+有没有更新文档能看看具体更新了点啥？</blockquote>
+Accessing New Game +
+
+Please note that a save file with the Main Story Quest completed is required to start any new NG+ run.
+
+_______________________________________________________________________________________
+
+​
+
+New in Patch [04.00] ​
+
+New Level Cap
+
+Both Kratos and enemies have an increased level cap.
+
+Convert your Level 9 equipment into new 'Plus' versions to unlock additional levels of progression.
+
+New Equipment
+
+Amor of the Black Bear - You will begin your NG+ run with this already equipped.
+
+Spartan Armor - Can be purchased from the Huldra Brothers' Shop for Hacksilver.
+
+Ares Armor - Can be purchased from the Huldra Brothers' Shop for Hacksilver.
+
+Zeus Armor - Acquired by defeating Gná the Valkyrie Queen and completing certain Remnants of Asgard on a NG+ save.
+
+Spartan Aspis [New Shield] - Can be purchased from the Huldra Brothers' Shop for Hacksilver.
+
+Armor Appearances
+
+13 existing armors have new color combinations available. 12 of these can be acquired at the Huldra Brothers' Shop and applied to any of your existing Level 9+ armor in the transmog menu. The last armor appearance is for the Berserker Armor, you will need to defeat the Berserker King on NG+ to get it.
+
+New Enchantments
+
+Gilded Coins - Engraving and Badge Enchantments
+
+Gilded Coins are obtained by turning your Level 9 equipment into the 'Plus' version. You can use Gilded Coins to purchase a new selection of Enchantments that take Perks from equipment (engravings) and shield rönds (badges), and allow you to equip them into your Amulet.
+
+Many Engravings will require you to meet a certain stat threshold to equip.
+
+Berserker Soul Drops - Stat Boost Enchantments
+
+This set of Enchantments will drop after defeating the Berserker Souls in NG+. They will provide massive stat boosts.
+
+Burdens
+
+This set of Enchantments will have a negative Perk, so you can tailor how the game challenges you. They can be purchased from the Huldra Brothers' shop using Hacksilver.
+
+New Progression Paths
+
+New Skill Mod Plus - Upgrade your existing Skill Mod tokens using XP to further enhance the effects of your favorite Mods.
+
+Platinum Tier Labors - Carry over any progress from your Kill Labors or Ratatasks and continue to unlock a new Platinum Tier of rewards!
+
+Additional Stat Gains - Nornir Chests will now provide Yggdrasil Dew to allow players to push Stats far beyond their previous limits.
+
+Expanded Niflheim Arena
+
+Play as either Kratos or Atreus.
+
+The following companions can be used alongside either selection: Atreus (with Kratos), Freya, Brok, Sindri, Angrboda, Ingrid, Thor, and Thrúd.
+
+Enemy Adjustments
+
+Endgame Bosses
+
+Berserker Souls and Valkyrie Queen Gná fights include new adjustments to keep the fights fresh in NG+.
+
+Other Enemy Adjustments
+
+Available on All Difficulties in NG+
+
+The Hateful and Ormstunga fights will also include adjustments to keep the fights fresh.
+
+Available on Give Me No Mercy and Give Me God of War in NG+
+
+All bosses and mini-bosses will have Runic Armor.
+
+[GMNM] Enemies can now turn elite, giving them an increase in Power Level.
+
+Black and White Render Mode
+
+After you beat the game once, you will gain access to the Black and White Render Mode for an additional cinematic feel. This can be accessed in the Graphics &amp; Camera settings menu.
+
+Shop Changes
+
+You will now be able to purchase and sell resources incrementally.
+
+UI Changes
+
+Show Difficulty - A new UI option that will display your current difficulty setting on your HUD, as well as how many burdens you have equipped.
+
+Photo Mode Character Expressions
+
+The following characters can now have their expressions changed while in Photo Mode: Mimir, Hildisvíni, Lúnda, and Ræb.
+
+Bug Fixes ​
+
+Combat
+
+Implemented general balancing tweaks and bug fixes to various equipment pieces.
+
+Fixed an issue with collision during Freya's Invoke the Storm Runic Attack.
+
+Fixed a case of potential exploits with boss encounter during the quest "Defend Your Valor."
+
+Fixed an issue of an equipment Perk giving the incorrect stat boost.
+
+Fixed a case where the Raging Fury Perk on the Fate Breaker Armor caused an incorrect rate of Rage fain when both arms and legs pieces were equipped.
+
+Fixed a case where Berserker Souls could remain invisible when they are stunned during a teleporting evade.
+
+Fixed a case where certain rapid attacks would not trigger repeated block reactions when guarded.
+
+Fixed a case where certain attacks were incorrectly guaranteed to break Kratos' guard.
+
+Fixed certain cases of successful parry not being registered.
+
+Fixed a case of Realm Shift tutorial to appear during the quest "Creatures of Prophecy" when Tutorials are set to 'Minimum' in the settings menu.
+
+Fixed an issue where sometimes the Serpent's Snare skill labor would not increment when successfully using the skill.
+
+Fixed an issue with how the Slicing Finish perk on Stonecutter's Knob was affecting certain attacks.
+
+UI/UX
+
+Fixed a case for a false indicator of new items in Shops.
+
+Fixed a rare case where the application would crash in the UI.
+
+Fixed a rare case where the application would crash in combat.
+
+Fixed a case for an icon error in Codex.
+
+Fixed an issue with text overlap for Large &amp; XL text size setting.
+
+Fixed an issue of map inaccuracy in Helheim.
+
+Fixed a case of high contrast not applying to HUD element when setting is enabled.
+
+_______________________________________________________________________________________
+
+​
+
+Known Issue Introduced in Patch v. 04.00​
+
+We have identified certain cases with NG+ equipment not interacting with trophy unlocks appropriately:
+
+"Dragon Slayer" trophy cannot be earned during NG+ if the player did not craft the Dragon Scale armor during their first playthrough on base game.
+
+"Phalanx" trophy will not be earned if the player crafts a 9+ shield prior to crafting every other type of shield.
+
+Our team is working on a fix that will retroactively unlock and display all earned trophies earned by the player once implemented.
+
+
+*****
+
+####  奇里奥斯  
+##### 1986#       发表于 2023-4-6 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60351231&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2023-4-6 12:10</a>
+
+Accessing New Game +
+
+Please note that a save file with the Main Story Quest completed is required ...</blockquote>
+这都过了2代，怎么还在宙斯套
+
+
+*****
+
+####  寂长无星夜  
+##### 1987#       发表于 2023-4-6 15:51
+
+这皮草披肩是新装备吗
+
+
+*****
+
+####  Gurren  
+##### 1988#       发表于 2023-4-6 19:26
+
+<blockquote>黑暗之眼 发表于 2023-4-6 11:54
+一周目升哪套比较好，打到开诸神黄昏了还是穿的矮人毒套</blockquote>
+狂战士胸手、幽魂胸、维达手腿、光辉手腿
+
