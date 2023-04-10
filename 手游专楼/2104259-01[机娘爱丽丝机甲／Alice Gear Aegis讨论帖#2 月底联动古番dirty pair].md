@@ -2305,3 +2305,341 @@ syl，回楼上的坛友
 
 要真动画播完就会关服也算经典复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  江戸前ルナ  
+##### 327#         楼主| 发表于 2023-3-28 20:09
+
+这指挥官模式大家最关心的果然是三人同场后怎么摄影。可不可以手动控一个然后搞高点怪密度变成无双类爽爽啊。除了这个和高难加了层数外，其他都还是卫星在飞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+福利是一大波没错。
+
+
+*****
+
+####  孫光龍  
+##### 328#       发表于 2023-3-28 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一百年没打联机了
+初见s点复位了上去打打
+
+
+*****
+
+####  overmind00  
+##### 329#       发表于 2023-3-28 20:56
+
+上次多人掉线临时用AI对应Dummy系统，那这次的指挥官模式再配上联动送的新头套
+
+冬月：量产Actress系列，已经完成了吗？
+
+
+*****
+
+####  alialex  
+##### 330#       发表于 2023-3-29 00:16
+
+你游终于有自动战斗了
+
+
+*****
+
+####  vacuumsword  
+##### 331#       发表于 2023-3-30 13:13
+
+求招待1271011455
+
+
+*****
+
+####  overmind00  
+##### 332#       发表于 2023-3-30 13:25
+
+同求：▼招待コード
+
+0362228231
+
+阿金这任务界面一点招待直接跳到推特了可还行...
+
+
+*****
+
+####  孫光龍  
+##### 333#       发表于 2023-3-30 14:53
+
+▼招待コード
+2038897120
+
+这个只能新人用吧...
+
+*****
+
+####  feiyen  
+##### 334#       发表于 2023-3-30 15:01
+
+▼招待コード
+1932982691
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  feiyen  
+##### 335#       发表于 2023-3-30 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60274476&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-3-30 14:53</a>
+▼招待コード
+2038897120</blockquote>
+填了
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  梅普基  
+##### 336#       发表于 2023-3-30 15:33
+
+▼招待コード
+0014964809
+
+我已经填过别人的了，求被填<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  WIZARDMK2  
+##### 337#       发表于 2023-3-30 15:34
+
+0091053186，填了就送十连，快来试试吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhabi  
+##### 338#       发表于 2023-3-30 17:51
+
+▼招待コード
+2138861882
+
+求个互助<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 339#       发表于 2023-3-30 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个招待CODE怎么用，我开个小号上去用了可以吗
+
+
+*****
+
+####  孫光龍  
+##### 340#       发表于 2023-3-30 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60276813&amp;ptid=2104259" target="_blank">madcow 发表于 2023-3-30 17:56</a>
+▼招待コード
+
+0083417203</blockquote>
+可以，不是新号也能用
+不过发推特应该就能加满了...
+我发了一下已经全部完成了...自己搞小号刷有点麻烦
+
+
+*****
+
+####  regular  
+##### 341#       发表于 2023-3-30 20:21
+
+▼招待コード 1471607917
+
+求交<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thee  
+##### 342#       发表于 2023-3-30 21:01
+
+招待成就是不是主要看填的人
+我给一个已经拿过十连的人填了招待码是不是血亏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  孫光龍  
+##### 343#       发表于 2023-3-31 06:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你游这自动放置了还会息屏的...
+
+
+*****
+
+####  江戸前ルナ  
+##### 344#         楼主| 发表于 2023-3-31 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60281458&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-3-31 06:54</a>
+
+你游这自动放置了还会息屏的...</blockquote>
+设置里可以选进游戏不息屏。但是我选了对我的手机无效<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hl7424994  
+##### 345#       发表于 2023-4-1 00:59
+
+今年愚人节这打飞机手感也太恶心了……阿金该不会还真把那诡异的惯性和孱弱的蓄力攻击当成一种魅力了吧
+
+
+*****
+
+####  Rincewind  
+##### 346#       发表于 2023-4-1 01:15
+
+1420729259
+有需要自取
+
+syl
+
+这次高难道中怪等级下调了（现在比关底BOSS低20级），密度感觉也降低了，但是BOSS反过来等级提升还没有认怂点可以踩，伤心
+这次负责BGM的是音监兼常规BGM作者COSIO，不过风格明显比常规调查硬很多，听着非常舒适。怎么讲呢，还是音监本人最懂AGA配乐<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+关底是同样是初期开发成员的土屋负责的那一期的BOSS的属性变异。应该是有意为之吧
+
+
+*****
+
+####  LEOKO~  
+##### 347#       发表于 2023-4-1 22:19
+
+招待コード;1513817593
+
+
+*****
+
+####  希望之花  
+##### 348#       发表于 2023-4-2 04:13
+
+素组妹的AN胶就要出了，不知道特典武装会是怎样不用打素材可以直接升80级是真的爽
+
+
+*****
+
+####  VASARI  
+##### 349#       发表于 2023-4-3 10:51
+
+▼招待コード
+
+1830861467
+
+求填
+
+
+*****
+
+####  ushaskaluxer  
+##### 350#       发表于 2023-4-4 09:24
+
+0501745255 招待码，需要互填的回复下，200级老咸鱼保送十连
+
+
+*****
+
+####  leavehurry  
+##### 351#       发表于 2023-4-4 10:20
+
+招待码▼招待コード
+0718826025
+
+—— 来自 realme RMX3551, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  54brf  
+##### 352#       发表于 2023-4-4 13:47
+
+ 本帖最后由 54brf 于 2023-4-4 13:49 编辑 
+
+招待码0955675912
+
+谢谢大佬
+
+
+*****
+
+####  管锥秀  
+##### 353#       发表于 2023-4-4 15:32
+
+0914989131
+
+需要回填的回一下
+
+
+*****
+
+####  江戸前ルナ  
+##### 354#         楼主| 发表于 2023-4-5 09:53
+
+ 本帖最后由 江戸前ルナ 于 2023-4-5 09:55 编辑 
+
+AI很多牛逼的操作。比如MOSS佬表示看AI的立回才知道佩琳可以边射边带后侧滑。又比如我看到的，AI舞不仅会下滑上刀BUFF，砍曜日里的硬皮皮蛇时对面出弹幕的瞬间能马上切防御完美防御，蓄力滑射会变方向还会紧急后侧滑躲子弹<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孫光龍  
+##### 355#       发表于 2023-4-5 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ai说白了不就是左右互博，只要敢给每天5把无伤调查那都是很简单的
+
+
+*****
+
+####  Rincewind  
+##### 356#       发表于 2023-4-5 14:49
+
+目前这个委托好像除了打每日没啥实际用处，大家最不乐意动手的调查还是得亲手上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 357#       发表于 2023-4-5 18:41
+
+周日有八个日常，daily才给5个作战书，送的20个非日常的会补充吗？
+
+
+*****
+
+####  Rincewind  
+##### 358#       发表于 2023-4-5 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60343864&amp;ptid=2104259" target="_blank">regular 发表于 2023-4-5 18:41</a>
+周日有八个日常，daily才给5个作战书，送的20个非日常的会补充吗？</blockquote>
+利用一下每日刷新（11点）和签到奖励刷新（下午两点）的时间差的话就够用了
+
+
+*****
+
+####  Rincewind  
+##### 359#       发表于 2023-4-7 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高幡のどか！
+你拿着一星的面板，却能承担三星的费用，你究竟是什么人！
+
+
+*****
+
+####  江戸前ルナ  
+##### 360#         楼主| 发表于 2023-4-7 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60359019&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-4-7 00:41</a>
+
+高幡のどか！
+
+你拿着一星的面板，却能承担三星的费用，你究竟是什么人！ ...</blockquote>
+卡BUG了。跟动画里设定一样，临时提高适应性，非常合理<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
