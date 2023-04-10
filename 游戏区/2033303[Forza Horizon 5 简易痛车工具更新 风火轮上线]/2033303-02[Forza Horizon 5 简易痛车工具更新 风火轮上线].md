@@ -373,3 +373,44 @@ dlss一开卡成幻灯片了
 
 拉力提不起劲，夜间大量霓虹灯光污染<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Y.Cassano  
+##### 2544#       发表于 2023-4-7 03:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">更新修复了套用旧调教闪退的bug，修复了路书非英语环境下的bug，这修复速度真的够摆，不愧是你PG。顺带把CT5拿了，原厂开起来还行，就是推的太狠的情况下，车尾会有轻微往外甩的情况，套了个900分的调教感觉排气声音略炸反而不觉得好听。
+
+<img src="https://img.saraba1st.com/forum/202304/07/031105yduf3t7d4544uudt.png" referrerpolicy="no-referrer">
+
+<strong>000.png</strong> (416.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-7 03:11 上传
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 2545#       发表于 2023-4-7 07:30
+
+地图素材基本复制粘贴本体，赛道设计纯折磨，烂完了。
+
+
+*****
+
+####  tureleona  
+##### 2546#       发表于 2023-4-7 18:26
+
+好久没玩今天上线发现我BUG刷的几千万没了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  4ckc  
+##### 2547#       发表于 2023-4-7 20:07
+
+其实我觉得这个dlc玩得还挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
