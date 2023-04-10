@@ -700,3 +700,54 @@ CV：広瀬裕也
 
 PvPvE，肯定大暴死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kria  
+##### 70#       发表于 2023-4-7 17:47
+
+ゲームとアニメをうまく連動させた事例として「サクラ大戦」シリーズの名が挙がると，松田氏は「SYNDUALITY」に登場する二足歩行メカ「クレイドルコフィン」が，「サクラ大戦」の「光武」に似ているとSNSなどで話題になったことを紹介。デザインの発注時はとくに光武を意識したわけではなく，二見氏と「パワードスーツの延長でいこう」というお話や「この時代での戦車や乗り物を意識する」と話してオーダーをしたという。 また松田氏は，アニメ「SYNDUALITY Noir」はキャラクターがいずれも魅力的であり，スタッフ同士で「誰が好き？」という話題で盛り上がれると「サクラ大戦」との類似点を語った。
+
+ttps://www.4gamer.net/games/657/G065720/20230330082/
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sliver1997  
+##### 71#       发表于 2023-4-7 19:09
+
+原来不只是这边觉得机设像形部版光武<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  铁火辉夜  
+##### 72#       发表于 2023-4-7 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">3D白毛妹可爱捏
+
+
+*****
+
+####  suttv  
+##### 73#       发表于 2023-4-7 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刑部算不算代哥机设界小太刀
+
+
+*****
+
+####  碧琟  
+##### 74#       发表于 2023-4-7 23:02
+
+这个机器人有点像樱花大战里的感觉。
+
+
+*****
+
+####  kaolimadepi  
+##### 75#       发表于 2023-4-7 23:43
+
+二次元电饭煲dmz
+
