@@ -40,3 +40,18 @@ https://www.aethersx2.com/</blockquote>
 老男人的PS2资源要注册，好像在泥潭见过分享的网盘链接，有人收藏了吗？ ...</blockquote>
 [https://pan.baidu.com/s/1UYhxVr9LDsXz_DC8XPWxsA#list/path=%2F](https://pan.baidu.com/s/1UYhxVr9LDsXz_DC8XPWxsA#list/path=%2F)  访问码：b9e8
 
+*****
+
+####  plusfive  
+##### 737#       发表于 2023-4-7 23:29
+
+下的谷歌商店版的以太，游玩过程中不小心按出模拟器的系统菜单，手忙脚乱地想要关了，不知碰到哪个按钮，现在双倍速了，不知道哪里设回来？关了帧数限制开关也无解。。。求救一下。。。
+
+
+*****
+
+####  暗之星尘  
+##### 738#       发表于 2023-4-8 19:42
+
+现在停更了是直接用play商店的还是官网下最新的？
+
