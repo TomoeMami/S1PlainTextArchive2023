@@ -900,3 +900,11 @@ fes池来力，有白嫖10连，各位可以上线了<img src="https://static.sa
 
 几率这种东西不好说的，好像出现过99+显示为100的bug，这都能失败的
 
+*****
+
+####  花开安菲路  
+##### 7139#       发表于 2023-4-8 18:36
+
+日服入坑第365天，一年整了，纪念一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/02a05675314773ae4a6a05b95f031e15/CMP_20230408183616932.png" referrerpolicy="no-referrer">
+
