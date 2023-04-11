@@ -1126,3 +1126,633 @@ boss有个被动，如果自身有流血或烧伤每回合开始时回15%血，�
 
 2023-3-11 14:15 上传
 
+*****
+
+####  wwddrte  
+##### 100#         楼主| 发表于 2023-3-30 20:53
+
+小唐这ego感觉要充能角色多了才好用，现在w唐，w浮，兔子，驯鹿，w默尔索，虽然也有五个了，但是真正吃充能这碗饭的感觉只有w唐和驯鹿俩，这ego我先不换了，等到赛季末要是还没歪出来再换
+
+
+*****
+
+####  wwddrte  
+##### 101#         楼主| 发表于 2023-3-31 23:20
+
+<img src="https://img.saraba1st.com/forum/202303/31/231939a2knf7zuef4kaixn.png" referrerpolicy="no-referrer">
+
+<strong>[PER}(DWCALS4C1{{)7]O}L.png</strong> (87.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-31 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202303/31/231939h6y90nnnwyk6h0wi.png" referrerpolicy="no-referrer">
+
+<strong>6CPNE{5UB]%R]F5@OMA`N6W.png</strong> (74.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-31 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202303/31/231939epr0la6ifazqk9df.jpg" referrerpolicy="no-referrer">
+
+<strong>I}[JN1)UAM5~O%[BNTM96(D.jpg</strong> (136.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-31 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202303/31/231939u2mt3n23myaicz13.jpg" referrerpolicy="no-referrer">
+
+<strong>_@7A8_CA8NI841G%W(R5LHM.jpg</strong> (68.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-31 23:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 102#       发表于 2023-3-31 23:28
+
+ 本帖最后由 Jamaisvu 于 2023-3-31 23:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60292035&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-31 23:20</a></blockquote>
+不愧是韩国YJ<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+维吉尔竟然是女主位吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开场说了一句“老师，醒醒”，笑死我了。
+
+
+*****
+
+####  紫嶌開世  
+##### 103#       发表于 2023-4-1 08:42
+
+是yj？
+是的是yj！
+
+
+*****
+
+####  fayespike  
+##### 104#       发表于 2023-4-1 10:33
+
+刷碎片得买季票啊
+
+之前没买，也没咋刷，一级才1个箱子
+
+
+*****
+
+####  Jamaisvu  
+##### 105#       发表于 2023-4-3 16:02
+
+4.6号的新角色，一个是debuff型，一个是烧伤队成员：
+
+<img src="https://img.saraba1st.com/forum/202304/03/155936lprf9nofnugjnp9f.jpg" referrerpolicy="no-referrer">
+
+<strong>AEFBF553410304A9E05C5A65CB80D722.jpg</strong> (411.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 15:59 上传
+
+<img src="https://img.saraba1st.com/forum/202304/03/155938shmedmm8eszdeiu4.jpg" referrerpolicy="no-referrer">
+
+<strong>A6281191E0A52086DD531D66238B5362.jpg</strong> (427.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 15:59 上传
+
+新EGO还是电狼，可能一个异想体要用三次？和火柴似的...：
+
+<img src="https://img.saraba1st.com/forum/202304/03/160028ugnfo3nwdlwfndcc.jpg" referrerpolicy="no-referrer">
+
+<strong>064BF31CF68726BDC3F05F6D7936E9C2.jpg</strong> (124.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-3 16:00 上传
+
+
+*****
+
+####  wwddrte  
+##### 106#         楼主| 发表于 2023-4-3 17:48
+
+感觉奥提斯蛮强的
+
+
+*****
+
+####  Jamaisvu  
+##### 107#       发表于 2023-4-3 22:31
+
+ 本帖最后由 Jamaisvu 于 2023-4-3 22:37 编辑 
+
+我前几天抽到了驯鹿马丽，当时还挺高兴。结果今天拉满了，打了两遍本，自动战斗总共用了两次精神之鞭————全打虫叔身上了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">直接半血混乱...
+
+这是有仇吧...幸好打的虫叔（？），回血快。要是打在W小唐身上，那小唐就是既死于自己没充能就开三技能，也死于队友没充能就开三技能了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（貌似驯鹿的正确用法是用于攻坚战，开局roll精神鞭打对手...）
+
+
+*****
+
+####  Jamaisvu  
+##### 108#       发表于 2023-4-6 12:11
+
+ 本帖最后由 Jamaisvu 于 2023-4-6 12:14 编辑 
+
+新版本更新后，点击体力条的第一个选项直接变成搓盒子了，而原本的吃体力药换到了三号位。大家注意不要一下子把体力药都吃光哦。
+
+（不过好像没啥事，主线章节慢慢打也可以，平时还是盒子用的多...）
+
+（幸好没把狂气换体力变成三号位，否则就大炎上甚至回档了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  Jamaisvu  
+##### 109#       发表于 2023-4-6 12:50
+
+因为设定调整发补偿了......诶，10秒钟前不刚维护结束吗？还没登录就发这么多奖励，M社太贴心了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202304/06/124926ke55opn0s5ojs315.jpg" referrerpolicy="no-referrer">
+
+<strong>AC03C0A6BFC19A26CCA6F08ECFC87B13.jpg</strong> (99.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 12:49 上传
+
+<img src="https://img.saraba1st.com/forum/202304/06/124927pz3o644x3z9gewt6.jpg" referrerpolicy="no-referrer">
+
+<strong>195451EF88E8C9D7BBADB2F83CD6C493.jpg</strong> (88.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 12:49 上传
+
+
+*****
+
+####  Jamaisvu  
+##### 110#       发表于 2023-4-6 12:53
+
+ 本帖最后由 Jamaisvu 于 2023-4-6 12:56 编辑 
+
+1000狂气的补偿是由于游戏环境改动，官方应该是在研究怎么禁脚本，模拟器4.13前不让用了：
+
+<img src="https://img.saraba1st.com/forum/202304/06/125323cvpn8e48z88dazd8.jpg" referrerpolicy="no-referrer">
+
+<strong>AC8014AB437AF9CBDDC40F770F0F61C551883768.jpg</strong> (131.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 12:53 上传
+
+
+*****
+
+####  wwddrte  
+##### 111#         楼主| 发表于 2023-4-6 18:04
+
+<img src="https://img.saraba1st.com/forum/202304/06/175932w0qdg6s7w3s300yw.png" referrerpolicy="no-referrer">
+
+<strong>(EPT~ZVW3ZN@YT8CL$`C%TO.png</strong> (28.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:59 上传
+
+w唐和金苹果都蛮好用的，我主要用的就是w唐，n浮，三星鸿路，兔子和g虫这五个
+
+
+*****
+
+####  fayespike  
+##### 112#       发表于 2023-4-6 22:14
+
+这游戏抽卡也太难了，我已经好久没抽到三星了
+
+
+*****
+
+####  fayespike  
+##### 113#       发表于 2023-4-6 22:45
+
+这高难也没啥策略啊，有卡就过了，有点失望
+
+
+*****
+
+####  wwddrte  
+##### 114#         楼主| 发表于 2023-4-7 00:32
+
+看了下改版后的支援被动，改成罪孽资源触发的都是类似血量最少的友军伤害+20%这种增伤类或者多加一层燃烧，破碎...这种debuff类的，加威力类的被动都还是共鸣才能触发。
+
+勉强值得一提的有三个，一个是w浮的给血量上限最高的队友+1电，改成罪孽资源触发了，勉强能给鹿玛丽用，w唐最大生命太少了很难触发。另一个是g奥提斯，给血量最高的队友攻击威力+1或者防御威力+1或者保护+1三选一。
+
+
+*****
+
+####  白夜凛音  
+##### 115#       发表于 2023-4-8 11:41
+
+高难本还是挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fayespike  
+##### 68#       发表于 2023-3-16 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60047057&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-11 14:20</a>
+有几个ego的被动效果有点强啊
+
+浮士德的初始ego前10回合+2攻击威力，10回合后-2攻击威力+2保护，</blockquote>
+Ego被动是装备就自动生效吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  wwddrte  
+##### 69#         楼主| 发表于 2023-3-16 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60106265&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-16 11:55</a>
+
+Ego被动是装备就自动生效吗
+
+论坛助手,iPhone</blockquote>
+用过一次后整场生效
+
+
+*****
+
+####  fayespike  
+##### 70#       发表于 2023-3-16 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60110535&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-16 17:12</a>
+
+用过一次后整场生效</blockquote>
+看来还得生2级啊，ego还么生过
+
+
+*****
+
+####  LoliType  
+##### 71#       发表于 2023-3-17 05:56
+
+n社莫尔索的up池里抽出了r社以实玛利，好耶。准备攒狂气抽n社福斯特了
+
+
+*****
+
+####  fayespike  
+##### 72#       发表于 2023-3-17 15:31
+
+新修改不错啊，手动ego侵蚀，这一下是不是提升了好多ego的性价比
+
+
+*****
+
+####  wwddrte  
+##### 73#         楼主| 发表于 2023-3-18 04:55
+
+准备把N默尔索抽出来了，默尔索两个三灯和ego我都没，全靠拼有点困难，打算现在抽出来一个等会和N浮士德组队，等会再拼个ego
+
+
+*****
+
+####  有机QP  
+##### 74#       发表于 2023-3-18 12:07
+
+今天想引继到steam上玩，结果明明绑了苹果账号也发不了引继码，想重新登录结果号丢了…
+
+如此强行劝退<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwddrte  
+##### 75#         楼主| 发表于 2023-3-18 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60130854&amp;ptid=2120922" target="_blank">有机QP 发表于 2023-3-18 12:07</a>
+
+今天想引继到steam上玩，结果明明绑了苹果账号也发不了引继码，想重新登录结果号丢了…
+
+如此强行劝退[f:152 ...</blockquote>
+绑了苹果账号的话号应该不会丢，是不是登录时候点快了，我看群里说点的太快会登录其他账户空号
+
+
+*****
+
+####  fayespike  
+##### 76#       发表于 2023-3-18 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60130854&amp;ptid=2120922" target="_blank">有机QP 发表于 2023-3-18 12:07</a>
+
+今天想引继到steam上玩，结果明明绑了苹果账号也发不了引继码，想重新登录结果号丢了…
+
+如此强行劝退[f:152 ...</blockquote>
+绑了肯定能登，发不了引继码肯定是guest
+
+*****
+
+####  fayespike  
+##### 77#       发表于 2023-3-18 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60129080&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-18 04:55</a>
+
+准备把N默尔索抽出来了，默尔索两个三灯和ego我都没，全靠拼有点困难，打算现在抽出来一个等会和N浮士德组 ...</blockquote>
+我看有人晒400碎片，纯靠刷可能吗
+
+我季票还没买，季票除了下面那行还有其他福利？
+
+
+*****
+
+####  wwddrte  
+##### 78#         楼主| 发表于 2023-3-18 19:55
+
+看了视频才明白发牌的机制
+[https://www.reddit.com/r/limbusc ... t_tips_ft_bongbong/](https://www.reddit.com/r/limbuscompany/comments/11ui94o/manual_combat_tips_ft_bongbong/)
+
+<img src="https://img.saraba1st.com/forum/202303/18/194022j1r44u141of4ardh.png" referrerpolicy="no-referrer">
+
+<strong>J1RM3~V%%EWW6PD3E4E)F1Z.png</strong> (23.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-18 19:40 上传
+
+角色每次行动有三排技能，每次能从第二排和第三排中挑一个用，然后第一排的技能会补上用掉的并且在第一排重新抽一次技能。具体顺序有点类似下落的方块，用第二排的技能那第一排的技能会落到第二排，用第三排的技能第二排的技能会落到第三排，第一排的技能会落到第二排。如果技能没被用掉，那就会一直在那。
+
+以上是基础机制。然后有个小技巧，通过将第三排的技能转换为防御能把不想要的技能洗掉。正常玩假设现在三排技能从上到下分别是3，2，1。1技能比较烂不想用，所以用了2技能，然后下一回合第一排抽到了1技能，那顺序就变成了1，3，1。如果将第三排的1技能转为防御，那即使不使用防御，第三排的技能也会重新洗牌，新的顺序就成了1，3，x。如果x抽到比较强的2或者3技能那就赚了。
+
+
+*****
+
+####  wwddrte  
+##### 79#         楼主| 发表于 2023-3-18 20:02
+
+ 本帖最后由 wwddrte 于 2023-3-18 20:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60135677&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-18 19:38</a>
+
+我看有人晒400碎片，纯靠刷可能吗
+
+我季票还没买，季票除了下面那行还有其他福利？ ...</blockquote>
+靠刷可能的，不是很难。买了机票战令60满级之后升一级给3个自选箱，不买就只有1个。
+
+
+*****
+
+####  有机QP  
+##### 80#       发表于 2023-3-18 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60135645&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-18 19:37</a>
+
+绑了肯定能登，发不了引继码肯定是guest</blockquote>
+我苹果账户绑定app那里显示绑上了，但实际上没绑上，没法用苹果账户登录也没法发引继码。
+
+换了谷歌账户可以发引继码了，但是谷歌账户里面显示没绑上。
+
+乐死我了不知道到底什么毛病，反正好歹折腾到steam玩了。
+
+
+*****
+
+####  fayespike  
+##### 81#       发表于 2023-3-18 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60136049&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-18 20:02</a>
+
+靠刷可能的，不是很难。买了机票战令60满级之后升一级给3个自选箱，不买就只有1个。 ...</blockquote>
+镜本次数用完了刷也给碎片？
+
+
+*****
+
+####  实验性  
+##### 82#       发表于 2023-3-18 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60137153&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-18 21:29</a>
+
+镜本次数用完了刷也给碎片？</blockquote>
+刷镜本给战令点数，战令等级超过60级以后，每级都会给碎片箱子
+
+*****
+
+####  实验性  
+##### 83#       发表于 2023-3-18 21:37
+
+3-22的boss拼点也太变态了吧，兔子5个币都拼不过，被打自闭了<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwddrte  
+##### 84#         楼主| 发表于 2023-3-20 04:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60137244&amp;ptid=2120922" target="_blank">实验性 发表于 2023-3-18 21:37</a>
+
+3-22的boss拼点也太变态了吧，兔子5个币都拼不过，被打自闭了</blockquote>
+用默尔索的初始ego能减对方威力，人格带1灯默尔索就行
+
+
+*****
+
+####  wwddrte  
+##### 85#         楼主| 发表于 2023-3-20 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60135934&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-18 19:55</a>
+
+看了视频才明白发牌的机制
+
+https://www.reddit.com/r/limbuscompany/comments/11ui94o/manual_combat_tips_ ...</blockquote>
+群里大佬比我写的清楚多了
+
+<img src="https://img.saraba1st.com/forum/202303/20/151645h1pm8w9by8bx1ibx.png" referrerpolicy="no-referrer">
+
+<strong>0UER(O3WB62E2WNB05}{CSU.png</strong> (197.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-20 15:16 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/151644gxdz6yxzzdy669dk.png" referrerpolicy="no-referrer">
+
+<strong>)`NM4W7ITY7N(8Y4FB5GKNH.png</strong> (211.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-20 15:16 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/151648cy77p7ma72257qa2.png" referrerpolicy="no-referrer">
+
+<strong>JE]@JMBVT1C3_FZ~9W2PV.png</strong> (226.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-20 15:16 上传
+
+<img src="https://img.saraba1st.com/forum/202303/20/151647lkeep7yeaeyq94s7.png" referrerpolicy="no-referrer">
+
+<strong>BSWXRZ0~RX3CERN`_9OCVH6.png</strong> (203.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-20 15:16 上传
+
+
+*****
+
+####  wwddrte  
+##### 86#         楼主| 发表于 2023-3-22 02:46
+
+steam版的自动镜牢脚本有了，我放群文件里了，使用说明在公告。可以用，但不是很好用。我的surface配置不太行，有时候前一步程序还没运行完脚本却已经到了下一步，然后就卡住了。正常配置的电脑这方面问题应该小一点。另外这脚本没写策略，只会win rate auto，ego也不放的，但是练度够问题倒是不大，我用鸿路，兔子，和虫哥开跑了十几把还没翻车过。
+
+模拟器版的脚本也有了，不过是工作日收费周末免费<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">，这我就不打广告了。
+
+
+*****
+
+####  实验性  
+##### 87#       发表于 2023-3-23 15:39
+
+有人抽了浮士德的新人格吗，脑测了下感觉挺厉害的，不愧是boss单位
+
+—— 来自 samsung SM-G9880, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Achlys  
+##### 88#       发表于 2023-3-23 16:39
+
+拼点强速度快，经常和开了ego被动的兔子同速
+比w唐稳很多，毕竟随到一技能还有拼过的可能性，但相反血少比w唐还容易晕
+没兔子虫叔那种无条件高输出，爆发也不足够，配队肯定还是得塞输出的
+三技能一般，buff条件苛刻，杀了人之后只有当前回合会给穿刺钝击buff
+配色紫橙蓝都是稀有好属性
+
+爱我的克罗默，甚至愿意给钟表头一个pass，不过是主管的衣服而已
+个人剧情也是补充了闯辛克莱地下室后发生的事情
+在性癖上跳舞的疯女人，就是不如w公司那套凸显身材
+浮门，净化！
+
+
+*****
+
+####  fayespike  
+##### 89#       发表于 2023-3-23 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60175211&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-22 02:46</a>
+
+steam版的自动镜牢脚本有了，我放群文件里了，使用说明在公告。可以用，但不是很好用。我的surface配置不太 ...</blockquote>
+看了公告也不太会用
+
+
+*****
+
+####  wwddrte  
+##### 90#         楼主| 发表于 2023-3-24 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60198684&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-23 20:37</a>
+
+看了公告也不太会用</blockquote>
+公告那几条都做了还不行的话大概就要自己截图放进脚本里了，要不你录一下出问题的地方在群里@我一下
+
+
+*****
+
+####  fayespike  
+##### 91#       发表于 2023-3-24 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60201723&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-24 03:25</a>
+
+公告那几条都做了还不行的话大概就要自己截图放进脚本里了，要不你录一下出问题的地方在群里@我一下 ...</blockquote>
+今天弄了下可以了，我可以后台挂着前面干其他事儿吗
+
+*****
+
+####  wwddrte  
+##### 92#         楼主| 发表于 2023-3-24 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60206006&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-24 13:24</a>
+
+今天弄了下可以了，我可以后台挂着前面干其他事儿吗</blockquote>
+不行唉
+
+*****
+
+####  fayespike  
+##### 93#       发表于 2023-3-24 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60209755&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-24 17:51</a>
+
+不行唉</blockquote>
+直接给我干自动关机了
+
+*****
+
+####  wwddrte  
+##### 94#         楼主| 发表于 2023-3-25 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60210198&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-3-24 18:24</a>
+
+直接给我干自动关机了</blockquote>
+为啥自动关机，没电了吗
+
+*****
+
+####  fayespike  
+##### 95#       发表于 2023-3-25 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60222286&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-25 19:52</a>
+
+为啥自动关机，没电了吗</blockquote>
+不知道，就关机了
+
+
+*****
+
+####  wwddrte  
+##### 96#         楼主| 发表于 2023-3-28 18:19
+
+yj说要抓脚本了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwddrte  
+##### 97#         楼主| 发表于 2023-3-28 23:37
+
+新三星七协奥提斯，有一说一我之前还以为奥提斯是男的，另外剑契辛克莱尔的立绘一度让我以为他是女的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fayespike  
+##### 98#       发表于 2023-3-30 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60257342&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-3-28 23:37</a>
+
+新三星七协奥提斯，有一说一我之前还以为奥提斯是男的，另外剑契辛克莱尔的立绘一度让我以为他是女的[f:018 ...</blockquote>
+练了奥提斯两星就知道是女的了，但是新克莱尔我一直以为是女的
+
+
+*****
+
+####  Jamaisvu  
+##### 99#       发表于 2023-3-30 14:21
+
+辛克莱在我眼里长得特别像我妻善逸，所以一看就知道是男孩子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
