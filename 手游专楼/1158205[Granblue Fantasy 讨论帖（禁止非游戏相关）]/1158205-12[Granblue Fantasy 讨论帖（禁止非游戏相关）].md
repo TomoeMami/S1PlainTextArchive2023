@@ -1083,3 +1083,21 @@ fa多情军，喜欢高难手操就鸡。不得不说情军多段技伤和尿分
 
 谢谢大家，我还是留着好了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+*****
+
+####  poor  
+##### 17330#       发表于 2023-4-8 23:16
+
+转世3格0键还差9-10％，天司终凸了能打到吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  super0395  
+##### 17331#       发表于 2023-4-9 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60379457&amp;ptid=1158205" target="_blank">poor 发表于 2023-4-8 23:16</a>
+转世3格0键还差9-10％，天司终凸了能打到吗</blockquote>
+现在看下来也没有特别必要追求转世三格0键，也就多刷点de和多点经验，还不如0键五格可以多上点掉宝
+（来自一个没有艾蕾暗方的酸葡萄发言
+
