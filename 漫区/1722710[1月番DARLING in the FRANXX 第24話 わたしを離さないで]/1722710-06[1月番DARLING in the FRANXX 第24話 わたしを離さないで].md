@@ -246,3 +246,127 @@
 <img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 原来是五周年
 
+*****
+
+####  Piano-Forest  
+##### 8250#       发表于 2023-4-7 18:57
+
+矢吹健太朗 &amp; 锦织敦史（五周年新绘）
+<img src="https://p.sda1.dev/10/91ae14613894501a3cade81c3bc396bf/20230407_184324.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/d250abf15f56a0b0194f49d0a3b0c3f7/20230407_184329.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shudushimo  
+##### 8251#       发表于 2023-4-7 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60365358&amp;ptid=1722710" target="_blank">Piano-Forest 发表于 2023-4-7 18:57</a>
+
+矢吹健太朗</blockquote>
+百合拯救大XX<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  02016  
+##### 8252#       发表于 2023-4-8 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60365358&amp;ptid=1722710" target="_blank">Piano-Forest 发表于 2023-4-7 18:57</a>
+
+矢吹健太朗</blockquote>
+过年了
+
+
+*****
+
+####  02016  
+##### 8253#       发表于 2023-4-8 09:44
+
+ダーリン・イン・ザ・フランキス@DARLI_FRA·4月6日
+
+先読みバトルRPG「ブラウンダスト」との期間限定コラボが開催決定✨ゼロツーたちと一緒に戦ってコラボ限定アイテムをゲットしよう！
+
+詳細は「ブラウンダスト」公式Twitter（
+
+@BrownDust_JP
+
+）をご確認ください。[https://www.youtube.com/watch?v=qB_dOLbib94](https://www.youtube.com/watch?v=qB_dOLbib94)
+
+===========
+
+【公式】ブラウンダスト@BrownDust_JP·4月6日
+
+ダーリン・イン・ザ・フランキスコラボPVイベント結果をご案内いたします！
+
+詳しくは公式ブログをご確認ください✅<img src="https://i0.wp.com/browndust.net/wp-content/uploads/2023/03/jp-4-1.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202304/08/094357asrmzsu8bncirb8u.png" referrerpolicy="no-referrer">
+
+<strong>jp-4-1.png</strong> (153.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 09:43 上传
+
+ダーリン・イン・ザ・フランキスコラボPVイベントの結果についてご案内いたします。
+
+最大報酬のミッションであるコメント500件を達成されました！本イベントの報酬は2023年4月6日(木)定期メンテナンス中に全ての団長様に支給いたします。
+
+イベント結果と支給される報酬は以下をご確認ください。
+
+■イベント結果
+
+– コメント526件(ミッション500件達成)
+
+■イベント報酬
+
+1) コメント100個達成：3,000,000ゴールド
+
+2) コメント200個達成：ルーン★6の欠片250個選択券×5
+
+3) コメント300個達成：Cランク宝珠×2＋Dランク宝珠×4
+
+4) コメント500個達成：高級契約書×10
+
+■支給日
+
+– 2023年4月6日(木)定期メンテナンス
+
+イベントにご参加いただいた全ての団長様に感謝申し上げます。
+
+4月6日(木)アップデートより開催予定のダーリン・イン・ザ・フランキスコラボのPVを公開いたします。
+
+コラボPVをご視聴し、感想をコメントに残してください。
+
+登録されたコメントの数に応じて達成報酬がもらえます。🎁
+
+■ 期間：2023年3月31日(金)～4月5日(水)23:59
+
+■ イベント期間中、ダーリン・イン・ザ・フランキスコラボPV動画の感想をコメントで残してください。
+
+登録されたコメント数に応じてすべての団長さまにプレゼントをお送りします。
+
+■ ミッションと報酬
+
+1) コメント100個達成：3,000,000ゴールド
+
+2) コメント200個達成：ルーン★6の欠片250個選択券×5
+
+3) コメント300個達成：Cランク宝珠×2＋Dランク宝珠×4
+
+4) コメント500個達成：高級契約書×10
+
+■ 報酬配布：2023年4月6日(木)メンテナンス中
+
+!! コメントは以下のリンクに移動してご登録ください！
+
+▶ 動画にコメントを残しに行く ◀
+
+※ 上位ミッション達成時、下位ミッションの報酬も共に配布されます。
+
+※ 各地域の動画に登録されたコメントを合算して判断します。
+
+※ 2023年4月6日(木)午前中にこちらの告知にてコメント数をご案内いたします。
+
+皆さまのご参加をお待ちしております。
+
