@@ -720,3 +720,127 @@ PV后半段的赛道怎么有一种fuji speed的感觉
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看到角色里面有个中文名，然后盯着海报想了一下，绝对是红眼白毛的妹子。
 
+*****
+
+####  oznark  
+##### 70#       发表于 2023-4-8 11:13
+
+<img src="https://img.saraba1st.com/forum/202304/07/201155uorf1eb3r2kn2zok.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (141.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201156wcaa2tzvld362z5z.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (138.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201156szpky5pn5naamq2x.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (127.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201157axvx43v4ktjwznbe.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (136.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201157dzzmk9mebj8wx8t0.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (135.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201157ay16480bkccfyllk.png" referrerpolicy="no-referrer">
+
+<strong>7.png</strong> (142 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201159r44zsvmeg4mybvnl.png" referrerpolicy="no-referrer">
+
+<strong>8.png</strong> (144.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201159vz7a66fs25m67p27.png" referrerpolicy="no-referrer">
+
+<strong>9.png</strong> (146.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/201156c117klk51ekun1m7.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (204.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 11:11 上传
+
+车上可以贴赞助商logo
+
+_(:з」∠)_
+
+
+*****
+
+####  米兰达  
+##### 71#       发表于 2023-4-8 13:26
+
+没有风扇佬我不看（迫真
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  翾鹊  
+##### 72#       发表于 2023-4-9 15:20
+
+车子也太丑了，评价是不如gpx一根毛<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 22081212C, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  ardito  
+##### 73#       发表于 2023-4-9 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">廉价感太重了
+
+*****
+
+####  菲特妹  
+##### 74#       发表于 2023-4-9 15:29
+
+是我很喜欢的人体彩绘一样的胶衣
+
+
+*****
+
+####  Skyline_R  
+##### 75#       发表于 2023-4-9 15:44
+
+奸笑厂注资那动画制作公司应该是Sanzigen没跑了
+

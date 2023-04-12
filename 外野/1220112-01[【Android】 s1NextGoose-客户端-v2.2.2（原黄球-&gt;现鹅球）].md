@@ -160,3 +160,11 @@ Play 版在高版本安卓上的专属 bug，换普通版就行了
 —— 来自 nubia NX712J, Android 13上的 S1N ...</blockquote>
 鹅球发图用的是p.sda1.dev这个图床，可能是网络的问题。
 
+*****
+
+####  Quelaan  
+##### 1429#       发表于 2023-4-9 15:46
+
+在鹅球内点开链接会自动跳转小米浏览器，但是我系统已经设置了edge为默认浏览器，其他APP也都可以自动跳转edge，怎么解决？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+手机是红米k50，MIUI14
+
