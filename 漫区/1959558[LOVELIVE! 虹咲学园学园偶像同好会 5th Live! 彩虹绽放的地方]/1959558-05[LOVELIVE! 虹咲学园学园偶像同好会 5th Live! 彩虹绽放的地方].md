@@ -5195,3 +5195,27 @@ FMT林鼓子全勤
 还有鬼姐姐的团建
 <img src="https://p.sda1.dev/10/7891d04589c4ceb17a5cd0f546c03678/CMP_20230403231638736.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 7210#       发表于 2023-4-8 22:46
+
+[https://twitter.com/orihi_/status/1644305182896033794](https://twitter.com/orihi_/status/1644305182896033794)
+<img src="https://p.sda1.dev/10/a9885588d93bcd7481dc92359c5d8724/20230408_224236.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 7211#       发表于 2023-4-8 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">织日这次出的本封面是照例的文艺小清新，放出来的预览内容却是SM探索，太逗了
+
+
+*****
+
+####  D麦林  
+##### 7212#       发表于 2023-4-9 11:19
+
+唯美系futa第一人
+
