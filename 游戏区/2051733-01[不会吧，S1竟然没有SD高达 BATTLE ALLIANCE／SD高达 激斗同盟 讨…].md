@@ -296,3 +296,44 @@ dlc的极限之龙，无插件就可以实现无限空连，全物理面板适�
 
 通过了不是有记号么。
 
+*****
+
+####  h122h  
+##### 827#       发表于 2023-4-10 11:26
+
+<img src="https://img.saraba1st.com/forum/202304/10/112643hn4n3u2hwofu3a4w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>47550683-E07D-4FE6-B6FC-99FB363AAAA4.jpeg</strong> (154.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 11:26 上传
+
+风灵dlc
+
+
+*****
+
+####  tonyq0802  
+##### 828#       发表于 2023-4-10 11:40
+
+风灵出了，说明游戏还没被放弃。
+
+我还是等这游戏DLC不再出后打骨折。
+
+
+*****
+
+####  猪突猛进  
+##### 829#       发表于 2023-4-10 12:45
+
+算最速参战吗？风灵DLC倒是可以买一个。
+
+
+*****
+
+####  birdma  
+##### 830#       发表于 2023-4-10 13:49
+
+还tm是有料dlc，这游戏联机怕是人都搜不到
+
