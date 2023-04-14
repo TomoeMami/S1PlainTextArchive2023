@@ -9274,3 +9274,74 @@ Music Collection
 详细は顺次お知らせしますので、お楽しみに！
 <img src="https://p.sda1.dev/10/10f560d41b48d5729f27575e52d8d20d/20230306_200927.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  千恋万花  
+##### 672#       发表于 2023-4-11 11:04
+
+／
+ 「Do It Yourself!!」
+実写ドラマ企画始動🔨
+＼
+
+📌アニメに引き続き
+舞台は新潟県三条市に決定✨
+
+さらなる続報は5/28(日)開催のTVアニメ"スペシャルイベント"にてご注目ください👀
+<img src="https://p.sda1.dev/10/68f25ba345aea80f7d194d43675a6838/CMP_20230411110420952.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水莲寺流歌  
+##### 673#       发表于 2023-4-11 12:15
+
+期待布丁演员<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pzk  
+##### 674#       发表于 2023-4-11 21:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">……啊？这个有必要吗？
+
+*****
+
+####  aiyouo  
+##### 675#       发表于 2023-4-11 21:21
+
+没想到啊，能出真人剧，就是不知道是能拍得咋样
+
+*****
+
+####  aiyouo  
+##### 676#       发表于 2023-4-11 21:22
+
+风怒
+
+
+*****
+
+####  wafdleo  
+##### 677#       发表于 2023-4-11 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60419352&amp;ptid=1994951" target="_blank">aiyouo 发表于 2023-4-11 21:21</a>
+没想到啊，能出真人剧，就是不知道是能拍得咋样</blockquote>
+估计演员年龄得比动画里往上提，大概高中生吧
+
+*****
+
+####  higuchiguchi  
+##### 678#       发表于 2023-4-11 21:23
+
+只提了故事开展的舞台不变<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山代风我  
+##### 679#       发表于 2023-4-11 21:43
+
+本身就是地方振兴的一环，动画设定在近未来其实有些淡化了地域性，真人版应该会更贴些
+
