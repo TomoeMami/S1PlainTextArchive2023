@@ -671,3 +671,164 @@ ep10会有卢德米拉觉醒。ep10说是第二季最终章。ep11章节名是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么会希望多点boss的 boss放出去不是第一第二周都没人打24小时烂掉太恶心了 我现在2周结束就直接删除的
 
+*****
+
+####  rgauss  
+##### 882#         楼主| 发表于 2023-4-8 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金策划万岁 现在扫荡都比之前好不少
+紫虫是不是好久没更新官漫了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 883#       发表于 2023-4-8 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该说zl怎么还没官服呢
+
+
+*****
+
+####  rgauss  
+##### 884#         楼主| 发表于 2023-4-8 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">開玩笑 這玩意的pc端還是紫龍最開始做的 紫龍可能想在韓國和nexon合作才拿的 可惜紫龍韓國支部的人真不行 韓語翻譯也一般
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 885#         楼主| 发表于 2023-4-11 15:38
+
+ 本帖最后由 rgauss 于 2023-4-11 15:40 编辑 
+
+<img src="https://p.sda1.dev/10/165ad05ff48e5d7b16b67d6a21706a87/CMP_20230411153429702.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/bb736215b4dc556fbe0a1420967c3a66/CMP_20230411153429828.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/18be00edf46063db7911a0a50f49ad0b/CMP_20230411153429939.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这剧情稍微套一套，再加点日常，可以写一个galgame了。
+
+宝拉过场将饮料放在胸上<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  主人ハム子  
+##### 886#       发表于 2023-4-11 16:52
+
+看了下这游戏有繁中，日服，国际服？现在哪个比较适合入坑？
+
+— from HUAWEI EML-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 887#         楼主| 发表于 2023-4-11 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60416037&amp;ptid=2028054" target="_blank">主人ハム子 发表于 2023-4-11 16:52</a>
+看了下这游戏有繁中，日服，国际服？现在哪个比较适合入坑？
+
+— from HUAWEI EML-AL00, Android 10 of S1  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，紫龙运营的台服 亚服 国服。
+你要我给你推荐 那我不推荐台服。
+韩服 国际服没有中文，但有steam端，亚服是简中。
+理性讨论，韩服的福利是最好的。紫龙服不会有联动。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  主人ハム子  
+##### 888#       发表于 2023-4-11 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60416431&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-4-11 17:21</a>
+现在是直营的韩服，国际服（合并日服)，紫龙运营的台服 亚服 国服。
+你要我给你推荐 那我不推荐台 ...</blockquote>
+不需要中文，我日文OK。那我来去试试国际服了。
+
+— from HUAWEI LYA-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 889#         楼主| 发表于 2023-4-11 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">五人一起做游戏（老板可以当做知性大姐姐角色），自闭男孩遇见三位少女，在一段时间内，一起做游戏，一起玩耍，男孩发现少女的秘密，一起战斗，然后失忆，少女离开。放galgame里，就应该想起回忆然后寻找少女。
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">璃奈就是真女主 
+<img src="https://p.sda1.dev/10/2de78fe23f65251de097eb24e430eb75/CMP_20230411201017123.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 890#       发表于 2023-4-11 21:06
+
+什么纯爱援交故事
+
+
+*****
+
+####  主人ハム子  
+##### 891#       发表于 2023-4-11 21:53
+
+日服玩不了，随便去亚服玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from HUAWEI LYA-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  主人ハム子  
+##### 892#       发表于 2023-4-12 09:46
+
+绑定不了推特账号啥情况？提示浏览器不支持。
+话说游客账号是不是不能用二维码登陆其他设备？
+
+— from HUAWEI EML-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  rgauss  
+##### 893#         楼主| 发表于 2023-4-12 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60423162&amp;ptid=2028054" target="_blank">主人ハム子 发表于 2023-4-12 09:46</a>
+
+绑定不了推特账号啥情况？提示浏览器不支持。
+
+话说游客账号是不是不能用二维码登陆其他设备？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">现在推特api要收费，几乎所有游戏公司都给绑推特给删了。
+
+pc端没游客选项吧
+
+
+*****
+
+####  主人ハム子  
+##### 894#       发表于 2023-4-12 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60423189&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-4-12 09:48</a>
+现在推特api要收费，几乎所 ...</blockquote>
+尴尬了，那就算了，不跨设备玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from HUAWEI EML-AL00, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 895#         楼主| 发表于 2023-4-12 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
