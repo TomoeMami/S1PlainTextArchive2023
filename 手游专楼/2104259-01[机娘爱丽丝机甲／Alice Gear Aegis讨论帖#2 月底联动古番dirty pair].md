@@ -2643,3 +2643,109 @@ AI很多牛逼的操作。比如MOSS佬表示看AI的立回才知道佩琳可以
 你拿着一星的面板，却能承担三星的费用，你究竟是什么人！ ...</blockquote>
 卡BUG了。跟动画里设定一样，临时提高适应性，非常合理<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
 
+*****
+
+####  闽明  
+##### 361#       发表于 2023-4-10 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60331518&amp;ptid=2104259" target="_blank">管锥秀 发表于 2023-4-4 15:32</a>
+0914989131
+
+需要回填的回一下</blockquote>
+▼招待コード
+1953154736
+
+填了，回填也会有十连？
+
+都快结束了才注意到这个
+
+—— 来自 realme RMX3708, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  孫光龍  
+##### 362#       发表于 2023-4-10 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60403550&amp;ptid=2104259" target="_blank">闽明 发表于 2023-4-10 18:08</a>
+
+▼招待コード
+
+1953154736</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你输了别人的你才有十连
+
+
+*****
+
+####  闽明  
+##### 363#       发表于 2023-4-10 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60403802&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-4-10 18:30</a>
+你输了别人的你才有十连</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/077.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3708, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  管锥秀  
+##### 364#       发表于 2023-4-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60403550&amp;ptid=2104259" target="_blank">闽明 发表于 2023-4-10 18:08</a>
+
+▼招待コード
+
+1953154736</blockquote>
+回填没有..
+
+
+*****
+
+####  江戸前ルナ  
+##### 365#         楼主| 发表于 2023-4-11 21:20
+
+最近抽齐了凤的2,3星，才把剧情看了。只能说龙子的塑造和剧情太傻逼了，妈的二星剧情明明是要说道小芦和凤宿命对决的伏线了，活生生被这个人搞黄了，搞毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rincewind  
+##### 366#       发表于 2023-4-12 04:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60419334&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-4-11 21:20</a>
+最近抽齐了凤的2,3星，才把剧情看了。只能说龙子的塑造和剧情太傻逼了，妈的二星剧情明明是要说道小芦和凤 ...</blockquote>
+龙子剧情就突出一个老娘就是不合群而且知错不改，也看不出背后有什么意志在支撑感觉就是单纯地硬，说实在的跟凤一比格局差太远了根本就没有宿敌的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yygundam  
+##### 367#       发表于 2023-4-12 14:45
+
+ 本帖最后由 yygundam 于 2023-4-12 14:47 编辑 
+
+龙子。。。。。。。。上次看活动的剧情都看得我血压升高，以至于我后面几话全直接跳过了。
+
+
+*****
+
+####  江戸前ルナ  
+##### 368#         楼主| 发表于 2023-4-12 14:53
+
+ 本帖最后由 江戸前ルナ 于 2023-4-12 14:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60422002&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-4-12 04:31</a>
+
+龙子剧情就突出一个老娘就是不合群而且知错不改，也看不出背后有什么意志在支撑感觉就是单纯地硬，说实在 ...</blockquote>
+关键是，这段明明将要是小芦正式面对N年前就铺垫的人生中罕见的敌手“凤凰”的剧情，然后这人忽然莫名其妙地过来哔哔，以后这伏线可能就这样没了。关你龙子毛事啊。
+
+
+*****
+
+####  冰风血羽  
+##### 369#       发表于 2023-4-13 10:03
+
+攒了几十连的票子还是抽不到轰雷，四张泳装钱倒是出了三个轰雷泳装_(:з)∠)_
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
