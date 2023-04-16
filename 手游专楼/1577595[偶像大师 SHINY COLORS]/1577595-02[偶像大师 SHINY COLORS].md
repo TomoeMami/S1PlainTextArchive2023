@@ -602,3 +602,1023 @@ GRAD这个延迟结论的手法，仔细想想最近線たちの12月也用到�
 
 ルカ那边还算是最后直接把答案给说出来了，円香这边真的是一藏就是2年。
 
+*****
+
+####  兔姬姬姬姬姬  
+##### 2722#       发表于 2023-3-17 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">解包出来了，ルカ……
+
+
+*****
+
+####  OBW  
+##### 2723#       发表于 2023-3-17 17:32
+
+一点都不意外
+
+
+*****
+
+####  kria  
+##### 2724#       发表于 2023-3-18 17:06
+
+<img src="https://img.saraba1st.com/forum/202303/18/170548ns2y8o0l34l598sz.jpg" referrerpolicy="no-referrer">
+
+<strong>egeaeeewegaeg.jpg</strong> (43.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-18 17:05 上传
+
+*****
+
+####  kria  
+##### 2725#       发表于 2023-3-18 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60121852&amp;ptid=1577595" target="_blank">兔姬姬姬姬姬 发表于 2023-3-17 14:58</a>
+
+解包出来了，ルカ……</blockquote>
+实装游戏, 动画化没进展? 
+
+
+*****
+
+####  wfhtony  
+##### 2726#       发表于 2023-3-18 17:37
+
+→ （五週年LIVE Day1）LIVE內コミュ#9
+
+「接下來是我們的最後一首歌，唱完這首...甘奈我們...就不再是偶像了？」
+
+「即使這首是最後一首歌了，我們還是開心地唱出來吧。」
+
+→ 《ダブル・イフェクト》
+
+*****
+
+####  areklose  
+##### 2727#       发表于 2023-3-18 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次活动剧情暗示得十分厉害。实装毫不惊喜
+
+
+*****
+
+####  404489039  
+##### 2728#       发表于 2023-3-18 17:45
+
+卢卡是单飞吗 还行有新团<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这垃圾游戏弃坑很久
+
+*****
+
+####  wfhtony  
+##### 2729#       发表于 2023-3-18 17:49
+
+今天果然沒有業務聯絡環節。
+
+
+*****
+
+####  kria  
+##### 2730#       发表于 2023-3-18 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什都没有告知
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2731#       发表于 2023-3-18 18:21
+
+最后imas都没就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 2732#       发表于 2023-3-18 18:23
+
+工作人員沒有放散場通知，現場的觀众開始喊安可了。
+
+然後就真的結束了...
+
+告知不用說，全在明天。但是如果是按「畢竟Day1算一週目沒打出True End嘛」這樣想的話，那明天的setlist搞不好和今天大差不差...
+
+*****
+
+####  wfhtony  
+##### 2733#       发表于 2023-3-18 18:25
+
+<img src="https://tc3.wfhtony.space/images/2023/03/18/85a34c0ee812810ea052d9ea6bf66fdc.png" referrerpolicy="no-referrer">
+
+《致製作人》
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2734#       发表于 2023-3-18 18:46
+
+<img src="https://img.saraba1st.com/forum/202303/18/184632eg24iit5mg67p5g9.jpg" referrerpolicy="no-referrer">
+
+<strong>]1)32YCH(M%~OICS$BEVK[R.jpg</strong> (64.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-18 18:46 上传
+
+
+*****
+
+####  lhawp  
+##### 2735#       发表于 2023-3-18 18:56
+
+游戏已经删了，听说连打ち上げガシャ都没有是真的吗？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2736#       发表于 2023-3-18 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60135049&amp;ptid=1577595" target="_blank">lhawp 发表于 2023-3-18 18:56</a>
+游戏已经删了，听说连打ち上げガシャ都没有是真的吗？</blockquote>
+解包出来是有的
+
+*****
+
+####  wfhtony  
+##### 2737#       发表于 2023-3-18 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60135049&amp;ptid=1577595" target="_blank">lhawp 发表于 2023-3-18 18:56</a>
+
+游戏已经删了，听说连打ち上げガシャ都没有是真的吗？</blockquote>
+有的，[官推剛剛發推了](https://twitter.com/imassc_official/status/1637046193527345152)。
+
+
+*****
+
+####  冰寒之月  
+##### 2738#       发表于 2023-3-18 19:37
+
+这个整的要完结的氛围不知道准备搞什么花样
+
+希望第二天社长和叶月来整个大的吧
+
+
+*****
+
+####  wfhtony  
+##### 2739#       发表于 2023-3-19 18:54
+
+<img src="https://tc3.wfhtony.space/images/2023/03/19/3649004d97e0d0d19a5a0c81542cb359.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/01aa120c584137ef4b1a98df6c74c139.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/c5e6c7287630a85799b16b340cc1fcb1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/4616a1603e4f484ac149e45a966e247e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/83ba89b33e8d688e25793f7421686d50.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/3d0cb1f81fc97da5b92770915c38f3e7.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/81163f2b43f1f1c31be757f3b9219180.jpg" referrerpolicy="no-referrer">
+
+七月搞SOLO LIVE
+
+*****
+
+####  wfhtony  
+##### 2740#       发表于 2023-3-19 18:55
+
+<img src="https://tc3.wfhtony.space/images/2023/03/19/82853e4fa5f60aac26208f46c3a16e42.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/49394ce999a2faabb267eec6f35a07de.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/d65d5cdc1bc848306d73c1304fb9d1e3.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/8f11ae99081e138b88d464c62292c1d2.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/fc333bafc61a1d0b074167b39579f3dd.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/3e813b2387e5300c151b82f39e7e5900.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/2e7d9839408892eedbd774dba1cc39a1.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/9fd63b46aa915e8e1e31365ac9e2b806.jpg" referrerpolicy="no-referrer">
+
+五彩斑斕的黑(
+
+週年活動下個月開。
+
+然後安可上來就是ルカ領唱Dts
+<img src="https://tc3.wfhtony.space/images/2023/03/19/0cb2eba8cffe17c767fedcbafa80f62a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2741#       发表于 2023-3-19 18:55
+
+哇这个dts太爽了
+
+*****
+
+####  wfhtony  
+##### 2742#       发表于 2023-3-19 18:56
+
+對了，遊戲換LOGO了。
+<img src="https://tc3.wfhtony.space/images/2023/03/19/286403a38970ced3c1c87d39d5fc86e2.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/83980ec1a4e05d38922c0a391a7b6807.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/a3ea6b9e5d48f2520b6e6e433843fd28.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/93b2b2cb2c12f188dc245c8021129b27.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2743#       发表于 2023-3-19 19:09
+
+<img src="https://img.saraba1st.com/forum/202303/19/190902ib7x81c5ob9ux835.jpg" referrerpolicy="no-referrer">
+
+<strong>$GMNU)19JUS8]2(KI]59MEK.jpg</strong> (54.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-19 19:09 上传
+
+
+*****
+
+####  wfhtony  
+##### 2744#       发表于 2023-3-19 19:10
+
+還有，這次說會實裝自動P卡的功能（目前只有G.R.A.D.篇可以掛）了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/03/19/55eaeecc5aeb5598f1a8d2f9316a5737.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2745#       发表于 2023-3-19 19:21
+
+ 本帖最后由 兔姬姬姬姬姬 于 2023-3-19 19:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202303/19/192105l025txw1rn20p80n.jpg" referrerpolicy="no-referrer">
+
+<strong>2]U3ULSI6B@[PMQ7J2CWE{T.jpg</strong> (357.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-19 19:21 上传
+
+【斑鸠 ルカさんのプロフィール情报更新！】
+
+２８３プロダクションに加入が决定した「斑鸠 ルカ（いかるが るか）」さんについて、タイトル绍介サイトにてプロフィール情报を更新しました！
+
+■タイトル绍介サイト
+
+[https://shinycolors.idolmaster.jp/idol/ikarugaluca/](https://t.co/UmnIQaZLg6)
+
+*****
+
+####  八木沼了一  
+##### 2746#       发表于 2023-3-19 19:22
+
+三年就出三个角色？
+
+*****
+
+####  areklose  
+##### 2747#       发表于 2023-3-19 19:25
+
+果然，上一次活动已经是做铺垫
+
+
+*****
+
+####  Unlight  
+##### 2748#       发表于 2023-3-19 19:36
+
+这下961了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wfhtony  
+##### 2749#       发表于 2023-3-19 19:36
+
+ 本帖最后由 wfhtony 于 2023-3-19 19:38 编辑 
+
+<img src="https://tc3.wfhtony.space/images/2023/03/19/f382614469f9f7e3ace57239ae898758.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/0725f96d28c7594a7bd53ff9db451124.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/33cbe54dcabc3a71f6db4bf727ef2a2c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/c7cf2de83c694b8ba4ae28cc55a51295.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/72d3f097702180cc83dfe831bad5c1a8.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/023fdd92628aead9ed54dfc7c8ed9ed5.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/f559768abe588fb65b8cde2a3dd0f415.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/acadde5fb97b515669fb0c50591fe4ba.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/d97a2afda6dac4a4b1f43fe4cadfd9d0.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/cf29abb89c9e1c6aa8cc3a7db9494066.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/748c769b8a8527400690b358a5ba7c9e.jpg" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/19/68fe5d90d18b09765ffaa63d66a202d8.jpg" referrerpolicy="no-referrer">
+
+動畫化確定，監督是之前導過灰姑娘小劇場的那位。
+
+動畫是三渲二，由Polygon Pictures製作。
+
+明年春季放送，會有劇場先行上映。
+
+
+*****
+
+####  冰风血羽  
+##### 2750#       发表于 2023-3-19 20:33
+
+高山！有能！（3.19限定）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  电动犀牛  
+##### 2751#       发表于 2023-3-19 20:38
+
+脚本加藤阳一，也负责百万的动画
+
+
+*****
+
+####  陆久舟  
+##### 2752#       发表于 2023-3-19 20:49
+
+小高 ×
+
+高父 √
+
+
+*****
+
+####  キラ様  
+##### 2753#       发表于 2023-3-19 22:55
+
+高父笑喷
+
+
+*****
+
+####  kria  
+##### 2754#       发表于 2023-3-19 23:13
+
+火起来只希望声优和平相处...
+
+
+*****
+
+####  蓮華  
+##### 2755#       发表于 2023-3-19 23:26
+
+喷了，除了ruka没有新角色了？
+
+
+*****
+
+####  kria  
+##### 2756#       发表于 2023-3-20 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60148920&amp;ptid=1577595" target="_blank">蓮華 发表于 2023-3-19 23:26</a>
+
+喷了，除了ruka没有新角色了？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202303/20/003912hkyiih5j0ly4avvh.jpg" referrerpolicy="no-referrer">
+
+<strong>FrmL7NNaUAA91MO.jpg</strong> (46.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-20 00:39 上传
+
+我转某人
+
+
+*****
+
+####  404489039  
+##### 2757#       发表于 2023-3-20 00:42
+
+卢卡不可能solo肯定是要给她姬友了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 2758#       发表于 2023-3-20 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60149617&amp;ptid=1577595" target="_blank">kria 发表于 2023-3-20 00:39</a>
+
+我转某人</blockquote>
+961都被薅秃了（
+
+日花参考诗花，美琴参考铃音。luka身为反派却加入283，然后（至少目前）还是单体偶像。
+
+
+*****
+
+####  caiseni  
+##### 2759#       发表于 2023-3-20 18:33
+
+ルカ加入以后要是再也见不到ガチ恶女日花就太遗憾了
+
+
+*****
+
+####  shadowof  
+##### 2760#         楼主| 发表于 2023-3-22 16:05
+
+[https://www.asfes.jp/game/shinycolors/special/news203647](https://www.asfes.jp/game/shinycolors/special/news203647)
+
+gig的外界评价没想到直接做了网站，看样子要在正式加入前全部处理完。
+
+
+*****
+
+####  wfhtony  
+##### 2761#       发表于 2023-3-24 23:57
+
+ 本帖最后由 wfhtony 于 2023-3-25 00:16 编辑 
+
+高山這次在評論區啊...
+
+(今天的同時視聽會的影像部分就是Day1的正式VOD版，所以官方不會留檔)
+<img src="https://tc1.wfhtony.space/images/2023/03/24/a0c2b4b13e6e06ae46c52c51ddf5d2d5.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2023/03/24/eb7c9433f1745a205d964368ff4ae27a.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2023/03/24/dd424dc62bd446e5da176ca03841c490.png" referrerpolicy="no-referrer">
+<img src="https://tc1.wfhtony.space/images/2023/03/24/fb0e6abc200eb5d468e948a1c6c5dccd.png" referrerpolicy="no-referrer">
+
+關於Day1本篇收尾前的最終Block選曲：
+<img src="https://tc3.wfhtony.space/images/2023/03/24/83abd6a09b553c91746e0c159508c93c.png" referrerpolicy="no-referrer">
+
+5th Day1釋明：
+<img src="https://tc3.wfhtony.space/images/2023/03/24/83aa581e26b9b683b92d7fac0fcb1fed.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/cdd183bc9c198779786e34106b75c563.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/f3b4ace6df5213505f94c53f3ad48265.png" referrerpolicy="no-referrer">
+
+Day1(和高山P的)同時視聽會的最後，高山寫了一篇小作文：
+<img src="https://tc3.wfhtony.space/images/2023/03/24/7881186a1ddb8c5062cc4247cd21f84b.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/5e96ba637a265f8d884ce3031c67131d.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/fb9426ee9b7611c7166102dda7b3f058.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/42e5015d889d951728681feb137e22f0.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/98c2b6fe5ec9740390ee53dc70f36c54.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/3ee0baccf9b6d76c69a3d6161eb89922.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/c74d244dfe69db2c4bfacf8964a6e232.png" referrerpolicy="no-referrer">
+
+最後的最後，高山解釋了下新LOGO的意義： <blockquote><img src="https://tc3.wfhtony.space/images/2023/03/24/da621d117ff5bcc80e5f172e71fe4523.png" referrerpolicy="no-referrer">
+這次五週年更換的新LOGO</blockquote>
+<img src="https://tc3.wfhtony.space/images/2023/03/24/db17f561e49592411a72385f4899c303.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/d0a52ffc13461a3e7cd8ed2a61c8d505.png" referrerpolicy="no-referrer">
+<img src="https://tc3.wfhtony.space/images/2023/03/24/703385c246e55c905d0921134b9399c2.png" referrerpolicy="no-referrer">
+
+<img src="https://tc3.wfhtony.space/images/2023/03/25/bd68d69ebe078d0dc5a74e8fb3fcd74d.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sliver1997| + 1|好评加鹅|
+| caiseni| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  shadowof  
+##### 2762#         楼主| 发表于 2023-3-25 10:03
+
+以前霧子GRAD的时候就提过这一点。
+
+シャニマス单独的特点，
+
+出发点上都是以偶像个人为中心的，P是作为支持者的角度参与其中，而不是引导者。
+
+*****
+
+####  shadowof  
+##### 2763#         楼主| 发表于 2023-3-26 10:03
+
+[5th的キービジュアル](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1577595&amp;page=90#pid58426625)
+
+除了灯織的视线，右上方追加了航迹云。
+
+ルカマネージャー最后出国的可能性非常高了。
+
+现在看到TL上最多的想法是ルカ为了让マネージャー放心走人，达成一部分妥协进入283。（さよならドラえもん方式）
+
+
+*****
+
+####  三味线陆战型  
+##### 2764#       发表于 2023-3-28 00:25
+
+今天luca的卡片到了
+
+话说还是感觉这次剧情的公开是宣发让位创作了，节奏有点烂
+
+不过倒是衔接上了
+
+QQ图片20230328011959.jpg
+(454.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-28 00:20 上传
+
+<img src="https://img.saraba1st.com/forum/202303/28/002057r1zhwg14m4quzrxa.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 2765#       发表于 2023-3-30 12:21
+
+偶像，到底是什么…
+
+刚开始补剧情，在看SHHis的OO-ct.　──ノー・カラット。像美琴这样努力到偏执的，对日花真的能去参考吗…
+
+要怎么跨越十年的练习？
+
+
+*****
+
+####  Rho  
+##### 2766#       发表于 2023-3-31 01:51
+
+意面什么鬼啦
+
+
+*****
+
+####  shadowof  
+##### 2767#         楼主| 发表于 2023-3-31 11:12
+
+今年愚人节也不搞了。
+
+坐等最后一话更新了。
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 2768#       发表于 2023-3-31 13:03
+
+ 本帖最后由 虚无缥缈的光阴 于 2023-3-31 13:06 编辑 
+
+luca原本的p对luca意外地超爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+嘘组的单箭头链条是不是又变相加长了一节
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  三味线陆战型  
+##### 2769#       发表于 2023-3-31 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">闪P活像一个介入百合趁虚而入的黄毛
+
+下一话就是这人居然能完成我这么苛责的要求きゅっ<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shadowof  
+##### 2770#         楼主| 发表于 2023-4-1 08:54
+
+WING前写一下10话的感想。
+
+剪头发这个表现，个人认为并不是发生实际的行动，读的时候那个歇斯底里的状况完全是割脉的感觉。
+
+刀刃落下的时候同时倒下过于凑巧，感觉是为了缓和过激表现做的妥协。
+
+P直接带去事务所而不是医院感觉理由很大程度上是为了保护隐私。
+
+
+*****
+
+####  caiseni  
+##### 2771#       发表于 2023-4-2 06:23
+
+自动育成必须通关新手任务（哭
+对于想保留新手任务的选人画面的人来说，只能当这功能不存在了
+
+
+*****
+
+####  Unlight  
+##### 2772#       发表于 2023-4-2 12:49
+
+ 本帖最后由 Unlight 于 2023-4-2 12:52 编辑 
+
+艹
+
+<img src="https://img.saraba1st.com/forum/202304/02/125148p78twbseozbz6q7n.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2087.JPG</strong> (762.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-2 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/02/125154th06z44fk9330ea8.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2085.JPG</strong> (695.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-2 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/02/125205y9ezzs8h66c86vku.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2084.JPG</strong> (620.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-2 12:52 上传
+
+然后闪P、叶月、美琴组团去探监是吧（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Unlight  
+##### 2773#       发表于 2023-4-2 12:49
+
+ 本帖最后由 Unlight 于 2023-4-2 12:50 编辑 
+
+风怒
+
+
+*****
+
+####  宵神乐  
+##### 2774#       发表于 2023-4-2 13:36
+
+监狱系偶像
+
+
+*****
+
+####  三度音  
+##### 2775#       发表于 2023-4-2 14:57
+
+283算儿力才26个偶像，编号哪来的No.27，35？高山又在玩了
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 2776#       发表于 2023-4-2 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60305099&amp;ptid=1577595" target="_blank">三度音 发表于 2023-4-2 14:57</a>
+
+283算儿力才26个偶像，编号哪来的No.27，35？高山又在玩了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202304/02/165236ro242x77uuu78hzo.jpg" referrerpolicy="no-referrer">
+
+<strong>[82$%~F$L~[PE$HFI_O)0}A.jpg</strong> (185.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-2 16:52 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 2777#       发表于 2023-4-4 21:46
+
+嘘组剧情补完了，开始看迷光
+
+不细看没意识到，ash的瞳孔真是深海抑或天空般引人沉入的蓝色
+
+
+*****
+
+####  伊地知星歌  
+##### 2778#       发表于 2023-4-5 20:39
+
+小高你
+
+<img src="https://img.saraba1st.com/forum/202304/05/203923vq7aqtupuu7apqm7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-5 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202304/05/203929gdj3c9h5oaj5catx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (91.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-5 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202304/05/203935h09leejcpvhtjelj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (94.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-5 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202304/05/203900jpepthhg0rrhfrrw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (304.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-5 20:39 上传
+
+
+*****
+
+####  shadowof  
+##### 2779#         楼主| 发表于 2023-4-5 23:51
+
+Fami通印错的地方有点多，投票那边大崎姉妹图印反了。选卡图的问题两边小标题都写成P卡了。
+
+高山讲今年要往未来的方向写，5th演出提示的「不同的未来」举例专门提到了霧子的GRAD。
+
+
+*****
+
+####  伊地知星歌  
+##### 2780#       发表于 2023-4-6 17:15
+
+<img src="https://img.saraba1st.com/forum/202304/06/171428a53tm52cjp5r4wdq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (152.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202304/06/171433rpvfevvqv3i4su1u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202304/06/171440bvarddfd311b0d1z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202304/06/171447j18wnz4owwoog7s2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202304/06/171453yc6suz6lt0uuxxeh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-6 17:14 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2781#       发表于 2023-4-7 22:51
+
+<img src="https://img.saraba1st.com/forum/202304/07/225115jyfzyvaf9lz98z73.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-7 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/225121y85oi5j2iaati2ap.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (140.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-7 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/225127hme6obec6tcc6o2t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-7 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/225133a717ba2dx73lda2c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (130.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-7 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/07/225139f1m60q5164q10675.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-7 22:51 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2782#       发表于 2023-4-8 23:10
+
+<img src="https://img.saraba1st.com/forum/202304/08/231004ackccffxefdcfgme.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202304/08/231012rt2jftrct5vetj1f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202304/08/231022fqa81f565zf2czuy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-8 23:10 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2783#       发表于 2023-4-9 18:20
+
+<img src="https://img.saraba1st.com/forum/202304/09/182010p5sye8657ytf7ca1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-9 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202304/09/182016nxhwxkk6ukxotwhh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-9 18:20 上传
+
+<img src="https://img.saraba1st.com/forum/202304/09/182021ys08azu7dk4afd06.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-9 18:20 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2784#       发表于 2023-4-10 20:11
+
+<img src="https://img.saraba1st.com/forum/202304/10/201139doipe75ie4c7qbx4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/10/201147rfzhtbta39dzf3tl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/10/201153xs7ppeva5axzfl5s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (135.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 20:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/10/201158z31z1bg3jmgm1bj4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (141.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 20:11 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2785#       发表于 2023-4-11 21:01
+
+<img src="https://img.saraba1st.com/forum/202304/11/210119i387323j44zh791i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (133.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-11 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202304/11/210127ue1n9q1y2s3w01wi.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-11 21:01 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2786#       发表于 2023-4-11 21:02
+
+1kk了
+
+<img src="https://img.saraba1st.com/forum/202304/11/210202u666vw80kkm69m2h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (126.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-11 21:02 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2787#       发表于 2023-4-12 15:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202304/12/150514dhz5rm37av4b179d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (664.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-12 15:05 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2788#       发表于 2023-4-12 18:21
+
+今天的更新也是盧卡
+
+<img src="https://img.saraba1st.com/forum/202304/12/182111ydq46x1d464vv14e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-12 18:21 上传
+
+
+*****
+
+####  伊地知星歌  
+##### 2789#       发表于 2023-4-13 12:48
+
+<img src="https://img.saraba1st.com/forum/202304/13/124833rgbbna1qg6b18cjb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (455.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-13 12:48 上传
+
