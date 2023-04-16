@@ -291,3 +291,26 @@ BD全卷特典有u149的衣服<img src="https://static.saraba1st.com/image/smile
 
 动画开播都不送白嫖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Urakawa  
+##### 5377#       发表于 2023-4-13 21:12
+
+倒是开了个活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kobushi  
+##### 5378#       发表于 2023-4-13 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被放置两年多是为了U149温存着出场资源吗。
+
+
+*****
+
+####  四宫家印  
+##### 5379#       发表于 2023-4-13 22:02
+
+这MV不错啊
+
