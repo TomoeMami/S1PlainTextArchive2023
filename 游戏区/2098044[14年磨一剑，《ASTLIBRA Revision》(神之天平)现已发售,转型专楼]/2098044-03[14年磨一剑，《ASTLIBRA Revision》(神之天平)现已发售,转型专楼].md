@@ -7299,3 +7299,651 @@ QQ图片20230118210118.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道咋回事有个档的移动速度和另一个通关档的串了，但是通关档的移速被我叠得异常鬼畜
 
+
+*****
+
+####  依存香炉  
+##### 3617#       发表于 2023-3-2 01:04
+
+黑生病的时候居然可以选择不相关的人看诊（选旅馆门口那个猥琐男会发生啥，惹啊不要牛头人啊）
+
+
+*****
+
+####  skgaminger1988  
+##### 3618#       发表于 2023-3-2 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59933442&amp;ptid=2098044" target="_blank">依存香炉 发表于 2023-3-2 01:04</a>
+黑生病的时候居然可以选择不相关的人看诊（选旅馆门口那个猥琐男会发生啥，惹啊不要牛头人啊） ...</blockquote>
+也就给他看看胖次 没啥牛头人要素
+
+
+*****
+
+####  白左  
+##### 3619#       发表于 2023-3-2 20:51
+
+steam上买了的应该发现，库里多了很多球<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">……
+
+<img src="https://img.saraba1st.com/forum/202303/02/205115r14r01san2lslpni.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (243.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-2 20:51 上传
+
+掉卡了
+
+
+*****
+
+####  christiny  
+##### 3620#       发表于 2023-3-2 21:29
+
+<blockquote>依存香炉 发表于 2023-3-2 01:04
+黑生病的时候居然可以选择不相关的人看诊（选旅馆门口那个猥琐男会发生啥，惹啊不要牛头人啊） ...</blockquote>
+其实，正常玩不会第一时间想到修女，最大可能是找最近的npc就是旅馆老板娘和商人。看过npc发言不同之后，就能明白每个人看的台词不一样。 还能去找那两个女同去看.....
+
+本质上这种桥段不罕见，作者只是把你能想到的可能性都做进去了。接下来找内衣也是，可以去问不同的npc。
+
+
+*****
+
+####  otakun  
+##### 3621#       发表于 2023-3-2 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59943279&amp;ptid=2098044" target="_blank">白左 发表于 2023-3-2 20:51</a>
+steam上买了的应该发现，库里多了很多球……
+
+掉卡了</blockquote>
+我还掉了个会长闪卡
+
+
+*****
+
+####  依存香炉  
+##### 3622#       发表于 2023-3-9 02:01
+
+这魔王不停召唤我根本清不完啊 肉的飞起 看不懂 满屏弹幕最后被玩儿死 30级 练度不够吗
+
+
+*****
+
+####  tansapple  
+##### 3623#       发表于 2023-3-9 08:10
+
+妥妥的练度不够，正常打基本上不给他放出第二轮召唤物的机会<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dio999  
+##### 3624#       发表于 2023-3-9 09:20
+
+主角这么强应该就是在边境走了16年的功劳了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  依存香炉  
+##### 3625#       发表于 2023-3-13 01:39
+
+有无好哥哥知道为何我在大雪山和伊利西昂刷了半小时都没见到这个金箱子是为什么
+
+<img src="https://img.saraba1st.com/forum/202303/13/013949z11h4c74778i43cc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-13 01:39 上传
+
+*****
+
+####  M1NG  
+##### 3626#       发表于 2023-3-13 01:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60065156&amp;ptid=2098044" target="_blank">依存香炉 发表于 2023-3-13 01:39</a>
+
+有无好哥哥知道为何我在大雪山和伊利西昂刷了半小时都没见到这个金箱子是为什么
+
+ ...</blockquote>
+不用怀疑，就是运气不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  依存香炉  
+##### 3627#       发表于 2023-3-13 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60065196&amp;ptid=2098044" target="_blank">M1NG 发表于 2023-3-13 01:46</a>
+
+不用怀疑，就是运气不好</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202303/13/015217ul5cchck45qd5dcd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-3-13 01:52 上传
+
+气死咧 其他的箱子都是推图顺带刷出来了 唯独这个硬是不出
+
+
+*****
+
+####  tsubaki  
+##### 3628#       发表于 2023-3-13 10:53
+
+雷神锤伊利西昂概率稍微高点，继续刷
+
+
+*****
+
+####  woshenc  
+##### 3629#       发表于 2023-3-13 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59943279&amp;ptid=2098044" target="_blank">白左 发表于 2023-3-2 20:51</a>
+
+steam上买了的应该发现，库里多了很多球……
+
+掉卡了</blockquote>
+造物主比天平女神还大...
+
+
+*****
+
+####  依存香炉  
+##### 3630#       发表于 2023-3-14 12:11
+
+拿到全装备并且找大贤者换弑神剑了
+
+感觉这游戏要在战斗方面舒服就得早点意识到这是个数值游戏 打不过就去老实刷装备
+
+另外很好奇有没有人不看攻略拿到全装备的，所有徽章+隐藏boss+成长送的装备 自己探索还是蛮难的吧
+
+
+*****
+
+####  otakun  
+##### 3631#       发表于 2023-3-14 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60080372&amp;ptid=2098044" target="_blank">依存香炉 发表于 2023-3-14 12:11</a>
+拿到全装备并且找大贤者换弑神剑了
+
+感觉这游戏要在战斗方面舒服就得早点意识到这是个数值游戏 打不过就去老 ...</blockquote>
+不算饰品的话还好，隐藏宝箱有提示，boss 好几个主线有暗示，火山那个误打误撞也会发现，游戏里的神话书也有提示。可能最容易漏掉的是雪山的盾，不过对于我这种脸黑刷不出图纸猛刷雪山的并没有漏掉。
+
+
+*****
+
+####  依存香炉  
+##### 3632#       发表于 2023-3-16 01:50
+
+阿奴丽丝肉身回复前男主在梦里看到的那一段阿奴丽丝和凯交谈的带点ntr性质的剧情是啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+后来去酒馆又是“凯还在给白按摩”
+
+
+*****
+
+####  tansapple  
+##### 3633#       发表于 2023-3-16 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60102560&amp;ptid=2098044" target="_blank">依存香炉 发表于 2023-3-16 01:50</a>
+
+阿奴丽丝肉身回复前男主在梦里看到的那一段阿奴丽丝和凯交谈的带点变心性质的剧情是啥意思
+
+后来去酒 ...</blockquote>
+梦神在搞男主心态而已
+
+
+*****
+
+####  WntFlm  
+##### 3634#       发表于 2023-3-17 21:39
+
+这游戏收集要素能回头再收集吗？如果不行的话就看着攻略打了
+
+
+*****
+
+####  M1NG  
+##### 3635#       发表于 2023-3-18 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60126442&amp;ptid=2098044" target="_blank">WntFlm 发表于 2023-3-17 21:39</a>
+
+这游戏收集要素能回头再收集吗？如果不行的话就看着攻略打了</blockquote>
+漏掉的所有东西在游戏正式结束前都能回头再拿，所以别担心，想怎么打就怎么打就是了
+
+
+*****
+
+####  椎名mahuyo  
+##### 3636#       发表于 2023-3-19 14:59
+
+促销的时候买了，对我胃口
+
+初期加点需要加幸运嘛？
+
+
+*****
+
+####  karastar  
+##### 3637#       发表于 2023-3-19 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60143487&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-3-19 14:59</a>
+
+促销的时候买了，对我胃口
+
+初期加点需要加幸运嘛？</blockquote>
+幸运增加素材掉落可以加
+
+
+*****
+
+####  loneblade  
+##### 3638#       发表于 2023-3-19 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60143487&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-3-19 14:59</a>
+促销的时候买了，对我胃口
+
+初期加点需要加幸运嘛？</blockquote>
+任何时候都不推荐加这个 主要是不影响箱子掉落而箱子才能开出设计图纸
+
+
+*****
+
+####  christiny  
+##### 3639#       发表于 2023-3-19 17:48
+
+<blockquote>椎名mahuyo 发表于 2023-3-19 14:59
+促销的时候买了，对我胃口
+
+初期加点需要加幸运嘛？</blockquote>
+幸运不加掉落，只增加经验和钱。初期优先敏捷满足重量在40以下。其余的血攻魔保持收益衰减线就行，中期开始常驻风火精灵后，稍微多加魔力。
+
+收益衰减上限，人物等级+5，记得是。超过这个数值，加点收益狂降。
+
+
+*****
+
+####  椎名mahuyo  
+##### 3640#       发表于 2023-3-19 20:33
+
+ 本帖最后由 椎名mahuyo 于 2023-3-19 20:34 编辑 
+
+研究了下大概懂了，幸运只加经验和钱掉率？
+
+1章开了2个金箱子2个银箱子...箱子每章不一样，到下章了就没得开了？
+
+*****
+
+####  christiny  
+##### 3641#       发表于 2023-3-19 20:38
+
+ 本帖最后由 christiny 于 2023-3-19 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60146870&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-3-19 20:33</a>
+
+研究了下大概懂了，幸运只加经验和钱掉率？
+
+1章开了2个金箱子2个银箱子...箱子每章不一样，到下章了就没得 ...</blockquote>
+每一章固定有5个设计图，全靠开箱子。武器，防具，饰品都有。每章金箱子的图纸只有一个，出过不用再开了。
+
+虽然是每章固定，但是下一章也可以出上一张的设计图。城里面有个屋子卖图鉴和神话书，有钱就去买了读一读，有用的。
+
+
+*****
+
+####  trb315  
+##### 3642#       发表于 2023-3-27 15:16
+
+有什么武器装备带来的技能是比较好用的？
+
+
+*****
+
+####  椎名mahuyo  
+##### 3643#       发表于 2023-3-27 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么有时候金箱子里只出卡片啊 明明这章一个设计图都没
+
+卡片是拿到就直接用了嘛？
+
+
+*****
+
+####  tsubaki  
+##### 3644#       发表于 2023-3-27 17:15
+
+卡片直接啃就行，反正加成很小
+
+
+*****
+
+####  christiny  
+##### 3645#       发表于 2023-3-27 19:06
+
+<blockquote>trb315 发表于 2023-3-27 15:16
+有什么武器装备带来的技能是比较好用的？</blockquote>
+一般都拉满，虽然有一小半技能没用，不过也是顺带手的事。
+
+
+*****
+
+####  asdfg  
+##### 3646#       发表于 2023-3-27 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60102560&amp;ptid=2098044" target="_blank">依存香炉 发表于 2023-3-15 12:50</a>
+
+阿奴丽丝肉身回复前男主在梦里看到的那一段阿奴丽丝和凯交谈的带点变心性质的剧情是啥意思
+
+后来去酒 ...</blockquote>
+阿努莉丝是传说中的天降青梅倒贴，凯也是纯爱战神，所以其实这个根本不可能……这个其实跟HP电影最后一部罗恩看到赫敏和哈利的幻象差不多，其实是俩八竿子打不着的人但就是因为被搞心态所以强行看到了拆CP的结果
+
+
+*****
+
+####  leina0602  
+##### 3647#       发表于 2023-4-2 23:44
+
+刚玩了一天，第一关BOSS的BGM居然是mozell成名曲的remix，鸡皮疙瘩起来了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  trb315  
+##### 3648#       发表于 2023-4-6 10:29
+
+好像碰到一个BUG，第五章取得副武器能力的地方，对话跳过后就没有得到这个能力了。。。
+
+存档也覆盖掉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  christiny  
+##### 3649#       发表于 2023-4-6 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60349843&amp;ptid=2098044" target="_blank">trb315 发表于 2023-4-6 10:29</a>
+
+好像碰到一个BUG，第五章取得副武器能力的地方，对话跳过后就没有得到这个能力了。。。
+
+存档也覆盖掉了[f:0 ...</blockquote>
+副武器是嘉隆技能，第一页最后一个。你看下有没有。
+
+
+*****
+
+####  椎名mahuyo  
+##### 3650#       发表于 2023-4-9 19:17
+
+打到8章了 后面打怪全靠吸血那技能 能去打那些隐藏BOSS了没 难吗？
+
+
+*****
+
+####  christiny  
+##### 3651#       发表于 2023-4-9 19:21
+
+ 本帖最后由 christiny 于 2023-4-9 19:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60389314&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-4-9 19:17</a>
+
+打到8章了 后面打怪全靠吸血那技能 能去打那些隐藏BOSS了没 难吗？</blockquote>
+有8章的武器，都不难。只不过BOSS有些技能需要熟悉一下，难免会有初见杀。
+
+战神固定6次拔刀斩之后，全屏秒杀
+
+魔女注意判断真身，真身发射的星星会大一些
+
+龙王的石化+扭曲组合拳。石化用无敌后跳躲，扭曲防御格挡3次。
+
+其他的就没啥了。
+
+要是遇到难题，可以看看我录的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/B ... f644037e705bcdb46ab](https://www.bilibili.com/video/BV1iD4y1K7id/?vd_source=eb990782970f5f644037e705bcdb46ab)
+
+
+*****
+
+####  leina0602  
+##### 3652#       发表于 2023-4-10 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一周目通了，地狱难度，存档时长40小时，steam显示玩了63小时，成就居然才开了一半多
+
+另外这游戏音乐免费素材占多少，感觉水平都很不错
+
+
+*****
+
+####  azccc52  
+##### 3653#       发表于 2023-4-10 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396499&amp;ptid=2098044" target="_blank">leina0602 发表于 2023-4-10 10:29</a>
+一周目通了，地狱难度，存档时长40小时，steam显示玩了63小时，成就居然才开了一半多
+
+另外这游戏音 ...</blockquote>
+成就才一半多的话，你新章没打吧？新章剧情是接着终章的，读取终章存档才能进
+
+*****
+
+####  tsubaki  
+##### 3654#       发表于 2023-4-10 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396499&amp;ptid=2098044" target="_blank">leina0602 发表于 2023-4-10 10:29</a>
+
+一周目通了，地狱难度，存档时长40小时，steam显示玩了63小时，成就居然才开了一半多
+
+另外这游戏音 ...</blockquote>
+基本都免费的，也就削除几个专门找作者商量后用曲（7章8章一堆削除早期碟子玩意）
+
+
+*****
+
+####  leina0602  
+##### 3655#       发表于 2023-4-10 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396608&amp;ptid=2098044" target="_blank">azccc52 发表于 2023-4-10 10:35</a>
+
+成就才一半多的话，你新章没打吧？新章剧情是接着终章的，读取终章存档才能进 ...</blockquote>
+没打，我看别人说新章算二周目，看了一下好像要重走西游路，最近比较忙打算五一再打了
+
+
+*****
+
+####  leina0602  
+##### 3656#       发表于 2023-4-10 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396703&amp;ptid=2098044" target="_blank">tsubaki 发表于 2023-4-10 10:41</a>
+
+基本都免费的，也就削除几个专门找作者商量后用曲（7章8章一堆削除早期碟子玩意） ...</blockquote>
+作者堪称白嫖王啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+主题曲不会也是免费素材吧，感觉有点像志方晶子、sound horizon之类的风格
+
+
+*****
+
+####  adw667  
+##### 3657#       发表于 2023-4-10 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396959&amp;ptid=2098044" target="_blank">leina0602 发表于 2023-4-10 10:57</a>
+作者堪称白嫖王啊
+
+主题曲不会也是免费素材吧，感觉有点像志方晶子、sound horizon之类的风格 ...</blockquote>
+至少op本身也是术曲翻唱，不过我觉得比原曲唱得好<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">原曲的miku调得不够奔放
+
+
+*****
+
+####  asdfg  
+##### 3658#       发表于 2023-4-10 12:05
+
+隐藏的话 魔女 女神 还有邪神基本都是靠堆高stat之后可以强冲过去
+
+战神是要强堆攻击否则到时间强制死亡。注意去找战神的路上有个小怪会把你的HP强行降到1（无视攻防无法避免只能小心）。
+
+龙王的石化+扭曲组合，还有一个办法是把石化抗性堆满然后故意吃石化，之后防盾挡后边的扭曲。这招石化的部分攻击力很小但几乎一定会破盾；后边扭曲的部分相反，攻击力几乎必秒杀但几乎不破盾。所以碰到这招一开始直接拉盾就会直接被破盾秒……
+
+
+*****
+
+####  慕容断月  
+##### 3659#       发表于 2023-4-10 15:35
+
+ 本帖最后由 慕容断月 于 2023-4-10 15:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396499&amp;ptid=2098044" target="_blank">leina0602 发表于 2023-4-10 10:29</a>
+一周目通了，地狱难度，存档时长40小时，steam显示玩了63小时，成就居然才开了一半多
+
+另外这游戏音 ...</blockquote>
+全部都是，这些曲子有些作者发布站写明了只需要标注作曲就能免费商用
+
+
+*****
+
+####  tansapple  
+##### 3660#       发表于 2023-4-10 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396959&amp;ptid=2098044" target="_blank">leina0602 发表于 2023-4-10 10:57</a>
+
+作者堪称白嫖王啊
+
+主题曲不会也是免费素材吧，感觉有点像志方晶子、sound horizon之类的风格 ...</blockquote>
+你猜对了，原曲是V家的免费曲，然后作者买了翻唱版的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leina0602  
+##### 3661#       发表于 2023-4-10 18:13
+
+今天中午在niconico找到OP原曲了，居然是10年投稿的，感觉歌词跟剧情很契合
+
+
+*****
+
+####  christiny  
+##### 3662#       发表于 2023-4-10 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60396853&amp;ptid=2098044" target="_blank">leina0602 发表于 2023-4-10 10:50</a>
+
+没打，我看别人说新章算二周目，看了一下好像要重走西游路，最近比较忙打算五一再打了 ...</blockquote>
+二周目只是个称呼，实际并不是二周目，而是剧情大结局，一步步朝着HAPPYENDING发展，体验非常好。
+
+PS：现在STEAM版本是个商业化重制版，原版只有旧篇，新章就是这个版本增加的内容。
+
+
+*****
+
+####  zqzs  
+##### 3663#       发表于 2023-4-10 21:30
+
+看到楼上讨论bgm的，给用网易云的坛友分享下直接搜神之天平就有个500多万的bgm全收录电台（现在叫播客）
+
+
+*****
+
+####  冰原狼  
+##### 3664#       发表于 2023-4-11 02:51
+
+通关了来翻砖楼才知道幸运不管宝箱和加点上限衰减<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  食粪者  
+##### 3665#       发表于 2023-4-11 15:39
+
+第一把法杖是不是最好用的，用到第六章了
+
+
+*****
+
+####  mithralmask  
+##### 3666#       发表于 2023-4-11 16:21
+
+这游戏的bgm里面我最喜欢的是那首编号119的shade BGM素材集vol3-artifact-track11
+
+—— 来自 vivo V2115A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3667#       发表于 2023-4-11 16:40
+
+我的话开头森林的Enter Velocity和第一个boss的Surface Tension。术曲和超中二的削除曲挺出戏，但配上后期略显胡逼的剧情还好。
+
+
+*****
+
+####  christiny  
+##### 3668#       发表于 2023-4-11 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60415068&amp;ptid=2098044" target="_blank">食粪者 发表于 2023-4-11 15:39</a>
+
+第一把法杖是不是最好用的，用到第六章了</blockquote>
+不是。后面的法杖更强，前提是要鬼畜攻速。
+
+
+*****
+
+####  食粪者  
+##### 3669#       发表于 2023-4-11 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60416871&amp;ptid=2098044" target="_blank">christiny 发表于 2023-4-11 17:54</a>
+不是。后面的法杖更强，前提是要鬼畜攻速。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一路举盾+第一把法杖的远程猥琐过来的，现在换了大魔导师杖明显暴毙次数增加了
+
+*****
+
+####  椎名mahuyo  
+##### 3670#       发表于 2023-4-11 18:20
+
+法杖打斗技场很轻松，初始最好用，led能打上方的，还打不到的用雷杖，大魔导的技能要练出来，用就算了
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  christiny  
+##### 3671#       发表于 2023-4-11 18:53
+
+ 本帖最后由 christiny 于 2023-4-11 19:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60417111&amp;ptid=2098044" target="_blank">食粪者 发表于 2023-4-11 18:14</a>
+
+我一路举盾+第一把法杖的远程猥琐过来的，现在换了大魔导师杖明显暴毙次数增加了 ...</blockquote>
+逃课迟早要还的， 最强魔杖是8章的大精灵杖。
+[https://www.bilibili.com/video/BV1HT41197pP/](https://www.bilibili.com/video/BV1HT41197pP/)
+
+每次攻击3倍打击数，配合鬼畜攻速就非常的无敌……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  食粪者  
+##### 3672#       发表于 2023-4-11 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想吐槽一下，击杀主线boss的奖励是否有点太低了，素材装备不怎么爆，钱和经验也不多。
+
+
+*****
+
+####  LClover21  
+##### 3673#       发表于 2023-4-12 17:27
+
+今天搜一个资料，结果百度里看到一条《神之天平》避雷：没买的快跑，能退的快退，没法退的别玩！ 的豆瓣，点进去看差点瞎了……
+
+
+*****
+
+####  省心  
+##### 3674#       发表于 2023-4-12 21:53
+
+当看到豆瓣小组的时候，第一反应就是回避了。
+
