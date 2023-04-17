@@ -5384,3 +5384,16 @@ Delete
 
 啥时候能动啊，感觉也差不多了吧，要是能跟暗影二期撞个阿尔法那还挺乐的，这边可烧多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kria  
+##### 436#       发表于 2023-4-14 16:12
+
+<img src="https://img.saraba1st.com/forum/202304/14/161153yfoi5waggvajpm9a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230414-160951_Chrome.jpg</strong> (291.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 16:11 上传
+

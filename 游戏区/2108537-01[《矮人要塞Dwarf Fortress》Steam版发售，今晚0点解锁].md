@@ -1255,3 +1255,48 @@ dfint社区韩国大佬的fork修正了内存泄漏和字体加载方式，把�
 
 好好好好！
 
+*****
+
+####  nma  
+##### 127#       发表于 2023-4-10 13:27
+
+这stairs和ramp真是有够迷惑，用digging order(m-t)可以在没动过的两层之间造down/up stairway，但如果下层挖过就只会造出一个down stairway，这个down stairway还用m-x删不掉，只能用build construction菜单在下层建造up stairway连上，后来才理解了这down stairway就是把floor给改造了。ramp也是，在没动过的两层可以从上层m-u直接挖channel，或者在下层有墙体的地方m-r挖ramp（如果上层floor在的话形成unusable up slope...），但下层挖过的话m-r是建不了ramp的，即使你补造了个墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+总之就是要先详读 [https://dwarffortresswiki.org/index.php/Mining](https://dwarffortresswiki.org/index.php/Mining) , 然后digging order(m)在当地的地形不允许的时候是干不了事的（鼠标框选没反应），自己根据地形用build construction(b-n)单独建造
+
+
+*****
+
+####  白左  
+##### 128#       发表于 2023-4-10 17:00
+
+<blockquote>nma 发表于 2023-4-10 13:27
+这stairs和ramp真是有够迷惑，用digging order(m-t)可以在没动过的两层之间造down/up stairway，但如果下层 ...</blockquote>
+这么一嗦想起来了
+
+当时好像就是想往下挖一层带楼梯的矿井, 但是满屏幕的▲▼看不明白研究了半天晕乎乎然后弃坑了...
+
+
+*****
+
+####  ziyer  
+##### 129#       发表于 2023-4-10 17:04
+
+所以steam版已经可以汉化了？
+
+
+*****
+
+####  nma  
+##### 130#       发表于 2023-4-11 22:33
+
+发生Siege时Stocks里包含了出现在地图内的敌军的装备，也太搞笑了，没做军备果然第一次就灭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qionglu735  
+##### 131#         楼主| 发表于 2023-4-14 15:44
+
+DFHack也上steam 了，免费下载，会自动装到游戏的文件夹里
+
