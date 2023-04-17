@@ -689,3 +689,43 @@ buff流感觉有点东西？看zard他们玩的一个法师一个牧师给野蛮
 
 个人看法跟楼上某楼差不多，测试版应该就是这个游戏最好玩的版本了，看好游戏能火，但是不推荐正式版出了大家去受苦
 
+*****
+
+####  センコウ  
+##### 69#       发表于 2023-3-25 10:32
+
+steam游戏页面没了,说是DMCA正式发通告以及停止信了
+
+4月的测试估计也难了
+
+*****
+
+####  战狼PTSD  
+##### 70#       发表于 2023-4-15 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60217689&amp;ptid=2111062" target="_blank">センコウ 发表于 2023-3-25 10:32</a>
+
+steam游戏页面没了,说是DMCA正式发通告以及停止信了
+
+4月的测试估计也难了</blockquote>
+测试上线了，官方发了测试客户端和登录器，贴吧有下载链接[https://tieba.baidu.com/f?ie=utf-8&amp;kw=darkanddarker](https://tieba.baidu.com/f?ie=utf-8&amp;kw=darkanddarker) 
+
+
+*****
+
+####  霖岚_  
+##### 71#       发表于 2023-4-15 07:17
+
+<img src="https://p.sda1.dev/10/199dccb2022aa2fd0c7ef20827c17a56/S30415-07105194.png" referrerpolicy="no-referrer">
+
+这制作组直接在推特上放出种子让所有玩家下载，冲上趋势#1了
+之前只是看主播打这游戏没亲自玩，没想到还有这么回事……
+
+
+*****
+
+####  elven119  
+##### 72#         楼主| 发表于 2023-4-15 07:29
+
+闹得很大，现在双方都打算硬刚到底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
