@@ -5249,3 +5249,154 @@ here
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  苍蓝之枪  
+##### 44306#       发表于 2023-4-4 23:01
+
+还是打完了，黑杯爆破前两条血，最后一条血水枪王单挑，可惜只有一宝，二技能虽然回血量很多但是倒扣10点NP真的是傻
+
+
+*****
+
+####  静滞场  
+##### 44307#       发表于 2023-4-5 03:24
+
+直接两发令咒4t爆破了老苏，懒得动脑子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  武者小路紫苑  
+##### 44308#       发表于 2023-4-6 20:50
+
+6个十连，歪拿破仑，莉莉丝3-&gt;4，虽然我对这期5星没啥执念，但是歪出拿破仑这个剧情塑造一塌糊涂的基佬还是有点不开心<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GuDaZi  
+##### 44309#       发表于 2023-4-6 20:56
+
+莉莉丝1变4，运气没有用对地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 44310#       发表于 2023-4-6 21:26
+
+为了艾蕾的礼装回归了，氪了3单强抽幽冥娘娘，征氏姐妹才1宝<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 44311#       发表于 2023-4-7 12:52
+
+觉得这对姐妹的宝具收尾挺有意境所以还是抽了1宝，莉莉丝补到2宝，倒是歪了个芝诺比阿这下五宝了
+
+*****
+
+####  shimotsuki14  
+##### 44312#       发表于 2023-4-9 19:55
+
+石头攒了点，抽了一百多石礼装和征氏都有了，不过毫无波澜
+
+
+*****
+
+####  花星空  
+##### 44313#       发表于 2023-4-11 15:56
+
+我就等着抽公主了，尽量攒攒
+
+
+*****
+
+####  苍蓝之枪  
+##### 44314#       发表于 2023-4-11 20:03
+
+这次活动礼装需要平铺吗?还是能满破直接满破?
+
+
+*****
+
+####  J-002  
+##### 44315#       发表于 2023-4-11 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60418363&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-4-11 20:03</a>
+
+这次活动礼装需要平铺吗?还是能满破直接满破?</blockquote>
+涳需求量还挺大的，
+
+全套设施需要三种各1062
+
+太岁宝具需要三种各800
+
+搬商店其他需要红920，蓝黄620
+
+
+*****
+
+####  DET  
+##### 44316#       发表于 2023-4-13 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情</blockquote>
+才发现你睿放了第一部第6章动画pv，那小贝灵衣会安排上吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  khxooo  
+##### 44317#       发表于 2023-4-13 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60439592&amp;ptid=1712412" target="_blank">DET 发表于 2023-4-13 18:06</a>
+才发现你睿放了第一部第6章动画pv，那小贝灵衣会安排上吗
+
+—— 来自 S1Fun</blockquote>
+看样子机会很大，其实不止小贝的强化，还有三藏的强化也要放出来了。
+
+
+*****
+
+####  Urakawa  
+##### 44318#       发表于 2023-4-13 21:10
+
+联动20号就上线了
+
+
+*****
+
+####  Kon-El  
+##### 44319#       发表于 2023-4-14 09:23
+
+90石头10呼符，王姐终于到了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  布伦史塔德  
+##### 44320#       发表于 2023-4-14 09:26
+
+本活动优先活动礼装刷三色涳
+
+21天活动足够自回体刷够金银铜材料
+
+
+*****
+
+####  Blackson  
+##### 44321#       发表于 2023-4-14 09:58
+
+三藏强化了能在接下来的打戏神话上班
+小贝强化了我记得还能在泳装90++上班（或者说20号后还能吃一下活动余热）
+
