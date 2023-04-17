@@ -6511,3 +6511,14 @@ xsx版，拖拖拉拉的今天才过了天照守剧情，强怪物也只打过�
 
 真的是天才游戏
 
+*****
+
+####  lactone  
+##### 682#       发表于 2023-4-14 19:09
+
+飞燕刀咋打爆发啊
+
+把怪打趴下了还是只能刮痧
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
