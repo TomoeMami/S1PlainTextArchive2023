@@ -1756,3 +1756,32 @@ yj说要抓脚本了<img src="https://static.saraba1st.com/image/smiley/face2017
 辛克莱在我眼里长得特别像我妻善逸，所以一看就知道是男孩子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
+*****
+
+####  Jamaisvu  
+##### 116#       发表于 2023-4-14 18:00
+
+ 本帖最后由 Jamaisvu 于 2023-4-14 18:11 编辑 
+
+新活动PV出了，貌似活动卡池里有三星皮埃尔良秀和辛克莱“一生所饪”EGO（抽限定EGO是坏文明！！！），活动兑换应该是二星杰克人格格里高尔和小唐的一生所饪EGO。
+
+<img src="https://img.saraba1st.com/forum/202304/14/181139jbd0iulvxvftflbt.jpg" referrerpolicy="no-referrer">
+
+<strong>F9910287963C1C1BEAEC6D70B3B58ED2.jpg</strong> (74.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202304/14/180405izq72g9qc4p9zbup.jpg" referrerpolicy="no-referrer">
+
+<strong>4CE675C6896CC2CA3135036BDFCA60C5.jpg</strong> (161.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 18:04 上传
+
+卡池里的两位有40%掉落加成，兑换的两位则是20%。
+
+活动内容依然是刷肉鸽地牢。不愧是韩国出品，这游戏改名Dungeon &amp; Sinner也不为过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
