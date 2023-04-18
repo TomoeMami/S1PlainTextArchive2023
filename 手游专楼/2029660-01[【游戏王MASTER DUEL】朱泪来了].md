@@ -2092,3 +2092,47 @@ link杯拿海晶打着蛮舒服的。随便打打都能在黄金连胜
 
 花了1w5没抽全，拆拆合合的终于搞定了，起手打了3把就全是内战，懵逼，墓指剑指3张需要拉满，堆墓的地天使可以压缩下，泡影可以适当带点，<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">解终端还是很有用的
 
+*****
+
+####  mobdom  
+##### 214#       发表于 2023-4-14 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">有没有针对珠泪的卡组推荐？我已经看到想吐了
+
+
+*****
+
+####  osuppy38  
+##### 215#         楼主| 发表于 2023-4-14 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60452268&amp;ptid=2029660" target="_blank">mobdom 发表于 2023-4-14 16:37</a>
+
+有没有针对珠泪的卡组推荐？我已经看到想吐了</blockquote>
+有，但都没得抽了，只能硬合
+
+<img src="https://img.saraba1st.com/forum/202304/14/234750v9tkjxjczkijchzf.png" referrerpolicy="no-referrer">
+
+<strong>234731.png</strong> (203.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 23:47 上传
+
+这种之类的，造价不便宜
+
+
+*****
+
+####  Alice.Andvari  
+##### 216#       发表于 2023-4-15 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">反正全程暗爪爸爸，反正他只下G，吃了也无所谓。这环境什么封魔都是多余的……能不能和醒醒一起出翼人新马甲啊……
+
+
+*****
+
+####  tttabc1  
+##### 217#       发表于 2023-4-15 19:11
+
+次元系和弟弟乌鸦，缝到旅鸟或者捉妖里还能抗一抗。等除圣来了，那位更是重量级<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
