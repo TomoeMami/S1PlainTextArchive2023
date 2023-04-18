@@ -2258,3 +2258,207 @@ nb，幻水＋百英雄传
 
 本作预计将于2023年发售，登陆PS4、Xbox One、Switch、Steam平台，Steam页面显示本作支持简体中文。 http://t.cn/A6KsbKpr
 
+*****
+
+####  医生狼多  
+##### 247#       发表于 2023-4-13 00:44
+
+全平台都已在台湾通过评级
+
+*****
+
+####  火红之眼  
+##### 248#       发表于 2023-4-13 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在都憋不出个发售日.....
+
+*****
+
+####  JudgmentEye  
+##### 249#       发表于 2023-4-13 01:48
+
+发售日呢
+
+*****
+
+####  zebra97  
+##### 250#       发表于 2023-4-13 06:47
+
+幻水三四五都没有汉化，挺遗憾的，是有什么技术问题吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  windzz  
+##### 251#       发表于 2023-4-13 07:26
+
+2可以再玩两遍了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  JudgmentEye  
+##### 252#       发表于 2023-4-13 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60432808&amp;ptid=2090186" target="_blank">zebra97 发表于 2023-4-13 06:47</a>
+
+幻水三四五都没有汉化，挺遗憾的，是有什么技术问题吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户 ...</blockquote>
+和2比完全没人气
+
+
+*****
+
+####  森田美位子  
+##### 253#       发表于 2023-4-13 09:19
+
+前一阵子通了psp版的1代。只能说得亏了有2，1代那么多缺点，在2代都有了调整
+
+*****
+
+####  森田美位子  
+##### 254#       发表于 2023-4-13 09:20
+
+ 本帖最后由 森田美位子 于 2023-4-13 09:37 编辑 
+
+风怒 编辑
+
+*****
+
+####  森田美位子  
+##### 255#       发表于 2023-4-13 09:21
+
+ 本帖最后由 森田美位子 于 2023-4-13 09:37 编辑 
+
+风怒 编辑
+
+
+*****
+
+####  lyt77777  
+##### 256#       发表于 2023-4-13 09:45
+
+对了，借楼问一下，幻水2我一直没见过什么靠谱的全人物收集攻略，要收齐一百单八将是不是必须严格照攻略来，比如开始的狸猫这种是不是错过了就永远错过了？后期补救的机会都没有？
+
+
+*****
+
+####  valand  
+##### 257#       发表于 2023-4-13 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60433216&amp;ptid=2090186" target="_blank">lyt77777 发表于 2023-4-13 09:45</a>
+对了，借楼问一下，幻水2我一直没见过什么靠谱的全人物收集攻略，要收齐一百单八将是不是必须严格照攻略来 ...</blockquote>
+二十几年前的游戏就是这样的
+
+*****
+
+####  火红之眼  
+##### 258#       发表于 2023-4-13 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60433216&amp;ptid=2090186" target="_blank">lyt77777 发表于 2023-4-13 09:45</a>
+对了，借楼问一下，幻水2我一直没见过什么靠谱的全人物收集攻略，要收齐一百单八将是不是必须严格照攻略来 ...</blockquote>
+大部分都没限制，就个别角色会错过
+狸猫是哪个没印象了，前期的话大概是飞鼠吧，也是可以补的
+
+
+*****
+
+####  ztkong  
+##### 259#       发表于 2023-4-13 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60432808&amp;ptid=2090186" target="_blank">zebra97 发表于 2023-4-13 06:47</a>
+
+幻水三四五都没有汉化，挺遗憾的，是有什么技术问题吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户 ...</blockquote>
+3带还挺不错的，4代拉垮了，5代其实整体还不错，不过败在恐怖的读盘时间上了，进个房间都要黑屏好久
+
+
+*****
+
+####  缺德猫  
+##### 260#       发表于 2023-4-13 12:00
+
+小时候幻水贴吧很多精品攻略（照着玩能全搜集，那些窗口1、音乐组件什么的获取都有），还有历代108的立绘对比什么的，但都被百度给夹了。
+
+
+*****
+
+####  4591  
+##### 261#       发表于 2023-4-13 12:09
+
+当年2代照着攻略来都没收齐人<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Demi.Albertini  
+##### 262#       发表于 2023-4-13 12:17
+
+还以为公布发售日了
+
+
+*****
+
+####  牧月萌  
+##### 263#       发表于 2023-4-13 13:50
+
+。
+
+<blockquote>引用第255楼lyt77777于2023-04-13 09:45发表的  :
+
+对了，借楼问一下，幻水2我一直没见过什么靠谱的全人物收集攻略，要收齐一百单八将是不是必须严格照攻略来......</blockquote>
+
+就四个人有时限，前期去缪兹市时收地煞星和触发天捷星事件
+第一次去骑士团路上街道之村收天勇星和地微星（这两个打完最终boss后一样能收，只是完美结局就触发不了，初版还可以用bug推门过去）
+
+其余在后面都能补上，飞鼠也是
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  zebra97  
+##### 264#       发表于 2023-4-13 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60434041&amp;ptid=2090186" target="_blank">ztkong 发表于 2023-04-13 10:50:15</a>
+3带还挺不错的，4代拉垮了，5代其实整体还不错，不过败在恐怖的读盘时间上了，进个房间都要黑屏好久 ...</blockquote>三代开场可以列入ps2前十了。音乐画面都是满分。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  饭冢武也  
+##### 265#       发表于 2023-4-14 15:30
+
+看起来真的不如PSP版……
+
+
+*****
+
+####  captoon  
+##### 266#       发表于 2023-4-15 11:04
+
+啥时候出到现在都没个准信
+
+
+*****
+
+####  S.T.A.L.K.E.R  
+##### 267#       发表于 2023-4-15 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57293908&amp;ptid=2090186" target="_blank">Edgefield 发表于 2022-8-31 23:53</a>
+KONAMI的世界级ip现在能拿多少出来？
+合金装备
+恶魔城</blockquote>
+实况 和游戏王被吃了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
