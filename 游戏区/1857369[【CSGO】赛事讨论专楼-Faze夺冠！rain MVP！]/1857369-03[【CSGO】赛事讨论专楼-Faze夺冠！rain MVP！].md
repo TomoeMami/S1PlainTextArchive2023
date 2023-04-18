@@ -1646,3 +1646,394 @@ dota2用起源2的时候就一个想法载入好快
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">打了一把强度局，就差10分上铂金，结果赛点局停电了，平局了，草草草草草，我对不起我的队友。
 
+*****
+
+####  我是小卯  
+##### 3287#       发表于 2023-4-6 20:38
+
+这次rmr我佛了......
+
+
+*****
+
+####  zpl123  
+##### 3288#       发表于 2023-4-9 01:36
+
+才发现VP被淘汰了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3289#       发表于 2023-4-9 08:43
+
+我觉得豆豆会在rmr来波大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3290#         楼主| 发表于 2023-4-9 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60381734&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-4-9 08:43</a>
+我觉得豆豆会在rmr来波大的</blockquote>
+本来就是被淘汰一点都不令人意外的队伍真的能被称之为大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在也就g2淘汰能算大的，小蜜蜂淘汰也是正常发挥只能说
+
+
+*****
+
+####  奈纪亚美  
+##### 3291#       发表于 2023-4-9 22:53
+
+FAZE是还有6进1的机会？
+
+*****
+
+####  dev2ce  
+##### 3292#       发表于 2023-4-9 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60392378&amp;ptid=1857369" target="_blank">奈纪亚美 发表于 2023-4-9 22:53</a>
+FAZE是还有6进1的机会？</blockquote>
+有，但没准b组又爆大冷了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3293#       发表于 2023-4-9 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60381747&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-4-9 08:46</a>
+本来就是被淘汰一点都不令人意外的队伍真的能被称之为大的吗现在也就g2淘汰能算大的，小蜜蜂淘汰 ...</blockquote>
+想想确实，rmr出局豆豆铁退役了，可能带着杜一起，反正🐝巴黎后必变阵
+
+
+*****
+
+####  zpl123  
+##### 3294#       发表于 2023-4-9 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">RA回家了
+
+*****
+
+####  dev2ce  
+##### 3295#       发表于 2023-4-9 23:14
+
+nm最后一局ra在干嘛
+
+*****
+
+####  Cushaw  
+##### 3296#       发表于 2023-4-9 23:19
+
+就是技不如人<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cwlo  
+##### 3297#       发表于 2023-4-9 23:24
+
+打得真烂
+
+
+*****
+
+####  我是小卯  
+##### 3298#       发表于 2023-4-9 23:38
+
+手机电脑一起看faze和ra，看完我麻中麻了，真是美好的一晚
+
+<img src="https://img.saraba1st.com/forum/202304/09/233810skke5g5q5jeeu50g.jpg" referrerpolicy="no-referrer">
+
+<strong>扶肩001.jpg</strong> (1.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-9 23:38 上传
+
+
+*****
+
+####  Rainwedell  
+##### 3299#       发表于 2023-4-10 00:13
+
+faze玩大的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  andychen  
+##### 3300#       发表于 2023-4-10 02:51
+
+Faze又被BNE干倒我是没想到的
+这下掉去打6进1真的危险，要和隔壁B组掉下来的鲨鱼抢名额
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dev2ce  
+##### 3301#       发表于 2023-4-10 04:03
+
+记得19卡托mouz没进直接给干重组了，north也playin最后输给vg，当时还是minor<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3302#       发表于 2023-4-11 10:54
+
+b组今天开始，🐝只有斯德哥尔摩是传奇组开打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能进就是胜利，a组爆冷好多
+
+
+*****
+
+####  曼陀罗肥  
+##### 3303#       发表于 2023-4-11 11:03
+
+小蜜蜂不出意外应该会出意外，最好g2 c9也下去凑4个陪faze打major四强算了
+
+
+*****
+
+####  Niyah  
+##### 3304#       发表于 2023-4-11 11:36
+
+下午c9 forze，晚上蜜蜂a队，刺激
+
+
+*****
+
+####  dev2ce  
+##### 3305#       发表于 2023-4-11 20:24
+
+太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3306#         楼主| 发表于 2023-4-11 20:24
+
+我的评价是这俩队都不用玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 3307#       发表于 2023-4-11 20:25
+
+味太对了
+
+*****
+
+####  dev2ce  
+##### 3308#       发表于 2023-4-11 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60418649&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-4-11 20:24</a>
+我的评价是这俩队都不用玩了</blockquote>
+到底是🐝太菜还是a队没那么入土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DearRye  
+##### 3309#       发表于 2023-4-11 20:43
+
+bne这队怎么打faze那么猛，跟你妈血脉克制一样
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Avantasi  
+##### 3310#       发表于 2023-4-11 21:12
+
+g2啥情况
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  heseran  
+##### 3311#       发表于 2023-4-11 21:44
+
+G2在干什么？
+
+*****
+
+####  曼陀罗肥  
+##### 3312#       发表于 2023-4-11 21:46
+
+gg先下一城，看后面小蜜蜂会不会跟上了
+
+*****
+
+####  zpl123  
+##### 3313#       发表于 2023-4-11 21:46
+
+牛妈了 g2输了
+
+*****
+
+####  dev2ce  
+##### 3314#       发表于 2023-4-11 21:52
+
+爆冷major<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DearRye  
+##### 3315#       发表于 2023-4-11 21:56
+
+faze不打我也不打
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  andychen  
+##### 3316#       发表于 2023-4-11 22:42
+
+虽然我想说G2又摆了，但是这波兰cs打得是真好吧
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Rainwedell  
+##### 3317#       发表于 2023-4-11 23:54
+
+不如直接6进1 major决赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dev2ce  
+##### 3318#       发表于 2023-4-11 23:58
+
+这sjuush，里约RMR争传奇组mirage也是这么宰🐝的
+
+
+*****
+
+####  曼陀罗肥  
+##### 3319#       发表于 2023-4-12 00:02
+
+c9也来了，下个小蜜蜂了
+
+
+*****
+
+####  dev2ce  
+##### 3320#       发表于 2023-4-12 01:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能复活赛吗
+
+
+*****
+
+####  dev2ce  
+##### 3321#       发表于 2023-4-12 07:38
+
+a队还能抢救吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roydimus  
+##### 3322#       发表于 2023-4-12 11:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a队和雪碧狭路相逢了
+
+— from Sony XQ-AT52, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  roydimus  
+##### 3323#       发表于 2023-4-12 11:24
+
+风怒
+
+
+*****
+
+####  dev2ce  
+##### 3324#       发表于 2023-4-12 19:54
+
+不去巴黎了回家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3325#       发表于 2023-4-13 14:30
+
+打9ine给我看脑溢血了，不过最差最差有复活赛打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3326#         楼主| 发表于 2023-4-13 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">A队在被狠狠地雷普
+
+
+*****
+
+####  朔方原的星  
+##### 3327#         楼主| 发表于 2023-4-13 18:06
+
+唉，救救老汤吧
+虽说top3维持不住了但油箱里还是有油的，老兄弟们是真不太行了，小将算及格吧，点名批评批壮，top6就这么打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3328#       发表于 2023-4-14 20:47
+
+G2的抽象加对面有个超人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输得不冤
+
+
+*****
+
+####  Cushaw  
+##### 3329#       发表于 2023-4-14 21:41
+
+完了，池子里全是鲨鱼，k宝，我的k宝<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  混子走天下  
+##### 3330#       发表于 2023-4-15 17:12
+
+感觉小蜜蜂传奇组了呀
+
+
+*****
+
+####  混子走天下  
+##### 3331#       发表于 2023-4-15 17:12
+
+感觉小蜜蜂传奇组了呀
+
+*****
+
+####  DearRye  
+##### 3332#       发表于 2023-4-15 21:23
+
+Let's go faze clan!
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
