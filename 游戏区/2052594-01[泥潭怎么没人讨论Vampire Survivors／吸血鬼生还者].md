@@ -2024,3 +2024,267 @@ ns版啥时候安排
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59202641&amp;ptid=2052594" target="_blank"> 无面 发表于 2023-1-4 18:27</a> 手机和pc存档不互通好痛苦，这手机版免费让我感觉好不安心啊。不会就出个基础版做宣传，不更新dlc之类的东西吧？  话说，苹果国服审核到底是啥机制，不是说游戏都需要版号来着吗？这没版号，不会很快就下线吧？ </blockquote>
 目前已经搜不到了来自: iPhone客户端
 
+*****
+
+####  AeonsTorn  
+##### 661#       发表于 2023-4-14 06:10
+
+新DLC出了，这个升级炸场的新人物爽啊
+
+
+*****
+
+####  captoon  
+##### 662#       发表于 2023-4-14 08:32
+
+<img src="https://img.saraba1st.com/forum/202304/14/083052jjorjmyym993yhsy.png" referrerpolicy="no-referrer">
+
+<strong>43328e87cd7841a9972ac9ce297ea38a.png</strong> (254.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 08:30 上传
+
+官方修改器了，弓箭手解锁新地图后，在新地图的道具金砖位置这里，会无限刷金蛋怪。
+
+刷完，游戏彻底没体验了，移动速度不设置上限的话，几乎没法玩了。
+
+
+*****
+
+####  thest  
+##### 663#       发表于 2023-4-14 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60445830&amp;ptid=2052594" target="_blank">captoon 发表于 2023-4-14 08:32</a>
+
+官方修改器了，弓箭手解锁新地图后，在新地图的道具金砖位置这里，会无限刷金蛋怪。
+
+刷完，游戏彻底没体 ...</blockquote>
+去最终BOSS那关和它对话，能减移动速度
+
+这个是之前版本就有的功能
+
+
+*****
+
+####  captoon  
+##### 664#       发表于 2023-4-14 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60446420&amp;ptid=2052594" target="_blank">thest 发表于 2023-4-14 09:25</a>
+
+去最终BOSS那关和它对话，能减移动速度
+
+这个是之前版本就有的功能</blockquote>
+福地很久没去了，怎么搞？
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 665#       发表于 2023-4-14 10:43
+
+有中文百科之类的么，就瞎玩了几把，什么超武，人物和地图解锁都不懂，游戏里也没什么说明
+
+
+*****
+
+####  Litccc  
+##### 666#       发表于 2023-4-14 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60447571&amp;ptid=2052594" target="_blank">折中旗帜鲜明 发表于 2023-4-14 10:43</a>
+有中文百科之类的么，就瞎玩了几把，什么超武，人物和地图解锁都不懂，游戏里也没什么说明 ...</blockquote>
+steam指南里有中文介绍，还是挺全的
+
+
+*****
+
+####  史莱姆KING  
+##### 667#       发表于 2023-4-14 11:20
+
+奇怪了，我这个现在运行游戏，右下角小人动了几下之后就白屏了。。。开始游戏的三个选项我都试了，都无效。。。为毛- -？
+
+
+*****
+
+####  史莱姆KING  
+##### 668#       发表于 2023-4-14 12:46
+
+爬了下steam的帖子，貌似是声卡方面，把192 KHZ  改成96就行了。。。。
+
+这。。。。我记得以前DLC1的时候貌似没出现这个问题？还是我记错？
+
+
+*****
+
+####  liyropen  
+##### 669#       发表于 2023-4-14 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60449196&amp;ptid=2052594" target="_blank">史莱姆KING 发表于 2023-4-14 12:46</a>
+爬了下steam的帖子，貌似是声卡方面，把192 KHZ  改成96就行了。。。。
+
+这。。。。我记得以前DLC1的时候貌 ...</blockquote>
+现在游戏引擎拉后腿了吧，内容一多就出问题，现在新引擎（说是游戏内容没有迁移完）已经在beta了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  otakun  
+##### 670#       发表于 2023-4-15 12:36
+
+这DLC新角色搞坏了吧，拿剑的大哥效果是挨打后短暂加防御效果，我开了护甲反伤加生命那个塔罗牌，最后死神来之前有3377血，现在被十几个死神围殴都不死，不掉血…
+
+
+*****
+
+####  AeonsTorn  
+##### 671#       发表于 2023-4-15 12:42
+
+DLC角色和武器都带点神仙打架的意思，不过说到底这游戏最大的魅力点就在于各种角色不同武器都能爽起来，只不过初期角色得动脑子想想先拿什么装备保命再拿什么装备输出，但DLC角色简单锁一装备再带个20号塔罗牌就直接开爽，所以也不能说这样算做坏了
+
+
+*****
+
+####  三角瑛一  
+##### 672#       发表于 2023-4-16 00:32
+
+新武器里本来觉得就只有蛇夫宝珠是日天的，就是那个紫色的珠子
+结果嘎子剑不知道是作者的怜悯还是Bug，能和反伤叠伤害的塔罗牌叠加，全时加血加伤害
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  79993931  
+##### 673#       发表于 2023-4-16 12:06
+
+新地图的那个地下双剑水晶封印怎么解？我超武双剑了之后过去啥事都没发生
+
+*****
+
+####  captoon  
+##### 674#       发表于 2023-4-16 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60474043&amp;ptid=2052594" target="_blank">79993931 发表于 2023-4-16 12:06</a>
+
+新地图的那个地下双剑水晶封印怎么解？我超武双剑了之后过去啥事都没发生 ...</blockquote>
+要用超武打破
+
+
+*****
+
+####  79993931  
+##### 675#       发表于 2023-4-16 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60474071&amp;ptid=2052594" target="_blank">captoon 发表于 2023-4-16 12:09</a>
+
+要用超武打破</blockquote>
+我是拿新角色那个蓝妹子，拿了3S超武和双大剑超武，过去无事发生
+
+刚刚又来了一把，用新角色嘎子，超武了过去就直接破了，怪
+
+破了之后我又发现一个蓝妹子的那个3S超武的水晶，我有点没明白这里，水晶是一次性打破了之后再进这关就都破了，还是我下一局应该找个角色先拿双大剑超武破了左边黑幕，再拿3S超武去破这个水晶？
+
+
+*****
+
+####  otakun  
+##### 676#       发表于 2023-4-16 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60475053&amp;ptid=2052594" target="_blank">79993931 发表于 2023-4-16 13:15</a>
+我是拿新角色那个蓝妹子，拿了3S超武和双大剑超武，过去无事发生
+
+刚刚又来了一把，用新角色嘎子，超武了 ...</blockquote>
+跟着成就走就行了，成就有角色要求的
+
+
+*****
+
+####  AeonsTorn  
+##### 677#       发表于 2023-4-16 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60475053&amp;ptid=2052594" target="_blank">79993931 发表于 2023-4-16 13:15</a>
+我是拿新角色那个蓝妹子，拿了3S超武和双大剑超武，过去无事发生
+
+刚刚又来了一把，用新角色嘎子，超武了 ...</blockquote>
+每个封印只用打一次，要求用特定的角色使用特定的武器攻击
+
+
+*****
+
+####  helix  
+##### 678#       发表于 2023-4-16 14:13
+
+ 本帖最后由 helix 于 2023-4-16 14:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60470532&amp;ptid=2052594" target="_blank">三角瑛一 发表于 2023-4-16 00:32</a>
+新武器里本来觉得就只有蛇夫宝珠是日天的，就是那个紫色的珠子
+结果嘎子剑不知道是作者的怜悯还是Bug，能和 ...</blockquote>
+因为嘎子剑本身就带反击，这武器要强还是要配挨打加甲的那个角色，本身性能还是一般
+感觉这次dlc武器总体都不如上个dlc那堆牛鬼蛇神猛
+
+*****
+
+####  AeonsTorn  
+##### 679#       发表于 2023-4-16 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60475053&amp;ptid=2052594" target="_blank">79993931 发表于 2023-4-16 13:15</a>
+我是拿新角色那个蓝妹子，拿了3S超武和双大剑超武，过去无事发生
+
+刚刚又来了一把，用新角色嘎子，超武了 ...</blockquote>
+每个封印只用打一次，要求用特定的角色使用特定的武器攻击
+
+
+*****
+
+####  伊克路西安  
+##### 680#       发表于 2023-4-16 15:09
+
+安卓端打了几天遇到无尽回廊没伤害的BUG，转PC一想到又要刷半天才能追上移动版进度就头疼，搜了下以前好多修改方法现在都失效了
+
+
+*****
+
+####  thest  
+##### 681#       发表于 2023-4-17 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60446873&amp;ptid=2052594" target="_blank">captoon 发表于 2023-4-14 09:58</a>
+
+福地很久没去了，怎么搞？</blockquote>
+好像是移动速度还是金蛋数量大于一定程度过去直接找它就会问你，之前朋友触发过，没详细研究过触发条件
+
+
+*****
+
+####  史莱姆KING  
+##### 682#       发表于 2023-4-17 10:40
+
+新DLC成就都搞定了
+
+但是这边宝物图鉴还缺这三个、都是啥？
+
+<img src="https://img.saraba1st.com/forum/202304/17/103808p3dcsc2su3hud3vn.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2023-04-17_10-36-14.jpg</strong> (454.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 10:38 上传
+
+怪物图鉴貌似也缺。。。我有影响的是死神，我一直没打，然后还有俩
+
+073
+
+094
+
+105
+
+
+*****
+
+####  415452356  
+##### 683#       发表于 2023-4-17 10:42
+
+  嘎子剑进化之后感觉挺弱智的，新的三学院法术合体是真的猛。
+
