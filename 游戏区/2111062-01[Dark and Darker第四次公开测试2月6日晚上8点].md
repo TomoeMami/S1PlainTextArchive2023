@@ -729,3 +729,22 @@ steam游戏页面没了,说是DMCA正式发通告以及停止信了
 
 闹得很大，现在双方都打算硬刚到底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Litccc  
+##### 73#       发表于 2023-4-18 13:43
+
+我说怎么steam上搜不到，原来还有瓜<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Launce  
+##### 74#       发表于 2023-4-18 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60459370&amp;ptid=2111062" target="_blank">elven119 发表于 2023-4-15 07:29</a>
+
+闹得很大，现在双方都打算硬刚到底</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NEXON开刚了，已经向法院提交版权诉讼
+[https://dockets.justia.com/docke ... :2023cv00576/321151](https://dockets.justia.com/docket/washington/wawdce/2:2023cv00576/321151)
+
