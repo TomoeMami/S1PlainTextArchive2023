@@ -73,3 +73,28 @@
 
 连着看下来对窪屠村能接受，符合前面的伏笔，炸弹啥的都用上了，就是最后那个不死太奇葩了，那里收场的话这个角色肯定给读者和男主心中都是留下浓重的一笔，他不死就成了神棍漫画了。。
 
+*****
+
+####  Yeaha123  
+##### 743#       发表于 2023-4-18 10:23
+
+女儿是怀疑他爹要杀眼镜警官？
+
+
+*****
+
+####  Zendless  
+##### 744#       发表于 2023-4-18 13:21
+
+看了各方评论，放弃动画看漫画，但是只看第一部，这样就不会掉沟里了吧
+
+
+*****
+
+####  山风短  
+##### 745#       发表于 2023-4-18 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60504841&amp;ptid=1564883" target="_blank">Zendless 发表于 2023-4-18 13:21</a>
+看了各方评论，放弃动画看漫画，但是只看第一部，这样就不会掉沟里了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话第二部可以直接看的，第二部根本没有第一部这种多方勾心斗角的剧情，可以不用动脑子
+
