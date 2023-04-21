@@ -2749,3 +2749,63 @@ AI很多牛逼的操作。比如MOSS佬表示看AI的立回才知道佩琳可以
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  江戸前ルナ  
+##### 370#         楼主| 发表于 2023-4-16 14:08
+
+这次的活动帽子真棒，配装配出的要么是高颜值夏日美少女，要么是碾压正太的大姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 371#       发表于 2023-4-16 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">活动商店里是不是还会更衣服，我看载入里有衣服的
+
+
+*****
+
+####  regular  
+##### 372#       发表于 2023-4-17 00:47
+
+胸口插箭红色观览车走12周就会......原来是圣斗士啊
+
+
+*****
+
+####  江戸前ルナ  
+##### 373#         楼主| 发表于 2023-4-17 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60483769&amp;ptid=2104259" target="_blank">madcow 发表于 2023-4-16 22:56</a>
+
+活动商店里是不是还会更衣服，我看载入里有衣服的</blockquote>
+不知道啊。如果没有氪金衣服的话还有可能进的是氪金商店当时装卖<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 374#       发表于 2023-4-17 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60494061&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-4-17 17:35</a>
+
+不知道啊。如果没有氪金衣服的话还有可能进的是氪金商店当时装卖
+
+编辑：我打活动才LOAD到，跟帽子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">今天已经更了
+
+
+*****
+
+####  Picavian  
+##### 375#       发表于 2023-4-18 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60475721&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-4-16 14:08</a>
+
+这次的活动帽子真棒，配装配出的要么是高颜值夏日美少女，要么是碾压正太的大姐姐
+
+ ...</blockquote>
+说来动画第二集里头四谷来制作所时候戴的帽子，是不是就以这个为基础的……
+
