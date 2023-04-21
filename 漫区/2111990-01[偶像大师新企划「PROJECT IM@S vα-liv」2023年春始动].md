@@ -542,3 +542,605 @@
 
 有这闲钱做两部高质量动画片什么都有了，看看Cy看看你，傻逼万代。
 
+*****
+
+####  weifire  
+##### 100#       发表于 2023-4-14 22:30
+
+外包给activ8具体制作，查了下是绊爱的公司啊
+
+拉拉管人搞得也算风生水起，这边就一眼寄
+
+
+*****
+
+####  游蜓  
+##### 101#       发表于 2023-4-14 22:40
+
+2023了玩末位淘汰企划。。。真傻逼啊
+
+
+*****
+
+####  稀勢のささ  
+##### 102#       发表于 2023-4-14 22:42
+
+也别风生水起了，上次皮套首播8000同接已经很烂了，昨天还对半砍到4000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+干脆再搞几次虚无直播大家一起手拉手俯冲底边吧
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 103#       发表于 2023-4-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60456711&amp;ptid=2111990" target="_blank">宵神乐 发表于 2023-4-14 21:52</a>
+
+不是清理 是有延时</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202304/14/224339sn2y51zf1yijjjy1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 22:43 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">群友发的
+
+*****
+
+####  大崎甜花  
+##### 104#       发表于 2023-4-14 22:48
+
+甜…甜花觉得，甜花播…更好！
+
+*****
+
+####  ViviR  
+##### 105#       发表于 2023-4-14 22:49
+
+什么烂活，有些绷不住。
+
+
+*****
+
+####  shadowing  
+##### 106#       发表于 2023-4-14 23:29
+
+傻逼万南，真是吃屎都赶不上热的
+
+*****
+
+####  wfhtony  
+##### 107#       发表于 2023-4-14 23:29
+
+不出意外的修正票數了（
+<img src="https://tc2.wfhtony.space/images/2023/04/14/af3cdd07f61cd2039bb6fc45ae6efe10.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/04/14/e4d779ecaad8745b245d46b55b6e2046.png" referrerpolicy="no-referrer">
+
+果然[有人](https://twitter.com/3nen2kumi/status/1646842602019512320/photo/4)把當年騙錢大師2的黑歷史拿出來了...
+<img src="https://tc2.wfhtony.space/images/2023/04/14/f80623ed9a880521084948e63c345383.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/04/14/819604aed1a5e765f545a90e9b32aaf8.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 108#       发表于 2023-4-14 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60457074&amp;ptid=2111990" target="_blank">weifire 发表于 2023-4-14 22:30</a>
+
+外包给activ8具体制作，查了下&amp;#x662 ...</blockquote>
+拉拉那个怎么叫风生水起，只能算是好的有限
+
+*****
+
+####  冰寒之月  
+##### 109#       发表于 2023-4-14 23:46
+
+突然感觉 不管事实上通没通过最终审核 代便感觉能赚就都能给你强行摁着过了 要是没赚头就说是没通过甩锅各位p<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AkiDay  
+##### 110#       发表于 2023-4-15 00:13
+
+ 本帖最后由 AkiDay 于 2023-4-15 00:14 编辑 
+
+Top iDol (x)
+
+Top vTuber (√)
+
+<img src="https://img.saraba1st.com/forum/202304/15/001418owag6zvvvvgyp6vd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-15 00:14 上传
+
+*****
+
+####  Skyline_R  
+##### 111#       发表于 2023-4-15 00:20
+
+万代你是否清醒
+
+
+*****
+
+####  Ichthy  
+##### 112#       发表于 2023-4-15 00:55
+
+再来一次918吧
+
+
+*****
+
+####  Unlight  
+##### 113#       发表于 2023-4-15 01:43
+
+<img src="https://img.saraba1st.com/forum/202304/15/014323rmrmdm4dhivthm5m.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2250.JPG</strong> (156.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-15 01:43 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  nufawneafg  
+##### 114#       发表于 2023-4-15 01:45
+
+我天真了，以为南梦宫系的还能端着点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奥F特  
+##### 115#       发表于 2023-4-15 02:06
+
+CY在万南衬托下愈发像个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 116#       发表于 2023-4-15 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60458809&amp;ptid=2111990" target="_blank">Unlight 发表于 2023-4-15 01:43</a>
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人都走了，说过的话自然也就不算了
+
+
+*****
+
+####  koodooliz  
+##### 117#       发表于 2023-4-15 13:39
+
+咬打火机去吧万南
+
+
+*****
+
+####  渡鸦骑士  
+##### 118#       发表于 2023-4-15 13:49
+
+神特么给A8运营。
+万代你钱是大风刮来的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AkiDay  
+##### 119#       发表于 2023-4-16 05:06
+
+懂了，万南用ChatGPT拍板决定的
+
+<img src="https://img.saraba1st.com/forum/202304/16/050604tzoedsu4njm07j87.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (279.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-16 05:06 上传
+
+
+*****
+
+####  埃索的老虎  
+##### 120#       发表于 2023-4-16 11:25
+
+“你也是producer？” “啥玩意？我榜一大哥啊！”
+
+失望至极，万南没活能不能别硬整啊，先把你手头几个弄明白行不，献祭sidem就换来这么个玩意？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  purdre  
+##### 121#       发表于 2023-4-16 11:28
+
+什么年头了还来virtual蛊毒
+
+
+*****
+
+####  monkeykoishi  
+##### 122#       发表于 2023-4-16 11:31
+
+啥玩意，刷票?万南sb
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  普罗茶  
+##### 123#       发表于 2023-4-16 11:33
+
+バンダイナムコ氏ね<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  妮贝雅  
+##### 124#       发表于 2023-4-18 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">这个企划一点也不爱马仕
+
+*****
+
+####  安广多惠子  
+##### 64#       发表于 2023-4-14 19:10
+
+生放开始了，暂时有点意义不明
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 65#       发表于 2023-4-14 19:25
+
+有说到选拔，后面不知道还要加几个人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hlazd  
+##### 66#       发表于 2023-4-14 19:29
+
+看描述这个都算不进imas系列里，也不知道在搞个什么鬼
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 67#       发表于 2023-4-14 19:34
+
+草这个投票，酱紫斗虫的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jianghaofan  
+##### 68#       发表于 2023-4-14 19:40
+
+连首歌都没得
+
+这算啥？
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 69#       发表于 2023-4-14 19:45
+
+如果隔壁拉拉莲团是套皮管人的话，这个就是纯正管人了，还带大逃杀机制的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宵神乐  
+##### 70#       发表于 2023-4-14 19:46
+
+这么低清的背景 sb万代究竟哪里掏出来的
+
+80 90年代的感觉
+
+好大的果粒橙
+
+<img src="https://img.saraba1st.com/forum/202304/14/194704esryz4a74yy7ajaa.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230414194641.jpg</strong> (540.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 19:47 上传
+
+*****
+
+####  六至九  
+##### 71#       发表于 2023-4-14 19:46
+
+不清楚目前管人的上播强度，但这一周上播两回真能卷过其他管人吗？
+
+*****
+
+####  不应  
+##### 72#       发表于 2023-4-14 19:50
+
+感觉不如hololive n期生
+
+
+*****
+
+####  六至九  
+##### 73#       发表于 2023-4-14 19:55
+
+“活动终了”上趋势了，这词再联想到最近男人，心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">wing是吧
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 74#       发表于 2023-4-14 20:02
+
+<img src="https://img.saraba1st.com/forum/202304/14/200122fd1nuzzgrcnuaa1n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202304/14/200140haialz77x4xxxxx4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202304/14/200148zuwbpkvs5szbsabb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 20:01 上传
+
+<img src="https://img.saraba1st.com/forum/202304/14/200130fimnmzgo7sfyg576.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 20:01 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到底是哪个天才想出来的
+
+
+*****
+
+####  ヒトニナル  
+##### 75#       发表于 2023-4-14 20:06
+
+バーチャル蠱毒嘛，别人玩过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+万南是真的吃屎都吃别人吃剩下的
+
+*****
+
+####  soranoguiji  
+##### 76#       发表于 2023-4-14 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 隔壁拉拉三年活动，这里是Revue，查询代孙精神状态
+
+*****
+
+####  Rho  
+##### 77#       发表于 2023-4-14 20:12
+
+<blockquote>千本blur 发表于 2023-3-30 20:00
+有这闲钱做两部高质量动画片什么都有了，看看Cy看看你，傻逼万代。</blockquote>
+可能他以为自己在学cy搞总选举吧
+
+
+*****
+
+####  Unlight  
+##### 78#       发表于 2023-4-14 20:14
+
+这贴是不是该挪到管人区了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  宵神乐  
+##### 79#       发表于 2023-4-14 20:15
+
+管人末位淘汰制度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  退行  
+##### 80#       发表于 2023-4-14 20:16
+
+推上说能通过这企划的肯定不喜欢im@s
+
+*****
+
+####  忍者杀手  
+##### 81#       发表于 2023-4-14 20:21
+
+能全部淘汰掉吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  natmk  
+##### 82#       发表于 2023-4-14 20:22
+
+这企划肯定活不过两年
+
+*****
+
+####  sodah  
+##### 83#       发表于 2023-4-14 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候听听歌就得了，别搞得真的一样。
+
+*****
+
+####  Unlight  
+##### 84#       发表于 2023-4-14 20:25
+
+估计跟KR差不多吧
+
+
+*****
+
+####  冰寒之月  
+##### 85#       发表于 2023-4-14 20:44
+
+不看好
+
+感觉会整出什么逆天大活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 86#       发表于 2023-4-14 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60455570&amp;ptid=2111990" target="_blank">Unlight 发表于 2023-4-14 20:25</a>
+
+估计跟KR差不多吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的吗？
+
+KR可是被爱马仕kol三牛聚聚奉为完美诠释初代爱马仕精神的圭臬的
+
+*****
+
+####  虚无缥缈的光阴  
+##### 87#       发表于 2023-4-14 20:56
+
+人家拉拉那边同样是皮套人团好歹还给了正规的女团资源，，，这边真的是<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  野菜一日分  
+##### 88#       发表于 2023-4-14 21:03
+
+它配个几把和KR相比。KR最后好歹是有资格唱アイmust go的，本身电视剧拍的也很好，大家有争执，理念有不同，最后还是能和和气气为了梦想拼搏，歌曲制作也挺良心的。至于运营本身，这应该一开始就是拍个电视剧罢了，不会有太多衍生的。我还记得KR的事务所数字好像是她们从结成到播出所花去的天数。你这大逃杀管人也配？
+
+*****
+
+####  kenqqex  
+##### 89#       发表于 2023-4-14 21:04
+
+<img src="https://img.saraba1st.com/forum/202304/14/210353d99s0mz703tktnmt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (137.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 21:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太弱智乐
+
+*****
+
+####  宵神乐  
+##### 90#       发表于 2023-4-14 21:05
+
+不是 其实是不是淘汰的两位换个皮套继续下次选举啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 91#       发表于 2023-4-14 21:10
+
+<img src="https://img.saraba1st.com/forum/202304/14/210953pns3qbtl7oa4s777.jpg" referrerpolicy="no-referrer">
+
+<strong>ZS9TN9_AUWUCJH9(DLID(PB.jpg</strong> (142.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-14 21:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lanslort  
+##### 92#       发表于 2023-4-14 21:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看起来建模比隔壁拉拉的好看点
+
+*****
+
+####  Alicest  
+##### 93#       发表于 2023-4-14 21:29
+
+我去，wing
+
+
+*****
+
+####  前夜秋星  
+##### 94#       发表于 2023-4-14 21:38
+
+爱夏中之人是不是经验者，比其他两位都能动（模型），还是说这就是角色设定？
+另两位感觉只是对着台本念，cosmo还有个侧脸，レトラ全称正脸对镜头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stygian  
+##### 95#       发表于 2023-4-14 21:41
+
+我怎么看数字清零了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宵神乐  
+##### 96#       发表于 2023-4-14 21:52
+
+不是清理 是有延时
+
+*****
+
+####  hoyice  
+##### 97#       发表于 2023-4-14 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">万南sb
+
+*****
+
+####  三味线陆战型  
+##### 98#       发表于 2023-4-14 21:59
+
+加完班看了一眼自我介绍 真有点寄 一般通过管人都不如的程度…
+
+
+*****
+
+####  Ichthy  
+##### 99#       发表于 2023-4-14 22:06
+
+竞争上岗也不是万代首创了 之前就有个企划十人还是四十人竞争一个皮套
+
+
