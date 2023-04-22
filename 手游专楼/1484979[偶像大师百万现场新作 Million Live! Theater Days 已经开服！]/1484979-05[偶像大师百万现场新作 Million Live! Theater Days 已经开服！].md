@@ -908,3 +908,12 @@ fes池来力，有白嫖10连，各位可以上线了<img src="https://static.sa
 日服入坑第365天，一年整了，纪念一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/02a05675314773ae4a6a05b95f031e15/CMP_20230408183616932.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7140#       发表于 2023-4-19 16:12
+
+草，这活动曲打完以为初见fc了，结果莫名其妙又漏一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+然后越打越菜，打了三四遍才fc成功，感觉无论难易总要漏一两个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6151866e300ad32dfa4f147ce81e3490/CMP_20230419161101975.jpg" referrerpolicy="no-referrer">
+
