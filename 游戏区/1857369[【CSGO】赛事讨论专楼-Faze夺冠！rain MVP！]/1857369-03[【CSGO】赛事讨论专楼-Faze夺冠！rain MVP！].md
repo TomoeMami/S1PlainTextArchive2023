@@ -2037,3 +2037,26 @@ Let's go faze clan!
 
 —— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  zpl123  
+##### 3333#       发表于 2023-4-18 23:15
+
+Astralis宣布"Xyp9x" 下放至Astralis 青训，为Altekz腾出位置
+
+
+*****
+
+####  zpl123  
+##### 3334#       发表于 2023-4-19 23:26
+
+Spinx卧槽 拿了42个人头
+
+
+*****
+
+####  恶搞之王  
+##### 3335#       发表于 2023-4-20 00:53
+
+今天是以色列巨神，太TM吓人了
+
