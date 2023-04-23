@@ -1108,3 +1108,49 @@ fa多情军，喜欢高难手操就鸡。不得不说情军多段技伤和尿分
 
 楼主的几个群貌似都挂了，还有没有比较活跃的交流群
 
+*****
+
+####  shinitakute  
+##### 17333#       发表于 2023-4-19 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死我了，挂着full auto超巴，看着进来两个人就没管，结果第一次真真正正看到了理之超越
+
+下次一定看到有个能打的人再放心fa
+
+
+*****
+
+####  澜沫  
+##### 17334#       发表于 2023-4-19 18:31
+
+细想我号绑了谷歌应该没问题，以后想刷材料不能舔怎么办呢。
+
+爱过的游戏还是会偶尔看两眼
+
+
+*****
+
+####  银域放浪者  
+##### 17335#       发表于 2023-4-19 18:45
+
+填表代替方案还没出来吗
+
+
+*****
+
+####  Sylpheed  
+##### 17336#       发表于 2023-4-19 21:42
+
+沙漏还差10个毕业，下个月替代方案不出来正好歇一段时间了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  adretyu67  
+##### 17337#       发表于 2023-4-20 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60523099&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2023-4-19 18:45</a>
+
+填表代替方案还没出来吗</blockquote>
+看CY最近那个是提供别的SNS平台apple/facebook/google啥的绑定。
+
