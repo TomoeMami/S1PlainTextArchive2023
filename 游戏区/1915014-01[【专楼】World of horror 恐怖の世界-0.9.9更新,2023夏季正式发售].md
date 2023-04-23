@@ -4317,3 +4317,52 @@ mod系统也更新了，现在可以给mod角色增加特殊表情，也可以�
 
 查看全部评分
 
+*****
+
+####  Tnsbilws  
+##### 249#         楼主| 发表于 2023-4-20 21:13
+
+任天堂的Indie World今天发了视频，里面有一段介绍了WOH，并且展示了日文版本的界面，但这不是最主要的（知道早八百年的事了）
+ 最主要的是！
+
+<img src="https://img.saraba1st.com/forum/202304/20/211228xp2l9epe8gee8y72.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230420211106.png</strong> (287.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-20 21:12 上传
+
+坂名（官方名称佳娜）加入主角团！！
+
+
+*****
+
+####  硫黄  
+##### 250#       发表于 2023-4-20 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然想到既然要上主机，肯定有手柄优化
+
+sd玩舒服多了
+
+
+*****
+
+####  Tnsbilws  
+##### 251#         楼主| 发表于 2023-4-20 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60540346&amp;ptid=1915014" target="_blank">硫黄 发表于 2023-4-20 22:04</a>
+
+突然想到既然要上主机，肯定有手柄优化
+
+sd玩舒服多了</blockquote>
+NS触屏更香了，打速通快多了
+
+
+*****
+
+####  Rai.Z  
+##### 252#       发表于 2023-4-20 23:47
+
+希望正式版能优化下流程，玩几次感觉是背板游戏了，而且就算背能不能过还得看骰神给不给脸<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
