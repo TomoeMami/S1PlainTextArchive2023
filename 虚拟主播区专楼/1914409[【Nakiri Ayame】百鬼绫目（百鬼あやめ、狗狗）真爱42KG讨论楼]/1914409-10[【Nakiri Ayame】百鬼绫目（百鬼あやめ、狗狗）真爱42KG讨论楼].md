@@ -956,3 +956,172 @@ deco这首原创还行
 
 绫总四月一号转个推又失踪两天，卖东西都摆得一
 
+*****
+
+####  夏小筱ss  
+##### 14581#       发表于 2023-4-7 21:40
+
+该开始打枪了吧，不是说要上段吗？
+
+*****
+
+####  因为你不会  
+##### 14582#       发表于 2023-4-11 15:30
+
+这个月过了三分之一了例行预判绫总这个月烂掉
+
+*****
+
+####  Fami水  
+##### 14583#       发表于 2023-4-11 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可不要乱下结论 小心绫总打你脸
+
+*****
+
+####  因为你不会  
+##### 14584#       发表于 2023-4-12 16:56
+
+绫总以前像视奸s1的时候可没少打脸，现在我不好说了，动啊你倒是动啊绫总
+
+*****
+
+####  stedckk  
+##### 14585#       发表于 2023-4-13 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚想说余怎么还不动一打开推特就发现要播了
+
+*****
+
+####  一仙  
+##### 14586#       发表于 2023-4-13 20:01
+
+这下动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  因为你不会  
+##### 14587#       发表于 2023-4-13 20:09
+
+不骂不来是吧，那明天接着喷绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Badwoman  
+##### 14588#       发表于 2023-4-13 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 14589#       发表于 2023-4-13 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">高压血操作是一套接一套的
+
+
+*****
+
+####  stedckk  
+##### 14590#       发表于 2023-4-16 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两天都在mc里面吃独食啊
+
+
+*****
+
+####  一仙  
+##### 14591#       发表于 2023-4-16 17:06
+
+不是说全部都要直播出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  allenz3  
+##### 14592#       发表于 2023-4-17 10:10
+
+投票而已，谁承诺会播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一仙  
+##### 14593#       发表于 2023-4-17 10:44
+
+<img src="https://img.saraba1st.com/forum/202304/17/104402de77z94rmsrvxxmj.png" referrerpolicy="no-referrer">
+
+<strong>20230417104334.png</strong> (241.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 10:44 上传
+
+<img src="https://img.saraba1st.com/forum/202304/17/104444y3piatux2huqqxqq.png" referrerpolicy="no-referrer">
+
+<strong>20230417104435.png</strong> (31.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 10:44 上传
+
+看得出来在努力学习<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14594#       发表于 2023-4-17 13:57
+
+绫总遛遛粉丝罢了
+
+
+*****
+
+####  stedckk  
+##### 14595#       发表于 2023-4-17 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每晚都吃独食是要造奇观是吧
+
+
+*****
+
+####  因为你不会  
+##### 14596#       发表于 2023-4-19 14:19
+
+不声不响绫总又五天不上班了
+
+
+*****
+
+####  stedckk  
+##### 14597#       发表于 2023-4-19 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不来了吗，独食那么多天终于要开播了。
+
+
+*****
+
+####  因为你不会  
+##### 14598#       发表于 2023-4-19 23:59
+
+绫总这样搞得真的像在视奸的
+
+
+*****
+
+####  一仙  
+##### 14599#       发表于 2023-4-20 10:12
+
+昨天直播档怎么私享了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夏小筱ss  
+##### 14600#       发表于 2023-4-21 21:31
+
+好像是有广告
+

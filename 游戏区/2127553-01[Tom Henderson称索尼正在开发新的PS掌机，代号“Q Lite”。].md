@@ -612,3 +612,40 @@ psp就能用remoteplay连ps3了吧，为啥说像wiiu的gamepad，这也能说�
 
 来吧，GAL妇科机
 
+
+*****
+
+####  JasonBourne  
+##### 68#       发表于 2023-4-12 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">真的会有人觉得纯串流机很好用吗，啥网络环境啊
+
+*****
+
+####  eternity0079  
+##### 69#       发表于 2023-4-12 10:39
+
+需要全程联网<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那还玩个基霸，想在外面没网的地方玩怎么办？
+
+
+*****
+
+####  不可避免  
+##### 70#       发表于 2023-4-12 10:53
+
+PSV做一个新的PSV串流手柄合情合理。
+
+*****
+
+####  闽明  
+##### 71#       发表于 2023-4-12 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60423791&amp;ptid=2127553" target="_blank">eternity0079 发表于 2023-4-12 10:39</a>
+
+需要全程联网
+
+那还玩个基霸，想在外面没网的地方玩怎么办？</blockquote>
+不要当掌机，当成PS5的外设比较好
+
