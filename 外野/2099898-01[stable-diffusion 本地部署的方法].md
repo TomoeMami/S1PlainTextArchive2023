@@ -1375,3 +1375,15 @@ git上找multidiffusion插件，可以把图分块放进网络放大，避免显
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  yanchi  
+##### 82#         楼主| 发表于 2023-4-22 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60512128&amp;ptid=2099898" target="_blank">套路设计师 发表于 2023-4-18 22:54</a>
+
+画背景图的时候经常出现多层图怎么办？有什么反向提示词可以设置吗？
+
+我是垂直布局 ...</blockquote>
+不懂这个，建议找大佬问一下吧
+
