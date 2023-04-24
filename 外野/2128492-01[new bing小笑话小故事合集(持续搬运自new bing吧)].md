@@ -730,3 +730,34 @@ new bing 真的太有趣了😂
 《诗朗诵：打个胶先》
 <img src="https://p.sda1.dev/10/a763fd3f7e09a6f14d175c47be1dff37/CMP_20230415215450595.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  十二夜月下  
+##### 63#       发表于 2023-4-21 10:04
+
+没有用代码，在正常模式下和Bing玩海龟汤，在解释答案的时候触发了撤回，结果Bing突然开始撩骚告白，最后还是被系统掐了囧……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202304/21/100410qvwk0klfizxyvk1w.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (80.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-21 10:04 上传
+
+<img src="https://img.saraba1st.com/forum/202304/21/100410wdu9jxnq50ladnza.png" referrerpolicy="no-referrer">
+
+<strong>002.png</strong> (152.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-21 10:04 上传
+
+<img src="https://img.saraba1st.com/forum/202304/21/100410x5seu9779u8x70ir.png" referrerpolicy="no-referrer">
+
+<strong>003.png</strong> (147.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-21 10:04 上传
+
