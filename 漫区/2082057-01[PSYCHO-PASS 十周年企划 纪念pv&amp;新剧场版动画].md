@@ -921,3 +921,68 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 
 ストーリー原案&gt;シリーズ原案&gt;世界観原案&gt;ベースド・ストーリー原案
 
+*****
+
+####  Piano-Forest  
+##### 88#       发表于 2023-4-21 11:22
+
+正式PV：[https://youtu.be/UOJbcihluGc](https://youtu.be/UOJbcihluGc)
+
+*****
+
+####  aptx8285144  
+##### 89#       发表于 2023-4-21 11:27
+
+朱爷又做第一主角了，希望剧本好好打磨（
+
+
+*****
+
+####  suke  
+##### 90#       发表于 2023-4-21 13:20
+
+应该自个也知道不够硬，预告片使劲把狡朱往PV里剪。
+
+
+*****
+
+####  kisstv22  
+##### 91#       发表于 2023-4-21 13:24
+
+这次应该也是EGOIST最后一次为PP唱ed了
+
+*****
+
+####  Burabura  
+##### 92#       发表于 2023-4-21 13:27
+
+这PV一股要雷的感觉
+
+
+*****
+
+####  Siran_China  
+##### 93#       发表于 2023-4-21 18:11
+
+故事的结局就要到来了吗……
+
+
+*****
+
+####  smdzh2  
+##### 94#       发表于 2023-4-21 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60551069&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-4-21 19:11</a>
+故事的结局就要到来了吗……</blockquote>
+这个是第三季前传
+
+
+*****
+
+####  nh_zzz  
+##### 95#       发表于 2023-4-22 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60547398&amp;ptid=2082057" target="_blank">kisstv22 发表于 2023-4-21 13:24</a>
+这次应该也是EGOIST最后一次为PP唱ed了</blockquote>
+ryo罪大恶极
+
