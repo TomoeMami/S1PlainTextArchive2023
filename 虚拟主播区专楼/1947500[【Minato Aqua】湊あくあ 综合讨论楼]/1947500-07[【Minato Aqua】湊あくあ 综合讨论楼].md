@@ -248,3 +248,61 @@ mc里也要看no miss通关<img src="https://static.saraba1st.com/image/smiley/f
 
 脑子要长出来了😵‍💫
 
+*****
+
+####  andeloz  
+##### 9326#       发表于 2023-4-22 15:14
+
+竟然开窗了
+
+<img src="https://img.saraba1st.com/forum/202304/22/151313peei5rrmqz4zwnyr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (36.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-22 15:13 上传
+
+为什么是歌回 房间鉴赏呢
+
+
+*****
+
+####  zpy393  
+##### 9327#       发表于 2023-4-22 21:22
+
+唱自己的歌都口胡<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cIrcler  
+##### 9328#       发表于 2023-4-22 21:27
+
+这电音给我听麻了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  星の守  
+##### 9329#       发表于 2023-4-22 21:35
+
+能不能正经唱歌别整那劳什子的电音了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9330#       发表于 2023-4-22 22:00
+
+今天不是歌回，是声卡整活回捏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9331#       发表于 2023-4-22 23:23
+
+说起来很久之前是不是说过做梦在动车上见到过佐仓绫音
+
