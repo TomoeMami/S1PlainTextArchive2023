@@ -759,3 +759,85 @@ MST太猛了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  Sleipnirω  
+##### 80#       发表于 2023-4-23 18:15
+
+怎么感觉现在挂机的脚本越来越多了，打混合模式各种挂机，时不时走动一下开两枪放个q
+
+
+*****
+
+####  zzy516232108  
+##### 81#       发表于 2023-4-23 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">被顶上来了就说两句
+
+谨慎不看好国内战队
+
+mdyw虽然都在开玩笑要线下了 实际纯主播队
+
+df什么时候把皮特优化了
+
+agl我觉得还可以
+
+
+*****
+
+####  烯丝短尾猫  
+##### 82#       发表于 2023-4-23 18:41
+
+冬阴功昨天两轮拿了30分，国内队伍要4-8名大乱斗了，谨慎不看好（
+
+
+*****
+
+####  rfronev  
+##### 83#       发表于 2023-4-23 22:42
+
+我就想请问一下这些秒人的用ps5手柄多还是xbox手柄多？哪个更适合apex？<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Awanano  
+##### 84#       发表于 2023-4-23 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60584129&amp;ptid=2117723" target="_blank">rfronev 发表于 2023-4-23 22:42</a>
+我就想请问一下这些秒人的用ps5手柄多还是xbox手柄多？哪个更适合apex？ ...</blockquote>
+55开
+只看你是更喜欢对称摇杆布局还是非对称
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 85#       发表于 2023-4-23 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60584129&amp;ptid=2117723" target="_blank">rfronev 发表于 2023-4-23 22:42</a>
+我就想请问一下这些秒人的用ps5手柄多还是xbox手柄多？哪个更适合apex？ ...</blockquote>
+打得好都可以秒，职业哥更倾向于用DS4，或者改装版，少数用xbox手柄和scuf
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  poipanchao  
+##### 86#       发表于 2023-4-23 23:14
+
+我个人体感，x的手柄不太适合亚洲人用四指控制四个肩键
+
+
+*****
+
+####  zzy516232108  
+##### 87#       发表于 2023-4-24 00:37
+
+四个手指控制四个键也太pro了
+
+虽然都在说改键之类的，但是原版按键很舒服，够你用了
+
