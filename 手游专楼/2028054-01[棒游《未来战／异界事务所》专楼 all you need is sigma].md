@@ -832,3 +832,92 @@ pc端没游客选项吧
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  黄昏的轮回  
+##### 896#       发表于 2023-4-17 07:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到跟ba的音乐混剪视频有点兴趣，想了解一下信息看是不是下个玩玩，具体问题是
+1.韩服我顶不住语言，日服（已经是国际服了？）省服我都没问题，福利会差很多吗
+2. 能做到一天15分钟下线吗，棒游以前玩的都是挂机挂到去世（棕色尘埃），想问问日课的强度。
+3.剧情好不好我自己去品了，只想当咸鱼买皮肤看美少女的话氪金要求高不高？
+4.假如入坑的话初始有没有啥坑
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 897#         楼主| 发表于 2023-4-17 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60486199&amp;ptid=2028054" target="_blank">黄昏的轮回 发表于 2023-4-17 07:15</a>
+看到跟ba的音乐混剪视频有点兴趣，想了解一下信息看是不是下个玩玩，具体问题是
+1.韩服我顶不住语言 ...</blockquote>
+1.台服发福利很健忘，完全不如国服
+2.不打pvp每天5分钟 不过这都是后期，前期你打不过就没办法
+3.皮肤党嫌贵的话那就只能买月卡慢慢攒了，国服的皮肤里韩国服饰的皮肤应该不会上。
+4.<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">初始号国际服和韩服的号极少，也贵的不行。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  酷乐  
+##### 898#       发表于 2023-4-20 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60487255&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-4-17 09:35</a>
+
+.如果不知道配队攻略什么的，可以随便找个前排公会，然后加群随便问（我记得国际服pvp前排都有好几个国人）</blockquote>
+
+有没有妖怪王子啊
+
+
+*****
+
+####  rgauss  
+##### 899#         楼主| 发表于 2023-4-20 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60526985&amp;ptid=2028054" target="_blank">酷乐 发表于 2023-4-20 00:23</a>
+有没有妖怪王子啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">妖怪王子是国服玩家 
+好像弃坑很久了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  消失的八月  
+##### 900#       发表于 2023-4-21 00:02
+
+话说现在国际服日服合区后还锁区吗？以前玩日服就锁区，没玩下去
+
+
+*****
+
+####  rgauss  
+##### 901#         楼主| 发表于 2023-4-21 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60542040&amp;ptid=2028054" target="_blank">消失的八月 发表于 2023-4-21 00:02</a>
+
+话说现在国际服日服合区后还锁区吗？以前玩日服就锁区，没玩下去</blockquote>
+不锁吧 现在韩服和国际服都在一个应用上
+
+
+*****
+
+####  rgauss  
+##### 902#         楼主| 发表于 2023-4-21 22:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个新策划感觉真玩游戏啊，朴策划还是早埋了吧
+
+
+*****
+
+####  拍不到脑袋  
+##### 903#       发表于 2023-4-23 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫虫什么时候才能跟上版本
+
