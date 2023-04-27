@@ -2060,3 +2060,109 @@ Spinx卧槽 拿了42个人头
 
 今天是以色列巨神，太TM吓人了
 
+*****
+
+####  恶搞之王  
+##### 3336#       发表于 2023-4-23 01:46
+
+艹，三分还真TM够了
+
+这NM，这C9大厦跟big沙二一样是吧，一个学妹一个学姐
+
+
+*****
+
+####  曼陀罗肥  
+##### 3337#       发表于 2023-4-23 02:31
+
+阿杜图二真疯了
+
+*****
+
+####  曼陀罗肥  
+##### 3338#       发表于 2023-4-23 02:40
+
+ 本帖最后由 曼陀罗肥 于 2023-4-23 03:11 编辑 
+
+载物图三终于醒了，手枪局1v4拿下！
+c9也可惜了，就一个老八换硬蛋活活给自己玩死了，现在major没进淘汰赛还被究极翻盘，看他们的表情真全员心态炸裂了
+
+
+*****
+
+####  Niyah  
+##### 3339#       发表于 2023-4-23 08:24
+
+昨天看完图一小镇被虐先睡了，半夜起来上厕所的时候看到载手枪1V4激动得好一会没睡着，今早看了完整战报才知道整个过程这么曲折。杜虽然这次IEM有几张图爆炸发挥，但真没想过昨天那种情形会是他站出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3340#         楼主| 发表于 2023-4-23 08:47
+
+阿杜给饭圈牲口一点王朝震撼
+不过还是坏了，x队进决赛了，这下肯定要被殴打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3341#       发表于 2023-4-23 09:00
+
+决赛尽孝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3342#       发表于 2023-4-23 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60570811&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-4-23 08:47</a>
+阿杜给饭圈牲口一点王朝震撼
+不过还是坏了，x队进决赛了，这下肯定要被殴打了
+ ...</blockquote>
+阿杜打完major大概率退了，来了小蜜蜂一直不太稳定，可至于天天老杰克吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3343#         楼主| 发表于 2023-4-23 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60570960&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-4-23 09:03</a>
+阿杜打完major大概率退了，来了小蜜蜂一直不太稳定，可至于天天老杰克吗 ...</blockquote>
+普通弱智言论倒是无所谓了，总要有的
+主要是看见畜来畜去的喷粪属实影响心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  曼陀罗肥  
+##### 3344#       发表于 2023-4-24 03:35
+
+风怒
+
+*****
+
+####  曼陀罗肥  
+##### 3345#       发表于 2023-4-24 03:35
+
+小蜜蜂今晚不再是xingnu
+
+
+*****
+
+####  米德  
+##### 3346#       发表于 2023-4-24 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">x队怎么又在巴西决赛软脚了
+
+
+*****
+
+####  Niyah  
+##### 3347#       发表于 2023-4-24 09:39
+
+X队粉，看stavn图一从14/5打到17/9到18/15就不想看了，从上次离队回来之后太多次单图软脚隐形战犯<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
