@@ -711,3 +711,211 @@ ui就是一坨， 甚至还不给你看牌堆有什么牌，算是为了所谓�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 封盘前看了下蒸汽评论 10小时以下的玩家都在说魔女太破坏平衡 体验过猎人的20多小时玩家都表述懂得都懂。比起只能打5的同花顺还吃各种抗性，猎人直接闭眼甩牌，完全无视机制版的存在。甚至我现在觉得难度越高越不想玩魔女，因为魔女甚至还真的需要去认真看抗性调花色，她还在打扑克，其他职业有些都在打技能库循环了。
 
+*****
+
+####  你好s1  
+##### 76#       发表于 2023-4-17 16:28
+
+[https://www.bilibili.com/video/BV1fT411H73N](https://www.bilibili.com/video/BV1fT411H73N)
+
+  制作人特意发了视频感谢中国玩家和王老菊，国区销量占比超过50%
+
+   但是没有感谢楼主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kazepollar  
+##### 77#         楼主| 发表于 2023-4-17 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60492874&amp;ptid=2117988" target="_blank">你好s1 发表于 2023-4-17 16:28</a>
+ https://www.bilibili.com/video/BV1fT411H73N    制作人特意发了视频感谢中国玩家和王老菊，国区销量占比 ...</blockquote>
+没事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次有机会也许会感谢一下我们
+
+
+*****
+
+####  101207777  
+##### 78#       发表于 2023-4-18 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60139933&amp;ptid=2117988" target="_blank">空集 发表于 2023-3-19 06:05</a>
+
+封盘前看了下蒸汽评论 10小时以下的玩家都在说魔女太破坏平衡 体验过猎人的20多小时玩家都表述懂得 ...</blockquote>
+战士有什么套路？刚开始组了个盾战，反击伤害比主动伤害舒服多了
+
+
+*****
+
+####  PNK  
+##### 79#       发表于 2023-4-19 18:47
+
+刚入这个游戏，当成肉鸽买的，结果发现并不完全是肉鸽，不过固定关卡玩起来体验也很不错
+
+还是头一次遇到升级卡牌可能导致原本的部分效果消失的？而且还会加费。感觉升级版有的还变弱了。。有点不太适应
+
+
+*****
+
+####  101207777  
+##### 80#       发表于 2023-4-19 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60523131&amp;ptid=2117988" target="_blank">PNK 发表于 2023-4-19 18:47</a>
+
+刚入这个游戏，当成肉鸽买的，结果发现并不完全是肉鸽，不过固定关卡玩起来体验也很不错
+
+还是头一次遇到升 ...</blockquote>
+升级版本其实算是另一张牌，可以跟原版一起带的。
+
+比起rouge，原版更像是ocg这种卡牌构筑游戏。技能才是牌，扑克是费用
+
+话说，周一猎人召唤流派的上限被大砍，现在有什么比较强，易成型的流派可以玩么？
+
+*****
+
+####  Kazepollar  
+##### 81#         楼主| 发表于 2023-4-19 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60525350&amp;ptid=2117988" target="_blank">101207777 发表于 2023-4-19 22:07</a>
+ 升级版本其实算是另一张牌，可以跟原版一起带的。 比起rouge，原版更像是ocg这种卡牌构筑游戏。技能才是 ...</blockquote>
+新的模式出了，更接近肉鸽
+
+
+*****
+
+####  101207777  
+##### 82#       发表于 2023-4-22 15:21
+
+猎人几个特质还是太imba，有没有的强度差太多。战役第十三光碾压的构筑在前两关会高速翻车
+
+
+*****
+
+####  101207777  
+##### 83#       发表于 2023-4-22 22:54
+
+又玩了魔女诅咒流，
+
+发现这游戏后期要上强度还是要围绕技能循环来打，把扑克牌当费用来理解就好。
+
+猎人强在2级特性bug级别的补牌补费，3级特性的高度成长上。
+
+魔女这是自带最强的全套抽卡和补费技能。同时支配地位特性补足了剩下的抽卡环节。
+
+
+*****
+
+####  Onelooker  
+##### 84#       发表于 2023-4-23 09:36
+
+这个攻击力和防御力是算什么的
+
+伤害好像没变
+
+
+*****
+
+####  PNK  
+##### 85#       发表于 2023-4-23 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60571357&amp;ptid=2117988" target="_blank">Onelooker 发表于 2023-4-23 09:36</a>
+
+这个攻击力和防御力是算什么的
+
+伤害好像没变</blockquote>
+决定敌方在攻防中能用的备选牌数量
+
+当你发动标准攻击时，敌方会抽 n 张牌用于防御，n = 你的攻击力 - 敌方的防御力
+
+敌方攻击你的时候类似，n = 敌方的攻击力 - 你的防御力
+
+伤害数值是另一个词条
+
+
+*****
+
+####  彬噜  
+##### 86#       发表于 2023-4-23 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60571740&amp;ptid=2117988" target="_blank">PNK 发表于 2023-4-23 10:04</a>
+
+决定敌方在攻防中能用的备选牌数量
+
+当你发动标准攻击时，敌方会抽 n 张牌用于防御，n = 你的攻击力 - 敌 ...</blockquote>
+那岂不是防御力越低，能用的牌越多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  周愚  
+##### 87#       发表于 2023-4-23 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60574454&amp;ptid=2117988" target="_blank">彬噜 发表于 2023-4-23 13:04</a>
+
+那岂不是防御力越低，能用的牌越多</blockquote>
+敌方的牌越多
+
+
+*****
+
+####  PNK  
+##### 88#       发表于 2023-4-23 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60574454&amp;ptid=2117988" target="_blank">彬噜 发表于 2023-4-23 13:04</a>
+
+那岂不是防御力越低，能用的牌越多</blockquote>
+啊，是的，攻击的场合不小心写反了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Onelooker  
+##### 89#       发表于 2023-4-24 21:57
+
+魔女这个可以查看所有牌堆顶端要怎么看
+我还发现这游戏性能要求高的离谱，每次浇水的时候风扇都在狂转
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kazepollar  
+##### 90#         楼主| 发表于 2023-4-25 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60599427&amp;ptid=2117988" target="_blank">Onelooker 发表于 2023-4-24 21:57</a>
+
+魔女这个可以查看所有牌堆顶端要怎么看
+
+我还发现这游戏性能要求高的离谱，每次浇水的时候风扇都在狂转</blockquote>
+直接去翻你和对手的抽牌堆，就像正常的翻弃牌堆一样
+
+
+*****
+
+####  Onelooker  
+##### 91#       发表于 2023-4-25 09:31
+
+ 本帖最后由 Onelooker 于 2023-4-25 09:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60602913&amp;ptid=2117988" target="_blank">Kazepollar 发表于 2023-4-25 09:29</a>
+
+直接去翻你和对手的抽牌堆，就像正常的翻弃牌堆一样</blockquote>
+啊，我翻牌堆是完整的卡组
+不过好像也不需要了，对对子是真的无脑
+
+
+*****
+
+####  chan  
+##### 92#       发表于 2023-4-25 10:33
+
+我玩到目前觉得法师最爽，成型后完全不需要用扑克牌来攻击，全部都是我黑洞暴风雪的材料而己，清场太爽了。
+
+
+*****
+
+####  101207777  
+##### 93#       发表于 2023-4-25 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60603778&amp;ptid=2117988" target="_blank">chan 发表于 2023-4-25 10:33</a>
+我玩到目前觉得法师最爽，成型后完全不需要用扑克牌来攻击，全部都是我黑洞暴风雪的材料而己，清场太爽了。 ...</blockquote>
+猎人更明显。猎人的快速拔枪过于无赖了
+
