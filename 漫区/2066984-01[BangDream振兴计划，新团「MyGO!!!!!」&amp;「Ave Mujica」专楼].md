@@ -819,3 +819,72 @@ Ave Mujica新歌比之前更正经金属了，但是这鼓。。。<img src="htt
 
 萌画风...
 
+*****
+
+####  stygian  
+##### 77#       发表于 2023-4-24 00:54
+
+录ave mujica的鼓是kenzo，也是Fantôme Iris的录音室鼓手，这团估计和Fantôme Iris一样了吧，除了主唱现场都是代打
+
+
+*****
+
+####  rosental  
+##### 78#       发表于 2023-4-24 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60586197&amp;ptid=2066984" target="_blank">stygian 发表于 2023-4-24 00:54</a>
+录ave mujica的鼓是kenzo，也是Fantôme Iris的录音室鼓手，这团估计和Fantôme Iris一样了吧，除了主唱现 ...</blockquote>
+之前看预告片就觉得是走男团这个视觉风，所以什么时候伪娘贝斯手安排一下<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DarthAka  
+##### 79#       发表于 2023-4-24 20:59
+
+<blockquote>stygian 发表于 2023-4-24 00:54
+录ave mujica的鼓是kenzo，也是Fantôme Iris的录音室鼓手，这团估计和Fantôme Iris一样了吧，除了主唱现 ...</blockquote>
+等等，mygo不是录音棚鼓手？
+
+*****
+
+####  紫吹兰  
+##### 80#         楼主| 发表于 2023-4-24 21:00
+
+这新歌听起来特别爱美
+
+
+*****
+
+####  すぴぱら  
+##### 81#       发表于 2023-4-24 21:29
+
+ 本帖最后由 すぴぱら 于 2023-4-24 21:31 编辑 
+
+邦本来也是live和cd两回事吧，不能逆推鼓手代打和真实声优
+
+mika老师和夏芽这种职业鼓手也是不录cd的
+
+如果对乐器要求高可能武士道还是会选择挖职业乐手来跨界出演
+
+
+*****
+
+####  stygian  
+##### 82#       发表于 2023-4-25 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60598574&amp;ptid=2066984" target="_blank">DarthAka 发表于 2023-4-24 20:59</a>
+
+等等，mygo不是录音棚鼓手？</blockquote>
+只是从都是kenzo这点推测而已
+
+我依稀记得mygo那边录鼓的就是教林的那个，忘了叫啥了
+
+
+*****
+
+####  粉儿alice  
+##### 83#       发表于 2023-4-25 18:57
+
+am现在公布这几首歌光是这鼓点 不找一个水平很好女鼓手说不过去
+
