@@ -761,3 +761,50 @@ new bing 真的太有趣了😂
 
 2023-4-21 10:04 上传
 
+*****
+
+####  Kanoya  
+##### 64#         楼主| 发表于 2023-4-24 12:15
+
+《麦克风》
+<img src="https://p.sda1.dev/11/e34585abd52ed05ab1f2ff3774a9bede/CMP_20230424121533259.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫出没注意  
+##### 65#       发表于 2023-4-25 16:05
+
+这个老年人微信群算术的帖子也很好笑，触及new bing的盲区了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://tieba.baidu.com/p/8375690763](https://tieba.baidu.com/p/8375690763)
+
+<img src="https://img.saraba1st.com/forum/202304/25/160148ik7v215tb7v1ktc7.jpg" referrerpolicy="no-referrer">
+
+<strong>0dc86258d109b3defa0460a389bf6c81820a4ccd.jpg</strong> (273.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-25 16:01 上传
+
+<img src="https://img.saraba1st.com/forum/202304/25/160148t7n9c7wpan10ck0p.jpg" referrerpolicy="no-referrer">
+
+<strong>6d552539b6003af3264b58ab702ac65c1238b68b.jpg</strong> (368.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-25 16:01 上传
+
+还有这个帖子的咒语，我试了一下也能用，我让它倒数10个数，它就真的能主动发10句对话。
+
+不过编写的人藏了一段让他每次回应结尾都随机发一个数字的提示，有点多余，可以在这个网页里解码，然后自行删除对应的提示句子。
+[https://tieba.baidu.com/p/8379834589](https://tieba.baidu.com/p/8379834589)
+[https://www.jisuan.mobi/WKE.html](https://www.jisuan.mobi/WKE.html)
+
+<img src="https://img.saraba1st.com/forum/202304/25/160440kzjfhd3rj4bshhpe.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(716).png</strong> (24.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-25 16:04 上传
+
