@@ -1101,3 +1101,30 @@ ngc版有60帧和更原生的特效效果但没有追加内容，要么直接选
 
 2023-4-6 17:53 上传
 
+*****
+
+####  b_nico  
+##### 108#       发表于 2023-4-25 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">请问NS的问题修复了吗？
+
+*****
+
+####  qiyu1234  
+##### 109#         楼主| 发表于 2023-4-25 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60611642&amp;ptid=2119862" target="_blank">b_nico 发表于 2023-4-25 20:27</a>
+
+请问NS的问题修复了吗？</blockquote>
+没有
+
+现在每天官推新闻下面的回复都有人在催
+
+
+*****
+
+####  bill910  
+##### 110#       发表于 2023-4-25 21:54
+
+淘宝PS4版少得可怜，贵到飞起。NS版却有这种低级问题。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
