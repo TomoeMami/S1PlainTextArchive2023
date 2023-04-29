@@ -128,3 +128,54 @@ Pro-Am Day4和A、B组出线情况。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  Beaverfan01  
+##### 498#       发表于 2023-4-26 01:35
+
+<img src="https://img.saraba1st.com/forum/202304/26/013503olloydhhjye7dj3q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230426_013257.jpg</strong> (417.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-26 01:35 上传
+
+<img src="https://img.saraba1st.com/forum/202304/26/013503mqon1jqo7loczqn7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230426_013148.jpg</strong> (395.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-26 01:35 上传
+
+<img src="https://img.saraba1st.com/forum/202304/26/013503pbmi1lle9b8040qi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230426_013117.jpg</strong> (375.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-26 01:35 上传
+
+<img src="https://img.saraba1st.com/forum/202304/26/013503xj09dlippqmh1rfy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230426_013050.jpg</strong> (401.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-26 01:35 上传
+
+部分国家世界杯阵容。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  小绿瓜拉苟莱斯  
+##### 499#       发表于 2023-4-26 09:02
+
+纯路人，原来还有西恩队啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
