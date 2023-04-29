@@ -921,3 +921,31 @@ pc端没游客选项吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫虫什么时候才能跟上版本
 
+*****
+
+####  rgauss  
+##### 904#         楼主| 发表于 2023-4-26 18:02
+
+别尬黑 紫虫最近国服在做火箭 不当人是我游戏种子
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  酷乐  
+##### 905#       发表于 2023-4-26 21:16
+
+游戏种子就是紫龙的香港公司……
+
+
+*****
+
+####  rgauss  
+##### 906#         楼主| 发表于 2023-4-26 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60625783&amp;ptid=2028054" target="_blank">酷乐 发表于 2023-4-26 21:16</a>
+
+游戏种子就是紫龙的香港公司……</blockquote>
+我一直都知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
