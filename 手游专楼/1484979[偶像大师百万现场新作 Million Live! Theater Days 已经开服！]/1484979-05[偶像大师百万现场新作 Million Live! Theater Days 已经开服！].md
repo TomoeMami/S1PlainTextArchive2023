@@ -917,3 +917,24 @@ fes池来力，有白嫖10连，各位可以上线了<img src="https://static.sa
 然后越打越菜，打了三四遍才fc成功，感觉无论难易总要漏一两个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/11/6151866e300ad32dfa4f147ce81e3490/CMP_20230419161101975.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  小笠原早紀  
+##### 7141#       发表于 2023-4-24 20:58
+
+ 本帖最后由 小笠原早紀 于 2023-4-24 20:59 编辑 
+
+<img src="https://p.sda1.dev/11/bbedb5a511904a80e56737d83504ed59/CMP_20230424205923493.png" referrerpolicy="no-referrer">前面百合子私服下井，这期bba只剩一百抽，果不其然寄了
+
+另外中间这个歪简直要把人气死
+
+—— 来自 LGE LM-G820N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  花开安菲路  
+##### 7142#       发表于 2023-4-26 16:20
+
+这期活动打个9w就溜了，最近身体倦的不行。
+
