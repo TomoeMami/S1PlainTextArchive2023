@@ -4366,3 +4366,20 @@ NS触屏更香了，打速通快多了
 
 希望正式版能优化下流程，玩几次感觉是背板游戏了，而且就算背能不能过还得看骰神给不给脸<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Tnsbilws  
+##### 253#         楼主| 发表于 2023-4-28 01:37
+
+<img src="https://img.saraba1st.com/forum/202304/28/013617uvo33n649eee6664.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230428013550.png</strong> (51.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-28 01:36 上传
+
+今晚肝NFS难崩没注意消息
+
+Pan打算将我记入制作人员表，另外由汉化公司制作的官方汉化正在进行中
+
