@@ -2166,3 +2166,25 @@ c9也可惜了，就一个老八换硬蛋活活给自己玩死了，现在major�
 
 X队粉，看stavn图一从14/5打到17/9到18/15就不想看了，从上次离队回来之后太多次单图软脚隐形战犯<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+*****
+
+####  咸鱼先生  
+##### 3348#       发表于 2023-4-27 15:50
+
+x队现在每次决赛都是点子哥疯狂c，然后四小将往地上一躺开始软脚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 3349#       发表于 2023-4-27 15:57
+
+<img src="https://img.saraba1st.com/forum/202304/27/155709kax616kzj7kwl6kl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>076FF8F3-0D08-4811-BBEC-44140023C9E7.jpeg</strong> (61.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-27 15:57 上传
+
+NGA那边有人发ai预测的挑战者组<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
