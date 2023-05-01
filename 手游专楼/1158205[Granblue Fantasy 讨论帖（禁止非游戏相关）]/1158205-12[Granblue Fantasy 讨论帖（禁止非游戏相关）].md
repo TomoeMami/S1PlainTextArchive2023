@@ -1154,3 +1154,132 @@ fa多情军，喜欢高难手操就鸡。不得不说情军多段技伤和尿分
 填表代替方案还没出来吗</blockquote>
 看CY最近那个是提供别的SNS平台apple/facebook/google啥的绑定。
 
+*****
+
+####  leeskies  
+##### 17338#       发表于 2023-4-23 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这暗团太可怕了
+
+还好不打英雄
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17339#       发表于 2023-4-24 02:40
+
+一档预测17e
+
+
+*****
+
+####  faxi  
+##### 17340#       发表于 2023-4-26 10:26
+
+这傻逼游戏哪来这么多人这么卷啊，下次光团还得更卷，这得卷到何时去<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  はちたや  
+##### 17341#       发表于 2023-4-26 10:49
+
+我没想到这么快10e只有三档了[
+
+*****
+
+####  kobushi  
+##### 17342#       发表于 2023-4-26 21:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一档上20y了
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17343#       发表于 2023-4-27 00:28
+
+会反射5w伤害的屁股，好刺激哦
+
+
+*****
+
+####  PigMourne  
+##### 17344#       发表于 2023-4-27 04:16
+
+入坑快5年头回修了一次1145141919分，还记得当年都是稳1档的大佬才能修出这种分，现在我们咸鱼也有份了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DDWarrior  
+##### 17345#       发表于 2023-4-27 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前修臭分都是一档人作为胜者的余裕，现在这个分连二档都不配进了…只能感叹强度的膨胀，以及不愧是暗属性团战啊
+
+
+*****
+
+####  usoda  
+##### 17346#       发表于 2023-4-28 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发推白嫖一管体力功能正式取消，你游的内置舔婊网做出来了吗
+
+
+*****
+
+####  DDWarrior  
+##### 17347#       发表于 2023-4-28 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做出来了，正式开启大锅饭时代
+
+*****
+
+####  白活这一生  
+##### 17348#       发表于 2023-4-28 16:29
+
+ 本帖最后由 白活这一生 于 2023-4-28 16:31 编辑 
+
+放推彻底没了，内置这个感觉就是一坨啊，还不如官方自己搞个服务器发码
+
+
+*****
+
+####  Ky·Kiske  
+##### 17349#       发表于 2023-4-28 16:41
+
+原汁原味的还原了手快有手慢无，修正了你偶尔还能进6人本的BUG<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ixtli  
+##### 17350#       发表于 2023-4-28 16:52
+
+舔婊网时代至少还能捡点漏，现在的金本这都什么泥头车
+
+
+*****
+
+####  drilleye  
+##### 17351#       发表于 2023-4-28 18:05
+
+猎金生涯刚开始就结束了，舔不到巴布和黄黑，那子弹和超限也不用做了，只剩下沙盒坐牢
+
+
+*****
+
+####  syndrome2032  
+##### 17352#       发表于 2023-4-28 19:16
+
+真内置还挺好用的。不过看样子大巴永远满员了
+
+
+*****
+
+####  drilleye  
+##### 17353#       发表于 2023-4-28 23:22
+
+阿卡夏还能猎，甚至有时会塞车，大公经常差一点到线，大巴就暂时不考虑了，等小福更新
+
