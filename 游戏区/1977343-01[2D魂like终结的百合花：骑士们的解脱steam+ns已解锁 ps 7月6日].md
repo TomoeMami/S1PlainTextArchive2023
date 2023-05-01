@@ -88,3 +88,18 @@ Illus.Ayumi Yamada (Concept Artist/Cutscene Artist)
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">周末20小时打完，真不错，内容意外的多，如果boss招式设计多一点就更好了。
 
+*****
+
+####  wakatoro  
+##### 641#       发表于 2023-4-29 01:21
+
+25小时全收集通关了，美妙的音乐跟引人入胜的美术风格所积累的好感在最后一关陡然上升的难度曲线和恶心人的bgm面前全部消耗殆尽。
+
+打击感是我玩过银河恶魔城游戏里最差的那档
+
+小地图贴心的标出道路口跟是否收集完成本应获得好评，但能很明显感受出制作人的坚持，就是不愿给更详细地图，好像方便了玩家就难受一样。
+
+总体来说还是称得上瑕不掩瑜，值得一玩。
+
+—— 来自 OnePlus ONEPLUS A5000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1731,3 +1731,110 @@ https://bbs.saraba1st.com/2b/thread-1770232-1-1.html</blockquote>
 而且这两集也是和田口合作的。</blockquote>
 那两集挺微妙的，主要第二集达达出现得很随便，姚辉走得也很随便
 
+*****
+
+####  Piano-Forest  
+##### 160#         楼主| 发表于 2023-4-27 23:53
+
+<img src="https://p.sda1.dev/11/8ba48f60ad404518c87dde2cdd45d96e/3AA6A008347FEBFB60B3D53F211F8A83.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e753a63be677e7a579503d686d319c5d/IMG_20230427_235126.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8922570598357beb48557bdb6e0f3d47/DDEE7F83112220249E7993FC128C3E23.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/861443106d4c701ea2dbeecb86a66d7b/7BC8C483CA6EABC3F9C0AA5CED2D3629.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/cecab8f547158a21cdecb1ef0cb0455c/EC61AFC6962C7E856C122624E2A62C6F.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 161#       发表于 2023-4-28 00:24
+
+看侧视图有个感觉，就是右眉毛那短短一截蓝色太违和了，还不如没有<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 162#         楼主| 发表于 2023-4-28 16:15
+
+＜ヒロイン役に #搗宮姫奈 さん＞
+
+アオベ エミ (23歳)
+
+ミッションの調査対象となる組織に見事に潜入し、情報収集を行う 諜報活動のスペシャリスト。
+
+17 歳にして世界的なエリート名門校を飛び級で卒業。地球防衛 隊にスカウトされ入隊後、特殊部隊の諜報部員として、世界中のミ ッションに参加。この世界の裏の顔を若くして知り、基本的には人も 政府も信用しない。極めて優秀な身体能力を持ち、諜報活動の みならず射撃の腕を活かして戦闘任務もこなす。趣味はコスプレ。
+<img src="https://p.sda1.dev/11/a694e6151d8cf7060928ab1248e9ce0d/20230428151143.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/0bfa56d54f1ca78c67c075aa3ffeb342/20230428_161217.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泥潭办证先锋  
+##### 163#       发表于 2023-4-28 16:35
+
+女主好看，第一眼就爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  HATENA  
+##### 164#       发表于 2023-4-28 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是个二次元模板角色，田口你行不行啊
+
+
+*****
+
+####  柳柳昭陵  
+##### 165#       发表于 2023-4-28 19:10
+
+熟悉的二刺螈，会不会是熟悉的贴标签<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 166#         楼主| 发表于 2023-4-28 21:44
+
+<img src="https://p.sda1.dev/11/e9d572bc6cb78eb51af3796e2fc56b8f/c5a02b46-d73e-4144-92e8-d77872fe3a08.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/c96533f5723c7d248d2b6cd4909a5b28/f052fceb-e2b8-424c-9933-e348f125697b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/761f5e0c1ee74207bac11dfeb2adb370/a7dba255-7acf-48f0-9860-b8eb1fe5f98d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2a8ea921121dcd5895d5b2ab15f85885/6477e157-c70d-493b-b966-b01463d46a3f.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b209ae414c994b9f30e6dd418334f4a6/6cf97317-47bb-440e-abab-13a4ac3294b4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/23922625321afacf41d0834d3af4a1e9/3eed8096-103f-41b4-af56-46add99fa093.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ff48c830eab7884f5119e148d0b7cd05/4b8e5a55-f9c0-4dfb-ae8f-e480c7ef04af.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 167#       发表于 2023-4-28 22:01
+
+这一看就可以肯定，一定不会翻车的。圆谷的未来就靠你了。
+
+
+*****
+
+####  RainbowSealife  
+##### 168#       发表于 2023-4-28 22:41
+
+趣味はコスプレ？等一个换装play，印象中欧布的奈绪美每集都有新衣裳穿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺带一提，在之前的访谈里，关于新生代，田口最推荐的三集分别是艾克斯 第15话 战士的脊背；泽塔第一话；布莱泽第一话。期待拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羽炎赋  
+##### 169#       发表于 2023-4-28 23:09
+
+能到战士的背影的质量？期待满满
+
+
+*****
+
+####  Yason  
+##### 170#       发表于 2023-4-29 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">nmd，好急，怎么要七月
+
