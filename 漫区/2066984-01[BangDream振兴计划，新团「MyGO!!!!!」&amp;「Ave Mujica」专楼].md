@@ -888,3 +888,96 @@ mika老师和夏芽这种职业鼓手也是不录cd的
 
 am现在公布这几首歌光是这鼓点 不找一个水平很好女鼓手说不过去
 
+*****
+
+####  toshima  
+##### 84#       发表于 2023-4-29 11:30
+
+無路矢这录音室版本也出来了，可以说的确实验失败了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高音武器就跟唢呐一样一般人驾驭不住，开头到阳菜声音进来前都是满分，结果阳菜声音一进来就开始打架了，调音突出一个混乱。
+
+阳菜唱的很好，下次别唱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DarthAka  
+##### 85#       发表于 2023-4-29 13:25
+
+<blockquote>toshima 发表于 2023-4-29 11:30
+無路矢这录音室版本也出来了，可以说的确实验失败了高音武器就跟唢呐一样一般人驾驭不住，开头到阳 ...</blockquote>
+他们真加支吹管进去，别管具体是啥管，肯定比阳菜这全程鬼叫好听
+
+
+*****
+
+####  stygian  
+##### 86#       发表于 2023-4-29 13:51
+
+这首简单来说就一个字
+
+土
+
+
+*****
+
+####  nh_zzz  
+##### 87#       发表于 2023-4-29 17:46
+
+我现在就要看mygo小飞二连热场，看看哪边破喉咙更加厉害
+
+
+*****
+
+####  toshima  
+##### 88#       发表于 2023-4-29 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662184&amp;ptid=2066984" target="_blank">nh_zzz 发表于 2023-4-29 17:46</a>
+
+我现在就要看mygo小飞二连热场，看看哪边破喉咙更加厉害</blockquote>
+小飞哥都是流行唱法，问题不大，而且mygo也就这一首阳菜要开嗓，之前15周年也没张过嘴
+
+*****
+
+####  toshima  
+##### 89#       发表于 2023-4-29 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60660105&amp;ptid=2066984" target="_blank">DarthAka 发表于 2023-4-29 13:25</a>
+
+他们真加支吹管进去，别管具体是啥管，肯定比阳菜这全程鬼叫好听</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我当时live现场第一次听我以为谁在吹长笛呢
+
+
+*****
+
+####  nh_zzz  
+##### 90#       发表于 2023-4-29 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662883&amp;ptid=2066984" target="_blank">toshima 发表于 2023-4-29 19:04</a>
+小飞哥都是流行唱法，问题不大，而且mygo也就这一首阳菜要开嗓，之前15周年也没张过嘴 ...</blockquote>
+问题是流行唱法也，反正那么多次呐喊没一次没事故
+
+
+*****
+
+####  nh_zzz  
+##### 91#       发表于 2023-4-29 19:53
+
+叔叔mygo官号：
+今天是MyGO!!!!!一周年，非常感谢大家一直以来的支持！
+我们会于今晚给大家带来周年纪念歌曲
+「無路矢」(noroshi )的MV。
+敬请期待哦！！
+
+都一年了啊
+
+
+*****
+
+####  toshima  
+##### 92#       发表于 2023-4-29 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60663398&amp;ptid=2066984" target="_blank">nh_zzz 发表于 2023-4-29 19:52</a>
+
+问题是流行唱法也，反正那么多次呐喊没一次没事故</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">那是唱跳的问题，体力跟不上，纯站桩的唱歌肯定没有困难
+
