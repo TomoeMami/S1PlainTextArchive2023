@@ -1257,3 +1257,358 @@ deck才出了一年。没几个人听过。
 
 【【官方双语】我是第二个摸到它的人 - 华硕ROG Ally掌机预览#linus谈科技-哔哩哔哩】 https://b23.tv/ZRv2juW
 
+*****
+
+####  医生狼多  
+##### 120#         楼主| 发表于 2023-4-25 20:32
+
+据之前的爆料来看，这款游戏掌机的主要卖点在于搭载了 AMD 锐龙 Z1 系列芯片。通过认证信息来看，这款芯片将是 AMD R7 7840U 的定制版，配有 Radeon 780M GPU。
+
+从这张 PCB 图片可以看到，这款掌机搭载了一颗基于 AMD Zen4 和 RDNA3 架构的  Ryzen Z1 Extreme 芯片，所以，这台主机全面支持华硕 XG Mobile 外置显卡，最高支持 NVIDIA RTX 4090。<img src="https://p.sda1.dev/11/0fd903fc9de5ff7f280f234a30a26ea7/CMP_20230425203214496.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Deay店长  
+##### 121#       发表于 2023-4-25 20:45
+
+虽然我就是win掌机用户，但你们对pc掌机普及真的太乐观了，Windows系统在超低功耗下的的使用心得先修炼过再说吧！纯度太低了！
+
+
+*****
+
+####  酷乐  
+##### 122#       发表于 2023-4-25 21:51
+
+丐版核显4cu
+
+
+*****
+
+####  ultraseven  
+##### 123#       发表于 2023-4-25 22:41
+
+5月11号上市？[https://www.pcgamer.com/asus-rog-ally-launch-may-11/](https://www.pcgamer.com/asus-rog-ally-launch-may-11/) 华硕动作这么快，还以为要等到10月。买机送3个月XGPU
+
+Asus also confirmed there is an AMD Ryzen Z1 Extreme chip—the "ultimate processor for modern handheld gaming"—which comes with eight cores and 16 threads. It also comes with three times the number of RDNA 3 compute units than the standard Z1 chip. That means you get 12 CUs as opposed to just four, and that makes a huge difference when it comes to gaming performance.
+
+后面还会有Z1 Extreme版？
+
+
+*****
+
+####  医生狼多  
+##### 124#         楼主| 发表于 2023-4-25 23:01
+
+丐版好像不如6800u
+aya明天要画7000系的饼了，可以先看下
+
+
+*****
+
+####  huge_cat  
+##### 125#       发表于 2023-4-25 23:08
+
+ASUS on ROG Ally pricing: "I can tell you for sure that the price will be below $1,000. 200% it will be below $1,000." 
+
+然后base model 999.99是吧<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  ultraseven  
+##### 126#       发表于 2023-4-27 11:00
+
+来源推特[https://twitter.com/_snoopytech_/status/1651354672081272834](https://twitter.com/_snoopytech_/status/1651354672081272834)
+
+Z1 Extreme的版本卖700刀，那这个价格很有竞争力了；丐版和400刀的SD打，也很不错。等ASUS发布会了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 127#         楼主| 发表于 2023-4-27 11:07
+
+aya的7000系至少要3个月后，打扰了
+
+*****
+
+####  BallanceHZ  
+##### 128#       发表于 2023-4-27 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60631565&amp;ptid=2127262" target="_blank">ultraseven 发表于 2023-4-27 11:00</a>
+来源推特https://twitter.com/_snoopytech_/status/1651354672081272834
+
+Z1 Extreme的版本卖700刀，那这个 ...</blockquote>
+rog汇率，700刀国内7000块吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ultraseven  
+##### 129#       发表于 2023-4-27 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60631680&amp;ptid=2127262" target="_blank">BallanceHZ 发表于 2023-4-27 11:09</a>
+
+rog汇率，700刀国内7000块吧</blockquote>
+Best Buy 商城卖，估计海淘不会少
+
+*****
+
+####  jbjack1215  
+##### 130#       发表于 2023-4-27 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60631565&amp;ptid=2127262" target="_blank">ultraseven 发表于 2023-4-27 11:00</a>
+来源推特https://twitter.com/_snoopytech_/status/1651354672081272834
+
+Z1 Extreme的版本卖700刀，那这个 ...</blockquote>
+这价格不可思议
+
+
+*****
+
+####  Vladimeow  
+##### 131#       发表于 2023-4-27 11:24
+
+买老任的掌机永远都是冲着那堆无敌的第一方
+
+—— 来自 vivo V2168A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Rushtime33  
+##### 132#       发表于 2023-4-27 11:40
+
+700刀真的挺能打的了，不过按rog一贯的放货量，肯定是突出一个耍猴。
+
+
+*****
+
+####  ultraseven  
+##### 133#       发表于 2023-4-27 23:20
+
+Best Buy 商店页面泄露，6月13号上市？
+
+<img src="https://pbs.twimg.com/media/FustXUxaAAE9-D2?format=jpg&amp;name=medium" height="1194" id="aimg_uyuYx" onclick="zoom(this, this.src, 0, 0, 0)" width="622"/)
+
+*****
+
+####  keytomylife  
+##### 134#       发表于 2023-4-27 23:27
+
+z1e 700刀其他的不用活了吧
+
+
+*****
+
+####  泰坦失足  
+##### 135#       发表于 2023-4-28 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60641754&amp;ptid=2127262" target="_blank">ultraseven 发表于 2023-4-27 23:20</a>
+
+Best Buy 商店页面泄露，6月13号上市？</blockquote>
+Z1E卖699的话， Z1只能更便宜， 直接杀死了比赛。这哪是打人硕,这是IT灯塔啊
+
+*****
+
+####  a9okalypse  
+##### 136#       发表于 2023-4-28 02:24
+
+z1e版能不能出个传统笔记本啊，有点香
+
+*****
+
+####  医生狼多  
+##### 137#         楼主| 发表于 2023-4-28 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60643001&amp;ptid=2127262" target="_blank">a9okalypse 发表于 2023-4-28 02:24</a>
+z1e版能不能出个传统笔记本啊，有点香</blockquote>
+7940h要上市了，不差钱建买这个u，性能更强点
+
+*****
+
+####  a9okalypse  
+##### 138#       发表于 2023-4-28 03:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60643009&amp;ptid=2127262" target="_blank">医生狼多 发表于 2023-4-28 02:28</a>
+
+7940h要上市了，不差钱建买这个u，性能更强点</blockquote>
+我不怀疑能有出这个u的笔记本，但我很怀疑能不能只卖699……
+
+*****
+
+####  whzfjd  
+##### 139#       发表于 2023-4-28 03:22
+
+win掌机做起来主要是能把老任作为缓冲区的第三方（经典）独立游戏给分流走，一袋米扛几楼，Nintendo！
+
+
+*****
+
+####  tillnight  
+##### 140#       发表于 2023-4-28 08:01
+
+怎么还有人信rog z1e700刀的，700刀明显是普通版的target price。
+
+
+*****
+
+####  ultraseven  
+##### 141#       发表于 2023-4-28 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60643446&amp;ptid=2127262" target="_blank">tillnight 发表于 2023-4-28 08:01</a>
+
+怎么还有人信rog z1e700刀的，700刀明显是普通版的target price。</blockquote>
+商品页都泄露了还是假的啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黄字  
+##### 142#       发表于 2023-4-28 09:29
+
+以我对rog的了解z1e不可能是700刀，除非国内腾讯代理深度绑定wegame。
+
+*****
+
+####  ultraseven  
+##### 143#       发表于 2023-4-28 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60644295&amp;ptid=2127262" target="_blank">黄字 发表于 2023-4-28 09:29</a>
+
+以我对rog的了解z1e不可能是700刀，除非国内腾讯代理深度绑定wegame。</blockquote>
+美行价和国行价两码事
+
+
+*****
+
+####  iou90  
+##### 144#       发表于 2023-4-28 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60336694&amp;ptid=2127262" target="_blank">KOL2022 发表于 2023-4-4 22:06</a>
+
+最强PC掌机steam deck还未突破NS销量的1%.............</blockquote>
+但已经算是卖爆 比其他的卖多几十到几千倍
+
+要是能持续运营deck迭代几次15年卖到10m还是有希望的吧
+
+
+*****
+
+####  iou90  
+##### 145#       发表于 2023-4-28 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60339829&amp;ptid=2127262" target="_blank">Fuero 发表于 2023-4-5 09:53</a>
+
+看了下前端控制界面（左侧一键开启），感觉还不错（就是armoury crate），仔细一看content里有个Game Platf ...</blockquote>
+armoury crate 最近用了下真的不太行 不如battle.net 比xbox app强点有限...
+
+*****
+
+####  iou90  
+##### 146#       发表于 2023-4-28 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60631845&amp;ptid=2127262" target="_blank">jbjack1215 发表于 2023-4-27 11:20</a>
+
+这价格不可思议</blockquote>
+传闻的也比我预想的也低很多 我以为极限是799... 等最后公布售价吧囧
+
+
+*****
+
+####  luffyzhou  
+##### 147#       发表于 2023-4-28 14:46
+
+ROG那个xgmobile显卡坞，损耗要小一些，但是现有去年和今年的版本线都有些短，去年的接口还特别容易卡住……
+
+ac那个软件呢，从现有pc版的表现，有时候也要看网络环境，之前有过服务器问题无法更新的时候
+
+
+*****
+
+####  zerocount  
+##### 148#       发表于 2023-4-28 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60643086&amp;ptid=2127262" target="_blank">whzfjd 发表于 2023-4-28 03:22</a>
+win掌机做起来主要是能把老任作为缓冲区的第三方（经典）独立游戏给分流走，一袋米扛几楼，Nintendo！ ...</blockquote>
+我觉得能跑得动ns模拟器才有杀伤力
+
+
+*****
+
+####  ultraseven  
+##### 149#       发表于 2023-4-29 10:12
+
+推特爆料[https://twitter.com/snoopytech/status/1652099567318343680](https://twitter.com/snoopytech/status/1652099567318343680)
+
+Z1版本599.99美元，16 GB LPDDR5, 256 GB NVMe M.2 SSD。
+
+看来400刀的SD仍然是性价比最高的选择
+
+
+*****
+
+####  ultraseven  
+##### 150#       发表于 2023-4-29 10:15
+
+如果Z1E卖699，Z1卖499，华硕几乎把友商全A了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这价格只能说不上不下
+
+
+*****
+
+####  亚瑟摩根  
+##### 151#       发表于 2023-4-29 10:19
+
+``````话说去年也沸沸扬扬上6800u的洛基咋样了
+
+买了DICK后就没咋关注了，身边好像也没人用这个机子，不是挺多人买来着吗？
+
+
+*****
+
+####  彩虹肥宅  
+##### 152#       发表于 2023-4-29 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60658434&amp;ptid=2127262" target="_blank">亚瑟摩根 发表于 2023-4-29 10:19</a>
+``````话说去年也沸沸扬扬上6800u的沙雕洛基咋样了
+
+买了DICK后就没咋关注了，身边好像也没人用这个机子， ...</blockquote>
+还在跳票呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGJM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  亚瑟摩根  
+##### 153#       发表于 2023-4-29 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60658502&amp;ptid=2127262" target="_blank">彩虹肥宅 发表于 2023-4-29 10:25</a>
+
+还在跳票呢
+
+—— 来自 OPPO PGJM10, Android 12上的 S1Next-鹅版 v2.5.2-play</blockquote>
+·······这特娘的还不如奥克呢，起码成品都有了
+
+6800u还跳票的话，那也没必要出了···
+
+*****
+
+####  彩虹肥宅  
+##### 154#       发表于 2023-4-29 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60658524&amp;ptid=2127262" target="_blank">亚瑟摩根 发表于 2023-4-29 10:27</a>
+·······这特娘的还不如奥克呢，起码成品都有了
+
+6800u还跳票的话，那也没必要出了··· ...</blockquote>
+我都想退了，不过洛基大小真的很不错，所以还在犹豫。
+
+—— 来自 OPPO PGJM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  亚瑟摩根  
+##### 155#       发表于 2023-4-29 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">乐死，LOKI这**推特，最近还在嘲讽AYA
+
