@@ -4391,3 +4391,36 @@ ps版没实体盘是吗
 steam国区298，预购8折238，比三角战略的定价友好多了</blockquote>
 照样被骂贵，还看到过说“怎么比ns定价还贵，卡带只要100多就行”的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  空洞骑士  
+##### 425#       发表于 2023-4-29 18:15
+
+PC销量寄了，发售两天最高在线人数413。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  hamartia  
+##### 426#       发表于 2023-4-29 18:45
+
+ps4版出了
+
+*****
+
+####  hentianwuya  
+##### 427#       发表于 2023-4-29 19:06
+
+ 本帖最后由 hentianwuya 于 2023-4-29 19:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662414&amp;ptid=2051670" target="_blank">空洞骑士 发表于 2023-4-29 18:15</a>
+
+PC销量寄了，发售两天最高在线人数413。首发8折加上五一假期都这么点人。另外查了一下才知道幕末篇 ...</blockquote>
+这价格还是高了，NS全新才150，这东西就怕比较。
+
+*****
+
+####  woshenc  
+##### 428#       发表于 2023-4-29 19:12
+
+太贵了，我准备150以下再出手
+
