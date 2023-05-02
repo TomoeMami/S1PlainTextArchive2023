@@ -246,3 +246,20 @@ F1盘子上旋钮虽然比较松感觉也没那么好用不过起码是有了个
 
 传奇车里那辆dior联盟为什么买了收藏里还没有，车库里倒是有
 
+*****
+
+####  一个陆仁贾  
+##### 1745#       发表于 2023-4-29 13:19
+
+这个奥林匹克的计时赛要求冠军记录的1.5%以内，太卷了，跑个1'17.1收工
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  葵  
+##### 1746#       发表于 2023-4-29 21:04
+
+想问下各位大佬，以前没玩过GT的想这作入坑可以么？难度大不？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
