@@ -841,3 +841,63 @@ agl我觉得还可以
 
 虽然都在说改键之类的，但是原版按键很舒服，够你用了
 
+*****
+
+####  AP0rt_  
+##### 88#       发表于 2023-4-29 15:19
+
+ 本帖最后由 AP0rt_ 于 2023-4-29 15:21 编辑 
+
+最好的结局<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/11/73162737d7b229fc7d7c751999cc260b/CMP_20230429152038706.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  你谁  
+##### 89#       发表于 2023-4-29 15:19
+
+恭喜df和white
+
+
+*****
+
+####  ml1642879  
+##### 90#       发表于 2023-4-29 15:28
+
+Wxltzy可以线下拎起狙神和月魔练靶场了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烯丝短尾猫  
+##### 91#       发表于 2023-4-29 15:37
+
+真没想到会是完美结局
+
+
+*****
+
+####  FanKiE  
+##### 92#       发表于 2023-4-29 15:48
+
+W这个圈运实在是有点，早进就反切，晚进就不反切，还好头一把尾一把早早拿下优质点位<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">去伦敦玩一圈就够了，去线下RPG咯
+至于DF，希望这次签证问题能顺利解决，完全体DF应该能有比20名更好的成绩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  吃鸡南小鸟  
+##### 93#       发表于 2023-4-29 15:58
+
+英国签证好过吗，别w好不容易进次线下，结果卡在签证上了.....
+
+
+*****
+
+####  ml1642879  
+##### 94#       发表于 2023-4-29 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60661238&amp;ptid=2117723" target="_blank">吃鸡南小鸟 发表于 2023-4-29 15:58</a>
+英国签证好过吗，别w好不容易进次线下，结果卡在签证上了.....</blockquote>
+季后赛七月，冠军赛八月 ，都在伦敦，而且xbfj最近要去美国，申个美签再申英签就简单一点了
+
