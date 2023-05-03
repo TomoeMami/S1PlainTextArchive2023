@@ -1125,3 +1125,68 @@ deco这首原创还行
 
 好像是有广告
 
+*****
+
+####  因为你不会  
+##### 14601#       发表于 2023-4-27 09:12
+
+绫总这好像努力了一点但仔细一看又还是烂掉的样子
+
+
+*****
+
+####  一仙  
+##### 14602#       发表于 2023-4-28 20:04
+
+发了两个直播预告，连播两天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么突然开始学英语了，这是落后几年的版本了
+
+
+*****
+
+####  因为你不会  
+##### 14603#       发表于 2023-4-28 22:03
+
+nmd绫总<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">怎么回事啊
+
+
+*****
+
+####  Fami水  
+##### 14604#       发表于 2023-4-28 22:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总看着你 还敢黑不
+
+
+*****
+
+####  因为你不会  
+##### 14605#       发表于 2023-4-28 22:38
+
+我不信邪，下个月再来喷绫总<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一仙  
+##### 14606#       发表于 2023-4-29 13:45
+
+英韩中三语轮着来还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  因为你不会  
+##### 14607#       发表于 2023-4-29 18:09
+
+绫总学外语准备清算外国小黑子了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绿色子龙  
+##### 14608#       发表于 2023-5-1 03:43
+
+这次学外语让我又去翻了一遍，原来那个“和余的约定”不是本来就有的，21年2月15日有日文版，2月18日加了英文版，3月3日直播档才有简中版，我还以为是遗留产物
+
