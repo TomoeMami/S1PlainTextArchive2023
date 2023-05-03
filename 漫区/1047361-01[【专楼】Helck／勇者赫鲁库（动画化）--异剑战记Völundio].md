@@ -112,3 +112,64 @@
 
 这气氛有点像蚀之刻，看能不能成功跑路了
 
+*****
+
+####  acejoe  
+##### 1049#       发表于 2023-4-30 13:09
+
+这漫画又不上架不汉化的，啥情况啊
+
+
+*****
+
+####  z64595815  
+##### 1050#       发表于 2023-4-30 14:40
+
+问了下现在负责b漫的原汉化组的人，好像3卷嵌字去年就全部做好了，b一直拖着不发。4卷翻译做好嵌字也快了，但b还是一点消息没有，大概负责人忘了还有这部漫画了吧
+
+
+*****
+
+####  feiwuwang  
+##### 1051#       发表于 2023-4-30 15:32
+
+也可能是想等Helck动画出来一起上？
+
+
+*****
+
+####  瓦米里奥  
+##### 1052#       发表于 2023-4-30 18:10
+
+B漫有页面了，5.10卷更新
+
+
+*****
+
+####   匿名
+##### 1053#        匿名   发表于 2023-4-30 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60669886&amp;ptid=1047361" target="_blank">z64595815 发表于 2023-4-30 14:40</a>
+
+问了下现在负责b漫的原汉化组的人，好像3卷嵌字去年就全部做好了，b一直拖着不发。4卷翻译做好嵌字也快了， ...</blockquote>
+我上个月还去问了一下B漫负责日漫相关的人，他直接表示没听过这漫画名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tansapple  
+##### 1054#       发表于 2023-4-30 21:06
+
+卧槽，那阿B买这漫画又不更新是图啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莉莉艾  
+##### 1055#       发表于 2023-4-30 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60675488&amp;ptid=1047361" target="_blank">tansapple 发表于 2023-4-30 21:06</a>
+
+卧槽，那阿B买这漫画又不更新是图啥啊</blockquote>
+已经有页面了，显示5.10上架，估计动画临近想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
