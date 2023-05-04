@@ -949,3 +949,23 @@ pc端没游客选项吧
 游戏种子就是紫龙的香港公司……</blockquote>
 我一直都知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
+*****
+
+####  消失的八月  
+##### 907#       发表于 2023-5-1 15:48
+
+<blockquote>rgauss 发表于 2023-4-21 11:39
+不锁吧 现在韩服和国际服都在一个应用上</blockquote>
+试过了，还是一样锁商店，昨天回台服看了下，发现连台服都锁商店了
+
+
+*****
+
+####  rgauss  
+##### 908#         楼主| 发表于 2023-5-1 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60685388&amp;ptid=2028054" target="_blank">消失的八月 发表于 2023-5-1 15:48</a>
+
+试过了，还是一样锁商店，昨天回台服看了下，发现连台服都锁商店了</blockquote>
+你网不好 其他服不清楚 台服没锁商店，网络不好进不去
+
