@@ -405,3 +405,42 @@ type earth先不说看到后面直死魔眼就该认出来了吧
 
 2023-2-12 15:56 上传
 
+*****
+
+####  蓮華  
+##### 1557#       发表于 2023-4-30 17:45
+
+<img src="https://img.saraba1st.com/forum/202304/30/174511tr4n7qtxt7r3tqbz.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230430174502.jpg</strong> (123.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-30 17:45 上传
+
+还成
+
+
+*****
+
+####  nakosm  
+##### 1558#       发表于 2023-5-1 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60672748&amp;ptid=1980597" target="_blank">蓮華 发表于 2023-4-30 17:45</a>
+还成</blockquote>
+虽然做的还不错，但现在这么简单的造型都要1000感觉有点不值啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22061218C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  蓮華  
+##### 1559#       发表于 2023-5-1 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60680830&amp;ptid=1980597" target="_blank">nakosm 发表于 2023-5-1 08:41</a>
+虽然做的还不错，但现在这么简单的造型都要1000感觉有点不值啊
+
+—— 来自 Xiaomi 22061218C, And ...</blockquote>
+是不太值，心理价位700左右吧
+
