@@ -1875,3 +1875,221 @@ Auto P卡好舒服啊，活动几分钟就搞完
 
 2023-4-21 23:04 上传
 
+*****
+
+####  伊地知星歌  
+##### 2807#       发表于 2023-4-26 19:14
+
+发下刚到的景品hnn
+<img src="https://p.sda1.dev/11/aefa2acc386311919ac3dc91a7971180/IMG_CMP_107086876.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b4dd5950ae1edb17e1a7babc709f5e51/IMG_CMP_251039757.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2150d43f300c4385004eec190ac7f409/IMG_CMP_12258070.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6caf2066df27341d55845c9fc3e9090d/IMG_CMP_206703484.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shadowof  
+##### 2808#         楼主| 发表于 2023-4-27 03:21
+
+[https://www.e-onkyo.com/sp/album/lzc2403](https://www.e-onkyo.com/sp/album/lzc2403)
+[https://mora.jp/package/43000152/LZC-2403_HI-24_96/](https://mora.jp/package/43000152/LZC-2403_HI-24_96/)
+[https://music.apple.com/jp/album ... 525811?i=1683525821](https://music.apple.com/jp/album/shiny-stories/1683525811?i=1683525821)
+[https://recochoku.jp/song/S1017796792/single](https://recochoku.jp/song/S1017796792/single)
+
+松井洋平的作词、周年曲把过去的要素全加进去的风格。
+
+
+*****
+
+####  退行  
+##### 2809#       发表于 2023-4-28 15:12
+
+新游出了啊<img src="https://p.sda1.dev/11/3cf3300f5109c3dbc38872657604909a/CMP_20230428151142289.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  areklose  
+##### 2810#       发表于 2023-4-28 15:27
+
+ 本帖最后由 areklose 于 2023-4-28 15:29 编辑 
+
+搜了一下。倒是看到一个长图。不过哪里来的
+
+*****
+
+####  三味线陆战型  
+##### 2811#       发表于 2023-4-28 15:30
+
+完了完了
+
+
+*****
+
+####  OBW  
+##### 2812#       发表于 2023-4-28 16:06
+
+现在出的音游打歌界面都统一了吗？怎么又是这样的。
+
+
+*****
+
+####  melody123  
+##### 2813#       发表于 2023-4-28 16:41
+
+明晚生放，爱信等<img src="https://p.sda1.dev/11/a95349d30947b0797b44a89debc48eea/CMP_20230428164028779.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212G, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  melody123  
+##### 2814#       发表于 2023-4-29 11:41
+
+<img src="https://p.sda1.dev/11/f89b4b1284530cdf45b81e94bc839b92/CMP_20230429114147443.jpg" referrerpolicy="no-referrer">没跑了
+
+—— 来自 Xiaomi 22081212G, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  caiseni  
+##### 2815#       发表于 2023-4-29 13:08
+
+期待一下手游版剧情里凝结着制作组品味与匠心的3d天花板
+
+
+*****
+
+####  1024676511  
+##### 2816#       发表于 2023-4-29 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">开播了 这次是线下发布会
+
+看看代孙能整什么活儿
+
+<img src="https://img.saraba1st.com/forum/202304/29/160120fk28222cqnlnskps.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-29 16:01 上传
+
+
+*****
+
+####  竜騎士07  
+##### 2817#       发表于 2023-4-29 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ytb源先是天灾一般的live效果 然后现在是直播画面卡住  想到是sbgi好像又觉得正常
+
+
+*****
+
+####  Cookiekira  
+##### 2818#       发表于 2023-4-29 16:34
+
+又是音游<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 2819#       发表于 2023-4-29 16:51
+
+完咯，手残不会打音游啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  areklose  
+##### 2820#       发表于 2023-4-29 19:24
+
+<img src="https://img.saraba1st.com/forum/202304/29/192405k4uz6uek1xqaquua.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230429192331.jpg</strong> (131.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-29 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202304/29/192406vya02xdj0xibbl2b.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230429192336.jpg</strong> (113.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-29 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202304/29/192406n4589evkb5wbd4z8.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230429192338.jpg</strong> (164.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-29 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202304/29/192407uol4n8npn6w83nv4.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230429192341.jpg</strong> (118.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-29 19:24 上传
+
+<img src="https://img.saraba1st.com/forum/202304/29/192407rtii4z4x8ci2nfzt.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230429192344.jpg</strong> (127.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-29 19:24 上传
+
+
+*****
+
+####  areklose  
+##### 2821#       发表于 2023-4-29 19:24
+
+更多图看这个[https://www.famitsu.com/news/202304/29301469.html](https://www.famitsu.com/news/202304/29301469.html)
+
+
+*****
+
+####  夜之光  
+##### 2822#       发表于 2023-4-30 07:31
+
+感觉万代真的想不通，拉拉都知道所有菜放一个篮子里，IM这里还一定要一个篮子一份菜。和CY谈不拢草菇的话，酸菜和管人接在土豆那个本体上做个大更新多好。
+
+
+*****
+
+####  花开安菲路  
+##### 2823#       发表于 2023-4-30 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60666659&amp;ptid=1577595" target="_blank">夜之光 发表于 2023-4-30 07:31</a>
+感觉万代真的想不通，拉拉都知道所有菜放一个篮子里，IM这里还一定要一个篮子一份菜。和CY谈不拢草菇的话， ...</blockquote>
+你想太简单了，除了前面名字都带偶像大师，同属一个品牌，这几作都是“独立”的作品，不同的开发不同的运营负责人，并不是续作和继承关系。
+最多像星耀那样新出个作品，把各家拉进来骗钱，这种更像是联动的形式。
+说白了爱马仕这个系列，做手游成功是cy做灰灰带出来的，这是抛开本家单独立项了，并不是续作。只靠万南那帮吃x都赶不上的废物，在手游时代这牌子不知道现在混成什么样呢。
+当初sc交给下面的合资公司去开发，其实也有用外部血液复制灰灰的意味在，可以说战略上是成功的。现在万南做手游起码积累的经验是有了，就看发挥如何了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shadowof  
+##### 2824#         楼主| 发表于 2023-5-2 04:25
+
+带两段的全体伤害现在似乎又BUG了
+
+マイコレ樹里现在Vo那部分单独伤害发生不了。
+
+谁去グレフェス测一下其他两段伤害的卡、Da果穂试了下没这问题
+
+要真有BUG估计黄金周也来不及修了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
