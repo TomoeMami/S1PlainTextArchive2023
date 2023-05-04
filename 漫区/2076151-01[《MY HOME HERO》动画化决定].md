@@ -930,3 +930,31 @@ PV2：[https://youtu.be/R7n9LJJPwHM](https://youtu.be/R7n9LJJPwHM)
 
 这啥啊都是些，一个展开给的演出信息量完全不够理清马上又是下一个展开<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  山岚夜雨  
+##### 100#       发表于 2023-5-1 10:44
+
+ 本帖最后由 山岚夜雨 于 2023-5-1 10:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60411420&amp;ptid=2076151" target="_blank">oneoutsider 发表于 2023-4-11 11:03</a>
+纯动画观众，这应该是一个&amp;#x4 ...</blockquote>
+漫画是分了几部，剧情是没重样的，分尸只是主线引子，第一部主要围扰着讲这个，第二部是换了个舞台，第三部是好几年过去
+
+*****
+
+####  山岚夜雨  
+##### 101#       发表于 2023-5-1 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60680811&amp;ptid=2076151" target="_blank">山代风我 发表于 2023-5-1 08:36</a>
+本来一集弃就没关注了，结果看到作者发推再挽尊心疼下吧</blockquote>
+补个漫画图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得作者态度还是太温和，我是作者看到这动画一坨我绝对会炎上加yygq<img src="https://p.sda1.dev/11/da8ed48f93e8921fd99c03d3e3226a8e/CMP_20230501104914358.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  山代风我  
+##### 99#       发表于 2023-5-1 08:36
+
+本来一集弃就没关注了，结果看到作者发推再挽尊心疼下吧
+<img src="https://p.sda1.dev/11/7afdf46e581e23091184b69d31585f63/CMP_20230501083407840.png" referrerpolicy="no-referrer">
+
+
