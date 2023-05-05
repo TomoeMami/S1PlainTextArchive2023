@@ -3288,3 +3288,55 @@ syl，最近打神之天平，男主从阿努比斯系统里面把青梅脑子�
 抹布和bsd在某些地方的相似性确实是老生常谈了，也经常被拿出来比较</blockquote>
 甚至Nano Universe和マブラヴ的曲风都很像
 
+*****
+
+####  再买自检星剁手  
+##### 2268#       发表于 2023-5-1 11:51
+
+不行了，这图过于巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/11/c110a399a46ddee8475d4c1178f20ebc/-56a4b128dcc155fc.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+
+*****
+
+####  kamarus  
+##### 2269#       发表于 2023-5-1 12:24
+
+怎么说到bsd了。
+顺便bsd有了最新版，全新op的整合版，tmd戏画都死了怎么还能骗钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  镜hinata  
+##### 2270#       发表于 2023-5-2 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60683122&amp;ptid=1860817" target="_blank">kamarus 发表于 2023-5-1 12:24</a>
+怎么说到bsd了。
+顺便bsd有了最新版，全新op的整合版，tmd戏画都死了怎么还能骗钱的 ...</blockquote>
+那bsd最新版哪里有资源<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  创始’’’天翔  
+##### 2271#       发表于 2023-5-2 11:31
+
+抹布手游出了吧，剧情怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oskneo  
+##### 2272#       发表于 2023-5-2 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60683122&amp;ptid=1860817" target="_blank">kamarus 发表于 2023-5-1 12:24</a>
+怎么说到bsd了。
+顺便bsd有了最新版，全新op的整合版，tmd戏画都死了怎么还能骗钱的 ...</blockquote>
+有主机版吗
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
