@@ -938,3 +938,43 @@ fes池来力，有白嫖10连，各位可以上线了<img src="https://static.sa
 
 这期活动打个9w就溜了，最近身体倦的不行。
 
+*****
+
+####  花开安菲路  
+##### 7143#       发表于 2023-4-30 19:50
+
+这个常服发型卡未来好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  supergilaboy  
+##### 7144#       发表于 2023-4-30 20:15
+
+泻药，160才出未来，140时还出了三个莉绪<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7145#       发表于 2023-5-2 09:06
+
+嘿嘿，未来，我的未来，小女友感十足了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2fe63f324a4255a79a6aa251d720841a/CMP_20230502084645693.jpg" referrerpolicy="no-referrer">
+莉绪新衣服也好看，不过见好就收，她之前的shs已经有了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+按我个人的审美，发量稍微再薄一点点就更好了，艾米莉的原版双马尾也是，太臃肿了，二次元的双马尾还是得细一点。
+杏奈的双马尾shs，感觉把脸颊两侧头发扎起来更好些，有时看着像四马尾<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">当然这样特色就少了，变最常见的双马尾了。
+
+
+*****
+
+####  花开安菲路  
+##### 7146#       发表于 2023-5-2 23:48
+
+今天管人直播我才想起来，之前在楼里提到的玩百万的隐退管人妹子，转生的**小号好久没更新了，
+
+点进去看了下，怎么又删库跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">有人知道新的转生号吗？
+
+就是那个隐退的ライカ・セフィル，
+[@nehon13](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=530143) 坛友知道吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
