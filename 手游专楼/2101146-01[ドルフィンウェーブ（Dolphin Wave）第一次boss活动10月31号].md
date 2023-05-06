@@ -1155,3 +1155,449 @@ QQ图片20230411194223.jpg
 
 数值确实是脚填的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，4个泳装moonUR翻车好几次才凸出来，失败和三星之间就差2个盾…
 
+*****
+
+####  startea15  
+##### 325#       发表于 2023-4-15 23:17
+
+凹了n久总算过了ex但是是二星过的，还是差一点就过不了的那种，有没三星队伍参考？
+
+
+*****
+
+####  小五的拖鞋  
+##### 326#         楼主| 发表于 2023-4-17 15:10
+
+半周年，懒得截图了，
+[https://dolphinwave.boom-app.wiki/entry/live-streaming](https://dolphinwave.boom-app.wiki/entry/live-streaming)
+
+简单总结一下
+
+1.淘汰赛skip功能
+
+2.开放养成上限，角色80→90，摩托100→120
+
+3.败北画面加了两种动作
+
+4.玩家PVP竞技场，有新的兑换代币和商店
+
+5.更衣室优化：试穿的衣服可以多件一起解锁，饰品格子增加到6格，饰品可以调整大小，更衣室内能直接切换角色，平时穿的和下副本穿的衣服可以分别设置
+
+6.主线第一部完结，主角2人限定新服装
+
+7.纪念签到+每天免费1抽+赠送随机UR票一张
+
+<img src="https://img.saraba1st.com/forum/202304/17/151032d9p99fsk2pm9npa2.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (51.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 15:10 上传
+
+
+*****
+
+####  小五的拖鞋  
+##### 327#         楼主| 发表于 2023-4-17 16:33
+
+ 本帖最后由 小五的拖鞋 于 2023-4-17 16:38 编辑 
+
+<img src="https://img.saraba1st.com/forum/202304/17/162934jxhaqrrrj1irjfqr.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (89.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 16:29 上传
+
+ex攻略，看了下应该还算比较低配的了
+
+附上我自己过关的配置
+
+<img src="https://img.saraba1st.com/forum/202304/17/163051wfe5fjyer9ejgctm.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (423.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 16:30 上传
+
+<img src="https://img.saraba1st.com/forum/202304/17/163109t6wmw6tz16izmad1.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (319.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 16:31 上传
+
+还是比较余裕的
+
+强烈推荐练一下SR桐莉，上BUFF那叫一个快
+
+攻略重点还是优先快速叠满5层减防BUFF，伤害就起来了，攻击力BUFF也是越多越好
+
+另外吐槽下爱莲，带着充能装备都开不出大招，简直了
+
+
+*****
+
+####  小五的拖鞋  
+##### 328#         楼主| 发表于 2023-4-18 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">角色等级上限好像要抽复制人才能解锁，呃呃
+
+
+*****
+
+####  羽出  
+##### 329#       发表于 2023-4-20 19:31
+
+新的战败动画有点意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 330#         楼主| 发表于 2023-4-20 19:50
+
+<img src="https://pbs.twimg.com/media/FuILoXFagAAzLGh?format=jpg&amp;name=4096x4096" id="aimg_a8jhk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+贺图挺不错的
+
+
+*****
+
+####  羽出  
+##### 331#       发表于 2023-4-20 19:52
+
+1日1回免费抽竟然是单抽<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startea15  
+##### 332#       发表于 2023-4-21 05:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">太黑了，20抽出了海豚妹没想到小草莓要200抽井换，遭不住啊，每次都要井的话，而且新上限要通用突破或者躯体突破，这个1%出率不是石油王怎么到90
+
+
+*****
+
+####  心之光  
+##### 333#       发表于 2023-4-21 08:17
+
+这竞技场，分级也太精细了，每日居然是真的单抽一发是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startea15  
+##### 334#       发表于 2023-4-21 08:18
+
+这个3w7的ex，给我一种你没抽警察池就没资格打的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无念  
+##### 335#       发表于 2023-4-21 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">特意给每日白嫖的素材池加了红点，结果每日一抽的活动白嫖没加，这策划还是开了吧
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  羽出  
+##### 336#       发表于 2023-4-21 14:27
+
+SP币碎片怎么有什么额外的获取方法吗，我找完了今期的两个活动，总共能获取两个，但换取sp币需要20个啊，剩下的哪里来
+
+
+*****
+
+####  kulanyee  
+##### 337#       发表于 2023-4-21 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60548078&amp;ptid=2101146" target="_blank">羽出 发表于 2023-4-21 14:27</a>
+
+SP币碎片怎么有什么额外的获取方法吗，我找完了今期的两个活动，总共能获取两个，但换取sp币需要20个啊，剩 ...</blockquote>
+剩下的以后活动给<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+但这种道具手游一般都是越给越多
+
+
+*****
+
+####  小五的拖鞋  
+##### 338#         楼主| 发表于 2023-4-21 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60543016&amp;ptid=2101146" target="_blank">startea15 发表于 2023-4-21 05:44</a>
+
+太黑了，20抽出了海豚妹没想到小草莓要200抽井换，遭不住啊，每次都要井的话，而且新上限要通用突破 ...</blockquote>
+只井限定就好了，平时常驻就跳过吧，这次是限定的，井了也就井了
+
+*****
+
+####  小五的拖鞋  
+##### 339#         楼主| 发表于 2023-4-21 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">顺便如果有氪过通用SP币的话，建议留给限定，除非你有别的真爱要用
+
+
+*****
+
+####  小五的拖鞋  
+##### 340#         楼主| 发表于 2023-4-21 19:53
+
+新卡开始卖脆弱属性了，以后还可以换属性再卖4遍
+
+怪不得要把冰冻buff给禁了，那个是泛用的，妨碍卖卡了
+
+这次的凹分螃蟹直接免疫冰冻
+
+
+*****
+
+####  羽出  
+##### 341#       发表于 2023-4-21 20:30
+
+脆弱是什么效果
+
+*****
+
+####  小五的拖鞋  
+##### 342#         楼主| 发表于 2023-4-21 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60553303&amp;ptid=2101146" target="_blank">羽出 发表于 2023-4-21 20:30</a>
+
+脆弱是什么效果</blockquote>
+也是增伤，可以叠3次，具体等wiki更新数据了
+
+
+*****
+
+####  小五的拖鞋  
+##### 343#         楼主| 发表于 2023-4-21 22:52
+
+<img src="https://img.saraba1st.com/forum/202304/21/225104j65ztwhj68hxz7j6.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (62.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-21 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202304/21/225149k8ta88xu8iaxx7tz.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (106.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-21 22:51 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这期exboss的推荐配队，没抽警服池的有难了
+
+
+*****
+
+####  startea15  
+##### 344#       发表于 2023-4-22 06:15
+
+我上面就是这样说的，试了n次都过不去，很需要警察夕离的降等攻击
+
+
+*****
+
+####  MEKA  
+##### 345#       发表于 2023-4-22 08:25
+
+没警服，摆了…话说脆弱算异常状态吗？可不可以带那个异常状态增伤的？
+
+*****
+
+####  羽出  
+##### 346#       发表于 2023-4-22 08:26
+
+这次比之前复刻活动难多了，凹了差不多一小时才过
+
+
+*****
+
+####  shinitakute  
+##### 347#       发表于 2023-4-22 13:49
+
+什么玩意 我3w战力打不过推荐2w的本？？
+
+有什么大病这游戏
+
+
+*****
+
+####  小五的拖鞋  
+##### 348#         楼主| 发表于 2023-4-22 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60560159&amp;ptid=2101146" target="_blank">shinitakute 发表于 2023-4-22 13:49</a>
+什么玩意 我3w战力打不过推荐2w的本？？
+
+有什么大病这游戏</blockquote>
+看看属性是不是被克了，或者角色位置没放对，普通图不至于啊，我都开自动的
+
+
+*****
+
+####  心之光  
+##### 349#       发表于 2023-4-23 13:41
+
+竞技场算不算大家X癖大暴露<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 350#         楼主| 发表于 2023-4-23 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60574885&amp;ptid=2101146" target="_blank">心之光 发表于 2023-4-23 13:41</a>
+
+竞技场算不算大家X癖大暴露</blockquote>
+情景模式也可以<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  羽出  
+##### 351#       发表于 2023-4-25 15:05
+
+话说大家现在是怎么更新游戏的，最近APPSSR墙了每次都用梯子流量下，有没有更好的方法
+
+
+*****
+
+####  小五的拖鞋  
+##### 352#         楼主| 发表于 2023-4-25 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60607608&amp;ptid=2101146" target="_blank">羽出 发表于 2023-4-25 15:05</a>
+
+话说大家现在是怎么更新游戏的，最近APPSSR墙了每次都用梯子流量下，有没有更好的方法 ...</blockquote>
+这个应该只能挂梯子下吧
+
+
+*****
+
+####  羽出  
+##### 353#       发表于 2023-4-25 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+好吧，看来省不了那点流量了
+
+
+*****
+
+####  心之光  
+##### 354#       发表于 2023-4-28 10:06
+
+感觉前一期开始，都是最后的EX挑战卡住啊，没有对策卡真的好难凹<img src="https://static.saraba1st.com/image/smiley/carton2017/005.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 355#         楼主| 发表于 2023-4-28 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60644776&amp;ptid=2101146" target="_blank">心之光 发表于 2023-4-28 10:06</a>
+
+感觉前一期开始，都是最后的EX挑战卡住啊，没有对策卡真的好难凹</blockquote>
+这期正好歪出一个警服，又紧急拉了SR见波，然后还是死凹不过，这下彻底摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 356#         楼主| 发表于 2023-4-30 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最近FANZA新事前的香格里拉好像挺不错的，准备去蝗一下
+
+
+*****
+
+####  MEKA  
+##### 357#       发表于 2023-5-1 17:07
+
+吐了，井完后告诉我又来一期限定<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 358#         楼主| 发表于 2023-5-1 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60686103&amp;ptid=2101146" target="_blank">MEKA 发表于 2023-5-1 17:07</a>
+吐了，井完后告诉我又来一期限定</blockquote>
+感觉一般，这个先不抽了，反正强度也摆烂了
+
+
+*****
+
+####  心之光  
+##### 359#       发表于 2023-5-2 17:22
+
+抽卡限定接限定就算了，淘汰赛EX难度也太难了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2217A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  羽出  
+##### 360#       发表于 2023-5-2 18:01
+
+ex淘汰赛翻车了，做好对策再进去
+
+
+*****
+
+####  startea15  
+##### 361#       发表于 2023-5-3 00:13
+
+限定接限定，活动没有当季对策卡基本打不过高难，感觉这游戏可以纯纯摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 362#         楼主| 发表于 2023-5-3 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60702657&amp;ptid=2101146" target="_blank">startea15 发表于 2023-5-3 00:13</a>
+
+限定接限定，活动没有当季对策卡基本打不过高难，感觉这游戏可以纯纯摆烂了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不抽当期新卡，新淘汰赛ex他连第一关都没让我过，真的nb，虽然抽了也要凹，有点绷不住了
+
+
+*****
+
+####  羽出  
+##### 363#       发表于 2023-5-3 12:31
+
+不是，这期我抽了一个，还是打不过啊，毕竟淘汰赛没有重开的机会，上两期再难都有机会打过，毕竟能无限次重来，淘汰赛这么搞根本无法玩
+
+
+*****
+
+####  小五的拖鞋  
+##### 364#         楼主| 发表于 2023-5-3 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60705880&amp;ptid=2101146" target="_blank">羽出 发表于 2023-5-3 12:31</a>
+
+不是，这期我抽了一个，还是打不过啊，毕竟淘汰赛没有重开的机会，上两期再难都有机会打过，毕竟能无限次重 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是抽了打得也不舒服，我前两期已经体会到了，所以彻底摆了
+
+
+*****
+
+####  MEKA  
+##### 365#       发表于 2023-5-3 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">淘汰赛不优胜还不能拿每日活动任务的石头，不能通亏爆
+
