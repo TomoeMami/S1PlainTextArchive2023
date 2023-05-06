@@ -5232,3 +5232,343 @@ FMT林鼓子全勤
 <img src="https://p.sda1.dev/10/4dede6584b0fe6ae1d7a13487fe4ad3c/CMP_20230412213415983.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/268e0c4ef9e8357c873300c3ebde9c67/CMP_20230412213653217.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 7214#       发表于 2023-4-22 22:28
+
+<img src="https://p.sda1.dev/11/5b544d87841c2ac47bf4a970274ee323/CMP_20230422222838767.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8c729538c7187ee981c0534460904618/CMP_20230422222838823.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7215#       发表于 2023-4-22 23:39
+
+鼓子版chase唱的确实不错，就是这个fmt的麦是不是有毛病。。
+
+
+*****
+
+####  DarthAka  
+##### 7216#       发表于 2023-4-22 23:45
+
+林小姐这图都P成茅某人了——这么一说她和羊宫是不是有点撞脸？
+
+
+*****
+
+####  damian-wade  
+##### 7217#       发表于 2023-4-23 02:30
+
+Coco首演很棒啊，虹收获一名唱将了，不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cybernetics31  
+##### 7218#       发表于 2023-4-23 08:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜宝这是又胖了
+
+
+*****
+
+####  cybernetics31  
+##### 7219#       发表于 2023-4-24 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 7220#       发表于 2023-4-24 02:11
+
+话说昵称是怎么拐到  大鼓队员的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仟音一心  
+##### 7221#       发表于 2023-4-24 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60586673&amp;ptid=1959558" target="_blank">一个陆仁贾 发表于 2023-4-24 02:11</a>
+
+话说昵称是怎么拐到  大鼓队员的
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅版 v2.5. ...</blockquote>
+第一是某个部位十分明显很“大”也很“鼓”，第二是可以玩迪迦梗。
+
+*****
+
+####  仟音一心  
+##### 7222#       发表于 2023-4-24 09:19
+
+鼓子的打歌服是灯穿过的那件，肉眼可见的勒。这么久了没空做新的吗？
+<img src="https://p.sda1.dev/11/6b85acb0d82603bef9ed93e36cfc3ba5/CMP_20230424091705587.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/55a3ef5cad321e188d0a84795d9af6f2/CMP_20230424091705639.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6593ed812980e25c84ef6d541c8c8798/CMP_20230424091705692.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6f693d25e5462963c36014ae403a5613/CMP_20230424091705732.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/001a356aa7c5edd9a2c92b1e288f2e83/CMP_20230424091705803.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/37cf9d442855a8b8e96d04f5fc995bab/CMP_20230424091713737.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/12e1561c916b7f195162393f01bac3ef/CMP_20230424091713803.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6204f55bc06240862ad2dc9d5562e99f/CMP_20230424091713840.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ba4a93df5528051a85c1c4ac55fe4d7c/CMP_20230424091713910.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/3fa90be923aff096ba2226fef9f0a8e1/CMP_20230424091713944.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 7223#       发表于 2023-4-26 22:16
+
+[https://twitter.com/0507_tuyuri/status/1650506286625181700](https://twitter.com/0507_tuyuri/status/1650506286625181700)
+<img src="https://p.sda1.dev/11/d9b21713a82381dac8f7dac340d2bcd0/20230426_221549.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7224#       发表于 2023-4-27 14:21
+
+林鼓子访谈
+<img src="https://p.sda1.dev/11/566be59f58a22da9a8902b97586c4058/CMP_20230427142058501.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makece  
+##### 7225#       发表于 2023-4-27 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60586673&amp;ptid=1959558" target="_blank">一个陆仁贾 发表于 2023-4-24 02:11</a>
+
+话说昵称是怎么拐到  大鼓队员的
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅版 v2.5. ...</blockquote>
+可能是前任被某个群体叫大灯老师
+
+
+*****
+
+####  仟音一心  
+##### 7226#       发表于 2023-4-27 23:56
+
+<img src="https://p.sda1.dev/11/e06c16cb20df5f0b955e6c960b65cb6a/CMP_20230427235315493.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/953ea03f21b72f87dd106bc820d1ca7f/CMP_20230427235315554.jpg" referrerpolicy="no-referrer">
+虹之咲字幕组汉化：
+“好热—啊！不过流流汗感觉还是挺舒服的呢，对吧小侑。”
+“嗯。真的很舒服呢！整个人感觉神清气爽！
+
+Emma‘s episode
+桑拿棚里，我与小侑坐在一起。
+棚里除了我们外没有其他人，我不由得从心底里感到一阵轻松。不停流淌着的汗水也令人心情舒适。
+不过，她有习惯这个温度吗？
+正这么想着，小侑突然张开了嘴。
+“艾玛学姐，要再多来点吗？”
+“嗯…多来的话应该是……”
+“嗯，就是这样。”
+小侑将水浇向桑拿石，水沸腾产生的蒸汽充满了整个房间，令人更加大汗淋漓。
+刚才小侑选择的精油也伴随着水蒸气在房间内散发出令人舒畅的香气。
+此刻我的身心都感到暖意融融。
+今天能来蒸桑拿真是太好了。
+
+侑与同好会成员的两人出行企划本月来到侑与艾玛的桑拿棚之行！桑拿是不是令她们的身心都得到放松了呢～
+次回将由璃奈陪伴侑出行！两人将会前往某个美丽的地方♪
+详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
+<img src="https://p.sda1.dev/11/3ec3b173180e276e29dc68ef594472f2/CMP_20230427235354053.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2b3fe7d45f1185d08fd34581d57725ba/CMP_20230427235354194.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/5fa8b775e272d24cfcb9453140c5932f/CMP_20230427235354234.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/9f8c2849db4dea4ea134af1ef3efd0fb/CMP_20230427235354128.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6bdf09f9e5da1e1d73d3666d39eca9fc/CMP_20230427235358901.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/7e40fc32ded418edd218c5bc86919ce5/1zg8f55b30xkr6wtmdj36typ6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f7d244636d7516f5a6c2012ecf0731ee/CMP_20230427235650755.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7227#       发表于 2023-4-30 14:14
+
+发这个楼才合适，AS也死了。
+<img src="https://p.sda1.dev/11/058f5935cea505053812db7668f2311b/CMP_20230430141442398.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ec36f81b1a6f18bf18052ba46b6cbc0a/CMP_20230430141442457.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 7228#       发表于 2023-4-30 14:24
+
+万代最近杀疯了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oi99o  
+##### 7229#       发表于 2023-4-30 14:27
+
+as最后的3d曲，仍然由灯担当雪菜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202304/30/142613lpp9ffbfbx20pkfz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-30 14:26 上传
+
+
+*****
+
+####  馬斯特壺  
+##### 7230#       发表于 2023-4-30 14:44
+
+这下家是真被偷了
+
+
+*****
+
+####  ads147147  
+##### 7231#       发表于 2023-4-30 14:48
+
+当时换运营的时候不就早有预感了么，只不过能在sif2刚出没多久就宣布切了，真有你的啊代哥，sif2赚钱嘛。
+
+灯灯和as一起谢幕了，代哥发发慈悲给个单机版呗。
+
+
+*****
+
+####  DarthAka  
+##### 7232#       发表于 2023-4-30 15:02
+
+理个发回来一看as寄了可还行……那OVA完了还剩下啥
+
+
+*****
+
+####  仟音一心  
+##### 7233#       发表于 2023-4-30 15:50
+
+我这个乌鸦嘴，只是一时口嗨，万万没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/88289694f1234d65283ad03cb4bd9405/CMP_20230430154925102.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7234#       发表于 2023-4-30 16:02
+
+AS官方纪念周边
+<img src="https://p.sda1.dev/11/ee17aabba289d00393c1dba36aed3af4/CMP_20230430160129150.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b7418d69cc51f8ba06689d3f861ad83a/CMP_20230430160129265.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/98e2ac24432d9c627f54daee3405b908/CMP_20230430160129381.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7235#       发表于 2023-4-30 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60669796&amp;ptid=1959558" target="_blank">oi99o 发表于 2023-4-30 14:27</a>
+as最后的3d曲，仍然由灯担当雪菜</blockquote>
+灯转了
+<img src="https://p.sda1.dev/11/1475858b0d8eb3a310b7c2c61e3182aa/CMP_20230430162516778.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8544222a171f1e81a700c07be939bbdd/CMP_20230430162516831.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7236#       发表于 2023-4-30 16:32
+
+一些梗图<img src="https://p.sda1.dev/11/e20298c13204a5b2ea07de3b7aad5ba7/1DC98A6C883D1C00C7090F354FDC0A8D.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/02976324349f7c844dd6dfaf299bdf5c/CMP_20230430163128802.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/d07d4e566a44b2ea04d058007a76ee2e/CMP_20230430163128849.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/72ea2b66eed9a515e3a783741d9d208f/CMP_20230430163128882.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b3fe183de47a32052a4abbf52a19c92e/CMP_20230430163128933.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 7237#       发表于 2023-4-30 17:04
+
+老家没了还行<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  川陀  
+##### 7238#       发表于 2023-4-30 17:55
+
+as这东西，在的时候，你怎么看怎么不好，等到真没了，发现会少一堆东西。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  dozen  
+##### 7239#       发表于 2023-4-30 18:31
+
+as死在这时候是没什么体面了
+
+
+*****
+
+####  ads147147  
+##### 7240#       发表于 2023-4-30 18:53
+
+天天说切割as，真的死的时候还是觉得惋惜。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  ddy2811  
+##### 7241#       发表于 2023-5-1 00:14
+
+在来到这楼前还是想好歹最后了该说点好话的，来到这楼以后想起旧事就懒得说了，切就切吧<img src="https://static.saraba1st.com/image/smiley/carton2017/401.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 7242#       发表于 2023-5-1 02:35
+
+虽然3d建模动画没怎么看，mv模式也不怎么欣赏，真要没了还是很可惜。
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仟音一心  
+##### 7243#       发表于 2023-5-3 08:37
+
+5.2兔生日，妃庆生
+<img src="https://p.sda1.dev/11/7f036539b546249304431db9b973dcc5/CMP_20230503083051272.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8ba5fe23a2dd43bf2fd59dd7ee5705fa/CMP_20230503083051319.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/06f7c080f9dd1f8ad866076ee7c2cd8c/CMP_20230503083051366.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/be5d2995c717a58f083428fd26fb7dde/CMP_20230503083051414.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/246a1ba4a86710cc5c5f86f2d1158d9f/CMP_20230503083604837.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/585a5cb13e1b2cedab78f3db296c54aa/CMP_20230503083654520.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/34763392e329bb221bdc8f8d6020c80d/CMP_20230503083654609.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e2e749c5617e14b28225bd9f535fa612/CMP_20230503083654657.jpg" referrerpolicy="no-referrer">
+
+兔妃广播，应该是目前最重的一次了
+<img src="https://p.sda1.dev/11/c2f4207f254f7724a0b35c8090e75c53/CMP_20230503083425275.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/81e97a69fa6a1a0c73ca17ee717a2908/CMP_20230503083425332.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/5039eeb1e6f96ad2acb06ced4e1c8122/CMP_20230503083425385.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/05dab39eec6a572eb6e991e43180c00d/CMP_20230503083425429.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/18f52e103c8070552bf3de3fab827b7e/CMP_20230503083455814.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/08c7d79b1ab8ab83eb80fac726faf9a3/CMP_20230503083455904.jpg" referrerpolicy="no-referrer">
+
