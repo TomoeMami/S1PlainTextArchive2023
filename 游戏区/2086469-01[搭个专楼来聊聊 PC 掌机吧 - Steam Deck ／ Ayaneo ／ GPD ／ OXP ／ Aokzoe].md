@@ -1604,3 +1604,367 @@ Ayaneo Slide
 
 2023-4-13 22:12 上传
 
+*****
+
+####  医生狼多  
+##### 707#       发表于 2023-4-28 16:14
+
+AYANEO GEEK 1S，7840U + 800P<img src="https://p.sda1.dev/11/a95f9fc2df8e9b356386bd5bc9ee8619/IMG_20230428_160040_751.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dududa  
+##### 708#       发表于 2023-4-28 20:39
+
+话说amd的那个z1和z1e芯片是在发布会上公布的，应该不是华硕独占吧，国产厂商过段时间能不能也用上。不为别的，rog掌机传闻电池容量和steamdeck差不多，我觉得有点少，国产厂商不说别的，电池容量是真给挺足的。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  圈量子  
+##### 709#       发表于 2023-4-29 17:39
+
+问一下，假如：
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑）以后如果有多平台新作也是买switch版
+2. 手里有这些游戏的硬盘免安装版或者原iso镜像，老游戏有免cd补丁或者修改注册表文件
+3. 不介意折腾
+4. 希望屏幕素质高+机子轻+只玩avg所以性能不太重要
+5. 希望能安装PSP模拟器等方便其他老游戏
+
+这种情况下也是SD和win掌机怎么选，不用steam的话是不是完全不用考虑deck了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  妄想中毒  
+##### 710#       发表于 2023-4-29 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662111&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-4-29 17:39</a>
+问一下，假如：
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">sd又不是不能刷win系统，我都是双系统随便切换
+
+
+*****
+
+####  圈量子  
+##### 711#       发表于 2023-4-30 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662386&amp;ptid=2086469" target="_blank">妄想中毒 发表于 2023-4-29 18:12</a>
+sd又不是不能刷win系统，我都是双系统随便切换</blockquote>
+所以sd最大优势就是便宜吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dududa  
+##### 712#       发表于 2023-4-30 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662111&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-04-29 17:39:25</a>
+问一下，假如：
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑） ...</blockquote>希望屏幕好不是直接pass了sd吗。话说单纯从上述要求来看的话，买win平板才最合适吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dududa  
+##### 713#       发表于 2023-4-30 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662111&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-04-29 17:39:25</a>
+问一下，假如：
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑） ...</blockquote>硬要买掌机就买5800u的win掌机吧，性能够用，现在市场价不比sd贵。当然你得确定真不玩那种耗性能的游戏
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  圈量子  
+##### 714#       发表于 2023-4-30 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60665857&amp;ptid=2086469" target="_blank">dududa 发表于 2023-4-30 00:43</a>
+希望屏幕好不是直接pass了sd吗。话说单纯从上述要求来看的话，买win平板才最合适吧
+
+  -- 来自 有消息提醒 ...</blockquote>
+其实已经有个surface go了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 还在考虑啦，谢谢回复
+
+
+*****
+
+####  硫黄  
+##### 715#       发表于 2023-4-30 02:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的SD最大的优势就是便宜
+
+
+*****
+
+####  泰坦失足  
+##### 716#       发表于 2023-4-30 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662111&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-4-29 17:39</a>
+
+问一下，假如：
+
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑） ...</blockquote>
+SD屏幕素质不高+机子不轻+对于AVG来说性能超标<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圈量子  
+##### 717#       发表于 2023-4-30 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60667177&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2023-4-30 09:42</a>
+SD屏幕素质不高+机子不轻+对于AVG来说性能超标</blockquote>
+确实，仔细想想还是surface go更黄油神器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lurenjia  
+##### 718#       发表于 2023-4-30 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662111&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-4-29 17:39</a>
+
+问一下，假如：
+
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑） ...</blockquote>
+这种技能要求不高，建议二手淘个 ayaneo air 之类的，很够用了
+
+
+*****
+
+####  navarra  
+##### 719#       发表于 2023-5-1 14:33
+
+780m只比680m强了那么一丢丢……rdna3架构纸面吹那么狠实际就那样……
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Fuero  
+##### 720#       发表于 2023-5-1 15:12
+
+ 本帖最后由 Fuero 于 2023-5-1 15:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60662111&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-4-29 17:39</a>
+
+问一下，假如：
+
+1. Steam商店是空的，要玩的PC游戏基本没上steam（或者上了和谐版并且没有补丁所以不考虑） ...</blockquote>
+不用steam的话体验会差一点，强行玩也可以，拖进去用steam运行
+
+玩avg的话触控板体验非常好
+
+<img src="https://img.saraba1st.com/forum/202305/01/150532bl1m1dtks1ltwzpk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/150538gqrmiufca9ttr9cp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/150555abnja2maxsvlzhjn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:05 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/150611k6yod9xgtokydcfm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (522.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:06 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/150706pq9a9if9yojfyyfb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:07 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/151237p75izzcvz5qpjtqu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:12 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/151510cruroze5g5gemx5o.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 15:15 上传
+
+
+*****
+
+####  圈量子  
+##### 721#       发表于 2023-5-1 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60685103&amp;ptid=2086469" target="_blank">Fuero 发表于 2023-5-1 15:12</a>
+不用steam的话体验会差一点，强行玩也可以，拖进去用steam运行
+
+玩avg的话触控板体验非常好</blockquote>
+看着不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">作为参考保存了
+
+
+*****
+
+####  Deay店长  
+##### 722#       发表于 2023-5-1 16:32
+
+<blockquote>navarra 发表于 2023-5-1 14:33
+780m只比680m强了那么一丢丢……rdna3架构纸面吹那么狠实际就那样……
+
+—— 来自 samsung SM-S9180, Andro ...</blockquote>
+刚公布就知道提升不大，可惜一群人不相信，还在幻想打1060
+
+
+*****
+
+####  九味小吃  
+##### 723#       发表于 2023-5-2 13:30
+
+我去，价格屠夫来了
+
+<img src="https://img.saraba1st.com/forum/202305/02/132952ansqeoqsuc58n5ym.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230502132907.png</strong> (173.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-2 13:29 上传
+
+<img src="https://img.saraba1st.com/forum/202305/02/132952faqaocz05rq727d5.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230502132902.jpg</strong> (210.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-2 13:29 上传
+
+
+*****
+
+####  Winder07  
+##### 724#       发表于 2023-5-2 13:37
+
+<blockquote>九味小吃 发表于 2023-5-2 13:30
+我去，价格屠夫来了</blockquote>
+我去，哪一家
+
+
+*****
+
+####  彩虹肥宅  
+##### 725#       发表于 2023-5-2 13:46
+
+2000是怎么做到的
+
+
+*****
+
+####  医生狼多  
+##### 726#       发表于 2023-5-2 14:20
+
+看起来是饼中饼而已……不过没找到群
+
+
+*****
+
+####  霖岚_  
+##### 727#       发表于 2023-5-2 16:23
+
+见识了，国内win掌机就这样直接把PPT拿出来宣传的？
+
+
+*****
+
+####  rak1  
+##### 728#       发表于 2023-5-2 16:36
+
+ 本帖最后由 rak1 于 2023-5-2 16:37 编辑 
+
+连概念图都懒得画，直接贴个CPU图真的难崩
+点进去看到图了，但总觉得很眼熟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  亚瑟摩根  
+##### 729#       发表于 2023-5-2 17:06
+
+香橙那个有渲染主机图
+
+不过说真的，这价格，确实屠夫了
+
+
+*****
+
+####  九味小吃  
+##### 730#       发表于 2023-5-2 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60696797&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2023-5-2 16:23</a>
+见识了，国内win掌机就这样直接把PPT拿出来宣传的？</blockquote>
+官方还没开始宣传呢，粉丝和自媒体在传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  九味小吃  
+##### 731#       发表于 2023-5-2 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60695204&amp;ptid=2086469" target="_blank">Winder07 发表于 2023-5-2 13:37</a>
+我去，哪一家</blockquote>
+香橙派，搞开发板的
+另外这机器渲染图用的是任天堂键位，作为PC掌机比较怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  droople  
+##### 732#       发表于 2023-5-2 18:05
+
+<blockquote>引用第730楼九味小吃于2023-05-02 18:00发表的  :
+
+引用:Winder07 发表于 2023-5-2 13:37我去，哪一家香橙派，搞开发板的另外这机器......</blockquote>
+@九味小吃
+
+它还有个rk3588版本
+
+----发送自 [Xiaomi 2211133G,Android 13](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Gmlazy  
+##### 733#       发表于 2023-5-4 10:22
+
+看新闻好像说steamdeck在今年3月份更新了一个和PC端互相传输游戏的更新..这个功能从哪儿使用呢？
+
