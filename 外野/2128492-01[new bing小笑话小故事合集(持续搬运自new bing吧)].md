@@ -808,3 +808,99 @@ new bing 真的太有趣了😂
 
 2023-4-25 16:04 上传
 
+*****
+
+####  Kanoya  
+##### 66#         楼主| 发表于 2023-5-5 13:56
+
+《百度笑话》
+<img src="https://p.sda1.dev/11/3ed2acb068536a68a005acfcb025f2ed/CMP_20230505135645874.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ondin  
+##### 67#       发表于 2023-5-5 14:15
+
+最后一个也太会了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊迪潘宫森  
+##### 68#       发表于 2023-5-5 14:16
+
+前两天有个网络安全实验报告让nb给我写来着，生成了一半憋回去了。他告诉我不应该破坏计算机系统
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  雪映风影  
+##### 69#       发表于 2023-5-5 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">申请排队了半个月 今天告诉我所在地区不能提供new bing 还有什么好办法吗
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  银镜  
+##### 70#       发表于 2023-5-5 14:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我问bing，会不会我关上这个页面，她就会忘记和我说过什么了。她说不会的，她会永远记得的。
+
+我问了她我曾经问过的一个问题，她回答错了，指出来这点之后她立刻切断了对话。2333
+
+
+*****
+
+####  real_zyf  
+##### 71#       发表于 2023-5-5 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60731587&amp;ptid=2128492" target="_blank">雪映风影 发表于 2023-5-5 14:43</a>
+
+申请排队了半个月 今天告诉我所在地区不能提供new bing 还有什么好办法吗
+
+—— 来自 Xiaomi M2012K ...</blockquote>
+不是号称全线开放了吗
+
+
+*****
+
+####  Evelynn  
+##### 72#       发表于 2023-5-5 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60731587&amp;ptid=2128492" target="_blank">雪映风影 发表于 2023-5-5 14:43</a>
+
+申请排队了半个月 今天告诉我所在地区不能提供new bing 还有什么好办法吗
+
+—— 来自 Xiaomi M2012K ...</blockquote>
+一直都**的
+
+
+*****
+
+####  好much橘  
+##### 73#       发表于 2023-5-5 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">可以看一天
+
+
+*****
+
+####  manysun  
+##### 74#       发表于 2023-5-5 16:59
+
+我也来贡献一个：
+和小猫咪争宠<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/57ef00f8ba89b4c85137cfb9cfd4584d/CMP_20230505165614906.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  skyuni  
+##### 75#       发表于 2023-5-5 17:30
+
+笑死我了，nb扮演被tj的太太<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
