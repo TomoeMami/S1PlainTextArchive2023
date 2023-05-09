@@ -1612,3 +1612,25 @@ Z1版本599.99美元，16 GB LPDDR5, 256 GB NVMe M.2 SSD。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">乐死，LOKI这**推特，最近还在嘲讽AYA
 
+*****
+
+####  医生狼多  
+##### 156#         楼主| 发表于 2023-5-6 12:14
+
+IT之家 5 月 6 日消息，网友发现华硕 ROG Ally 游戏掌机所搭载的 Ryzen Z1 和 Ryzen Z1 Extreme 处理器规格，和 AMD 近日发布的 Ryzen 7040U 系列处理器基本相似，尤其是 Ryzen 7 7840U 和 Ryzen Z1 Extreme 基本相同。
+
+IT之家翻译 AMD 公关经理 Matthew Hurwitz 的回应如下：
+
+Ryzen Z1 系列专为游戏掌机而设计的。
+
+AMD 工程师为了实现这个目标，验证全新的功率范围，并专门针对游戏场景优化了电压曲线。
+
+Ryzen 7040 系列和 Ryzen Z1 系列的技术构建模块（同样基于 Zen 4 和 RDNA 3）相似，但针对的是不同使用场景。此外 Ryzen Z1 系列不具备 XDNA AI 引擎
+
+*****
+
+####  彩虹肥宅  
+##### 157#       发表于 2023-5-6 14:35
+
+我把洛基退了，win掌机更新淘汰太快<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
