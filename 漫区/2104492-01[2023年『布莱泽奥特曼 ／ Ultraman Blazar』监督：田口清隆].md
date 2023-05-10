@@ -1838,3 +1838,68 @@ https://bbs.saraba1st.com/2b/thread-1770232-1-1.html</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">nmd，好急，怎么要七月
 
+*****
+
+####  Piano-Forest  
+##### 171#         楼主| 发表于 2023-5-5 18:43
+
+#布莱泽奥特曼# 主要演员名单公开!天才机械师板藤泰信由梶原飒饰演
+
+板藤泰信是特殊怪兽反应分遣队 “SKaRD ”的一名机械师好手，同时也是怪兽型巨大机器人 "阿斯加隆"的主驾驶员。梶原飒在学生时代曾接触过特型演员职业，后立志于成为专业演员，并在著名的体能竞赛节目中表现出色，多次获奖。最终他的健身能力超越了业余水准，并利用体能优势活跃在舞台、电影、电视剧中。
+
+板藤泰信（25岁）
+
+他是一名优秀的机械师，参与了特战兽 “阿斯加隆”的开发，是机器人的主要驾驶员。他的关西方言令人印象深刻。
+
+在被分配到SKaRD之前，他是地球防卫军运输机部队的飞行员。 他擅长维护武器和机械，并有一个秘密的爱好——为自己喜欢的机器命名。比如，他会爱称阿斯加隆为“阿君”。 有时他口无遮拦，但并不惹人嫌，是一个友好和受人喜爱的角色。他的另一个爱好是翻花绳。
+<img src="https://p.sda1.dev/11/7434f4f87d9841d2195a3c1420ebb13a/20230505131617.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/37fdc4f0952fa3edc25b2d5daec85887/20230505_183924.jpg" referrerpolicy="no-referrer">
+
+这身材……
+[https://twitter.com/kajikajihaya/status/1654431620680790016](https://twitter.com/kajikajihaya/status/1654431620680790016)
+
+趣味のレベルを超越した肉体美、身体能力💪
+[https://p.sda1.dev/11/d01286c1c7 ... 20230505_184112.jpg](https://p.sda1.dev/11/d01286c1c7868ee82d90b7cfa82ca2a7/20230505_184112.jpg)
+[https://p.sda1.dev/11/77bbd746fc ... 20230505_184208.jpg](https://p.sda1.dev/11/77bbd746fc45c8c8e86b22027f456105/20230505_184208.jpg)
+[https://p.sda1.dev/11/8ae28bc279 ... 20230505_184210.jpg](https://p.sda1.dev/11/8ae28bc2791b6c210ca78e73e6381824/20230505_184210.jpg)
+
+
+*****
+
+####  RainbowSealife  
+##### 172#       发表于 2023-5-5 18:53
+
+<img src="https://p.sda1.dev/11/77bbd746fc45c8c8e86b22027f456105/20230505_184208.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/05/185315d4kz4pdp4fufnpnh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-5 18:53 上传
+
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 173#       发表于 2023-5-6 10:59
+
+给怪兽一点小小的肌肉震撼
+
+
+*****
+
+####  Sokukei  
+##### 174#       发表于 2023-5-7 19:14
+
+什么筋肉防卫队
+
+
+*****
+
+####  布莱士·西伯利  
+##### 175#       发表于 2023-5-7 19:32
+
+哦~达令...
+
