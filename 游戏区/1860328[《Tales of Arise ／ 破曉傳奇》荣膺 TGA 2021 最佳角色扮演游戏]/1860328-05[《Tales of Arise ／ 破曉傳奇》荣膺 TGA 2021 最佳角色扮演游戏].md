@@ -238,3 +238,27 @@ boss可以是1代幸存的真雷纳星人跳反
 
 <img src="https://img.saraba1st.com/forum/202305/01/211639xwpsz6qzsd9hpssh.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  qiyu1234  
+##### 6218#       发表于 2023-5-7 14:02
+
+官方中文名 《破晓传奇——黎明新程》
+
+<img src="https://img.saraba1st.com/forum/202305/07/140253ad53sh71diztzmh6.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (295.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-7 14:02 上传
+
+*****
+
+####  宛若青空  
+##### 6219#       发表于 2023-5-7 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60757825&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-5-7 14:02</a>
+官方中文名 《破晓传奇——黎明新程》</blockquote>
+差不多该公布了吧…难道要拖到FES<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
