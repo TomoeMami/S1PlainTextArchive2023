@@ -1209,3 +1209,37 @@ saku上线
 
 卡姐的电台回活泼得像个小孩子
 
+*****
+
+####  喜闻乐见  
+##### 3131#         楼主| 发表于 2023-5-7 19:07
+
+ktv回
+
+搜索歌星  kino  无 
+
+这家不行啊
+
+
+*****
+
+####  ladiesman802  
+##### 3132#       发表于 2023-5-7 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60762295&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2023-5-7 19:07</a>
+
+ktv回
+
+搜索歌星  kino  无 
+
+这家不行啊</blockquote>
+3小时500多，sc都不够给房间费
+
+
+*****
+
+####  喜闻乐见  
+##### 3133#         楼主| 发表于 2023-5-7 22:24
+
+敏感spade 乐就完事儿
+
