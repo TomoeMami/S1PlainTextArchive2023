@@ -263,3 +263,62 @@ F1盘子上旋钮虽然比较松感觉也没那么好用不过起码是有了个
 
 想问下各位大佬，以前没玩过GT的想这作入坑可以么？难度大不？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  sonnetsun  
+##### 1747#       发表于 2023-5-7 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60664157&amp;ptid=2027972" target="_blank">葵 发表于 2023-4-29 21:04</a>
+想问下各位大佬，以前没玩过GT的想这作入坑可以么？难度大不？</blockquote>
+我以前没玩过赛车都直接上了，除了驾照以外谈不上难度很大
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sonnetsun  
+##### 1748#       发表于 2023-5-7 10:27
+
+连着好几天轮盘券roll到的都不是最低档，这个恶心人的傻逼系统终于改了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 1749#       发表于 2023-5-7 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60755633&amp;ptid=2027972" target="_blank">sonnetsun 发表于 2023-5-7 10:27</a>
+连着好几天轮盘券roll到的都不是最低档，这个恶心人的傻逼系统终于改了吗
+
+—— 来自 Xiaomi 221013 ...</blockquote>
+我看是你运气好，我这几天都是三四星
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  一个陆仁贾  
+##### 1750#       发表于 2023-5-7 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60664157&amp;ptid=2027972" target="_blank">葵 发表于 2023-4-29 21:04</a>
+想问下各位大佬，以前没玩过GT的想这作入坑可以么？难度大不？</blockquote>
+你玩这游戏是为了挑战自己的极限的话，那么单机部分的难迟早都不会难到你
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  sonnetsun  
+##### 1751#       发表于 2023-5-7 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60755676&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2023-5-7 10:32</a>
+我看是你运气好，我这几天都是三四星
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+券还是三四星的券，但是没roll到最少那个钱
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
