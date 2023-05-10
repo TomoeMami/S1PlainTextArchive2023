@@ -337,3 +337,24 @@ dlc的极限之龙，无插件就可以实现无限空连，全物理面板适�
 
 还tm是有料dlc，这游戏联机怕是人都搜不到
 
+*****
+
+####  kria  
+##### 831#       发表于 2023-5-7 16:40
+
+<img src="https://img.saraba1st.com/forum/202305/07/164013pk1kd9d31ee9fzoh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230507_163534_Chrome.jpg</strong> (326.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-7 16:40 上传
+
+
+*****
+
+####  ckseng  
+##### 832#       发表于 2023-5-7 22:52
+
+这风灵她肯定是全能机吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">居然还是有料DLC
+
