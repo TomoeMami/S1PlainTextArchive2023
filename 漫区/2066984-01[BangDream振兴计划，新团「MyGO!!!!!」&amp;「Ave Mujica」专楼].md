@@ -981,3 +981,10 @@ am现在公布这几首歌光是这鼓点 不找一个水平很好女鼓手说�
 问题是流行唱法也，反正那么多次呐喊没一次没事故</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">那是唱跳的问题，体力跟不上，纯站桩的唱歌肯定没有困难
 
+*****
+
+####  冰寒之月  
+##### 93#       发表于 2023-5-9 01:14
+
+ 神さま、バカ这首听着不怎么金属
+
