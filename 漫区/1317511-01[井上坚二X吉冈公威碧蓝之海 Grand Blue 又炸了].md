@@ -137,3 +137,12 @@
 
 实在没招了可以考虑让姐姐“下场”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  泥鳅化石  
+##### 1277#       发表于 2023-5-8 16:37
+
+新一话终于恢复了点初始的感觉。就是早期梓姐参加选美还是短发，这次回忆怎么变长发了？
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
