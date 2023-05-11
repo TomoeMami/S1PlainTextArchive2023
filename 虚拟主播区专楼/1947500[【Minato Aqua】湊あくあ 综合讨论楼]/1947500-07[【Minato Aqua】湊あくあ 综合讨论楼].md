@@ -306,3 +306,26 @@ mc里也要看no miss通关<img src="https://static.saraba1st.com/image/smiley/f
 
 说起来很久之前是不是说过做梦在动车上见到过佐仓绫音
 
+*****
+
+####  andeloz  
+##### 9332#       发表于 2023-5-5 13:40
+
+唉感觉也没有播爆
+
+
+*****
+
+####  zpy393  
+##### 9333#       发表于 2023-5-5 20:28
+
+虽然播的次数没增加，但是联动增加了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 9334#       发表于 2023-5-8 09:15
+
+感觉应该是二阳了，没想到日本二阳的来势也这么凶
+
