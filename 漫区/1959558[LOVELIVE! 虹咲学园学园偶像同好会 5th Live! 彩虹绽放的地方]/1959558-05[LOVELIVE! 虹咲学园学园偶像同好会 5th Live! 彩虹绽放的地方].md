@@ -5572,3 +5572,78 @@ as死在这时候是没什么体面了
 <img src="https://p.sda1.dev/11/18f52e103c8070552bf3de3fab827b7e/CMP_20230503083455814.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/11/08c7d79b1ab8ab83eb80fac726faf9a3/CMP_20230503083455904.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  ads147147  
+##### 7244#       发表于 2023-5-7 19:05
+
+6th决定了。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7245#       发表于 2023-5-7 22:35
+
+<img src="https://p.sda1.dev/11/0521ff86e5a4d5c3d8d247fd424b9aba/CMP_20230507223440756.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/df6f4d484f9fe9e49810b2389e3544f4/CMP_20230507223440837.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/fa8fbacc0b175b71fb24dd6357060c8c/CMP_20230507223440906.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/5a704205fffde7611ab66f73e895938e/CMP_20230507223440949.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/9f944dcb410b15fbf94450f0e5bc60bd/CMP_20230507223407823.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/d93aaf298c9fa29787c30f4c7c8723ee/CMP_20230507223407890.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7246#       发表于 2023-5-7 22:41
+
+<img src="https://p.sda1.dev/11/90fd56598cc2ae95870c0d5d227cad36/CMP_20230507224006002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f1e1ca93971ebc579c9826277d2f4f02/CMP_20230507224006041.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b14b71b4dd992f08ebe24058665c5d8d/CMP_20230507224006082.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/4700b36feab4b29adb6c000412b5b676/CMP_20230507223536325.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/4c265843783bb659a2134716db8f84e6/CMP_20230507223536405.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2dd390eef2ff882afd04b871de8d755c/CMP_20230507223536457.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/c726772a7987f360f9362b1fa3f0a615/CMP_20230507224047481.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 7247#       发表于 2023-5-7 22:44
+
+你侑哥哥难得打扮的漂漂亮亮
+
+*****
+
+####  仟音一心  
+##### 7248#       发表于 2023-5-7 22:56
+
+ヤダ的舞蹈终于见到了
+灯灯版像是小女生在任性撒娇，鼓子版就像是你敢说不接受那就殴打你，打到你接受为止。
+
+
+*****
+
+####  DarthAka  
+##### 7249#       发表于 2023-5-7 23:07
+
+林小姐跳挺好，下次别跳了，有6th就有新歌，旧歌留两首拿手的就得了
+
+
+*****
+
+####  仟音一心  
+##### 7250#       发表于 2023-5-8 19:38
+
+楠木灯新冠确诊
+
+
+*****
+
+####  DarthAka  
+##### 7251#       发表于 2023-5-8 20:07
+
+才首阳也挺不容易了
+
