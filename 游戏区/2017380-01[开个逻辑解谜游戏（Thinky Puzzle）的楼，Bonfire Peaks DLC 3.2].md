@@ -2106,3 +2106,17 @@ Can of Wormholes是解谜游戏设计新的教科书，在我心中已经超越�
 
 说起来有没有手机上能玩的优秀解谜游戏。感觉这种类型的游戏挺适合在碎片时间里玩一两关的。
 
+*****
+
+####  weiyun  
+##### 138#         楼主| 发表于 2023-5-8 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60719233&amp;ptid=2017380" target="_blank">本间日阳 发表于 2023-5-4 14:49</a>
+
+说起来有没有手机上能玩的优秀解谜游戏。感觉这种类型的游戏挺适合在碎片时间里玩一两关的。 ...</blockquote>
+Draknek的作品好几个都上了手机，apple arcade里面也有怪兽远征，可以试试。
+
+另外还有Jelly no Puzzle，play商店有，比pc版关卡多。
+
+还有Euclidea之类的几何类游戏，不是很算传统解谜了。
+

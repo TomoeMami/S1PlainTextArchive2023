@@ -986,3 +986,95 @@ pp1我记得还是慎也排cv第一位，现在已经是朱妹稳第一主角了
 这次应该也是EGOIST最后一次为PP唱ed了</blockquote>
 ryo罪大恶极
 
+*****
+
+####  meailove  
+##### 100#       发表于 2023-5-8 21:54
+
+看来如果这之后还有后续，主角也已经彻底换了
+
+*****
+
+####  nh_zzz  
+##### 96#       发表于 2023-5-8 21:02
+
+当事者动画mv放出，巨量新镜头可以分析，还有某人表情
+
+<img src="https://img.saraba1st.com/forum/202305/08/210123h8xbtv8mbt9x6yy8.png" referrerpolicy="no-referrer">
+
+<strong>S]~ZD@55650M@TIPR1[20~1.png</strong> (86.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202305/08/210141lupk89cten2n39a3.png" referrerpolicy="no-referrer">
+
+<strong>[DAZ_{X]PODG%{0{B{N%K.png</strong> (102.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202305/08/210151k2fftbk4jfkjo1bj.png" referrerpolicy="no-referrer">
+
+<strong>3])S67T1{R`{Z3](ASQNBA5.png</strong> (114.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 21:01 上传
+
+<img src="https://img.saraba1st.com/forum/202305/08/210202ovxzvvavzvb5vnvn.png" referrerpolicy="no-referrer">
+
+<strong>ZGFWO`4W~1O[6~FNXLRQ.png</strong> (51.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202305/08/210208gbsxzang1a888jon.png" referrerpolicy="no-referrer">
+
+<strong>6D3_W8)J{CH}OOB~[4XOTA2.png</strong> (131.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202305/08/210242h7rqb84v4mqbqmqq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 21:02 上传
+
+*****
+
+####  默读者  
+##### 97#       发表于 2023-5-8 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59782684&amp;ptid=2082057" target="_blank">nh_zzz 发表于 2023-2-17 13:50</a>
+居然把EGOIST奶到了
+微博统计[cp]到PP3的时间点(2120年)——
+狡啮 36岁</blockquote>
+整部剧里面最意难平得就是小星星好伐，真的是QAQ<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nh_zzz  
+##### 98#       发表于 2023-5-8 21:14
+
+塩谷直義監督に聞いた『劇場版 PSYCHO-PASS サイコパス PROVIDENCE』の制作秘話①
+[https://febri.jp/topics/psycho-pass_01_01/](https://febri.jp/topics/psycho-pass_01_01/)
+
+可能有剧透请选择性观看
+
+*****
+
+####  hkguty  
+##### 99#       发表于 2023-5-8 21:21
+
+虽然请到第一季原班人马过来唱OPED很感动，但EGOIST这新歌也太NM难听了
+
+
