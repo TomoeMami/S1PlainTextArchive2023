@@ -978,3 +978,45 @@ fes池来力，有白嫖10连，各位可以上线了<img src="https://static.sa
 就是那个隐退的ライカ・セフィル，
 [@nehon13](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=530143) 坛友知道吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  nehon13  
+##### 7147#       发表于 2023-5-10 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60702365&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-5-2 23:48</a>
+今天管人直播我才想起来，之前在楼里提到的玩百万的隐退管人妹子，转生的**小号好久没更新了，
+
+点进去看了 ...</blockquote>
+抱歉，刚看到
+确实是转生了
+https://youtube.com/@HitenSeiha
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  花开安菲路  
+##### 7148#       发表于 2023-5-10 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60801357&amp;ptid=1484979" target="_blank">nehon13 发表于 2023-5-10 16:56</a>
+
+抱歉，刚看到
+
+确实是转生了
+
+https://youtube.com/@HitenSeiha</blockquote>
+感谢感谢，加鹅，坛友信息获取能力太强了，我都不知道咋搜索。
+
+进频道看了下，这怎么又继续套皮当V了啊，新皮也不好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+其实我对V不讨厌，也算不上多喜欢，感觉她真人直播就挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7149#       发表于 2023-5-10 20:33
+
+还在继续玩百万，我就放心了，其它就不感兴趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
