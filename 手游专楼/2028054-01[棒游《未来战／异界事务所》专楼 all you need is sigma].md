@@ -969,3 +969,64 @@ pc端没游客选项吧
 试过了，还是一样锁商店，昨天回台服看了下，发现连台服都锁商店了</blockquote>
 你网不好 其他服不清楚 台服没锁商店，网络不好进不去
 
+*****
+
+####  rgauss  
+##### 909#         楼主| 发表于 2023-5-9 11:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">二期剧情要把一期剧情再通一遍 想起了不好的回忆
+
+
+*****
+
+####  rgauss  
+##### 910#         楼主| 发表于 2023-5-9 14:57
+
+ 本帖最后由 rgauss 于 2023-5-9 14:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一到七原家族剧情时间线就会出现特有的混乱
+战队长60年前被封印 管理失败大概40年前 中间不给人挖出来是吧 <img src="https://p.sda1.dev/11/1a0c6d978faa102332d2bb1e90405c6a/CMP_20230509145557394.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">早苗阿姨挥剑好帅 能出异格吗
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 911#         楼主| 发表于 2023-5-10 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想了想 这二期剧情比一期还看着头大 一期我好歹还能看南哥装个b乐一乐，二期别说南哥了，七原家族所有人全程挨打
+二期明面写千冬成长吧 但千冬还需要成长吗?一期不都写好了，为守护姐姐而存在的利刃，二期塑造出来感觉很憨批，感觉脑子里就只有姐姐。宿命这一线索更是看的人头疼  。
+七原家族 一个大家族的基地在房顶的槽点也很大。还有奈绪，我感觉剧情有句话写得好 矮冬瓜老太婆 战力不说五五开了 跟实验体互殴 四六开都没。
+千万别写三期了 求求了 我不想看写宿命了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  拍不到脑袋  
+##### 912#       发表于 2023-5-10 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我直接skip了，单纯对日本人这点破事没兴趣，更别说是韩国人写的
+
+
+*****
+
+####  yozoraxsx  
+##### 913#       发表于 2023-5-10 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实验体的立绘有点精致 感觉早晚进池子
+
+
+*****
+
+####  rgauss  
+##### 914#         楼主| 发表于 2023-5-11 12:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七原三期活动 实验体进池子
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
