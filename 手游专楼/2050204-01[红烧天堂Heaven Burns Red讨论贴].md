@@ -3689,3 +3689,846 @@ nga那里发的邀请码，没人填，只能来求助楼友了。39x2mnnzpngv2b
 
 跟楼wmieux7x5n6lxqyk 日服谢谢
 
+*****
+
+####  有这个可能  
+##### 1200#       发表于 2023-4-7 21:25
+
+忍者组太好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+相互救赎，天降（✔）幼驯染（？），信息差，甚至可能是有年龄差的同龄人<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">，这就是命中注定之人的含金量
+
+
+*****
+
+####  BrainDead  
+##### 1201#       发表于 2023-4-8 00:20
+
+Day1：
+
+哦豁，居然把之前的三次活动的剧情都串在一起，这次剧情说不定可以期待。
+
+螃蟹失忆突然刀到我了，绯雨又成被迫害对象。
+
+Day2：
+
+怎么又是“童年憧憬造就了现在的我”主题？美国队长、大岛屋不都是这一个套路？
+
+live插入的还是一样的生硬，情节之间的衔接看来是彻底放弃治疗了。
+
+螃蟹x魔法师的互动有点谐，美国队长人间之屑，管家恐怖如斯。
+
+Day3：
+
+神崎的童年还是太幸福了，和一帮互相比惨的选手在一起显得格格不入。
+
+与其说这期是忍者主役，不如说是麻里剧情补完。
+
+期待中的串连只是旧梗复用，麻里活动剧情重播看的我有点懵，当然各种CP复嗑也很香。
+
+我以为会通过“麻里与神崎的年龄差”推动主线剧情，结果丝毫没有提到这茬事，麻里也没有察觉到违和感。只能说过于都合。。
+
+
+*****
+
+####  有这个可能  
+##### 1202#       发表于 2023-4-8 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60369833&amp;ptid=2050204" target="_blank">BrainDead 发表于 2023-4-8 00:20</a>
+
+Day1：
+
+哦豁，居然把之前的三次活动的剧情都串在一起，这次剧情说不定可以期待。
+
+螃蟹失忆突然刀到我了，绯 ...</blockquote>
+麻里没有注意到年龄差是因为皮蛋人无视违和感的生存本能吧
+
+这期补丁打得挺好的，麻里之前那个活动到最后也是一种自卑状态，老妈的留言说穿了也就是摆了，但是阿黛在这期肯定了麻里过去的努力，给了一个正面得多的基调；另一个就是小不点活动的谜之共情，这次剧情也告诉你纯属个人行为
+反过来说之前这两活动拉到要打补丁才说得过去，尤其小不点打了两次补丁了
+
+
+*****
+
+####  xinfly  
+##### 1203#       发表于 2023-4-10 09:59
+
+问下，这个游戏现在还能入国际服的坑吗
+
+
+*****
+
+####  ardito  
+##### 1204#       发表于 2023-4-10 13:14
+
+直连是不是完全寄了，加速器安全吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1205#       发表于 2023-4-10 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60369833&amp;ptid=2050204" target="_blank">BrainDead 发表于 2023-4-8 00:20</a>
+Day1：
+
+哦豁，居然把之前的三次活动的剧情都串在一起，这次剧情说不定可以期待。
+
+螃蟹失忆突然刀到我了，绯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，看着麻里小时候也不大啊，怎么会认成大姐姐的
+
+
+*****
+
+####  废都刽子手  
+##### 1206#       发表于 2023-4-10 20:11
+
+这游戏是每次换端都要来一次继承提示吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  meailove  
+##### 1207#       发表于 2023-4-11 19:48
+
+贴吧最近有点乐啊，主吧直接禁止喊角色为LP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  z-hunter  
+##### 1208#       发表于 2023-4-11 21:24
+
+这次的活动剧情不是还可以嘛（其实活动剧情我只看过麻里和大岛家的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻里是不是一直都知道神崎就是那时救的小女孩？
+
+至于她俩的年龄差，这作品里好像所有角色都刻意没提年龄
+
+女仆和忍者这对是锁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麻里的忍者装真棒，可惜没石头抽
+
+
+*****
+
+####  xinfly  
+##### 1209#       发表于 2023-4-12 11:36
+
+问个问题ios港服，家里有软路由，如果开着代理就一直P403，只能手机用4g直连才能登录。
+
+不知道各位有没有碰到这种问题
+
+
+*****
+
+####  范坚强  
+##### 1210#       发表于 2023-4-12 15:37
+
+<blockquote>xinfly 发表于 2023-4-12 11:36
+问个问题ios港服，家里有软路由，如果开着代理就一直P403，只能手机用4g直连才能登录。
+
+不知道各位有没有碰 ...</blockquote>
+代理ip被黑名单了呗 换个冷门点的呗
+
+
+*****
+
+####  aucun  
+##### 1211#       发表于 2023-4-12 21:56
+
+ 本帖最后由 aucun 于 2023-4-12 21:59 编辑 
+
+贴吧看了一下，🐡味儿好冲。只能说繁中引流了一堆河豚小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+syl，玛丽好色<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  歪镜  
+##### 1212#       发表于 2023-4-13 22:46
+
+呃呃，在百合游戏骂河豚可还行
+
+
+*****
+
+####  歪镜  
+##### 1213#       发表于 2023-4-13 22:59
+
+<blockquote>aucun 发表于 2023-4-12 21:56
+贴吧看了一下，🐡味儿好冲。只能说繁中引流了一堆河豚小鬼
+
+syl，玛丽好色，可惜才补完孔明没 ...</blockquote>
+呃，作为一个百合游戏吧，现在绯染吧一堆根本没玩过游戏的lpg搁那儿引战，到你嘴里成“河豚味冲”了，脑子抽了吧你
+
+
+*****
+
+####  leitingkai  
+##### 1214#       发表于 2023-4-14 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60443173&amp;ptid=2050204" target="_blank">歪镜 发表于 2023-4-13 22:59</a>
+呃，作为一个百合游戏吧，现在绯染吧一堆根本没玩过游戏的反百魔怔人搁那儿引战，到你嘴里成“河豚味冲” ...</blockquote>
+他自己都是二月底才入坑的话说得和老玩家一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+到底晚来的被引流的这些是河豚小鬼还是啥他自己心里也有答案
+
+
+*****
+
+####  帝下室の年糕  
+##### 1215#       发表于 2023-4-14 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60447446&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-4-14 10:35</a>
+
+他自己都是二月底才入坑的话说得和老玩家一样
+
+到底晚来的被引流的这些是河豚小鬼还是啥他自己心里 ...</blockquote>
+又是久美子头像<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aucun  
+##### 1216#       发表于 2023-4-14 19:18
+
+经典查成分环节<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+我确实是开服第二周开始玩的，说我ylg到是也没问题。至于这游戏原住民或者说大部分玩家是那波人，看这楼前几页的成分就能看出来，同样繁中开服引流后跑去贴吧圈地的是那个群体很明显了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+额。。。另外楼上三位水魔红白楼的，蒜楼的河豚来团建了，我投降<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我闭嘴🤐润了
+
+
+*****
+
+####  槙圣司  
+##### 1217#       发表于 2023-4-15 07:55
+
+<blockquote>aucun 发表于 2023-4-14 19:18
+经典查成分环节
+
+我确实是开服第二周开始玩的，说我ylg到是也没问题。至于这游戏原住民或者说大部分 ...</blockquote>
+😄润前还要昭告天下，未免也太把自己当个东西了。
+
+
+*****
+
+####  HinataY  
+##### 1218#       发表于 2023-4-15 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60454680&amp;ptid=2050204" target="_blank">aucun 发表于 2023-4-14 19:18</a>
+
+经典查成分环节
+
+我确实是开服第二周开始玩的，说我ylg到是也没问题。至于这游戏原住民或者说大部分 ...</blockquote>
+嗯？倒是说说到底哪波人，翻了前三页，有手游玩家、单机玩家，水魔楼蒜楼也有，甚至有ａu原u，你倒是给我特定出一批啊
+
+
+*****
+
+####  leitingkai  
+##### 1219#       发表于 2023-4-15 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60454680&amp;ptid=2050204" target="_blank">aucun 发表于 2023-4-14 19:18</a>
+经典查成分环节
+我确实是开服第二周开始玩的，说我ylg到是也没问题。至于这游戏原住民或者说大部分 ...</blockquote>
+有没有可能你所谓的在贴吧圈地的人在繁中开服前就在hrb吧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他们就是最早的原住民
+
+ylg看谁都是ylg了，有点逆天
+就看了一下你在这个楼说的话也能成查成分了作为ylg还是挺心虚的
+
+最后告诉不爱思考的你，一片乌烟瘴气的那个吧是繁中吧，本吧hrb吧一片祥和
+而繁中吧乌烟瘴气是因为没有一个吧主被你这种ylg和不玩游戏的人狂暴鸿儒了
+
+这反而是证明了吧主把你这种ylg都杀了是正确的而不是圈地，不杀的话现在hrb吧也是繁中吧那个吊样了
+
+
+*****
+
+####  Skyline_R  
+##### 1220#       发表于 2023-4-15 23:13
+
+ 本帖最后由 Skyline_R 于 2023-4-15 23:22 编辑 
+
+所以说不看贴吧就屁事儿没有，不掺和无尽又无谓的抢地盘则眼不见为净，巴哈、NGA、各种群还不够逛的吗。自个儿爱咋玩就咋玩呗，别动不动把“圈子政治”的垃圾往外搬，又是打倒政敌、又是给己方话筒子摇旗呐喊，真是吃饱了撑着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真绯瑠之眷属  
+##### 1221#       发表于 2023-4-17 11:06
+
+贴吧吵这个，没想到这里还能吵一波，哎。明明喊lp和是白河豚也不会提高打分，各取所需就好了嘛，人总是要互相斗争
+
+
+*****
+
+####  pf67  
+##### 1222#       发表于 2023-4-19 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60399258&amp;ptid=2050204" target="_blank">ardito 发表于 2023-4-10 13:14</a>
+
+直连是不是完全寄了，加速器安全吗</blockquote>
+uu应该挺安全的
+
+
+*****
+
+####  歪镜  
+##### 1223#       发表于 2023-4-20 19:23
+
+一万多人在看直播，意外地不少啊
+
+
+*****
+
+####  forgetit  
+##### 1224#       发表于 2023-4-21 11:03
+
+等28日
+
+
+*****
+
+####  Wondering  
+##### 1225#       发表于 2023-4-23 15:32
+
+经典逆天久美子头像，我到底和几个久美子头像逆天对线过了，数不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  消毒液乐园  
+##### 1226#       发表于 2023-4-24 15:36
+
+。
+
+
+*****
+
+####  真绯瑠之眷属  
+##### 1227#       发表于 2023-4-27 09:10
+
+新的惠惠纯火辅啊，火队看上去又变强了
+
+
+*****
+
+####  forgetit  
+##### 1228#       发表于 2023-4-28 13:02
+
+来了
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1229#       发表于 2023-4-28 15:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">50%到65%就说是新时代的zone了，远远不够啊喂，什么时候把闪击阵端上来我才会信飞机社准备开始抬zone了
+
+
+*****
+
+####  pf67  
+##### 1230#       发表于 2023-4-29 00:23
+
+必得池子抽到了暗洛丽塔，有点爽啊，准备去冲一波火惠惠了
+
+
+*****
+
+####  pf67  
+##### 1231#       发表于 2023-4-30 02:15
+
+离谱，第一个10连就把惠惠和藏的up抽出来了，还附带一个圣诞螃蟹，还有s白河
+这游戏对我也太好了
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Alomes  
+##### 1232#       发表于 2023-4-30 09:06
+
+四章下迷宫太多了，有点顶不住了，我只想看剧情啊喂
+
+
+*****
+
+####  BrainDead  
+##### 1233#       发表于 2023-4-30 13:10
+
+玩到Day3，满眼都是写给Eva的情书，我搬一段自己视频的简介：
+
+“惠惠在Dome中的生活”简直与Eva终“真嗣在第三村的治愈精神创伤”的桥段如出一辙。前者在得知自己身世后怀疑人生，陷入深深的虚无之中；真嗣在目睹白毛爆头后也变得究极自闭，心之壁厚的简直要让AT力场溢出屏幕。
+
+我开始怀疑，这种情节设置是不是折射出日本人某种“民族精神”，在面对创伤时都选择相似的方式进行治愈。无论是麻子还是痞子，都让他们笔下的主角在自己曾经保护过的村庄中生活，在周围人们投射出的温柔下，慢慢消解心之壁。
+
+更进一步，惠惠和真嗣的经历和内心也惊人地相似：虽然肩负人类救世主的使命，但面对死亡威胁时还是会怯懦；虽然危急关头会挺身而出，但事后还是会陷入消极与恐惧；虽然拥有强大的能力，但仍然渴望他人的认可，这种渴望甚至成为活下去与敌人战斗的动力。
+
+
+*****
+
+####  Hemis  
+##### 1234#       发表于 2023-4-30 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推完了又没事做了
+
+除了个别几天基本是每天2迷宫的配置，3D迷宫则分别是三连和两连配置
+
+“还是钓鱼适合劳资”
+
+
+*****
+
+####  茶茶丸  
+##### 1235#       发表于 2023-5-1 15:19
+
+刚玩，求填日服招待码：bipxz5u3db4v4kre
+
+
+*****
+
+####  Skyline_R  
+##### 1236#       发表于 2023-5-1 22:29
+
+避难所里的人叫“xx专家”还是有点违和感，改叫“xx仙人”或许更适合霓虹金<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 1237#       发表于 2023-5-2 19:20
+
+第四章后写的挺好
+
+
+*****
+
+####  有这个可能  
+##### 1238#       发表于 2023-5-2 21:10
+
+4下迷宫也太折磨了，打小怪也要抛大，奶量要求高，基本没弱斩的，元素抗性还多变
+
+圣华羁绊4很乐，月歌真急了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+惠惠的剧情明明应该感动的，但是一想到神乐光附体就<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BrainDead  
+##### 1239#       发表于 2023-5-3 00:49
+
+赶在五一结束之前打完了，看了一眼录播，总时长21h。明天整理整理写成游玩体验再发上来。先趁记忆新鲜把论点都写下来（剧透反白）：
+
+道中体验极度吃屎，关底Boss过于拉跨（道中抗性混搭，除了恶心玩家没有任何作用；关底机制新颖，然而打完就这）意料之外的HE（本以为要死避难所NPC，因为没有出场机会了正好可以刀掉，再次就是惠惠和tama之间二选一。然而一个都没有死）惠惠灵能飞升，期待第五章揭开月歌的身世之谜（月歌没心没肺不像是会纠结过去的选手，看来要么是内心比我想象中的纤细，要么是有什么东西藏着掖着没透露给玩家）与Rumi的分别让我意难平（说好永远一起生活下去，但从今往后惠惠肯定会渐渐淡忘Rumi，而Rumi每天看电视还是会想起惠惠。希望以后的活动甚至主线里还能再见到她）与老妈分别的场景让我破防（是的，对我来说最大的泪点其实在这里。虽然情节一贯的麻氏都合，但是情绪调动起来了，杀伤力就是强大。个人期待继续深入讨论下去，比如无可奈何的遗忘与永远不会忘记的东西的冲突，现在这种留白有些遗憾）关底战斗剧情王道热血（没有刀子，展开就非常王道。惠惠降临的那一刻真是燃爆，而之后与tama重逢后的对话则让一切都圆满画上句号）惠惠得到如同Eva真嗣般的待遇，而tama剧情却很单薄（前者给了惠惠大量的内心描写，又安排了一整个疗养院式的避难所副本，可以大书特书麻子给痞子的一封情书；后者只有一个鸽子与主电脑的故事，撑不起tama这个主要角色）避难所生活的氛围感很不错，可以说是小SummerPocket（BGM、钓鱼场景、Rumi的陪伴、祭典、与NPC的羁绊，结合现实中五月微微的燥热，确实有内味了。五一短暂的休憩对应着避难所治愈心灵的闲适，而回归部队的小惆怅，也恰似即将回到工作岗位的烦闷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）其他细节、小槽点（麻氏段子；惯用造梗手法；宏观经典叙事结构，如Day7中场分割；key社劲歌金曲串烧；其他部队在后半程的助攻与塑造）
+
+
+*****
+
+####  maertz  
+##### 1240#       发表于 2023-5-3 19:07
+
+缓慢打到一半，鸽子剧情是真的无聊透顶，和电脑大量无意义的重复对话让人很烦躁
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  leitingkai  
+##### 1241#       发表于 2023-5-3 19:07
+
+4下挂机甚至被道中随机2个抗无大章鱼小怪干碎
+只能耻辱出门配了个aoe带属性的挂机队重进
+被红点干碎也就算了被随机野怪打死实在很难绷得住
+
+
+*****
+
+####  帝下室の年糕  
+##### 1242#       发表于 2023-5-4 05:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60709286&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-5-3 19:07</a>
+4下挂机甚至被道中随机2个抗无大章鱼小怪干碎
+只能耻辱出门配了个aoe带属性的挂机队重进
+被红点干碎也就算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+DAY14从12点开始打了一晚上，打完5点天亮了，猫叔到第几天了
+
+*****
+
+####  leitingkai  
+##### 1243#       发表于 2023-5-4 05:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60713732&amp;ptid=2050204" target="_blank">帝下室の年糕 发表于 2023-5-4 05:01</a>
+
+四下道中敢挂机我是没想到的，现在不都是群体大招一路轰过去了吗，还好我有1破的雷YUKI和松冈[f:0 ...</blockquote>
+机都不挂和咸鱼有什么区别 反正除了愚蠢的潜行图都没有能量槽 不死就没事
+
+带一个任意版本的tama带上原皮大招 就算挂破盾了也能修整过来
+
+而且虽然放在后台声音还是开着的 被打破盾能听到破盾语音
+
+
+*****
+
+####  帝下室の年糕  
+##### 1244#       发表于 2023-5-4 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60713742&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-5-4 05:18</a>
+机都不挂和咸鱼有什么区别 反正除了愚蠢的潜行图都没有能量槽 不死就没事
+
+带一个任意版本的tama带上原皮 ...</blockquote>
+这次的道中小怪不交至少一次双神的拐用群体大战还秒不掉吧，怎么做到挂机的，猫叔人均三破以上吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leitingkai  
+##### 1245#       发表于 2023-5-4 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60714007&amp;ptid=2050204" target="_blank">帝下室の年糕 发表于 2023-5-4 07:55</a>
+
+这次的道中小怪不交至少一次双神的拐用群体大战还秒不掉吧，怎么做到挂机的，猫叔人均三破以上吗 ...</blockquote>
+不出章鱼哥就可以挂 就是久一点
+
+*****
+
+####  帝下室の年糕  
+##### 1246#       发表于 2023-5-4 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60714097&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-5-4 08:13</a>
+不出章鱼哥就可以挂 就是久一点</blockquote>
+能看下怎么个队伍配置吗，我想抄一个<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  間桐櫻  
+##### 1247#       发表于 2023-5-4 08:20
+
+發現steam 上原來也有，想問一下現在入哪個服好
+
+
+*****
+
+####  leitingkai  
+##### 1248#       发表于 2023-5-4 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60714116&amp;ptid=2050204" target="_blank">帝下室の年糕 发表于 2023-5-4 08:15</a>
+
+能看下怎么个队伍配置吗，我想抄一个</blockquote>
+你都过了还抄什么 我带的魔法国tama 自动技能全体8sp回复 圣华自动技能8sp全体buff 李李自动技能6sp小加攻 其他就带会各种打击面的小aoe和大aoe的人 自动技能小aoe 不放有次数限制的技能 带个月城自动技能5sp 这样挂着机她还会攒指示物
+
+跑到精英红点就手动双神贴buff放大aoe秒了 遇到章鱼哥也一样 1个章鱼哥还好因为放的aoe都是带属性的 奶量也在它输出之上可以磨死
+
+但两个章鱼哥或者一个章鱼哥拖家带口就要灭团了。虽然我方获胜需要的攻击次数不变（因为自动攻击技能只勾了aoe所以打一个和打两个输出压力一样），但是对方输出太高了奶不过来
+
+不过只要你开了语音就可以听到角色被暴打的吐槽声 不至于真被打死人
+
+有人被破盾手动让tama放原皮大补一下 还有魔法国tama自己的大也是个小加攻所以用这个版本不用雷tama 不用理沙麻麻是因为不会复活
+
+
+*****
+
+####  帝下室の年糕  
+##### 1249#       发表于 2023-5-4 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60714271&amp;ptid=2050204" target="_blank">leitingkai 发表于 2023-5-4 08:39</a>
+你都过了还抄什么 我带的魔法国tama 自动技能全体8sp回复 圣华自动技能8sp全体buff 李李自动技能6sp小加攻 ...</blockquote>
+拓展下思路，说不定第五章还能继续用（做梦）<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Hemis  
+##### 1250#       发表于 2023-5-4 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60714143&amp;ptid=2050204" target="_blank">間桐櫻 发表于 2023-5-4 08:20</a>
+
+發現steam 上原來也有，想問一下現在入哪個服好</blockquote>
+现在基本没区别，就考虑下后续氪金汇率和服务器长久性的问题就行了
+
+
+*****
+
+####  pf67  
+##### 1251#       发表于 2023-5-5 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60700405&amp;ptid=2050204" target="_blank">有这个可能 发表于 2023-5-2 21:10</a>
+4下迷宫也太折磨了，打小怪也要抛大，奶量要求高，基本没弱斩的，元素抗性还多变
+
+圣华羁绊4很乐，月歌真急 ...</blockquote>
+我是用火队+月歌强行打的，主要是4妹一人拐全后排相当于2个圣华了，不愧是2.0版本
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  poor  
+##### 1252#       发表于 2023-5-5 02:43
+
+提升6围的隐藏剧情要怎么触发？我跟视频同一天进去没出现
+
+
+*****
+
+####  Hemis  
+##### 1253#       发表于 2023-5-5 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60726951&amp;ptid=2050204" target="_blank">poor 发表于 2023-5-5 02:43</a>
+
+提升6围的隐藏剧情要怎么触发？我跟视频同一天进去没出现</blockquote>
+看运气 有触发概率
+
+
+*****
+
+####  poor  
+##### 1254#       发表于 2023-5-5 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60727810&amp;ptid=2050204" target="_blank">Hemis 发表于 2023-5-5 09:10</a>
+
+看运气 有触发概率</blockquote>
+体力抗不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我还是看看视频拉倒了
+
+
+*****
+
+####  poor  
+##### 1255#       发表于 2023-5-5 15:57
+
+第一次体会到暗萝莉塔的恐怖，18W选手打97，两层暗加攻两层连击珠两层绝对现象，暗场，双先驱OD上不去只能一层普通减防一层加体力，想说打个DP也够了吧，结果直接拍死了
+
+
+*****
+
+####  人性的灯塔  
+##### 1256#       发表于 2023-5-5 16:15
+
+女仆AOI池子有点猛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/05/161443z86vg2h422e8ginh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-5 16:14 上传
+
+
+*****
+
+####  TheOccuria  
+##### 1257#       发表于 2023-5-5 16:29
+
+这游戏初始氪点钱能避免被杀吗，还是无论怎么搞都是看官方心情
+
+
+*****
+
+####  Hemis  
+##### 1258#       发表于 2023-5-5 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60732962&amp;ptid=2050204" target="_blank">TheOccuria 发表于 2023-5-5 16:29</a>
+
+这游戏初始氪点钱能避免被杀吗，还是无论怎么搞都是看官方心情</blockquote>
+隔壁的说法是不要在快更新前买初始氪金，要氪金比如当下这个时点就很好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+实际上可能是有氪金保号的说法，但也得注意号不是那种乱来程度很高的号（乱开修改啥的）
+
+当然以上只是建议，免责
+
+
+*****
+
+####  一里ぼっち  
+##### 1259#       发表于 2023-5-6 01:16
+
+这活动剧情最后感觉好突兀
+
+
+*****
+
+####  killng  
+##### 1260#       发表于 2023-5-6 01:32
+
+100抽掏空无UP，弃坑
+还有这日服登顶真是搞，所以四章下半的精湛剧情演出+严严实实的巫女服远远不如白虎活动粪剧情+aoi半走光白丝大长腿好卖是吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Skyline_R  
+##### 1261#       发表于 2023-5-6 03:00
+
+ 本帖最后由 Skyline_R 于 2023-5-6 03:02 编辑 
+
+新活动看完属实感觉拧巴
+
+除开CP发糖和aoi的回忆；剩下猫这条线，现实和理想的逻辑杂糅在一块儿，整体的观感就是胡闹瞎搞
+
+尤其单看“猫际关系”，出现了一个明显前后矛盾的漏洞：开头的群居（合作）和结尾排斥少主（不合作）
+
+如果因为天敌出现和稀释效应而群居，就没有理由拒绝一只年轻有力的雄猫，因为这有利于种族的延续。
+
+如果对同类表示拒绝合作，那么就没有群居的基础，开头这样的情况就不可能出现（参考现实中流浪猫的互相厮杀;甚至会杀死亲生的小猫）
+
+如果一定要出现“合作中的不合作”（族群把一头“孤猫”赶走），那么最好的理由是族群中的权力斗争。但游戏里这种又老又残的首领根本稳不住地位，大概率会变成被屠戮的。所以即使写成驱逐，也要换个像样的首领才能让这样的驱逐显得合理。
+
+但这次活动表现出来的，就是把这两种(或许)背道而驰的选项杂糅在了一起
+
+前面的大量篇幅，不愿意写那么多的自然选择、弱肉强食、权力争夺，而选择了理想的“猫性本善”；最后却选择了一个似乎很“符合动物天性”、很“现实”的结局
+
+（实际上也未必现实，许多人反映猫没有那么不记事；野化的猫也不可能没有单独狩猎的能力，就算死了，更合理的是因为反稀释效应死于cancer，而不是暴露在街上饿死）
+
+当然还有其它问题，比如从上帝视角看，送点肉干解决不了长久问题；甚至对言语不通的生物猜谜、把紧俏物资给猫吃了这些本身就很让人血压升高。不如把猫抓了送避难所粮仓去
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1262#       发表于 2023-5-6 06:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60738597&amp;ptid=2050204" target="_blank">killng 发表于 2023-5-6 01:32</a>
+100抽掏空无UP，弃坑
+还有这日服登顶真是搞，所以四章下半的精湛剧情演出+严严实实的巫女服远远不如白虎活 ...</blockquote>
+精湛的剧情演出×
+被主线难度折磨的死去活来的新玩家✓
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大伙还在卡主线呢
+
+
+*****
+
+####  帝下室の年糕  
+##### 1263#       发表于 2023-5-6 11:02
+
+麻子小号，又破防了，觉得自己果然写不来活动剧情，准备收拾心情乖乖回去继续写主线了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2f54731b19a19b1a15de63e6ac7dac98/CMP_20230506110101599.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2ffb60f9a6d91b4560728b2dd228c201/CMP_20230506110101706.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一里ぼっち  
+##### 1264#       发表于 2023-5-6 16:05
+
+活动剧情我觉得最大问题还是这结尾
+
+如果正常送回去然后就完了虽然也有各种槽点但还算中规中矩
+
+但非要硬拗一段悲剧结果搞得不伦不类把前面的观感也全败坏了
+
+*****
+
+####  meailove  
+##### 1265#       发表于 2023-5-6 16:52
+
+又删推了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eyeego  
+##### 1266#       发表于 2023-5-6 16:53
+
+智障猫失忆算是有伏笔的 只不过前面的剧情过于插科打诨以至于没人觉得大姐头跟美男子是真的智障<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且 如果这活动是为了纪念苍井的话 不是更应该给少主一个好结局了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一之江瑞江  
+##### 1267#       发表于 2023-5-6 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你一个欢乐向剧情写这么一个几把结尾 活该
+
+*****
+
+####  leitingkai  
+##### 1268#       发表于 2023-5-6 19:14
+
+四章下半精湛的剧情演出真的有很多人能打过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个游戏当初主线都因为过难下调过难度为什么还在重蹈覆辙啊！
+难道要重复这种出难主线然后下削难度的操作吗
+有强力角色的人抢先体验剧情，没强力角色的人后体验是吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+小怪坐牢塔诺西涅
+看不到的剧情就是没有，叫人怎么氪金，当然还不如抽aoi了
+
+*****
+
+####  poor  
+##### 1269#       发表于 2023-5-6 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60738597&amp;ptid=2050204" target="_blank">killng 发表于 2023-5-6 01:32</a>
+100抽掏空无UP，弃坑
+还有这日服登顶真是搞，所以四章下半的精湛剧情演出+严严实实的巫女服远远不如白虎活 ...</blockquote>
+但是你说的这两张卡其实跟剧情并没有什么关系，所以单纯看人气而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  废都刽子手  
+##### 1270#       发表于 2023-5-6 22:41
+
+麻子这套都和主义悲剧写不腻吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maertz  
+##### 1271#       发表于 2023-5-6 23:41
+
+谁要看猫聊天和不知所谓的日摇梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leitingkai  
+##### 1272#       发表于 2023-5-7 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">猫剧情全跳
+要不是听人说有很多贴贴整个剧情我都要全跳了
+对猫一点兴趣都没有
+你讲路人的故事也就算了为什么要讲路猫，讲路猫也就算了最后还弄个机械式的be太离谱了
+
+
+*****
+
+####  凡人  
+##### 1273#       发表于 2023-5-8 16:19
+
+就算换成半走光白丝大长腿惠惠和严严实实的巫女服aoi，登顶的池子也不会变。麻子这次我倒是觉得有进步了，至少看得出少主→娜比人→aoi，无人岛突出一个不知所谓。
+
+
+*****
+
+####  pf67  
+##### 1274#       发表于 2023-5-8 22:27
+
+这活动的标题就说了，猫善变，里面最正常最有能力和追求的少主反而最后得到个悲凉的结局，不过这次活动剧情最大问题在于没有给玩家进一步扩展的空间就戛然而止
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 1275#       发表于 2023-5-8 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60732962&amp;ptid=2050204" target="_blank">TheOccuria 发表于 2023-5-5 16:29</a>
+这游戏初始氪点钱能避免被杀吗，还是无论怎么搞都是看官方心情</blockquote>
+能的，但是充值和钱到位还有一段时间。
+
+有一定概率你刚刚冲了，那边还没受到就把你号扬了
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ardito  
+##### 1276#       发表于 2023-5-11 08:20
+
+忘了加速才发现又可以直连了，虽然影响不大
+
+模拟器玩洞穴逃跑绝赞恶心，飞机社你不会觉得你这个第三人称操作很有趣吧，能不能别搞了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+然后猫都能说话还不让白虎说话，看不起谁呢，啊？<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+往前翻几页又有屎壳郎，真滴是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
