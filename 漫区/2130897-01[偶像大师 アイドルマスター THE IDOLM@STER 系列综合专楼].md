@@ -2140,3 +2140,147 @@ VOY@GER和CG十周年动画还不算好活吗
 
 【【中字】偶像大师闪耀色彩 动画制作组对谈】 [https://www.bilibili.com/video/BV1zo4y1x7d2](https://www.bilibili.com/video/BV1zo4y1x7d2)
 
+*****
+
+####  Unlight  
+##### 210#         楼主| 发表于 2023-5-10 19:45
+
+对了，复活赛结束了吧，结果怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  花礫  
+##### 211#       发表于 2023-5-10 21:17
+
+ 本帖最后由 花礫 于 2023-5-10 21:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60803042&amp;ptid=2130897" target="_blank">Unlight 发表于 2023-5-10 19:45</a>
+对了，复活赛结束了吧，结果怎么样
+
+—— 来自 S1Fun</blockquote>
+风光大葬
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Unlight  
+##### 212#         楼主| 发表于 2023-5-10 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60804079&amp;ptid=2130897" target="_blank">花礫 发表于 2023-5-10 21:17</a>
+
+风光大葬
+
+—— 来自 S1Fun</blockquote>
+问的是灰灰总选举（
+
+*****
+
+####  Unlight  
+##### 213#         楼主| 发表于 2023-5-10 21:47
+
+星希成奏出院了，太好了
+<[img src="https://s1.ax1x.com/2023/05/10/p9r92fP.md.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花礫  
+##### 214#       发表于 2023-5-10 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60804386&amp;ptid=2130897" target="_blank">Unlight 发表于 2023-5-10 21:46</a>
+问的是灰灰总选举（</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还以为问的男人葬礼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  gajangmudohe  
+##### 215#       发表于 2023-5-10 22:06
+
+ 本帖最后由 gajangmudohe 于 2023-5-10 22:08 编辑 
+
+男人今日简报
+
+给之后的活动方式弄了个"MR CONNECTED Action！"的名头，一眼看出就是以MR为中心
+
+线下真人LIVE和朗读剧继续办，7月开始搞MR LIVE
+
+页游时代的剧情和漫画在官网有存档
+
+围绕CD、MR和LIVE制作新的剧情并通过官网发布，有的剧情可能要收费（大会员
+
+有新的CD企划
+
+音游剩下的3DMV跟之前一样通过官方频道公开
+
+说好听是波哥3.0的试验品，不好听那就是临终关怀
+
+FvxGgK_aYAE5rR1.jpg
+(152.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-10 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202305/10/220431o36e32t3cfcxrf7w.jpg" referrerpolicy="no-referrer">
+
+get.jpg
+(159.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-10 21:07 上传
+
+<img src="https://img.saraba1st.com/forum/202305/10/210740bd3v3vkjkwzbbjz4.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 216#         楼主| 发表于 2023-5-11 21:29
+
+<[img src="https://s1.ax1x.com/2023/05/11/p9s3JOg.jpg" referrerpolicy="no-referrer">
+
+今年看好谁呢，姐妹相残吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  权志龙  
+##### 217#       发表于 2023-5-11 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议把苹果妹推上去，完成改朝换代，顺便继续敲打一下梅泽女士
+
+*****
+
+####  Unlight  
+##### 218#         楼主| 发表于 2023-5-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60814968&amp;ptid=2130897" target="_blank">权志龙 发表于 2023-5-11 21:36</a>
+建议把苹果妹推上去，完成改朝换代，顺便继续敲打一下梅泽女士</blockquote>
+苹果C组第二，李阿姆D组第三，鲨鱼没进圈内<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kobushi  
+##### 219#       发表于 2023-5-11 21:48
+
+今年肯定志希啊……话说这届总选歌出来的时候都要24年了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  natmk  
+##### 220#       发表于 2023-5-11 22:00
+
+u149第6集志希人气又要上升一节了 拿下总选举应该没悬念了
+
