@@ -173,3 +173,96 @@ B漫有页面了，5.10卷更新
 卧槽，那阿B买这漫画又不更新是图啥啊</blockquote>
 已经有页面了，显示5.10上架，估计动画临近想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+*****
+
+####  瓦米里奥  
+##### 1056#       发表于 2023-5-10 12:14
+
+B漫已上架，暂时只有11话
+
+
+*****
+
+####  azbhg1  
+##### 1057#       发表于 2023-5-10 18:44
+
+这么久了还没法一次性上完吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  御坂MKII  
+##### 1058#       发表于 2023-5-11 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么是卷更新
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Vladimeow  
+##### 1059#       发表于 2023-5-11 15:33
+
+自从阿逼买了之后就没法看了，现在剧情发展到啥程度了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lasrotel  
+##### 1060#       发表于 2023-5-11 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60810804&amp;ptid=1047361" target="_blank">Vladimeow 发表于 2023-5-11 15:33</a>
+
+自从阿逼买了之后就没法看了，现在剧情发展到啥程度了</blockquote>
+总而言之可以用マンガワン这个app免费看生肉。一个月两更。
+
+*****
+
+####  Vladimeow  
+##### 1061#       发表于 2023-5-11 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60810819&amp;ptid=1047361" target="_blank">lasrotel 发表于 2023-5-11 15:34</a>
+总而言之可以用マンガワン这个app免费看生肉。一个月两更。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">谢指路 又得啃生肉了
+
+*****
+
+####  TR4835  
+##### 1062#       发表于 2023-5-11 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60810804&amp;ptid=1047361" target="_blank">Vladimeow 发表于 2023-5-11 15:33</a>
+自从阿逼买了之后就没法看了，现在剧情发展到啥程度了</blockquote>
+要进入简介写的据点防御了
+
+
+*****
+
+####  御坂MKII  
+##### 1063#       发表于 2023-5-11 15:42
+
+这次陨石下来的还是世界的意志吗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">怎么感觉是第二种大灾害，这个时间也太难了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  小黑鱼  
+##### 1064#       发表于 2023-5-11 16:02
+
+外星人怎么看都和世界意志不属于同一阵营<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过剧情这一暴走还有可能回归日常吗
+
+琥珀身上的FLAG插的都快赶上斩瞳的旗王了
+
+
+*****
+
+####  sakilin2013  
+##### 1065#       发表于 2023-5-12 16:15
+
+艹，这B漫终于上异剑战记了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
