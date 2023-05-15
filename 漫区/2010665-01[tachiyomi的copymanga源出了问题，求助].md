@@ -2440,3 +2440,20 @@ github的pr说是网站已关闭，然而并没有
 请问有maofly的平替吗？很多最新的更新我都是在maofly上看到的。
 比如黑礁，maofly更新到113
 
+*****
+
+####  linux40  
+##### 245#       发表于 2023-5-12 10:24
+
+有坛友知道被漫画柜ban ip后多久会恢复吗？以前没被ban还是我看得不够多。。。
+
+
+*****
+
+####  Gooddays  
+##### 246#       发表于 2023-5-12 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60819610&amp;ptid=2010665" target="_blank">linux40 发表于 2023-5-12 10:24</a>
+有坛友知道被漫画柜ban ip后多久会恢复吗？以前没被ban还是我看得不够多。。。 ...</blockquote>
+我曾被 ban 两次，大约一周便可以再用。
+

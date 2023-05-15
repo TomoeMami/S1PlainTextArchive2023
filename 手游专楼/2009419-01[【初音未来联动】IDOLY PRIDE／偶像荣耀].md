@@ -101,3 +101,28 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  liyropen  
+##### 767#       发表于 2023-5-11 19:40
+
+不用“P”的视角就能恋爱要素塞爆是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊布桑  
+##### 768#         楼主| 发表于 2023-5-11 20:33
+
+不得不说这想法很牛逼，只要偶像参与剧中剧就可以谈恋爱了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  sodah  
+##### 769#       发表于 2023-5-12 12:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点意思啊
+
