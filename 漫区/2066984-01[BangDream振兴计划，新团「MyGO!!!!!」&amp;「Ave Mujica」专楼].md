@@ -988,3 +988,61 @@ am现在公布这几首歌光是这鼓点 不找一个水平很好女鼓手说�
 
  神さま、バカ这首听着不怎么金属
 
+*****
+
+####  nh_zzz  
+##### 94#       发表于 2023-5-12 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60663871&amp;ptid=2066984" target="_blank">toshima 发表于 2023-4-29 20:28</a>
+那是唱跳的问题，体力跟不上，纯站桩的唱歌肯定没有困难</blockquote>
+她弹唱也一败涂地
+
+*****
+
+####  nh_zzz  
+##### 95#       发表于 2023-5-12 12:56
+
+ASL d3 MyGO参战<img src="https://p.sda1.dev/11/ac1aa606af45c7475ae04c0f8d0bcdd1/CMP_20230512125536706.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  星川铃音  
+##### 96#       发表于 2023-5-12 12:59
+
+Ave Mujica太对味了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  toshima  
+##### 97#       发表于 2023-5-12 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821945&amp;ptid=2066984" target="_blank">nh_zzz 发表于 2023-5-12 12:55</a>
+
+她弹唱也一败涂地</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">一败涂地还行，那你牛逼
+
+
+*****
+
+####  nh_zzz  
+##### 98#       发表于 2023-5-13 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60828169&amp;ptid=2066984" target="_blank">toshima 发表于 2023-5-12 22:48</a>
+
+一败涂地还行，那你牛逼</blockquote>
+因为她自己直播弹小飞都一直在笑场啊，小飞的歌各种意义上都不适合现阶段的她们
+
+
+*****
+
+####  toshima  
+##### 99#       发表于 2023-5-14 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60833749&amp;ptid=2066984" target="_blank">nh_zzz 发表于 2023-5-13 17:16</a>
+
+因为她自己直播弹小飞都一直在笑场啊，小飞的歌各种意义上都不适合现阶段的她们 ...</blockquote>
+我还想，青木作为邦邦这批人里唱歌最正的被你说成一塌糊涂，我还在思考你为啥会继续看这个企划。。。。
+
