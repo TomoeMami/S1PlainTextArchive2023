@@ -1634,3 +1634,1060 @@ Ryzen 7040 系列和 Ryzen Z1 系列的技术构建模块（同样基于 Zen 4 �
 
 我把洛基退了，win掌机更新淘汰太快<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+*****
+
+####  ultraseven  
+##### 158#       发表于 2023-5-11 12:14
+
+发布会10点开始
+<img src="https://pbs.twimg.com/media/FujZ-5qaUAEY5n0?format=jpg&amp;name=medium" height="418" id="aimg_sSR0v" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+**链接
+[https://www.youtube.com/watch?v=m_2L7xw_zGw](https://www.youtube.com/watch?v=m_2L7xw_zGw)
+
+*****
+
+####  liangjin2  
+##### 159#       发表于 2023-5-11 12:16
+
+多少钱？
+
+
+*****
+
+####  亚瑟摩根  
+##### 160#       发表于 2023-5-11 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60809068&amp;ptid=2127262" target="_blank">liangjin2 发表于 2023-5-11 12:16</a>
+
+多少钱？</blockquote>
+512g 699刀
+
+*****
+
+####  酷乐  
+##### 161#       发表于 2023-5-11 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60809068&amp;ptid=2127262" target="_blank">liangjin2 发表于 2023-5-11 12:16</a>
+
+多少钱？</blockquote>
+
+Z1E+16G+512G 799欧元
+
+
+*****
+
+####  schneehertz  
+##### 162#       发表于 2023-5-11 12:33
+
+果然还是华硕的定价，洗洗睡
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ultraseven  
+##### 163#       发表于 2023-5-11 22:18
+
+Z1 Extreme Best Buy 已可预购，售价和传闻一致 699.99美元
+[https://www.bestbuy.com/site/asus-rog-ally-7-120hz-fhd-1080p-gaming-handheld-amd-z1-extreme-processor-512gb-white/6542964.p?skuId=6542964](https://www.bestbuy.com/site/asus-rog-ally-7-120hz-fhd-1080p-gaming-handheld-amd-z1-extreme-processor-512gb-white/6542964.p?skuId=6542964) 
+
+*****
+
+####  医生狼多  
+##### 164#         楼主| 发表于 2023-5-11 22:22
+
+国内也发宣发了，应该有国行
+
+*****
+
+####  那由  
+##### 165#       发表于 2023-5-11 22:22
+
+<img src="https://img.saraba1st.com/forum/202305/11/222238s4nx6yb9lzbn6hux.png" referrerpolicy="no-referrer">
+
+<strong>SW`%YLPATCW1V_1{`ZLI49D.png</strong> (275.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-11 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202305/11/222242v24u8kio44koslll.png" referrerpolicy="no-referrer">
+
+<strong>Z~8IP9X(GUV9YW1F(S`1__Y.png</strong> (238.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-11 22:22 上传
+
+
+*****
+
+####  ultraseven  
+##### 166#       发表于 2023-5-11 22:25
+
+15W性能模式 续航两小时
+
+<img src="https://pbs.twimg.com/media/Fv2nQYFakAA82l1?format=jpg&amp;name=medium" height="450" id="aimg_Bz5nw" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+*****
+
+####  ultraseven  
+##### 167#       发表于 2023-5-11 22:32
+
+猪王发评测了
+
+[https://www.bilibili.com/video/BV1H24y1M7XP](https://www.bilibili.com/video/BV1H24y1M7XP)
+
+
+*****
+
+####  ultraseven  
+##### 168#       发表于 2023-5-11 22:47
+
+京东预约界面 [https://item.jd.com/100058658133.html](https://item.jd.com/100058658133.html)
+
+
+*****
+
+####  沧兰殇  
+##### 169#       发表于 2023-5-11 22:57
+
+699刀？国内要6999吧
+
+*****
+
+####  伊克路西安  
+##### 170#       发表于 2023-5-11 22:59
+
+sd的7w续航是不是有5小时来着<img src="https://p.sda1.dev/11/755a2723fa82939f079b1ddb23e50bbf/CMP_20230511225837884.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kingson  
+##### 171#       发表于 2023-5-11 23:00
+
+百思买对转运地址果然秒砍单，埃
+
+
+*****
+
+####  back57992  
+##### 172#       发表于 2023-5-11 23:23
+
+看了下评测 对比sd也就是cpu要求高的游戏有优势了，但这类游戏普遍都是模拟类或者unity独游，摇杆玩的话。。
+
+
+*****
+
+####  雪影  
+##### 173#       发表于 2023-5-11 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60816488&amp;ptid=2127262" target="_blank">back57992 发表于 2023-5-11 23:23</a>
+
+看了下评测 对比sd也就是cpu要求高的游戏有优势了，但这类游戏普遍都是模拟类或者unity独游，摇杆玩的话。 ...</blockquote>
+Ally最大的杀器是外接XG Mobile啊
+
+3080 8500~9000
+
+4090 14000
+
+*****
+
+####  雪影  
+##### 174#       发表于 2023-5-11 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60816138&amp;ptid=2127262" target="_blank">伊克路西安 发表于 2023-5-11 22:59</a>
+
+sd的7w续航是不是有5小时来着
+
+—— 来自 Xiaomi 21051182G, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+猪王这评测，隐藏太多了
+
+SD除了SOC TDP，还有整机功耗的设定，差距挺大的
+
+*****
+
+####  BallanceHZ  
+##### 175#       发表于 2023-5-11 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60816598&amp;ptid=2127262" target="_blank">雪影 发表于 2023-5-11 23:34</a>
+猪王这评测，隐藏太多了
+
+SD除了SOC TDP，还有整机功耗的设定，差距挺大的</blockquote>
+猪王这评测做的真不行，等隔壁极客湾吧
+
+
+*****
+
+####  qappip  
+##### 176#       发表于 2023-5-11 23:43
+
+我目前暂时得出结论就是 这是一台插电35w 1080p 性能约等于 牛子 15w 800p性能的机子。
+
+猪王评测支支吾吾的电池容量都没提，z1 芯片需要20w以上才能发挥性能，这和传言 7480 15w和6800u没拉开差距很像耶。 
+
+*****
+
+####  广东侠  
+##### 177#       发表于 2023-5-11 23:51
+
+机器本身没啥问题，还是rdna3太垃圾了，我的观点还是x86架构不适合做掌机，续航压根得不到保障
+
+
+*****
+
+####  伊克路西安  
+##### 178#       发表于 2023-5-12 00:03
+
+ 本帖最后由 伊克路西安 于 2023-5-12 00:08 编辑 
+
+看了下硬件茶谈的评测，虽然也有些藏着没说的，但是比猪王信息多不少。
+<img src="https://p.sda1.dev/11/a0ee7a8b9f7bc858e3100cbb3a182827/CMP_20230512000201510.jpg" referrerpolicy="no-referrer">
+15w模式下整机功耗大概25w，9w模式下玩2d独立游戏大概13-15w，玩gal大概10w，电池大家都是40瓦，续航肯定比sd还拉不少了，sd玩2d游戏时整机可以控制到6-7w吧
+等一手廉价版z1的评测，看看6核zen4+4cu的低功耗表现怎么样
+感觉1080p120hz的屏幕还是太鸡肋了，砍成900p60hz会好很多，rgb灯在这种续航吃紧的机器上则是毫无卵用
+
+—— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lighttt  
+##### 179#       发表于 2023-5-12 00:09
+
+极客湾也发视频了，明天再看👀
+
+
+*****
+
+####  鹿斗典善  
+##### 180#       发表于 2023-5-12 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">内部做工一塌糊涂，电池明明能再大一点的
+
+
+*****
+
+####  广东侠  
+##### 181#       发表于 2023-5-12 00:21
+
+如果能关核的话低功耗下续航会提升不小，等着看低配版的那个表现了
+
+
+*****
+
+####  BallanceHZ  
+##### 182#       发表于 2023-5-12 00:23
+
+极客湾评测已出，这种超低功耗场景8c真的负收益<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxasuka  
+##### 183#       发表于 2023-5-12 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60816970&amp;ptid=2127262" target="_blank">鹿斗典善 发表于 2023-5-12 00:17</a>
+内部做工一塌糊涂，电池明明能再大一点的</blockquote>
+重量吧……不过电池塞满如果800g能整机35w跑2小时3a其实挺香的
+
+
+*****
+
+####  ft5555  
+##### 184#       发表于 2023-5-12 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60817015&amp;ptid=2127262" target="_blank">BallanceHZ 发表于 2023-5-12 00:23</a>
+
+极客湾评测已出，这种超低功耗场景8c真的负收益</blockquote>
+asus 后续给bios加个开关核心功能完全是可能的。。。毕竟不是寨厂 有bios开发能力。
+
+*****
+
+####  dududa  
+##### 185#       发表于 2023-5-12 00:37
+
+这个rog ally目前看下来也就奥创se有点吸引力，硬件方面是真没什么惊喜，而且我觉得电池有点太小了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ft5555  
+##### 186#       发表于 2023-5-12 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60817070&amp;ptid=2127262" target="_blank">cxasuka 发表于 2023-5-12 00:31</a>
+
+重量吧……不过电池塞满如果800g能整机35w跑2小时3a其实挺香的</blockquote>
+也许考虑到了插电50w下的内部高温问题，让电池离cpu内存远点才这么设计
+
+
+*****
+
+####  伊克路西安  
+##### 187#       发表于 2023-5-12 00:46
+
+如果低配 8cu的话感觉比高配更有竞争力，现在4cu尬了些
+
+—— 来自 Xiaomi 21051182G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ddddhunter  
+##### 188#       发表于 2023-5-12 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">720p 30帧画质跑P5就坚持了俩小时出头，还不支持游戏待机恢复，看乐了，还是等下一代吧，这代只能插电当个小型本用
+
+
+*****
+
+####  ultraseven  
+##### 189#       发表于 2023-5-12 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60817170&amp;ptid=2127262" target="_blank">ddddhunter 发表于 2023-5-12 00:49</a>
+
+720p 30帧画质跑P5就坚持了俩小时出头，还不支持游戏待机恢复，看乐了，还是等下一代吧，这代只能插 ...</blockquote>
+猪王视频里不是3小时-5分钟吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ffmzsj  
+##### 190#       发表于 2023-5-12 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60816855&amp;ptid=2127262" target="_blank">伊克路西安 发表于 2023-5-12 00:03</a>
+
+看了下硬件茶谈的评测，虽然也有些藏着没说的，但是比猪王信息多不少。
+
+15w模式下整机功耗大概25w，9w模式 ...</blockquote>
+周边功耗这么高的吗 超过ns掌机整机功耗了吧
+
+
+*****
+
+####  allenz3  
+##### 191#       发表于 2023-5-12 01:25
+
+真不怎么样，没比寨厂强
+
+
+*****
+
+####  a9okalypse  
+##### 192#       发表于 2023-5-12 01:39
+
+出个32G版本799我敢买来当笔记本用
+
+
+*****
+
+####  lucky95  
+##### 193#       发表于 2023-5-12 02:34
+
+ 本帖最后由 lucky95 于 2023-5-12 02:38 编辑 
+
+https://youtu.be/qLVgr29NMA0
+感觉这么多评测只有白嫖王敢和sd比低功耗性能，逼站的都遮遮掩掩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+15w比sd强10-20%
+一到10w就被薄纱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+插电才能25w真男人有机会薄纱sd
+
+买这种掌机真的那么喜欢插电玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  lucky95  
+##### 194#       发表于 2023-5-12 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60816855&amp;ptid=2127262" target="_blank">伊克路西安 发表于 2023-5-12 00:03</a>
+看了下硬件茶谈的评测，虽然也有些藏着没说的，但是比猪王信息多不少。
+
+15w模式下整机功耗大概25w，9w模式 ...</blockquote>
+10w下功耗z1e比sd差一半，再加win外围这些有的没的，续航sd起码能比ally好1.5倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+发货前打人硕肯定通知能拿测评机的媒体别和sd比续航，现在只能等发货后出来的对比评测了，看能寄多少
+
+反正SD yyds跑不掉，能打赢sd的只有sd2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  unbalanced  
+##### 195#       发表于 2023-5-12 04:02
+
+看了白嫖王视频,总体还是比牛子强的,预订了
+
+
+*****
+
+####  Re.Troy  
+##### 196#       发表于 2023-5-12 04:36
+
+下单了，sd屏幕还是太辣眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  weare17k  
+##### 197#       发表于 2023-5-12 06:25
+
+不支持待机恢复是个什么概念呢，没用过win掌机，但一般win笔记本不是也能休眠再启动吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  rak1  
+##### 198#       发表于 2023-5-12 06:55
+
+这续航真的拉中拉，当潮玩吸引3分钟热度的路人或许是条路。
+
+
+*****
+
+####  霖岚_  
+##### 199#       发表于 2023-5-12 07:57
+
+所以我一直没懂为啥电量吃紧的玩意还非要跑个RGB灯到底是什么奇怪审美……更别说为了减少重量又舍不得加大电池容量这种脱裤子放屁的举措，老老实实跟SD那样平平淡淡就是真的理工男设计不好吗
+
+
+*****
+
+####  黄字  
+##### 200#       发表于 2023-5-12 08:21
+
+因为ro**品线这两年就是要做轻薄，以前超神系列的砖头本和台北展过的航空母舰也不出了，高端硬怼冰刃系列，然后主推幻，这个扩展坞也是幻系列配剩下的。不过我肯定要买，符合我这个rog韭菜上班插电上床稍微玩玩近距离掌机的需求。
+
+
+*****
+
+####  back57992  
+##### 201#       发表于 2023-5-12 09:02
+
+拆开后真的不好看 相比SD那种满满当当的挺爽  而且触摸板是刚需
+
+
+*****
+
+####  BallanceHZ  
+##### 202#       发表于 2023-5-12 09:04
+
+所以g胖啥时候能出个优化版sd，要求不高屏幕换了就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 203#       发表于 2023-5-12 09:09
+
+感觉…没啥意外，SD的steamos和那两块触摸板用处太大了，你的下台SD还得是SD
+
+
+*****
+
+####  lucky95  
+##### 204#       发表于 2023-5-12 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60818576&amp;ptid=2127262" target="_blank">BallanceHZ 发表于 2023-5-12 09:04</a>
+所以g胖啥时候能出个优化版sd，要求不高屏幕换了就行</blockquote>
+紧跟任地狱的脚步，所以自己猜<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+— from Lenovo TB-9707F, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  lucky95  
+##### 205#       发表于 2023-5-12 10:10
+
+主要还是没魄力和按摩店定制芯片，g胖估计订了起码1000W颗按摩店才肯出一款专门优化超低功耗的soc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然代价是牛年马月才能卖完，最新的新闻才卖了300W台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Lenovo TB-9707F, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  peshing  
+##### 206#       发表于 2023-5-12 10:14
+
+win就不适合做掌机吧
+
+*****
+
+####  BallanceHZ  
+##### 207#       发表于 2023-5-12 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60819381&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 10:10</a>
+主要还是没魄力和按摩店定制芯片，g胖估计订了起码1000W颗按摩店才肯出一款专门优化超低功耗的soc
+
+ ...</blockquote>
+van gogh是苹果测试过的剩饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  keytomylife  
+##### 208#       发表于 2023-5-12 10:31
+
+ 本帖最后由 keytomylife 于 2023-5-12 10:32 编辑 
+
+等ASUS出关核BIOS，锁4C8T再来比吧
+
+
+*****
+
+####  广东侠  
+##### 209#       发表于 2023-5-12 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60817572&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 02:49</a>
+
+10w下功耗z1e比sd差一半，再加win外围这些有的没的，续航sd起码能比ally好1.5倍
+
+发货前打人硕肯 ...</blockquote>
+锁核心续航吊打sd没压力，八大核比超低功耗场景本来就不太公平
+
+
+*****
+
+####  lucky95  
+##### 210#       发表于 2023-5-12 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60819554&amp;ptid=2127262" target="_blank">BallanceHZ 发表于 2023-5-12 10:20</a>
+
+sd那颗van gogh是苹果测试过的剩饭，g胖其实是接盘侠
+
+以下2020的报道</blockquote>
+剩饭要接盘也要下大单的，寨厂台巴子这堆连接盘的资格都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ddddhunter  
+##### 211#       发表于 2023-5-12 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60819381&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 10:10</a>
+
+主要还是没魄力和按摩店定制芯片，g胖估计订了起码1000W颗按摩店才肯出一款专门优化超低功耗的soc
+
+ ...</blockquote>
+听说100W订单amd就接定制了，这种定制都是同架构的，也不用重新设计太多东西，其他家卖100W的魄力都没的
+
+*****
+
+####  lucky95  
+##### 212#       发表于 2023-5-12 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60819762&amp;ptid=2127262" target="_blank">广东侠 发表于 2023-5-12 10:33</a>
+
+锁核心续航吊打sd没压力，八大核比超低功耗场景本来就不太公平</blockquote>
+只能先贷款未来可期来扭转1-1.5倍的差距<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+掌机就这半点电池不讨论低功耗场景的使用要讨论什么，难道这么爱插电玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dududa  
+##### 213#       发表于 2023-5-12 10:57
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ultraseven  
+##### 214#       发表于 2023-5-12 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+对不支持手柄的游戏有奇效，比如之前那个国产游戏逸剑风云决。
+
+但触摸板有时会有奇怪的不响应bug，只能直接用触摸屏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lucky95  
+##### 215#       发表于 2023-5-12 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820064&amp;ptid=2127262" target="_blank">ddddhunter 发表于 2023-5-12 10:52</a>
+
+听说100W订单amd就接定制了，这种定制都是同架构的，也不用重新设计太多东西，其他家卖100W的魄力都没的 ...</blockquote>
+寨厂台厂当电脑卖，准备有新的U就更新，所以根本没办法下100w的单
+
+g胖是在做主机，大量贱价卖，只求推出去
+
+这世道也只有苹果下场才能拿出吊打sd低功耗性能的机器了，但苹果不会做，做出来应该没人想买<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rushtime33  
+##### 216#       发表于 2023-5-12 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+桌面模式操作，原生不支持手柄的慢节奏老游戏。
+
+*****
+
+####  黄字  
+##### 217#       发表于 2023-5-12 11:15
+
+tony虽然评测视频里说未来会更新锁核心，但是asus更bios也不算很快，是有大厂通病的。我觉得任何在意续航和插电的都不需要继续看这台主机了。
+
+*****
+
+####  Winder07  
+##### 218#       发表于 2023-5-12 11:18
+
+续航看着少20-30分钟，实际少了五分之一到四分之一，还是影响很大的
+
+
+*****
+
+####  泰坦失足  
+##### 219#       发表于 2023-5-12 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+红警2/红警3<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，然后浏览器也很方便
+
+
+*****
+
+####  Sayuki1025  
+##### 220#       发表于 2023-5-12 11:39
+
+sd 现在相当于 index了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+不这样看 2代一时半会出不来了
+
+—— 来自 OnePlus GM1910, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  广东侠  
+##### 221#       发表于 2023-5-12 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820072&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 10:53</a>
+
+只能先贷款未来可期来扭转1-1.5倍的差距
+
+掌机就这半点电池不讨论低功耗场景的使用要讨论什么，难 ...</blockquote>
+我没太看懂你在说什么，7840u制程架构全面领先sd，zen4 rdna3 台积电4nm，之所以续航不好看是因为多核心在超低功耗下天生的能耗比劣势，把7840u关掉四个核心同规格对比续航碾压sd没什么压力
+
+*****
+
+####  indtability  
+##### 222#       发表于 2023-5-12 11:48
+
+千万太夸张了，g胖自己说只打算卖百万的。
+
+看了下 ltt 和 the verge 的测评，还是拉跨，尤其 the verge 几乎一半都在说缺点，再对比下国内测评，都是一个甲方，这就是橘生淮南淮北的区别吗。
+
+the verge 在一个搜索引擎上收录的标题是 close but no steam deck，点进去标题就变成了 its time to stop pretending windows is the answer，态度很明显，跟我的看法也差不多，文章甚至还下了个暴论，在这种掌机上能玩的游戏甚至比 sd 还要少，见仁见智吧。
+
+哪怕 asus 这种大厂，软件体验和 sd 比都像是半成品，也不枉 valve 多年积累，不过也不难理解，asus 就一硬件厂，软件再好也没钱分。我记得 valve 之前说过，说他们突然发现他们处于一个非常合适的位置来做这件事，现在看来这话不假，做过硬件，但比其他硬件厂多了对游戏和系统的积累，背靠游戏平台，又没有索尼微软那样的大公司包袱，卖出百万就能开香槟。
+感觉 rog ally 终究只是面向硬件发烧友，sd 的竞争对手大概只有下一代 sd 了。
+
+—— 来自 Xiaomi M2012K11AG, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  伊克路西安  
+##### 223#       发表于 2023-5-12 11:52
+
+可是下一代sd还要等多久？2026？
+
+—— 来自 motorola moto g(100), Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  lucky95  
+##### 224#       发表于 2023-5-12 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821014&amp;ptid=2127262" target="_blank">indtability 发表于 2023-5-12 11:48</a>
+
+千万太夸张了，g胖自己说只打算卖百万的。
+
+看了下 ltt 和 the verge 的测评，还是拉跨，尤其 the verge 几 ...</blockquote>
+连极客湾这种靠黑恰流量的都不敢碰ally的续航和体验，逼站的自媒体娱乐性是高，参考性十分有限<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 225#       发表于 2023-5-12 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821169&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 11:59</a>
+连极客湾这种靠黑恰流量的都不敢碰ally的续航和体验，逼站的自媒体娱乐性是高，参考性十分有限 ...</blockquote>
+asus国内势力可比qualcomm大多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  4ckc  
+##### 226#       发表于 2023-5-12 12:07
+
+那么现在是直接把手上的sp7换成gpdwinmax2好还是不换直接加钱买个sd好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qappip  
+##### 227#       发表于 2023-5-12 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820240&amp;ptid=2127262" target="_blank">ultraseven 发表于 2023-5-12 11:04</a>
+
+对不支持手柄的游戏有奇效，比如之前那个国产游戏逸剑风云决。
+
+但触摸板有时会有奇怪的不响应bug，只能 ...</blockquote>
+桌面模式不响应你要看看 steam有没有启动。
+
+*****
+
+####  德德德德德古拉  
+##### 228#       发表于 2023-5-12 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+自定义触摸菜单，玩RPG有奇效
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qappip  
+##### 229#       发表于 2023-5-12 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+玩不支持手柄游戏很方便，而且触摸板浏览网页怎么也比蠢到爆的摇杆模拟鼠标强一亿倍。
+
+*****
+
+####  back57992  
+##### 230#       发表于 2023-5-12 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+你试下就知道了 SD的触摸板超好用的 自定义范围也非常广 。打个比方  FPS转视角就比摇杆好用，最近特别喜欢玩的肉鸽风暴之城  用摇杆几乎没法玩  但触摸板加上自定义按键  稍微折腾下不比鼠标难用。
+
+
+*****
+
+####  back57992  
+##### 231#       发表于 2023-5-12 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821014&amp;ptid=2127262" target="_blank">indtability 发表于 2023-5-12 11:48</a>
+
+千万太夸张了，g胖自己说只打算卖百万的。
+
+看了下 ltt 和 the verge 的测评，还是拉跨，尤其 the verge 几 ...</blockquote>
+同感，就论掌机体验，WIN一键待机就是个摆设，少个触摸板也很多游戏不能爽玩，我都能举一堆例子出来，如果不能锁核心的话掌机不插电就别想了。   
+
+但。。。这东西对国产WIN掌机应该是非常有竞争力的。。价格甚至感觉还要低？。。。
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 232#       发表于 2023-5-12 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821289&amp;ptid=2127262" target="_blank">4ckc 发表于 2023-5-12 12:07</a>
+
+那么现在是直接把手上的sp7换成gpdwinmax2好还是不换直接加钱买个sd好
+
+—— 来自 S1Fun ...</blockquote>
+二手区三天两头就有卖SD的，而且一堆收了两三天就出掉的，自己试试花不了几个钱。
+
+
+*****
+
+####  unbalanced  
+##### 233#       发表于 2023-5-12 12:56
+
+<blockquote>lucky95 发表于 2023-5-12 10:10
+主要还是没魄力和按摩店定制芯片，g胖估计订了起码1000W颗按摩店才肯出一款专门优化超低功耗的soc
+
+ ...</blockquote>
+1000w怎么可能，g胖又不是石乐志。。。
+
+
+*****
+
+####  朔方原的星  
+##### 234#       发表于 2023-5-12 13:10
+
+ 本帖最后由 朔方原的星 于 2023-5-12 13:11 编辑 
+
+看评测感想就是有存在意义，但不多，氦得是蒸汽牛子
+
+
+*****
+
+####  ultraseven  
+##### 235#       发表于 2023-5-12 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821400&amp;ptid=2127262" target="_blank">qappip 发表于 2023-5-12 12:14</a>
+
+桌面模式不响应你要看看 steam有没有启动。</blockquote>
+桌面模式没问题，是游戏模式打开Heroic Games Launcher触摸板不响应
+
+*****
+
+####  lucky95  
+##### 236#       发表于 2023-5-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821954&amp;ptid=2127262" target="_blank">unbalanced 发表于 2023-5-12 12:56</a>
+1000w怎么可能，g胖又不是石乐志。。。</blockquote>
+已经300W了，学switch同样的芯片卖个十年有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  dududa  
+##### 237#       发表于 2023-5-12 13:45
+
+借楼问一下，win掌机用tf卡和sd用tf卡效果一样吗，我听说因为用的文件系统不一样，sd读取tf卡的效率更高？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  cuchulain2021  
+##### 238#       发表于 2023-5-12 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60822327&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 13:28</a>
+已经300W了，学switch同样的芯片卖个十年有机会的
+
+— from Nothing A063, Android 13 of S1 Next ...</blockquote>
+是预计年底销量过300万。。。现在销量也就100多万
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  83913536  
+##### 239#       发表于 2023-5-12 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60818576&amp;ptid=2127262" target="_blank">BallanceHZ 发表于 2023-5-12 09:04</a>
+
+所以g胖啥时候能出个优化版sd，要求不高屏幕换了就行</blockquote>
+换OLED屏吧，要求不高就Switch那块就好了
+
+*****
+
+####  qianoooo  
+##### 240#       发表于 2023-5-12 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821071&amp;ptid=2127262" target="_blank">伊克路西安 发表于 2023-5-12 11:52</a>
+
+可是下一代sd还要等多久？2026？
+
+—— 来自 motorola moto g(100), Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+会出个改屏幕的新版 但是底层配置不换
+
+
+*****
+
+####  Acerola  
+##### 241#       发表于 2023-5-12 14:23
+
+硬件茶谈说是量产版已经能够关核了，关核后感觉续航应该能和sd差不太多
+
+
+*****
+
+####  Winder07  
+##### 242#       发表于 2023-5-12 15:21
+
+我再win3上用一键关机效果挺好的啊，每再次进去也就多一道win的用户登录，进去就可以直接玩了，没发现什么问题
+
+
+*****
+
+####  bypass  
+##### 243#       发表于 2023-5-12 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+【Steam Deck 使用左右触摸板游玩《仙剑奇侠传四》】 [https://www.bilibili.com/video/B ... da8bea0fc9b6b5d76a0](https://www.bilibili.com/video/BV1Tg4y1L7iQ/?share_source=copy_web&amp;vd_source=78784e7658f4fda8bea0fc9b6b5d76a0)
+
+我用来干这事。
+
+
+*****
+
+####  Re.Troy  
+##### 244#       发表于 2023-5-12 16:35
+
+sd的待机唤醒之后也是时常会破音到最后还是得重启游戏
+
+*****
+
+####  eternity0079  
+##### 245#       发表于 2023-5-12 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60819437&amp;ptid=2127262" target="_blank">peshing 发表于 2023-5-12 10:14</a>
+
+win就不适合做掌机吧</blockquote>
+关键点在于屏幕小，看着确实有点费眼，至少6、7寸屏是比较难受的，触摸屏操作也凑合，少数一些地方需要用鼠标点击的话略蛋疼。
+
+steam开大屏模式后，显示和操作我觉得还挺好，说白了就是缺乏移动版windows支持，很久前用win8平板操作上也算顺手，win11目前没动静。
+
+
+*****
+
+####  lasrotel  
+##### 246#       发表于 2023-5-12 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60820140&amp;ptid=2127262" target="_blank">dududa 发表于 2023-5-12 10:57</a>
+我其实比较好奇说sd触摸板是刚需的一般用触摸板干什么？拿来当鼠标滑来滑去手不酸嘛
+
+  -- 来自 有消息提醒 ...</blockquote>
+把按钮映射到触碰触摸板，比按按钮省力还灵敏。
+
+
+*****
+
+####  leavan  
+##### 247#       发表于 2023-5-12 17:05
+
+是我想要的掌机，什么功耗从来不在乎，没有内置电池更好，switch也是从来没带出去过，都是插电葛优躺着玩，主打一个舒服
+
+
+*****
+
+####  unbalanced  
+##### 248#       发表于 2023-5-12 17:34
+
+<blockquote>lucky95 发表于 2023-5-12 13:28
+已经300W了，学switch同样的芯片卖个十年有机会的
+
+— from Nothing A063, Android 13 of S1 Next ...</blockquote>
+别闹，牛子出来之前pc掌机才多大体量，g胖之前硬件才多大销量。switch本身有任地狱无敌第一方才敢这么玩，g胖有啥独占？还有楼上说了吹爆了现在也才100多万销量。牛子也就拿zen2和rdna2胶水了一下，没那么神，又不是定制了颗zen5出来，别搁这尬吹了
+
+
+*****
+
+####  peshing  
+##### 249#       发表于 2023-5-13 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60824557&amp;ptid=2127262" target="_blank">eternity0079 发表于 2023-5-12 16:39</a>
+
+关键点在于屏幕小，看着确实有点费眼，至少6、7寸屏是比较难受的，触摸屏操作也凑合，少数一些地方需要用 ...</blockquote>
+不仅是这个问题，而且WIN本身就不是NS PS这样的游戏机专用的系统，自带的功能也会吃掉不少的资源，在这个基础上在运行游戏那肯定体验比不上相同价位的主机
+
+
+*****
+
+####  sswhxj  
+##### 250#       发表于 2023-5-13 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821169&amp;ptid=2127262" target="_blank">lucky95 发表于 2023-5-12 11:59</a>
+
+连极客湾这种靠黑恰流量的都不敢碰ally的续航和体验，逼站的自媒体娱乐性是高，参考性十分有限 ...</blockquote>
+看的时候，我就在为啥极客湾和笔吧都完全不提续航，弄得好像是主机一样，直到看茶谈说，不开最强模式，也只能做到1个到1个半小时，这续航咋带出去玩？
+
+
+*****
+
+####  医生狼多  
+##### 251#         楼主| 发表于 2023-5-13 10:06
+
+我看极客湾，不插电续航有提到吧
+
+*****
+
+####  ultraseven  
+##### 252#       发表于 2023-5-13 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60830316&amp;ptid=2127262" target="_blank">sswhxj 发表于 2023-5-13 09:52</a>
+
+看的时候，我就在奇怪为啥极客湾和笔吧都完全不提续航和发热，弄得好像是主机一样，直到看茶谈说，不开最 ...</blockquote>
+发热提了呀，
+<img src="https://s1.ax1x.com/2023/05/13/p96mbuj.png" referrerpolicy="no-referrer">
+
+出去玩带个充电宝呗。而且现在的评测低功耗下关核的功能还没开放，估计上市后关于续航的评测会更全面些。
+
+华硕电脑中国区总经理余元麟的回复
+
+<img src="https://s1.ax1x.com/2023/05/13/p96nS8U.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  leo204672099  
+##### 253#       发表于 2023-5-13 10:13
+
+<blockquote>sswhxj 发表于 2023-5-13 09:52
+看的时候，我就在奇怪为啥极客湾和笔吧都完全不提续航和发热，弄得好像是主机一样，直到看茶谈说，不开最 ...</blockquote>
+一个或一个半点，出门游玩基本充电宝配电源吧
+
+
+*****
+
+####  sswhxj  
+##### 254#       发表于 2023-5-13 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60830469&amp;ptid=2127262" target="_blank">leo204672099 发表于 2023-5-13 10:13</a>
+
+一个或一个半点，出门游玩基本充电宝配电源吧</blockquote>
+我也不带掌机出门玩，更不会愿意带过充电宝，不过1~1.5小时实在太短了，在家玩都嫌太短，有2.5小时才能说基本凑合
+
+*****
+
+####  sswhxj  
+##### 255#       发表于 2023-5-13 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60830448&amp;ptid=2127262" target="_blank">ultraseven 发表于 2023-5-13 10:10</a>
+
+发热提了呀，</blockquote>
+那感觉不如带个全能本出去，屏幕还大些，毕竟都带充电宝和掌机也得带个包装
+
+
+*****
+
+####  ultraseven  
+##### 256#       发表于 2023-5-13 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60830498&amp;ptid=2127262" target="_blank">sswhxj 发表于 2023-5-13 10:17</a>
+
+那感觉不如带个全能本出去，屏幕还大些，毕竟都带充电宝和掌机也得带个包装 ...</blockquote>
+需求不一样呗，掌机和游戏本的受众还是不同的
+

@@ -1903,3 +1903,144 @@ https://bbs.saraba1st.com/2b/thread-1770232-1-1.html</blockquote>
 
 哦~达令...
 
+*****
+
+####  Piano-Forest  
+##### 176#         楼主| 发表于 2023-5-12 19:18
+
+[https://twitter.com/konoooomin/status/1656933409355337728](https://twitter.com/konoooomin/status/1656933409355337728)
+[https://b23.tv/4FakVkC](https://b23.tv/4FakVkC)
+
+大家好
+
+信息刚刚发布!
+
+我是《布莱泽奥特曼》中饰演南杏梨的内藤好美.
+
+作为SKaRD的一员
+
+与我的朋友一起保护地球作为阿斯加隆的飞行员！
+
+大家请多多指教!
+<img src="https://p.sda1.dev/11/07fc9f242f8e844d90c13e2f0c796155/20230512135105.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/34d22aae2e9db3f7fab93cf751169f70/20230512_191422.jpg" referrerpolicy="no-referrer">
+
+这只队伍？
+<img src="https://p.sda1.dev/11/a7e02b0992addadbe10b5afa4de97de9/20230512_191635.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e26e96c178c47412a00653a8a8a27e85/20230512_191559.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kcalb  
+##### 177#       发表于 2023-5-12 20:04
+
+你参演的是布菜泽，关我布莱泽奥特曼什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RainbowSealife  
+##### 178#       发表于 2023-5-12 22:12
+
+现在公布的两位女演员都是动作演员出身，坂本狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯狐娘娘  
+##### 179#       发表于 2023-5-12 22:31
+
+<img src="https://img.saraba1st.com/forum/202305/12/223133arr4hze9bbb0cg0c.jpg" referrerpolicy="no-referrer">
+
+<strong>BB2BB2E8608429CB85008D0FCDD469E654234217.jpg</strong> (71.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202305/12/223139mpf11ww8zenmgegk.jpg" referrerpolicy="no-referrer">
+
+<strong>5DF6175CAF037B99E3282E3C0201F3FD.jpg</strong> (63.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202305/12/223143tckprvrpzrkkrqc8.jpg" referrerpolicy="no-referrer">
+
+<strong>3DBB6D2D64B9153F41E849CA5EC859DF.jpg</strong> (72.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202305/12/223147pe8djyjuz3d03z9f.jpg" referrerpolicy="no-referrer">
+
+<strong>D81850494C40368F0F13901AFB87D69C.jpg</strong> (36.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 22:31 上传
+
+<img src="https://img.saraba1st.com/forum/202305/12/223150xljvdld6yxerxy4r.jpg" referrerpolicy="no-referrer">
+
+<strong>2D463034F9C2B49266E383736925432B.jpg</strong> (40.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 22:31 上传
+
+
+*****
+
+####  纯狐娘娘  
+##### 180#       发表于 2023-5-12 22:34
+
+ 本帖最后由 纯狐娘娘 于 2023-5-12 22:36 编辑 
+
+这次是新生代最多的新怪了，据说有十二三只新怪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+其实这几年防卫队飞机换怪兽就是个卖怪兽的好方法，我都定了新的机龙了。和隔壁骑士从开始就是英雄特摄不同，奥特曼还是有怪兽特摄血统流淌的。
+
+
+*****
+
+####  HATENA  
+##### 181#       发表于 2023-5-12 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心哥对着这群又年轻又能打的手下怕不是亚历山大
+
+
+*****
+
+####  喷火飞龙  
+##### 182#       发表于 2023-5-12 23:07
+
+这些个新怪兽长得可有点异生兽的味道啊
+
+
+*****
+
+####  kcalb  
+##### 183#       发表于 2023-5-13 01:08
+
+但对比下一生兽皮套的绝赞质量．．．新怪皮套有种B级独立特摄的廉价感的同时又有B级独立特摄的猎奇感，微妙，最后那只像生化危机片场拉过来的敢不敢也来点阴间剧情
+
+
+*****
+
+####  Yason  
+##### 184#       发表于 2023-5-13 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 185#       发表于 2023-5-13 10:35
+
+新面孔挺多，后两个有股昭和味
+
+老朋友好好休息去吧
+
