@@ -322,3 +322,22 @@ F1盘子上旋钮虽然比较松感觉也没那么好用不过起码是有了个
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Variks  
+##### 1752#       发表于 2023-5-13 11:25
+
+求问下g29和g923区别大吗？值不值得贵出来的几百块？想买个盘子入门<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iou90  
+##### 1753#       发表于 2023-5-14 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60755708&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2023-5-7 10:35</a>
+你玩这游戏是为了挑战自己的极限的话，那么单机部分的难迟早都不会难到你
+
+—— 来自 Xiaomi 2304FPN6DC, ...</blockquote>
+最近那个新加的f1富士可太难了 还有近期更新后的环道赛体验几乎每条赛道都变很难T T
+
