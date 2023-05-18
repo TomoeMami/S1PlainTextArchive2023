@@ -328,3 +328,22 @@ BD全卷特典有u149的衣服<img src="https://static.saraba1st.com/image/smile
 
 竟然是圣诞老人😳
 
+*****
+
+####  两个路人  
+##### 5382#       发表于 2023-5-16 00:38
+
+ 本帖最后由 两个路人 于 2023-5-16 00:39 编辑 
+
+制作组终于想起来给和服套装换个展示姿势，避免长期以来尴尬的振袖穿模了吗？真不愧是日本速度
+
+<img src="https://p.inari.site/guest/23-05/16/64625fe98c867.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kobushi  
+##### 5383#       发表于 2023-5-16 00:46
+
+预选课过不想课了……反正已经捞到一首歌了就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
