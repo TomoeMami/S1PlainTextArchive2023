@@ -1020,3 +1020,20 @@ https://youtube.com/@HitenSeiha</blockquote>
 
 还在继续玩百万，我就放心了，其它就不感兴趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7150#       发表于 2023-5-15 17:19
+
+看过一个管人玩百万，你土鳖就开始给我各种推了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+模式都基本一个样，都是你游的工商么？专找几千订阅的底边小管人做推广？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 7151#       发表于 2023-5-15 17:25
+
+最近听百万solo歌单，万南/烂铁在歌曲方面还是懂的，
+今年出的杏奈拉拉队应援solo，艾米莉病娇Qsolo、步的全员恶人solo，都是组内神中神大好评的，去年活动新曲质量也都挺高的。
+梨衣熊正经唱歌好听，差点没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
