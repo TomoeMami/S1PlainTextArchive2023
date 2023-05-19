@@ -2913,3 +2913,232 @@ Mahou Shoujo Magical Destroyers - 05 [1080p] .ass
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这动画似乎没特别主线故事..只是当个背景 展示OTAKU现象而已
 
+*****
+
+####  Alicest  
+##### 258#       发表于 2023-5-13 23:21
+
+请自由取用
+
+这集看ed card就够了 magnet:?xt=urn:btih:OO4ARM3JGOQBDBCGWJ3LO3LD5J7U2LHJ复制代码
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Mahou Shoujo Magical Destroyers - 06 [1080p] .ass
+(32.42 KB, 下载次数: 0)
+
+2023-5-13 23:19 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+[Alicest個人漢化]魔法少女毀滅者 Mahou Shoujo Magical Destroyers - 06 [1080p].tor.torrent
+(56.7 KB, 下载次数: 0)
+
+2023-5-13 23:19 上传
+
+点击文件名下载附件
+
+<img src="https://img.saraba1st.com/forum/202305/13/232105rz1aaug20k70k7kx.jpg" referrerpolicy="no-referrer">
+
+<strong>Mahou Shoujo Magical Destroyers - 06 [1080p] .mkv_snapshot_23.46_[2023.05.13_23.16.01].jpg</strong> (192.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-13 23:21 上传
+
+
+*****
+
+####  wanwanjun  
+##### 259#       发表于 2023-5-14 16:48
+
+感觉有点伏笔啊（
+电视头后面的线是土红蓝和粉三色
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 260#       发表于 2023-5-14 19:52
+
+女性向的被开除宅籍了？怎么一点影子都见不到？
+
+就算是08-11年，也不能一点不沾吧 何况毕竟是个23年的片
+
+不管是有意为之还是单纯忘了，staff对宅的理解也过于刻板和傲慢了吧
+
+
+*****
+
+####  海底铁锚  
+##### 261#       发表于 2023-5-14 19:58
+
+先不谈没写女性向御宅族是不是就是傲慢与刻板。
+也不说真描写了女性向御宅族是不是就能接受。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我寻思这片也就六集，每集讲几个御宅族分支，等它出完再说也不迟啊。
+
+
+*****
+
+####  wanwanjun  
+##### 262#       发表于 2023-5-14 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60844000&amp;ptid=2004067" target="_blank">Mc凉月奏酱 发表于 2023-5-14 19:52</a>
+女性向的被开除宅籍了？怎么一点影子都见不到？
+
+就算是08-11年，也不能一点不沾吧 何况毕竟是个23年的片
+
+不 ...</blockquote>
+有色人种被开除宅籍了？怎么一点影子都见不到？
+就算是08-11年，也不能一个黑人都没有吧 何况毕竟是个23年的片
+不管是有意为之还是单纯忘了，staff对宅的理解也过于刻板和傲慢了吧
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  aptx8285144  
+##### 263#       发表于 2023-5-14 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60844048&amp;ptid=2004067" target="_blank">海底铁锚 发表于 2023-5-14 19:58</a>
+
+先不谈没写女性向御宅族是不是就是傲慢与刻板。
+
+也不说真描写了女性向御宅族是不是就能接受。
+
+我寻 ...</blockquote>
+什么？这片只有6集？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  海底铁锚  
+##### 264#       发表于 2023-5-14 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60845489&amp;ptid=2004067" target="_blank">aptx8285144 发表于 2023-5-14 22:50</a>
+什么？这片只有6集？</blockquote>
+我的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，意思是目前只出到六集
+
+
+*****
+
+####  charlespfan  
+##### 265#       发表于 2023-5-15 06:22
+
+狂太郎登场得太突兀，明显是要搞事情。电视头和杀手之间又是什么关系？男主老爸提了一下怕不是也要出场
+
+
+*****
+
+####  幻肢痛  
+##### 266#       发表于 2023-5-15 09:18
+
+这回忆各种老梗，结合ED，搞不好就是个虚拟世界
+
+
+*****
+
+####  发财就收  
+##### 267#       发表于 2023-5-15 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60842485&amp;ptid=2004067" target="_blank">wanwanjun 发表于 2023-5-14 16:48</a>
+
+感觉有点伏笔啊（
+
+电视头后面的线是土红蓝和粉三色</blockquote>
+该不会主角方三个魔法少女是复制品吧，其实那只吉祥物问题也很大，没有自我介绍下主角怎么突然知道它的名字的，就象被催眠一样
+
+
+*****
+
+####  发财就收  
+##### 268#       发表于 2023-5-15 16:49
+
+楼里有人提到的《逆转世界的电池少女》，去查了下发现那部动画的女一配音跟这部都是菲鲁兹·蓝，还都是红发，是巧合吗
+
+
+*****
+
+####  童贞阿龙  
+##### 269#       发表于 2023-5-15 18:30
+
+这一集稍微能看了，前几集除了oped也太无聊了
+
+
+*****
+
+####  wanwanjun  
+##### 270#       发表于 2023-5-15 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60853329&amp;ptid=2004067" target="_blank">发财就收 发表于 2023-5-15 16:40</a>
+该不会主角方三个魔法少女是复制品吧，其实那只吉祥物问题也很大，没有自我介绍下主角怎么突然知道它的名 ...</blockquote>
+感觉电视头像是未来的二次元英雄穿越回来的（
+
+还一直挡脸
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  吉诺爱比利  
+##### 271#       发表于 2023-5-15 22:27
+
+能把一个玩梗片拍得如此无聊也是不容易
+
+
+*****
+
+####  发财就收  
+##### 272#       发表于 2023-5-15 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60857285&amp;ptid=2004067" target="_blank">wanwanjun 发表于 2023-5-15 22:17</a>
+
+感觉电视头像是未来的二次元英雄穿越回来的（
+
+还一直挡脸</blockquote>
+真这样不就成了士郎与红A吗
+
+
+*****
+
+####  丁兔  
+##### 273#       发表于 2023-5-16 21:56
+
+这都六集了，一个爆点都没有吗
+
+
+*****
+
+####  Piano-Forest  
+##### 274#         楼主| 发表于 2023-5-16 23:09
+
+<img src="https://p.sda1.dev/11/14e95a3a594db158b1c9cbb691c6be28/20230516_225652.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 275#         楼主| 发表于 2023-5-16 23:10
+
+[https://twitter.com/TroutUO/status/1658405256680869890](https://twitter.com/TroutUO/status/1658405256680869890)
+<img src="https://p.sda1.dev/11/b7937cf71fcde51367c7c87fd1812666/20230516_230921.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e82398cd034f366cd90dd9aecd42e5cf/20230516_230923.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e1f5c52a3de89a5f6d93f9c4e2a29004/20230516_230925.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/84c2bc91e90b673ae730a7b61e2e2cbe/20230516_230926.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wanwanjun  
+##### 276#       发表于 2023-5-16 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60869179&amp;ptid=2004067" target="_blank">丁兔 发表于 2023-5-16 21:56</a>
+这都六集了，一个爆点都没有吗</blockquote>
+第一集的作画算不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony NW-A100Series, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
