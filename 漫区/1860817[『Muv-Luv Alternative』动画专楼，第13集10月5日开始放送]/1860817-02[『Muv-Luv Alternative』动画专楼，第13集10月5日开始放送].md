@@ -3340,3 +3340,48 @@ syl，最近打神之天平，男主从阿努比斯系统里面把青梅脑子�
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  hlazd  
+##### 2273#       发表于 2023-5-16 19:44
+
+手游《Muv-Luv Dimensions》
+篁唯依 CV:槇原彩乃
+勇哉·布里吉斯 CV:下鶴直幸
+伊妮亚 CV:涼本あきほ
+爱丽丝蒂娜 CV:吉田仁美
+贝娅特丽克丝 CV:阿部里果
+伊尔芙莉德 CV:橘茶江子
+露娜特蕾西亚 CV:森下来奈
+海尔嘉萝丝 CV:岛田爱野
+
+原创角色
+朱土岐真白 CV:樱庭有纱
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这么看来就是整个系列全换
+
+
+*****
+
+####  创始’’’天翔  
+##### 2274#       发表于 2023-5-16 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">什么玩意
+
+*****
+
+####  ReginaldMorgan  
+##### 2275#       发表于 2023-5-16 20:04
+
+我感觉我已经算相对声优猪的了，但是还是想问一句，“都谁？”
+
+
+*****
+
+####  ReginaldMorgan  
+##### 2276#       发表于 2023-5-16 20:17
+
+仔细品了一下，这名单还是有个别认识的，以及个别知道角色的，但是整体来说还是enmmmmmmm
+
+以及打包卖给Rush Style了？
+

@@ -1785,3 +1785,553 @@ yj说要抓脚本了<img src="https://static.saraba1st.com/image/smiley/face2017
 
 活动内容依然是刷肉鸽地牢。不愧是韩国出品，这游戏改名Dungeon &amp; Sinner也不为过<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 117#       发表于 2023-4-17 18:19
+
+新人物：
+
+<img src="https://img.saraba1st.com/forum/202304/17/180622mfo5fg9zr3538d29.jpg" referrerpolicy="no-referrer">
+
+<strong>f0ba1ae83a07ad2e0c8ea53e2d46b591_7d1330740773033be4247edcff095dc41247764479.jpg</strong> (355.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 18:06 上传
+
+<img src="https://img.saraba1st.com/forum/202304/17/180659z3otmromrvrb55w3.jpg" referrerpolicy="no-referrer">
+
+<strong>44f8f92e5d09072866dc5d5ad91f2485_dd22b722606ecceed198c9b0766dfcf71247764479.jpg</strong> (294.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 18:06 上传
+
+俩厨子都带吸血+回血效果，对长线续航有帮助...感觉带着刷1号线可以减轻压力...
+
+G虫替换不了而且支援被动拼点回血更有用，主厨良秀倒是比黑云会看着好用些，硬币也多。
+
+新EGO：
+
+<img src="https://img.saraba1st.com/forum/202304/17/180555l8hv4ov5gf4nxgo5.jpg" referrerpolicy="no-referrer">
+
+<strong>9032cd612bcbf82539f495397ba7a471_a806cd8c278e665a4116e8762164138a1247764479.jpg</strong> (347.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 18:05 上传
+
+<img src="https://img.saraba1st.com/forum/202304/17/180643pykhk5pmmamfkhd8.jpg" referrerpolicy="no-referrer">
+
+<strong>24edeace5a9a56a55ec9e012226aa272_0b4ff7667ad9715156ae3ece9e6f85111247764479.jpg</strong> (348.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-17 18:06 上传
+
+辛克莱这个AOE只打血最少的人，可以给队友回血，还可以增加下回合资源获取，感觉还不错，虽然有随机性...
+
+小唐这个被动强制把其他EGO资源变成lust，虽然能增伤，但总感觉会坑队友放不出ego...
+
+
+*****
+
+####  Jamaisvu  
+##### 118#       发表于 2023-4-18 00:31
+
+<img src="https://img.saraba1st.com/forum/202304/18/003024cv2zs1v44j4sysz0.jpg" referrerpolicy="no-referrer">
+
+<strong>7fce5f2e9c8c6f3d4fceaf8ce6139e00_b4f6921c3cf38f703663c283957d84131247764479.jpg</strong> (164.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-18 00:30 上传
+
+使用都市零协会汉化组或其他汉化补丁的朋友们注意了，官方4.20会加入反外挂服务，到时候检测出问题会封号，怕出事的可以先行卸载。
+
+
+*****
+
+####  Jamaisvu  
+##### 119#       发表于 2023-4-20 23:13
+
+新活动的剧情真不错啊，笑点太密集了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+...说不定第四章会发刀呢，欲抑先（唐）扬<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  momodog  
+##### 120#       发表于 2023-4-21 18:00
+
+新卡池居然不是为了平衡人格数量出李箱跟小唐而是拇指莫尔索跟罗佳……
+
+
+*****
+
+####  Jamaisvu  
+##### 121#       发表于 2023-4-21 19:51
+
+<blockquote>momodog 发表于 2023-4-21 18:00
+新卡池居然不是为了平衡人格数量出李箱跟小唐而是拇指莫尔索跟罗佳……</blockquote>
+估计是二星默尔索和三星罗佳吧，默尔索已经俩三星了，罗佳和李箱辛克莱一样还没有好用的三星人格...
+
+不知道是第二赛季人格还是新常驻，看3.5剧情好像要去K巢了（某绿毛酒鬼老家），结果现在又冒出来后巷帮派人格...
+
+估计是和剧情无关的常驻人格，图书馆已登场过的势力应该不会过多占据手游主线...
+
+（X.5外传剧情除外...）
+
+
+*****
+
+####  momodog  
+##### 122#       发表于 2023-4-22 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60552607&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-4-21 19:51</a>
+
+估计是二星默尔索和三星罗佳吧，默尔索已经俩三星了，罗佳和李箱辛克莱一样还没有好用的三星人格...
+
+不知 ...</blockquote>
+哦 抱歉 我看错了一下 不是下个卡池 好像是第二季的卡池预告 还有雨伞狐的EGO
+
+不过我也觉得是三灯罗佳因为黑云罗佳是跟剑契辛争夺最弱12名的（参考图书馆拇指那个黑皮御姐） 莫尔索可能是拇指那个用拳指环的墨镜
+
+至于为什么去K巢但是出五指人格 我觉得也算是填补卡池吧 就跟第一季一开始出黑云 剑契 R社 六协这样
+
+拇指应该也算是个很有人气的阵营
+
+这次地狱鸡的皮埃尔跟杰克人格都故意做成似似而非应该也有点避嫌的味道？
+
+
+*****
+
+####  Jamaisvu  
+##### 123#       发表于 2023-4-22 08:58
+
+ 本帖最后由 Jamaisvu 于 2023-4-22 09:01 编辑 
+
+转自B站都市零协会动态：
+
+原2023规划：
+
+<img src="https://img.saraba1st.com/forum/202304/22/083652pp2wioa80six11oj.png" referrerpolicy="no-referrer">
+
+<strong>1682123733915.png</strong> (261.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-22 08:36 上传
+
+现2023规划：
+
+<img src="https://img.saraba1st.com/forum/202304/22/083716pusc0nniq022dn62.png" referrerpolicy="no-referrer">
+
+<strong>1682123712618.png</strong> (322.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-22 08:37 上传
+
+相比之前变详细了不少，月计也明白他们那个产能除非把火腿嘭嘭的服务员叫过来一起敲代码，不然做不了那么快的主线，所以原计划的第四和第五章都往后推了一个月。
+
+7月多了个泳装夏日活动，这个可以多出点人格，起码四个吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+9月主要是线下活动参展了，所谓的小型活动目前看来不是签到就是耗体力...
+
+11月竟然是Project Moon 七周年，这么有纪念意义的时间，不知道能不能出个浮士德的安吉拉人格<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+（FGO的七周年可是出了TM社处女作月姬的白公主，PM社也出个初代女主不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">没剧情那种。）（...算了，LBC的七周年出还差不多...）
+
+其实做成现在这个样子已经不错了。精益求精，不求最快，但求更好，稳定更新比后面补配音之类的强多了...
+
+（主要是补偿送的太多<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  Jamaisvu  
+##### 124#       发表于 2023-4-23 09:12
+
+突发奇想，吃个桃先...
+
+第一赛季的看板是火柴ego良秀，而3.5限定三星也是良秀人格；
+
+那么第二赛季最终奖励是狐狸ego李箱的话，说不定会出箱子哥的限定人格呢...
+
+（泳装不太好想象，但他这脸色挺适合万圣节扮鬼的...希望强度别再是宝箱怪了...）
+
+
+*****
+
+####  Jamaisvu  
+##### 125#       发表于 2023-4-25 08:54
+
+搬一些关于人格稀有度等级0、00、000的来源考据：
+
+卡巴拉学者相信生命之树是宇宙形成过程的图形表示。在生命之树中，宇宙起源被置于第一个质点Kether（中文：王冠）上方的空间中。宇宙起源通常并不描绘在生命之树的图示中，而是描绘在三层能量环：
+
+第一层称为无（Ain、0）；
+
+再一层称为无限（Ain Soph、00）；
+
+最后一层是无限光（Ain Soph Aur、000）。
+
+这显示着从最早的无到存在个体出现的有之程序。它们没有数字，只能按照意思把它们定为0、00、与000。
+
+这些东西在卡巴拉思想中是很低阶的，因为它们仍具有物质的存在。
+
+对于卡巴拉学者，无限光象征着超越人对万物起源理解范畴的那一点；无限光被认为是一种超越存在的无限虚无（在科学和卡巴拉哲学中被认为是一种能量），它的爆炸进而创造了宇宙万物。
+
+卡巴拉学者不将时间与空间想象为先已存在的，而是将时间与空间置于生命之树的无限光下的三个阶段中。这三个阶段中的第一个是Kether（中文：王冠），这被认为是无限光收缩进入无限能量或无限光的奇点的产物。卡巴拉中，这是创造万物的本源能量。
+
+——————————
+
+在游戏里的大概喻义可能是拥有无限可能性又不可捉摸的多元宇宙人格终将汇集所有的金枝，创造新的光之种，再次构建新公司？
+
+
+*****
+
+####  哩子ayil  
+##### 126#       发表于 2023-4-25 09:18
+
+泳装也太难想了，一想到这个脑子里全是宝子哥强壮的肩臂
+
+私心想要浮士德的泳装（**大<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 127#       发表于 2023-4-25 16:35
+
+<img src="https://img.saraba1st.com/forum/202304/25/163322yqcztgmbgbj8qgcd.jpg" referrerpolicy="no-referrer">
+
+<strong>1682411565328.jpg</strong> (182.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-25 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202304/25/163459drvdubcuaqmco7pu.jpg" referrerpolicy="no-referrer">
+
+<strong>1EE34951CCE3FEFFDD707F3465C5626E.jpg</strong> (190.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-25 16:34 上传
+
+执握者辛克莱，拇指罗佳，大家都有光明的未来，对吧箱宝？
+
+
+*****
+
+####  Jamaisvu  
+##### 128#       发表于 2023-4-28 16:18
+
+<img src="https://img.saraba1st.com/forum/202304/28/161805kbacpaphmapgjsbs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230428_161739_tv.danmaku.bili.jpg</strong> (232.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-28 16:18 上传
+
+新池子来啦！5.4日活动结束维护后实装N辛和N唐！
+
+
+*****
+
+####  Jamaisvu  
+##### 129#       发表于 2023-4-28 16:38
+
+<img src="https://img.saraba1st.com/forum/202304/28/163721ki5h5k9sg5kh2s5o.jpg" referrerpolicy="no-referrer">
+
+<strong>be6b4b9b5d2614ba937ae73bd90ef9cd72eec510_raw.jpg</strong> (170.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-28 16:37 上传
+
+好消息，活动双双延期！
+
+我还想着五一花时间刷图呢，看来可以放心休假啦！
+
+
+*****
+
+####  wwddrte  
+##### 130#         楼主| 发表于 2023-4-29 20:28
+
+延期好，等n辛出了之后我再打活动，现在的几个辛克莱太菜了
+
+
+*****
+
+####  Jamaisvu  
+##### 131#       发表于 2023-5-1 17:29
+
+N辛和N唐的技能出了：
+
+<img src="https://img.saraba1st.com/forum/202305/01/172513appnsexp59ng0z7r.jpg" referrerpolicy="no-referrer">
+
+<strong>1682933010937.jpg</strong> (205.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 17:25 上传
+
+<img src="https://img.saraba1st.com/forum/202305/01/172514fxx4555kzwkc0yi0.jpg" referrerpolicy="no-referrer">
+
+<strong>1682933018589.jpg</strong> (205.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-1 17:25 上传
+
+N辛比较特殊的地方在于三个技能都会减精神力，而且是稀有的火伤角色，如果出焦化少女EGO应该不错...
+
+看硬币数和副作用估计伤害不会差，另外貌似也是第一个带特攻的人格，比较期待。
+
+小唐看样子和N罗佳差不多吧...组N社队伍可以俩执握一大锤二中锤了，小夫还是回家陪老婆好了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+（希斯：我倒是想啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  Jamaisvu  
+##### 132#       发表于 2023-5-4 13:53
+
+N辛竟然真的是高基础点数+负数硬币，伤害看着挺高的...另外好像有个彩蛋，带N辛+N浮去打克罗默，癫婆会触发惊讶台词并直接混乱。
+
+
+*****
+
+####  wwddrte  
+##### 133#         楼主| 发表于 2023-5-4 14:45
+
+ 本帖最后由 wwddrte 于 2023-5-4 14:48 编辑 
+
+n辛这数值是不是有点太强了，不过auto或者虐菜稍微有点不太好用，sp回的太快了
+
+
+*****
+
+####  Jamaisvu  
+##### 134#       发表于 2023-5-4 20:48
+
+镜牢的出血棉花事件确实恶心，我懒得多打一关，就用N辛去跟它拼点，意料之中的输了。结果它非得再跟我拼一遍...只好忍痛拿了...<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 135#       发表于 2023-5-4 23:40
+
+ 本帖最后由 Jamaisvu 于 2023-5-4 23:42 编辑 
+
+N辛这伤害太爆炸了，爽到<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202305/04/234035f36o1zuszal3611a.jpg" referrerpolicy="no-referrer">
+
+<strong>20230504233831_1.jpg</strong> (220.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-4 23:40 上传
+
+（不过这里打240应该是电狼触发了机械生命特攻）
+
+
+*****
+
+####  Jamaisvu  
+##### 136#       发表于 2023-5-5 20:09
+
+ 本帖最后由 Jamaisvu 于 2023-5-5 20:12 编辑 
+
+<img src="https://img.saraba1st.com/forum/202305/05/200643kx349ywdzig3yaz9.png" referrerpolicy="no-referrer">
+
+<strong>1683288373032.png</strong> (97.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-5 20:06 上传
+
+来啦，紧张刺激的签到活动。这个月还会新增一个但丁笔记的小功能，新卡池估计就真没了，N辛作为第一赛季的收尾，无论是定位还是强度都算重量级。
+
+希望6月的第四章整个大活吧，毕竟是韩国自己的角色作家李箱，敌对势力的仇甫也该有不少戏份。
+
+看规划表甚至要分三次讲完，很让人期待啊。
+
+
+*****
+
+####  Jamaisvu  
+##### 137#       发表于 2023-5-8 15:36
+
+<img src="https://img.saraba1st.com/forum/202305/08/153342xr114vgm8k4vrgrc.jpg" referrerpolicy="no-referrer">
+
+<strong>axteQ8vgp-etdoZbT1kSfa-sg.jpg</strong> (109.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 15:33 上传
+
+<img src="https://img.saraba1st.com/forum/202305/08/153343bo7gmts3mctz30o0.jpg" referrerpolicy="no-referrer">
+
+<strong>axteQ8t53-6bj5ZeT3cSq6-jk.jpg.medium.jpg</strong> (47.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 15:33 上传
+
+针对最近出现的晚刷一号线给9倍奖励，月计的回应是既不扣除也不回档，全服各发30抽。
+
+我以前一直担心月计送这么多还能不能挣钱，没想到现在竟然感觉送这么少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（希望不要统计下来吃到bug的人拿的比开服玩家一路攒过来的还多，那就更不平衡了...）
+
+
+*****
+
+####  Jamaisvu  
+##### 138#       发表于 2023-5-9 18:53
+
+官推新PV，箱子哥的迷失旅客ego：
+
+<img src="https://img.saraba1st.com/forum/202305/09/185043no0cnb1o07esc199.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230509_184816_tv.danmaku.bili.jpg</strong> (147.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-9 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202305/09/185044x4ioqbqqfdzbfzu6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230509_184823_tv.danmaku.bili.jpg</strong> (112.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-9 18:50 上传
+
+看着很帅，应该是第二赛季卡池里的吧，通行证有个箱子的狐狸ego了...希望第四章给箱子哥弄个超强的三星啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwddrte  
+##### 139#         楼主| 发表于 2023-5-10 03:12
+
+一个赛季6个三星，一共12个人，不知道下赛季的新3是不是就是这赛季没新3的那几个
+
+
+*****
+
+####  fayespike  
+##### 140#       发表于 2023-5-11 17:05
+
+赛季结束碎片转化，箱子转不转化
+
+不转化我就留箱子了
+
+
+*****
+
+####  Jamaisvu  
+##### 141#       发表于 2023-5-11 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60811760&amp;ptid=2120922" target="_blank">fayespike 发表于 2023-5-11 17:05</a>
+
+赛季结束碎片转化，箱子转不转化
+
+不转化我就留箱子了</blockquote>
+赛季结束后留一半碎片和一半箱子，然后另一半变成等量的纽和纽箱（开启后随机获得1-3纽）。
+
+因为开箱子获得的纽也是随机的，说不定没有碎片多（而且纽肯定会溢出，碎片多留点没坏处），所以如果有想换的赛季人格或ego可以开一下箱子，没有的话留到下个赛季理论上也是不亏的。
+
+
+*****
+
+####  Jamaisvu  
+##### 142#       发表于 2023-5-12 13:29
+
+<img src="https://img.saraba1st.com/forum/202305/12/132506gx7fp493qawox9x9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230512_132424.jpg</strong> (278.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-5-12 13:25 上传
+
+5.18的新池子，宝箱双ego迷失旅客。
+
+嗯，有新东西消耗一下碎片是好事，不过主线内容没动静，光更新池子有点担心啊...希望以后不要走上剧情停更只出卡池的路...不至于不至于。
+
+
+*****
+
+####  Jamaisvu  
+##### 143#       发表于 2023-5-13 15:39
+
+<img src="https://img.saraba1st.com/forum/202305/13/153457mourpgco7coour7o.jpg" referrerpolicy="no-referrer">
+
+<strong>20230513153336_1.jpg</strong> (185.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-13 15:34 上传
+
+因为主厨秀和准握辛的加入，重新打了一遍一号线，终于进了100回合，可喜可贺。
+
+通关最大感想：还是黑云宝好用啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+叮当宝三技能也就是前几关团体战再动虐菜好使，后面BOSS战基本上不了场。黑云宝三个斩击，优势区间更明显，二技能黑云刀四连击更是速刷BOSS神器。
+
+有精力再带着黑云宝通一下试试好了...不过88这个数字蛮吉利的，留作纪念也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 144#       发表于 2023-5-15 21:19
+
+<img src="https://img.saraba1st.com/forum/202305/15/210956deyzu09uues2c6cs.jpg" referrerpolicy="no-referrer">
+
+<strong>172300b54d41f455949ccf0fc46124cc_67759d2bc65c1038af63100ef7119313b17e8981_tbpica.jpg</strong> (278.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-15 21:09 上传
+
+新EGO的效果出了，都有充能的效果。
+
+小唐W社人格的一阶图展示了W宝和W罗两个卫星，新ego应该是给W宝准备的。
+
+但希斯克利夫的电狼EGO也是充能，对应的是R社人格，箱子哥除了W小组也可能加入兔子队...
+
+不过R社现在的卫星有R夫一阶图的R唐和R宝、R玛一阶图的R格和R良，算下来总共已经六个人了。
+
+参考目前人员相对来说比较齐全的N社队伍，一个组织差不多会出六人格，三星3个、二星3个。这种算法的话R社差不多满员了，那样的话箱子是W社的可能性更大...
+
+胡诌一番，毫无逻辑，期待实装打脸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 145#       发表于 2023-5-16 19:49
+
+今天新抽了一个奥提斯的空即是色，高兴之余直接带着刷本去了。最后阶段心血来潮，想来个ego主动侵蚀斩杀，没想到资源不够1.5倍，变成被动侵蚀，直接打到了以实玛利身上...
+
+好在（？）带的是R马鹿，挨完打后立刻还回去一套闪电四连鞭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
