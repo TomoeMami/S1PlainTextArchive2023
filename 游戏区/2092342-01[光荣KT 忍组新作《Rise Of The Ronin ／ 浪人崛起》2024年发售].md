@@ -1915,3 +1915,363 @@ PSN页面上了：
 
 感觉安田接手后效率还是可以的，不过看起来也是一个味，也没别的要求，只想少点阴间要素。
 
+*****
+
+####  ckseng  
+##### 221#       发表于 2023-5-13 21:04
+
+很好奇这次忍者组要怎么安排屎红色场景
+
+*****
+
+####  SergeGlenn  
+##### 222#       发表于 2023-5-13 21:09
+
+忍者组做仁王系地图这个德行，做开放世界得做成什么熊样。。。
+
+
+*****
+
+####  病態極端  
+##### 223#       发表于 2023-5-13 21:30
+
+第一次做開放世界就要多故事線？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 224#       发表于 2023-5-13 21:33
+
+创造自己的历史，怎么想也不可能太自由<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+搞不好是暗杀的没杀成，保护的被剧情杀那一套。尤其是那些相对关键的历史人物。
+
+
+*****
+
+####  dogod  
+##### 225#       发表于 2023-5-13 21:37
+
+1963年正是新选组成立的那年，该狠狠的佐幕了
+
+
+*****
+
+####  Byooon  
+##### 226#       发表于 2023-5-13 22:16
+
+“三国题材作品试水作，战国江户时代作品亲儿子“，
+
+只是从本家的战略游戏转到了ARPG。<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  12351sscca  
+##### 227#       发表于 2023-5-13 22:29
+
+主角不知道是不是自捏<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真蓝眼红Z  
+##### 228#       发表于 2023-5-13 22:33
+
+听着有点像侍道
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  1024676511  
+##### 229#       发表于 2023-5-13 22:45
+
+幕末历史感觉不如战国啊 我对幕末的知识大部分来源于银魂
+
+
+*****
+
+####  415452356  
+##### 230#       发表于 2023-5-13 23:01
+
+  越看越觉得会是忍者组版侍道，安田还是不傻的。
+
+
+*****
+
+####  captoon  
+##### 231#       发表于 2023-5-13 23:29
+
+好歹光荣有《维新之岚》打底，剧情方面应该不用太担心
+
+
+*****
+
+####  ナルバレック  
+##### 232#       发表于 2023-5-14 00:24
+
+站哪边怎么想都是倒幕或者佐幕，最多加个带路党路线233
+
+
+*****
+
+####  天宮奏  
+##### 233#       发表于 2023-5-14 00:56
+
+战国至少玩过basara和无双有点了解，三国也耳濡目染，幕末这真是知识盲区了，唯一的印象是银魂。
+
+
+*****
+
+####  霜天冰华  
+##### 234#       发表于 2023-5-14 02:03
+
+忍者环是吧
+
+
+*****
+
+####  leavan  
+##### 235#       发表于 2023-5-14 09:27
+
+肯定还是仁王换皮，不要对kt有什么期待
+
+
+*****
+
+####  ckseng  
+##### 236#       发表于 2023-5-14 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60839116&amp;ptid=2092342" target="_blank">leavan 发表于 2023-5-14 09:27</a>
+
+肯定还是仁王换皮，不要对kt有什么期待</blockquote>
+经历过摸鱼卧龙之后，你这仁王换皮已经是褒义词了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  upisud20  
+##### 237#       发表于 2023-5-14 10:42
+
+真能缝合出忍者环算TK牛逼，怕是又是大地图无双+仁王2那种高级进化填料版的套路
+
+
+*****
+
+####  Inominatam  
+##### 238#       发表于 2023-5-14 11:10
+
+红色场景简单，火烧京都安排一下
+
+—— 來自 samsung SM-G9910, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  被雨困住的城市  
+##### 239#       发表于 2023-5-15 23:08
+
+抛弃旧世代了
+<img src="https://p.sda1.dev/11/54d7b7f69384b812d062896d9aaaf3b6/-1e82fb85d61f226e.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  碎镜子  
+##### 240#       发表于 2023-5-16 07:43
+
+ps5独占，还想500w<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  人生短短几个秋  
+##### 241#       发表于 2023-5-16 08:09
+
+作为一个无名的浪人，开辟自己的命运。故事的变化取决于你做出什么样的判断以及你站在哪边。通过做出重要决定来创造自己的历史，例如是暗杀还是保护历史上的重要人物。
+
+多支线多结局你KT能做好吗,心好虚
+
+
+*****
+
+####  tsubaki  
+##### 242#       发表于 2023-5-16 08:18
+
+不带PS4玩了还行，PC怕不是继续卡出屎（）
+
+
+*****
+
+####  火鸡味锅巴  
+##### 243#       发表于 2023-5-16 08:24
+
+就他们那个wild heart的水平,优化方面吃屎就完事了。大概率一崩崩到底。
+
+*****
+
+####  ff2077  
+##### 244#       发表于 2023-5-16 08:28
+
+索尼参与开发了，技术上应该不至于太拉跨吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  名字已被吃  
+##### 245#       发表于 2023-5-16 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859546&amp;ptid=2092342" target="_blank">火鸡味锅巴 发表于 2023-5-16 08:24</a>
+就他们那个wild heart的水平,优化方面吃屎就完事了。大概率一崩崩到底。</blockquote>
+那是omega做的吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  火鸡味锅巴  
+##### 246#       发表于 2023-5-16 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859640&amp;ptid=2092342" target="_blank">名字已被吃 发表于 2023-5-16 08:38</a>
+
+那是omega做的吧
+
+—— 来自 Xiaomi 2203121C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+都一家公司的，技术差距不至于有多大吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 247#       发表于 2023-5-16 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859499&amp;ptid=2092342" target="_blank">tsubaki 发表于 2023-5-16 08:18</a>
+
+不带PS4玩了还行，PC怕不是继续卡出屎（）</blockquote>
+今年很多游戏都不带PS4版了
+
+
+*****
+
+####  洛克萨斯  
+##### 248#       发表于 2023-5-16 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859702&amp;ptid=2092342" target="_blank">火鸡味锅巴 发表于 2023-5-16 08:45</a>
+
+都一家公司的，技术差距不至于有多大吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那就要看你觉得gust和忍者组技术差距大不大了，也是一家公司啊
+
+*****
+
+####  巴特爱素子  
+##### 249#       发表于 2023-5-16 09:31
+
+<blockquote>人生短短几个秋 发表于 2023-5-16 08:09
+作为一个无名的浪人，开辟自己的命运。故事的变化取决于你做出什么样的判断以及你站在哪边。通过做出重要决 ...</blockquote>
+一切转太阁立志传
+
+
+*****
+
+####  巴特爱素子  
+##### 250#       发表于 2023-5-16 09:33
+
+<blockquote>天宮奏 发表于 2023-5-14 00:56
+战国至少玩过basara和无双有点了解，三国也耳濡目染，幕末这真是知识盲区了，唯一的印象是银魂。 ...</blockquote>
+浪客剑心
+
+
+*****
+
+####  Dasboat  
+##### 251#       发表于 2023-5-16 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60837835&amp;ptid=2092342" target="_blank">ナルバレック 发表于 2023-05-14 00:24:43</a>
+站哪边怎么想都是倒幕或者佐幕，最多加个带路党路线233</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就算可以佐幕，剧情总不能魔改到打赢鸟羽伏见，将军崛起吧？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  名字已被吃  
+##### 252#       发表于 2023-5-16 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859702&amp;ptid=2092342" target="_blank">火鸡味锅巴 发表于 2023-5-16 08:45</a>
+都一家公司的，技术差距不至于有多大吧</blockquote>
+你要这么说，你看看阿肯的死亡循环和红霞岛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  火鸡味锅巴  
+##### 253#       发表于 2023-5-16 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60860790&amp;ptid=2092342" target="_blank">名字已被吃 发表于 2023-5-16 10:25</a>
+
+你要这么说，你看看阿肯的死亡循环和红霞岛
+
+—— 来自 Xiaomi 2203121C, Android 13上的 S1Next- ...</blockquote>
+抛开游戏性不谈，这两部优化其实都不行。阿肯优化好的就耻辱1和prey吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑修士  
+##### 254#       发表于 2023-5-16 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859360&amp;ptid=2092342" target="_blank">碎镜子 发表于 2023-5-16 07:43</a>
+
+ps5独占，还想500w</blockquote>
+500w新IP，反正也没说一定是初代就卖500w<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  葵  
+##### 255#       发表于 2023-5-16 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60859499&amp;ptid=2092342" target="_blank">tsubaki 发表于 2023-5-16 08:18</a>
+
+不带PS4玩了还行，PC怕不是继续卡出屎（）</blockquote>
+这作索尼出钱出力了，ps5独占的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tsubaki  
+##### 256#       发表于 2023-5-16 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60861972&amp;ptid=2092342" target="_blank">葵 发表于 2023-5-16 11:33</a>
+
+这作索尼出钱出力了，ps5独占的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那可以观望了
+
+*****
+
+####  syndrome2032  
+##### 257#       发表于 2023-5-16 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60860704&amp;ptid=2092342" target="_blank">Dasboat 发表于 2023-5-16 10:19</a>
+就算可以佐幕，剧情总不能魔改到打赢鸟羽伏见，将军崛起吧？
+
+  -- 来自 能看大图的 Stage1官方 And ...</blockquote>
+可以参照如龙维新。
+
+仁王剧情不就找个背锅侠全接了，大家全是好人。这浪人剧情做成这样也没啥难度
+
+
+*****
+
+####  名字已被吃  
+##### 258#       发表于 2023-5-16 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60860881&amp;ptid=2092342" target="_blank">火鸡味锅巴 发表于 2023-5-16 10:30</a>
+抛开游戏性不谈，这两部优化其实都不行。阿肯优化好的就耻辱1和prey吧。 ...</blockquote>
+ps5的死亡循环不是不错嘛，结果xsx的红霞岛首发连60针都没(
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
