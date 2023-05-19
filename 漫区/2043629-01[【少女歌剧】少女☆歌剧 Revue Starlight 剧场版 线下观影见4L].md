@@ -413,3 +413,20 @@ revuestarlight.com/news/9172/
 而且别离只是手游的第一批卡，正式带剧情的活动差不多已经在第三年了（而且直接是再演）。导致在此期间只 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咦？再演活动是第一次出剧情？还以为是复刻。哦好像也是，复刻不会出的新卡
 
+*****
+
+####  Alicest  
+##### 745#       发表于 2023-5-16 22:42
+
+6.11的南京线下
+
+qq群：568981296
+
+
+*****
+
+####  nh_zzz  
+##### 746#       发表于 2023-5-17 02:14
+
+这个8.5深圳的还看交响再演bd，貌似在准备激光烤肉x<img src="https://p.sda1.dev/11/d4e4f1ac0c95ba5d58f0f218a7fc8cb8/CMP_20230517021321884.jpg" referrerpolicy="no-referrer">
+
