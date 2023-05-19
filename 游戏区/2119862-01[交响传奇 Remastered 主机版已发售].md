@@ -1128,3 +1128,14 @@ ngc版有60帧和更原生的特效效果但没有追加内容，要么直接选
 
 淘宝PS4版少得可怜，贵到飞起。NS版却有这种低级问题。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+*****
+
+####  qiyu1234  
+##### 111#         楼主| 发表于 2023-5-16 22:35
+
+官方公布5月18日11点（北京时间10点）NS版TOS RE 更新补丁信息
+
+[https://tosre-nowagain.tales-ch.jp/update/](https://tosre-nowagain.tales-ch.jp/update/)
+
+修了一部分处理落和宕机BUG，一些最明显的特效劣化（菜单/小剧场背景黑屏，战斗切换白屏）仍然没有更新消息
+
