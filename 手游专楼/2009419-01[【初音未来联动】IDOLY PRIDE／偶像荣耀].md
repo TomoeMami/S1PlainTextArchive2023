@@ -126,3 +126,42 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点意思啊
 
+*****
+
+####  两个路人  
+##### 770#       发表于 2023-5-16 00:32
+
+ 本帖最后由 两个路人 于 2023-5-16 00:34 编辑 
+
+在放置类游戏里玩恋爱gal真是太棒了！然而金毛败犬蹭得累已经退环境啦 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://p.inari.site/guest/23-05/16/64625e921d5a1.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 771#       发表于 2023-5-16 10:05
+
+暂时打了5个end，这完成度还蛮高的，te播solo曲仪式感拉满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  liyropen  
+##### 772#       发表于 2023-5-16 22:31
+
+全结局达成，选项思路挺好懂的没走什么弯路，不过除了te都是快进了事的，也就看个大概，等活动快结束了再慢慢看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">玩的很开心
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  镜hinata  
+##### 773#       发表于 2023-5-17 08:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是衣服要硬抽恒常
+
