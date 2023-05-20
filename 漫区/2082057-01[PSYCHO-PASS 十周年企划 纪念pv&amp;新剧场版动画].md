@@ -1078,3 +1078,201 @@ ryo罪大恶极
 虽然请到第一季原班人马过来唱OPED很感动，但EGOIST这新歌也太NM难听了
 
 
+*****
+
+####  KOPKOM  
+##### 101#       发表于 2023-5-13 22:49
+
+感觉这作在泥潭完全没有讨论度，最后一幕铁窗泪真是让人心疼朱爷。。。
+
+*****
+
+####  aptx8285144  
+##### 102#       发表于 2023-5-13 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60836957&amp;ptid=2082057" target="_blank">KOPKOM 发表于 2023-5-13 22:49</a>
+
+感觉这作在泥潭完全没有讨论度，最后一幕铁窗泪真是让人心疼朱爷。。。</blockquote>
+不用担心，第三季就说明是个豪华软禁，朱爷连和红毛的联系都可以做到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赤字大王  
+##### 103#       发表于 2023-5-13 23:53
+
+<blockquote>aptx8285144 发表于 2023-5-13 22:54
+不用担心，第三季就说明是个豪华软禁，朱爷连和红毛的联系都可以做到 ...</blockquote>
+所以到底咋整，咱就想看朱爷
+
+*****
+
+####  smdzh2  
+##### 104#       发表于 2023-5-14 00:01
+
+听说杂贺没了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白活这一生  
+##### 105#       发表于 2023-5-14 00:02
+
+ryo不是不给EGOIST作曲了吗，怎么又来一首,这ED真的难听
+
+
+*****
+
+####  KOPKOM  
+##### 106#       发表于 2023-5-14 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60836992&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-5-13 22:54</a>
+不用担心，第三季就说明是个豪华软禁，朱爷连和红毛的联系都可以做到 ...</blockquote>
+主要是最后痛哭的那段配音配的好，让人心疼
+
+*****
+
+####  KOPKOM  
+##### 107#       发表于 2023-5-14 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60837585&amp;ptid=2082057" target="_blank">赤字大王 发表于 2023-5-13 23:53</a>
+所以到底咋整，咱就想看朱爷</blockquote>
+事件结束后在升官仪式的台上当着上百人的面两抢把局长干掉了，从旁边上来逮捕朱爷的霜月用支配者指着她但启动不了，最后全国新闻都报道了这事
+
+
+*****
+
+####  haruhiismer  
+##### 108#       发表于 2023-5-14 05:13
+
+后面越来越啦虽然第一部揭晓谜底也挺那啥的
+
+
+*****
+
+####  nh_zzz  
+##### 109#       发表于 2023-5-14 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60837711&amp;ptid=2082057" target="_blank">KOPKOM 发表于 2023-5-14 00:11</a>
+事件结束后在升官仪式的台上当着上百人的面两抢把局长干掉了，从旁边上来逮捕朱爷的霜月用支配者指着她但 ...</blockquote>
+用的主宰者还是传统？朱妹你也学坏了
+
+
+*****
+
+####  KOPKOM  
+##### 110#       发表于 2023-5-14 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60841279&amp;ptid=2082057" target="_blank">nh_zzz 发表于 2023-5-14 14:01</a>
+用的主宰者还是传统？朱妹你也学坏了</blockquote>
+当然传统，支配者又没办法锁局长的
+
+
+*****
+
+####  nh_zzz  
+##### 111#       发表于 2023-5-14 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60842921&amp;ptid=2082057" target="_blank">KOPKOM 发表于 2023-5-14 17:36</a>
+当然传统，支配者又没办法锁局长的</blockquote>
+所以这就是像忠臣藏里面给了反派一刀咯
+
+
+*****
+
+####  发财就收  
+##### 112#       发表于 2023-5-14 19:34
+
+禾生局长每季度都得死一次替身都成了固定戏码，剧场版也终于是最后一次死了吧
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  smdzh2  
+##### 113#       发表于 2023-5-14 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60843872&amp;ptid=2082057" target="_blank">发财就收 发表于 2023-5-14 20:34</a>
+禾生局长每季度都得死一次替身都成了固定戏码，剧场版也终于是最后一次死了吧
+
+----发送自 STAGE1 App for  ...</blockquote>
+如果还出前传的话局长还得接着死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无音命题  
+##### 114#       发表于 2023-5-14 21:14
+
+看完了，优点有不少，首先是把第三季的坑基本都填了，包括体操王子他爹的死，男2他哥，俩老年佣兵，以及朱爷为啥进去，而且其他关键人物比如法斑静火，和另外那俩玩家，包括彩虹桥都给了镜头。作为承上启下作品，坑填的不错。
+
+然后是朱爷的表现，香菜从开始到最后，感觉一直在刻意压着声线，包括中间和狗哥再见，经历各种突发事件，表现的都是有情绪波动，但是控制着，也就导致了最后铁窗里痛哭的时候冲击很大。
+
+再次是狗哥和朱爷发的糖不少，但是毕竟pp三季加上剧场版番外这一套折腾下来两人的形象基本也固定了，发多了跟人物也冲突了，俩人就算有爱情也是性转傻子那跟公主了，若干年后AI朱爷拥抱四肢不全的老年狗哥吧，做到这儿，可以理解<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+霜月很讨喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果还有续作，不算新人物，就得独自一人撑起前辈后辈卖萌卖呆装傻真傻傲娇的属性，不容易啊。
+
+说些不满的地方：
+
+首先是我对第三季的观感就特别不好，尤其体操王子，每次出现我看着都脑袋疼，剧场版甚至还号了两嗓子，我看的特难受，当然他父亲这个人物刻画的不错，不过没法改变第三季在我心里的评分，尤其那个3D场景还原<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+其次是，为了最后的一枪和大哭，剧场版前三分之二情绪还有冲突都展现的很克制克制，给人一种情绪不完全燃烧的感觉。
+
+最后是剧情，整体讲得通，就是因为上面第二点导致观感不是太好，无论是主角团还是反派，基本都突出一个木大。反派任务失败了木大，成功也木大，主角团这边也是，失败了木大，搭上性命达成了目的还是木大，
+
+但是没关系，朱爷会出手
+
+
+*****
+
+####  meailove  
+##### 115#       发表于 2023-5-14 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60844727&amp;ptid=2082057" target="_blank">无音命题 发表于 2023-5-14 21:14</a>
+
+看完了，优点有不少，首先是把第三季的坑基本都填了，包括体操王子他爹的死，男2他哥，俩老年佣兵，以及朱 ...</blockquote>
+我记得我第三季是看过的，但是体操王子是谁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无音命题  
+##### 116#       发表于 2023-5-14 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60844927&amp;ptid=2082057" target="_blank">meailove 发表于 2023-5-14 21:42</a>
+
+我记得我第三季是看过的，但是体操王子是谁</blockquote>
+第三季主角慎导灼啊，这哥们不是一直在旋转跳跃不停歇吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  満月－夜  
+##### 117#       发表于 2023-5-17 20:48
+
+除了那部第一监视者之外好像剧场版的打戏都挺多的？
+起码就这部来说打戏真的看爽了，把坑也填了。在我心中是+2，后续要是有tv烂就烂吧，剧场版做好就行<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hamartia  
+##### 118#       发表于 2023-5-17 21:10
+
+IG做近身搏击的演出一直都可以的
+
+
+*****
+
+####  nh_zzz  
+##### 119#       发表于 2023-5-18 00:44
+
+海外上映计划，已定档8.2英国和爱尔兰
+
+<img src="https://img.saraba1st.com/forum/202305/18/004351ovvhfxcwcxm2hzf7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-18 00:43 上传
+
