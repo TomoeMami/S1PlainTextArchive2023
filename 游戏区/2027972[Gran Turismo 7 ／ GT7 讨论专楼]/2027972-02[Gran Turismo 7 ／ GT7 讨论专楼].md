@@ -341,3 +341,32 @@ F1盘子上旋钮虽然比较松感觉也没那么好用不过起码是有了个
 —— 来自 Xiaomi 2304FPN6DC, ...</blockquote>
 最近那个新加的f1富士可太难了 还有近期更新后的环道赛体验几乎每条赛道都变很难T T
 
+*****
+
+####  龙娘777  
+##### 1754#       发表于 2023-5-18 00:53
+
+萌新 想撒丁岛刷钱 PP值高的只有一辆抽到的919 能调教下刷吗？不能的话求推辆不要太贵100w以下的车 实在是没多少钱了 法拉利邀请函快过期了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NEIN  
+##### 1755#       发表于 2023-5-18 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60884187&amp;ptid=2027972" target="_blank">龙娘777 发表于 2023-5-18 00:53</a>
+萌新 想撒丁岛刷钱 PP值高的只有一辆抽到的919 能调教下刷吗？不能的话求推辆不要太贵100w以下的车 实在是 ...</blockquote>
+gr2级别的都能刷，推荐gt500和新出的奥迪dtm
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  byisme001  
+##### 1756#       发表于 2023-5-18 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60884187&amp;ptid=2027972" target="_blank">龙娘777 发表于 2023-5-18 00:53</a>
+萌新 想撒丁岛刷钱 PP值高的只有一辆抽到的919 能调教下刷吗？不能的话求推辆不要太贵100w以下的车 实在是 ...</blockquote>
+道奇那辆火星车的gr1版本，改到800pp
+
