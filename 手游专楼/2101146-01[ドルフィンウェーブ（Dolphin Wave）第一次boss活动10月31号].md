@@ -1601,3 +1601,45 @@ ex淘汰赛翻车了，做好对策再进去
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">淘汰赛不优胜还不能拿每日活动任务的石头，不能通亏爆
 
+*****
+
+####  羽出  
+##### 366#       发表于 2023-5-16 18:56
+
+新卡池是处男杀手毛衣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小五的拖鞋  
+##### 367#         楼主| 发表于 2023-5-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60867543&amp;ptid=2101146" target="_blank">羽出 发表于 2023-5-16 18:56</a>
+
+新卡池是处男杀手毛衣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么拆CP了，开始不按套路出牌了
+
+
+*****
+
+####  cwbn  
+##### 368#       发表于 2023-5-18 15:25
+
+<img src="https://img.saraba1st.com/forum/202305/18/152454etelgkk9rreg8afz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (245.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-18 15:24 上传
+
+这什么撞大运。。。。。
+
+
+*****
+
+####  心之光  
+##### 369#       发表于 2023-5-18 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏的爆率楼上这种太晒了吧
+
