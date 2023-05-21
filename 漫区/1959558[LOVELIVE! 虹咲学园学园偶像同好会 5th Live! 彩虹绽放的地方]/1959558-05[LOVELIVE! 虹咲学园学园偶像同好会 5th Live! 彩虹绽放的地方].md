@@ -5647,3 +5647,117 @@ as死在这时候是没什么体面了
 
 才首阳也挺不容易了
 
+*****
+
+####  仟音一心  
+##### 7252#       发表于 2023-5-14 15:43
+
+LoveLive! 虹咲学园学园偶像同好会 × 电击文库 小说『红莲的剑姬』 8月10日发售
+<img src="https://p.sda1.dev/11/acaa2d59b09155fb74b1739aefd37f0e/CMP_20230514154257079.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/66ce9e58f209babf2bb4c681497943d5/CMP_20230514153425066.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/a3423a2267c5a376b1a5c506f9c1f179/CMP_20230514153425152.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/bbaa4b723c5e1f8301b40afb60e81f4b/CMP_20230514153425233.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f0bfbb5b93d4586fb39f86c3e5eb6c6d/CMP_20230514153425307.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8205325086c7dc40de81ec351b0491aa/CMP_20230514154229306.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7253#       发表于 2023-5-14 16:48
+
+有小说就是有希望，如果能又出个ova就好了
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7254#       发表于 2023-5-14 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60842486&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-5-14 16:48</a>
+有小说就是有希望，如果能又出个ova就好了
+
+—— 来自 OPPO PGU110, Android 13上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+是拍微电影不是异世界，最多只能OVA了。
+
+
+*****
+
+####  仟音一心  
+##### 7255#       发表于 2023-5-14 20:31
+
+<img src="https://p.sda1.dev/11/aa903163b10b214284bdd19283dbad4e/-35ecf49d1028afc3.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2d2f6068015f69ba27bdc8898776d56f/CMP_20230514203120014.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/737a9d55342532415a4fbbbebfb4be51/CMP_20230514203120075.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/fe792c6b62e9e6245f8cebb994f889b8/CMP_20230514203120129.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7256#       发表于 2023-5-16 16:34
+
+<img src="https://p.sda1.dev/11/c0b14381d87cc7f746ccf260227dece8/CMP_20230516163418984.jpg" referrerpolicy="no-referrer">
+今日官方草台，泄露了loveliveallstars最后一首歌名《KAGAYAKI Don't forget》。 ​​​
+
+*****
+
+####  待宵  
+##### 7257#       发表于 2023-5-16 16:41
+
+红莲剑姬真要出动画直接异世界也不是不行吧，LL本来就是原创
+
+
+*****
+
+####  仟音一心  
+##### 7258#       发表于 2023-5-16 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60865698&amp;ptid=1959558" target="_blank">待宵 发表于 2023-5-16 16:41</a>
+
+红莲剑姬真要出动画直接异世界也不是不行吧，LL本来就是原创</blockquote>
+但是红莲剑姬小说不是讲异世界的，是同好会拍微电影。异世界的话虹咲传说的可能性更大一些，异世界人设都全的。
+
+*****
+
+####  待宵  
+##### 7259#       发表于 2023-5-16 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60865792&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-5-16 16:48</a>
+
+但是红莲剑姬小说不是讲异世界的，是同好会拍微电影。异世界的话虹咲传说的可能性更大一些，异世界人设都 ...</blockquote>
+反正我就想看虹咲新动画<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7260#       发表于 2023-5-16 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60865831&amp;ptid=1959558" target="_blank">待宵 发表于 2023-5-16 16:51</a>
+
+反正我就想看虹咲新动画</blockquote>
+先看《幻日的夜羽》怎么试水，要是能成功那就有戏。
+
+
+*****
+
+####  ads147147  
+##### 7261#       发表于 2023-5-18 20:49
+
+五专，ova放送当天有新情报。
+as变成了。。奇怪的东西
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7262#       发表于 2023-5-18 21:02
+
+5专和衣服投票
+<img src="https://p.sda1.dev/11/6036d407af1166718db4d2ced28ad17c/2scvqnm8uf2n1i9qpoa8oszvk.jpg" referrerpolicy="no-referrer">
+
