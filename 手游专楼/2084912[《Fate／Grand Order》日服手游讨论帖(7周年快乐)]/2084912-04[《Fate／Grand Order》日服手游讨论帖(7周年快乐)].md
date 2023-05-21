@@ -14169,3 +14169,1842 @@ beast现在多少有点退版本了，打完ORT以后</blockquote>
 来个天之亡骸吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个不给力，还是来个朱月吧
 
+*****
+
+####  RiesbyfeAtlasia  
+##### 5811#       发表于 2023-3-31 23:04
+
+终于不是像素小游戏了
+
+
+*****
+
+####  alucardcz  
+##### 5812#       发表于 2023-3-31 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么都没人豹跳呢  整整5护符啊！
+
+*****
+
+####  黑上シグマ  
+##### 5813#       发表于 2023-3-31 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60292318&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-3-31 23:45</a>
+
+怎么都没人豹跳呢  整整5护符啊！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是攒着等提妈啊
+
+
+*****
+
+####  alucardcz  
+##### 5814#       发表于 2023-3-31 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60292330&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-3-31 23:46</a>
+
+当然是攒着等提妈啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有5张护符呢！new5个不是问题
+
+
+*****
+
+####  森兰丸  
+##### 5815#       发表于 2023-4-1 21:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">麻了....完全不懂日本野球也玩不来这野球小游戏啊....我只是想看个剧情而已....为啥这愚人节小游戏也要折磨我
+
+
+*****
+
+####  alucardcz  
+##### 5816#       发表于 2023-4-2 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么星期天居然有更新
+
+*****
+
+####  壳壳牛  
+##### 5817#       发表于 2023-4-2 17:22
+
+可以给活动从者补硬币了
+
+
+*****
+
+####  khxooo  
+##### 5818#       发表于 2023-4-2 17:54
+
+ 本帖最后由 khxooo 于 2023-4-2 17:56 编辑 
+
+马上换了骑金时的所有东西了，就等弓信长、泳装BBA和圣诞黑呆了，这样所有活动从者都集齐了。哦，当然不包括那狗屎的三选一<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARKGRAY  
+##### 5819#       发表于 2023-4-2 19:06
+
+三选一肯定也会塞进这里来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 5820#       发表于 2023-4-2 19:19
+
+今年的主题看来就是这个了，又可以摸一年了
+
+
+*****
+
+####  eilot  
+##### 5821#       发表于 2023-4-2 19:37
+
+馬上換金時，就是欠他
+
+之後就是信長、茶茶、聖誕黑貞和聖誕SABER、對了，還有泳裝師父都是送的
+
+
+*****
+
+####  eilot  
+##### 5822#       发表于 2023-4-2 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60308341&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-4-2 19:19</a>
+
+今年的主题看来就是这个了，又可以摸一年了</blockquote>
+還有職業執照盤，那個入手素材都不知道如何入手，可能都是只能等活動每次派1~2個，但每開一個新格子就要用數個
+
+*****
+
+####  alucardcz  
+##### 5823#       发表于 2023-4-2 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传说中的从者通用硬币还有机会吗
+
+*****
+
+####  qixinno2  
+##### 5824#       发表于 2023-4-2 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60308674&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-2 19:45</a>
+
+传说中的从者通用硬币还有机会吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没戏了 别想了
+
+*****
+
+####  J-002  
+##### 5825#       发表于 2023-4-2 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">日服入坑晚少了一大堆人，这仨补上来后还差22个，摩多摩多
+
+
+*****
+
+####  qixinno2  
+##### 5826#       发表于 2023-4-2 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正不看好这玩意的更新速度 毕竟正常应该按时间顺序先复刻弓信长圣诞黑呆之类的
+
+
+*****
+
+####  黑上シグマ  
+##### 5827#       发表于 2023-4-2 20:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开服党表示硬币都不想换，那群四星目前也没啥上班机会
+
+*****
+
+####  khxooo  
+##### 5828#       发表于 2023-4-2 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60308905&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-2 20:04</a>
+
+反正不看好这玩意的更新速度 毕竟正常应该按时间顺序先复刻弓信长圣诞黑呆之类的 ...</blockquote>
+不按时间顺序更好，他们估计打算一开始送几个强力的活动从者让新人更好的开荒，R金时就不说了，活动从者的天花板，尺羽蛇神身板够硬，Buff量也不差，酒吞更是高贵的术单体。
+
+
+*****
+
+####  alucardcz  
+##### 5829#       发表于 2023-4-2 20:48
+
+<img src="https://img.saraba1st.com/forum/202304/02/204801u6k4y32rrrtmt70m.jpg" referrerpolicy="no-referrer">
+
+<strong>2323.jpg</strong> (544.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-2 20:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">好耶 提妈稳了
+
+
+*****
+
+####  qixinno2  
+##### 5830#       发表于 2023-4-2 22:30
+
+<blockquote>alucardcz 发表于 2023-4-2 20:48
+好耶 提妈稳了</blockquote>
+狗萌新又狗了
+
+
+*****
+
+####  里村紅葉  
+##### 5831#       发表于 2023-4-2 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60309486&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-2 20:48</a>
+
+好耶 提妈稳了</blockquote>
+醒醒，废狗没有大小保底的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 5832#       发表于 2023-4-2 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60310826&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-4-2 22:32</a>
+
+醒醒，废狗没有大小保底的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但提妈是限定而这混蛋是欧洲限定佬
+
+
+*****
+
+####  希望之花  
+##### 5833#       发表于 2023-4-3 05:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">wtm今年还没new过一个五星从者
+
+
+*****
+
+####  qixinno2  
+##### 5834#       发表于 2023-4-3 06:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60312853&amp;ptid=2084912" target="_blank">希望之花 发表于 2023-4-3 05:06</a>
+
+wtm今年还没new过一个五星从者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是不是什么都没抽啊 我这种霉B还有几个五星呢
+
+
+*****
+
+####  都谷捻柏  
+##### 5835#       发表于 2023-4-3 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60308646&amp;ptid=2084912" target="_blank">eilot 发表于 2023-4-2 19:43</a>
+
+還有職業執照盤，那個入手素材都不知道如何入手，可能都是只能等活動每次派1~2個，但每開一個新格子就要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦对，还有这玩意。
+
+这个等出来之后再评论，希望能给游戏带来新的爆点。
+
+*****
+
+####  都谷捻柏  
+##### 5836#       发表于 2023-4-3 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60309215&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-2 20:28</a>
+
+他们估计打算一开始送几个强力的活动从者让新人更好的开荒，R金时就不说了，活动从者的天花板，尺羽蛇神身 ...</blockquote>
+可是R金时感觉在现今90++环境里也不好发挥了，实用性不如去年送的活动从者……
+
+
+*****
+
+####  khxooo  
+##### 5837#       发表于 2023-4-3 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60313469&amp;ptid=2084912" target="_blank">都谷捻柏 发表于 2023-4-3 08:52</a>
+可是R金时感觉在现今90++环境里也不好发挥了，实用性不如去年送的活动从者…… ...</blockquote>
+我应该有说了是萌新开荒吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 5838#       发表于 2023-4-3 11:49
+
+感谢爱酱的11绊石头，金石4宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  都谷捻柏  
+##### 5839#       发表于 2023-4-3 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60313500&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-3 08:55</a>
+
+我应该有说了是萌新开荒吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没注意看到，下意识认为这个游戏没有新人了
+
+
+*****
+
+####  khxooo  
+##### 5840#       发表于 2023-4-3 17:46
+
+看了看攻击力加成去到5.21，那么4月大概率是整个月长草<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 5841#       发表于 2023-4-3 17:50
+
+日服新人还是有的，好友申请里能看到几个明显是新号的，国服是真没啥新人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl  能换活动四星目前最直接的意义是能送金方块，刚好梦火不够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 5842#       发表于 2023-4-3 17:56
+
+<blockquote>引用第5840楼保罗赫伯特于2023-04-03 17:50发表的  :
+
+日服新人还是有的，好友申请里能看到几个明显是新号的，国服是真没啥新人了syl  能换活动四星目前最直......</blockquote>
+我怎么记得公告写这个换的不给金方块
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 5843#       发表于 2023-4-3 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60321303&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-4-3 17:56</a>
+
+我怎么记得公告写这个换的不给金方块
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">满破有一个金方块
+
+
+*****
+
+####  alucardcz  
+##### 5844#       发表于 2023-4-3 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60321420&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-3 18:06</a>
+
+满破有一个金方块</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不就等于没有吗 欧羡慕
+
+
+*****
+
+####  qixinno2  
+##### 5845#       发表于 2023-4-3 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60321584&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-3 18:17</a>
+
+那不就等于没有吗 欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你个出狗蛋的狗萌新羡慕个屁 我要把非气全都送给你
+
+
+*****
+
+####  希望之花  
+##### 5846#       发表于 2023-4-4 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60312939&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-3 06:45</a>
+
+你是不是什么都没抽啊 我这种霉B还有几个五星呢</blockquote>
+一直都是石不过三的
+
+去年感觉出货率异常高，今年估计要偿还了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5847#       发表于 2023-4-4 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60325444&amp;ptid=2084912" target="_blank">希望之花 发表于 2023-4-4 00:18</a>
+
+一直都是石不过三的
+
+去年感觉出货率异常高，今年估计要偿还了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一直不出货怕是要来波大的 攒攒石头到时直接来个五宝
+
+
+*****
+
+####  khxooo  
+##### 5848#       发表于 2023-4-4 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60326731&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-4 08:49</a>
+一直不出货怕是要来波大的 攒攒石头到时直接来个五宝</blockquote>
+大的什么时候来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5849#       发表于 2023-4-4 11:35
+
+ 本帖最后由 qixinno2 于 2023-4-4 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60326871&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-4 09:05</a>
+
+大的什么时候来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">活动保送五宝 不如问问狗萌新为什么总能出货
+
+
+*****
+
+####  khxooo  
+##### 5850#       发表于 2023-4-4 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60328812&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-4 11:35</a>
+活动保送五宝 不如问问狗萌新为什么总能出货</blockquote>
+只能说人与人的运气并不相同<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5851#       发表于 2023-4-4 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60331837&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-4 16:00</a>
+
+只能说人与人的运气并不相同</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不要上当了  回你的可是双黄的欧皇
+
+*****
+
+####  khxooo  
+##### 5852#       发表于 2023-4-4 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60331974&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-4 16:12</a>
+你不要上当了  回你的可是双黄的欧皇</blockquote>
+但也不能否认你狗阿，不要转移话题阿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5853#       发表于 2023-4-4 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60331974&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-4 16:12</a>
+
+你不要上当了  回你的可是双黄的欧皇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明狗萌新自己一直在晒出货 还想转移话题
+
+
+*****
+
+####  alucardcz  
+##### 5854#       发表于 2023-4-4 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60332193&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-4 16:27</a>
+
+明明狗萌新自己一直在晒出货 还想转移话题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如一个双黄
+
+
+*****
+
+####  exiaexa  
+##### 5855#       发表于 2023-4-4 17:11
+
+nmd，又是4单0狗蛋，都特么是狗萌新的错
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5856#       发表于 2023-4-5 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60332975&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-4-4 17:11</a>
+
+nmd，又是4单0狗蛋，都特么是狗萌新的错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这怎么能怪萌新呢(
+
+
+*****
+
+####  qixinno2  
+##### 5857#       发表于 2023-4-5 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60341453&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-5 13:07</a>
+
+这怎么能怪萌新呢(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">明显是狗萌新把欧气都吸走了 自己疯狂出货其他人都出不了货
+
+
+*****
+
+####  khxooo  
+##### 5858#       发表于 2023-4-5 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60341453&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-5 13:07</a>
+这怎么能怪萌新呢(</blockquote>
+欧气被你吸干了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  v22325  
+##### 5859#       发表于 2023-4-5 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">20抽酒吞到手，这么多年我终于有酒吞了
+
+
+*****
+
+####  alucardcz  
+##### 5860#       发表于 2023-4-5 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60343880&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-5 18:42</a>
+
+欧气被你吸干了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看你楼下  冤啊（
+
+
+*****
+
+####  sosgame67  
+##### 5861#       发表于 2023-4-5 22:12
+
+3呼符出酒吞，跑路跑路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5862#       发表于 2023-4-7 18:05
+
+喜提长草
+
+太行了
+
+
+*****
+
+####  angelooo  
+##### 5863#       发表于 2023-4-7 18:15
+
+螺旋狗：我把一切押在街机联动了233
+
+*****
+
+####  quanlix  
+##### 5864#       发表于 2023-4-7 18:20
+
+看这技能盘什么时候能给憋出来了，也就这玩意儿有点儿新鲜感了
+
+
+*****
+
+####  alucardcz  
+##### 5865#       发表于 2023-4-7 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4个月都给你2个活动了 不要不知好歹
+
+
+*****
+
+####  khxooo  
+##### 5866#       发表于 2023-4-7 18:35
+
+为什么还有人对螺旋狗有期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5867#       发表于 2023-4-7 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至不如重组前的废物DL 连个改模或强化本都没有 太强了
+
+
+*****
+
+####  khxooo  
+##### 5868#       发表于 2023-4-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60365765&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-7 19:29</a>
+
+甚至不如重组前的废物DL 连个改模或强化本都没有 太强了</blockquote>
+是啊，DW最少改模这方面没有落下过，螺旋狗这垃圾也就改了几个，就完全摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5869#       发表于 2023-4-7 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60366054&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-7 19:51</a>
+
+是啊，DW最少改模这方面没有落下过，螺旋狗这垃圾也就改了几个，就完全摆烂了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟随便出池子 反正总有人抽
+
+
+*****
+
+####  里村紅葉  
+##### 5870#       发表于 2023-4-7 20:10
+
+还有人觉得这个月不会长草的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5871#       发表于 2023-4-7 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60366270&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-4-7 20:10</a>
+
+还有人觉得这个月不会长草的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4月30号出活动开提妈池如何  30号也是这个月
+
+
+*****
+
+####  里村紅葉  
+##### 5872#       发表于 2023-4-7 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60366331&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-7 20:14</a>
+
+4月30号出活动开提妈池如何  30号也是这个月</blockquote>
+那不还是长草，还是说你打算活动开的第一天就强行刷毕业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 5873#       发表于 2023-4-8 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60366331&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-7 20:14</a>
+
+4月30号出活动开提妈池如何  30号也是这个月</blockquote>
+什么？活动不是30号开？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ——啧  
+##### 5874#       发表于 2023-4-8 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60370006&amp;ptid=2084912" target="_blank">khxooo 发表于 2023-4-8 00:44</a>
+什么？活动不是30号开？</blockquote>
+是30号23时（指正）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 5875#       发表于 2023-4-8 14:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心到时候29号23点开放 啪啪打你们这些黑子的脸
+
+
+*****
+
+####  保罗赫伯特  
+##### 5876#       发表于 2023-4-8 16:34
+
+往好处想，时间越长，能积攒越多的石头<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 5877#       发表于 2023-4-8 16:41
+
+<blockquote>引用第5875楼保罗赫伯特于2023-04-08 16:34发表的  :
+
+往好处想，时间越长，能积攒越多的石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往坏处想，除非你能攒到一井，否则该死还是得死
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  qixinno2  
+##### 5878#       发表于 2023-4-8 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟不是狗萌新 随便一抽就出UP了 建议还是保持心态随缘吧
+
+
+*****
+
+####  cckuku  
+##### 5879#       发表于 2023-4-10 01:05
+
+硬币开错了还有救吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARKGRAY  
+##### 5880#       发表于 2023-4-10 03:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60393966&amp;ptid=2084912" target="_blank">cckuku 发表于 2023-4-10 01:05</a>
+
+硬币开错了还有救吗</blockquote>
+再抽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  الطائر  
+##### 5881#       发表于 2023-4-10 04:10
+
+从10绊升到15绊就有100硬币了
+
+
+*****
+
+####  quanlix  
+##### 5882#       发表于 2023-4-10 15:57
+
+<img src="https://img.saraba1st.com/forum/202304/10/155411dekefo1jek3eztwz.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230410155345.jpg</strong> (103.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 15:54 上传
+
+<img src="https://img.saraba1st.com/forum/202304/10/155414yyno9cthnzuuh7ip.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230410155355.jpg</strong> (38.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-10 15:54 上传
+
+好家伙，螺旋狗这德行能有工作效率就有鬼了，全他妈是摸鱼老油条
+
+*****
+
+####  qixinno2  
+##### 5883#       发表于 2023-4-10 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5884#       发表于 2023-4-10 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么了 就算这样还是能躺着赚钱 为什么要动？
+
+
+*****
+
+####  sosgame67  
+##### 5885#       发表于 2023-4-10 16:45
+
+我倒是好奇这居家办公率怎么这么高...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 5886#       发表于 2023-4-10 16:53
+
+牛批，怕不是YLS带头居家摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5887#       发表于 2023-4-10 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶光up　抽啊（
+
+*****
+
+####  布伦史塔德  
+##### 5888#       发表于 2023-4-10 17:03
+
+螺旋狗上半年也太摆了
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5889#       发表于 2023-4-10 18:39
+
+下半年也会继续摆
+
+
+*****
+
+####  khxooo  
+##### 5890#       发表于 2023-4-10 19:01
+
+本想氪金的，算了，他摆我也摆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marxel  
+##### 5891#       发表于 2023-4-11 11:56
+
+官推下面居然有日本人在yygq，时代变了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5892#       发表于 2023-4-12 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这疯狂长草+同时开无数复课池的模式 是不是以后要常驻了
+
+
+*****
+
+####  khxooo  
+##### 5893#       发表于 2023-4-12 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60428526&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-12 17:03</a>
+这疯狂长草+同时开无数复课池的模式 是不是以后要常驻了</blockquote>
+只能说，做好这个准备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 5894#       发表于 2023-4-12 17:44
+
+看16號之後巡靈之祝完了後，官方會否再搞無意義草草草吧
+
+會用一件新的禮裝本來拖多2星期，還是會用狩獵本?
+
+*****
+
+####  qixinno2  
+##### 5895#       发表于 2023-4-12 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口继续长草 不拖到最后一天多难受啊
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5896#       发表于 2023-4-12 19:03
+
+没有90++狩猎本打感觉身上有盐川在爬
+
+
+*****
+
+####  AbigailWilliams  
+##### 5897#       发表于 2023-4-12 19:14
+
+别尬黑，这两年是在证明自己是业界独一无二的奇迹罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊芙琳  
+##### 5898#       发表于 2023-4-12 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一种独立游戏更新的美
+
+
+*****
+
+####  exiaexa  
+##### 5899#       发表于 2023-4-13 13:22
+
+你们怎么真的在期待加班快更，你们好怪哦.JPG
+
+我现在就种树+每天一抽，甚至满破了一张魔道元帅
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 5900#       发表于 2023-4-13 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60436200&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-4-13 13:22</a>
+你们怎么真的在期待加班快更，你们好怪哦.JPG
+
+我现在就种树+每天一抽，甚至满破了一张魔道元帅
+
+ ...</blockquote>
+楼里估计都是抱着看戏的心情等着螺旋狗更新吧，在1月的时候就不对它抱有希望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 5901#       发表于 2023-4-13 17:20
+
+可不就看戏吗，现在就想看fgo关服之后螺旋狗怎么死呢
+
+
+*****
+
+####  ddrr  
+##### 5902#       发表于 2023-4-14 10:05
+
+呵呵，我直接断签
+
+
+*****
+
+####  xiongxingyu  
+##### 5903#       发表于 2023-4-14 10:35
+
+看到提示突然想起来金方块商店东西还没换，差点就过期了。吃了最后2个金芙芙，公主目前满宝，101010，120，满芙芙都已达成，等到挂满15绊我也差不多该退坑了（前提是这破游戏能活到那时候）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MagicGunner  
+##### 5904#       发表于 2023-4-14 20:07
+
+纯长草，紧张刺激的签到活动是吧
+
+*****
+
+####  alucardcz  
+##### 5905#       发表于 2023-4-14 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60455269&amp;ptid=2084912" target="_blank">MagicGunner 发表于 2023-4-14 20:07</a>
+
+纯长草，紧张刺激的签到活动是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复课池不断哦 （不知道有没有人课
+
+
+*****
+
+####  黑上シグマ  
+##### 5906#       发表于 2023-4-15 08:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上已经吵起来了
+“一些老ass没事就在喊虚无虚无，现在这时间就是给新人追进度用的，你们有空喊还不去刷QP种火素材”
+“刷你大爷那你丫的倒是开钱本狗粮本AP半减啊！开强化本啊！开幕间啊！”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甚至有人开始怀念起了盐川，“大尊师那时候可没这么多长草时间的！”
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  eilot  
+##### 5907#       发表于 2023-4-15 09:36
+
+ 本帖最后由 eilot 于 2023-4-15 09:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60459782&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2023-4-15 08:57</a>
+
+推上已经吵起来了
+
+“一些老ass没事就在喊虚无虚无，现在这时间就是给新人追进度用的，你们有空喊还 ...</blockquote>
+真是給新玩家追進度的話(FGO的活動也真是需要追進度才能入場)
+
+不停送劵，不停開新手池或新手課金池才對，這些也是出了3~5年或以上手遊經常看到的手段
+
+而它也只是宣稱準備出全職業執照盤，但還是沒有隊長技、相關被動技/血統等組隊LINK能全員強化
+
+
+*****
+
+####  里村紅葉  
+##### 5908#       发表于 2023-4-15 10:08
+
+阿叶让你们把时间留给别的游戏，他哭的，我真死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARKGRAY  
+##### 5909#       发表于 2023-4-15 10:46
+
+给新人赶进度的话大力送果送灵脉石然后开些每天刷2把完事的活动就是啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 5910#       发表于 2023-4-15 17:58
+
+其实之前我还在贴吧说过
+
+盐川在位的FGO1.5的时候就是最巅峰的时候，每周消息不断，联动、线下、新章节、PV、主题曲
+
+活动密集，剧情结构短平快，废话少几乎没有谜语人，每章一首歌+PV，不管好不好但总有活在整对不
+
+除了压榨钱包爽的一批
+
+2.0搞到现在都是什么傻逼玩意儿，整活又没本事整大的，搞乐子又放不开玩，整到现在最快乐的还是2.3
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5911#       发表于 2023-4-15 18:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏还有新人吗  就算有 会在这种时机入坑吗
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5912#       发表于 2023-4-15 18:11
+
+这下盼盐川归了
+
+我一直是川粉啊
+
+
+*****
+
+####  qixinno2  
+##### 5913#       发表于 2023-4-15 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骑之辉石警告
+
+
+*****
+
+####  miro112233  
+##### 5914#       发表于 2023-4-15 18:59
+
+骑辉石的讨论度不比现在一潭死水强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不管好活烂活，盐川起码能整活，不像yls连个屁都放不出来
+
+
+*****
+
+####  AbigailWilliams  
+##### 5915#       发表于 2023-4-15 19:03
+
+盐川最大黑点在我这是圣诞41w血黑呆，现在看可能没什么感觉了，那时候确实难蚌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 5916#       发表于 2023-4-15 20:28
+
+ 本帖最后由 eilot 于 2023-4-15 20:29 编辑 
+
+黃油八月社和DMM合作的手遊愛境秘蹟，被DMM提前將一個月後的活動的PV及部份素材漏出，之後更乾脆將PV播出來...
+
+那隻愛境秘蹟平均一個活動長1星期多，活動最後2天會播下期活動PV，而且它更有每3個月出甚麼活動/主線的路線圖
+
+如果FGO那麼勤力能做多一個月後工作就好了，不過它就算給多一個月，也可以在月底最後一天對你說延期再延又不延，但成品還是拖下去...它也沒甚麼能力去做路線圖，最低限度它就沒勇氣說下個月會出甚麼活動，那怕只是復刻也好，如果3個月才只得一個主線沒其他就更...
+
+
+*****
+
+####  eilot  
+##### 5917#       发表于 2023-4-16 12:45
+
+在巴哈看了在5月6 日在動畫遊戲娛樂展會有放送，
+
+基本已能確定會長草足這個月...
+
+
+*****
+
+####  里村紅葉  
+##### 5918#       发表于 2023-4-16 13:08
+
+可惜我还是没跟盐疯骑礼和解，我宁可长草长一年也不要再看盐川发癫<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  黑上シグマ  
+##### 5919#       发表于 2023-4-16 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在推特日本趋势上天天挂着四个大字，“虚無期間”
+
+
+*****
+
+####  alucardcz  
+##### 5920#       发表于 2023-4-16 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该开个盘了 明天是否依然无事发生
+
+
+*****
+
+####  黑上シグマ  
+##### 5921#       发表于 2023-4-16 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60481776&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-16 21:00</a>
+
+该开个盘了 明天是否依然无事发生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不是理所当然的吗？
+
+
+*****
+
+####  芭德薇  
+##### 5922#       发表于 2023-4-16 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60466693&amp;ptid=2084912" target="_blank">eilot 发表于 2023-4-15 20:28</a>
+
+黃油八月社和DMM合作的手遊愛境秘蹟，被DMM提前將一個月後的活動的PV及部份素材漏出，之後更乾脆將PV播出來 ...</blockquote>
+一般手游提前半年准备好后面活动的素材是基本，连黄金周活动都能鸽的只有fgo这么一家。
+
+
+*****
+
+####  qixinno2  
+##### 5923#       发表于 2023-4-16 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们懂什么 这是为了让你们放松心情 准备好在五一开始紧张刺激的打活动
+
+
+*****
+
+####  eilot  
+##### 5924#       发表于 2023-4-16 22:33
+
+ 本帖最后由 eilot 于 2023-4-16 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60482455&amp;ptid=2084912" target="_blank">芭德薇 发表于 2023-4-16 21:40</a>
+
+一般手游提前半年准备好后面活动的素材是基本，连黄金周活动都能鸽的只有fgo这么一家。 ...</blockquote>
+半年就未必，或做的都是最基本及重用的素材，但通常都會準備好之後之後每季3個月的活動規劃及預定活動路線圖，素材也為此而開發
+
+只是FGO給你3個月，也可能只得一次主線，而且第一次還可能只得簡單10個關卡(未算劇情關)，並同月只給你一個尼錄祭，但之後2個月就真是...
+
+不過被自家合作的DMM透了下個月中期的活動會出甚麼角色，就可能會引起玩家課金意欲，如FF系手遊在下個月給你FF7的賽飛這類超人氣的話，這個月就基本上就會忍手，又或者給一些冷門角色，甚至會引起玩家討論說這個月可以休息了
+
+
+*****
+
+####  少女人形  
+##### 5925#       发表于 2023-4-16 22:53
+
+连减半都懒得开了吗
+
+*****
+
+####  白金口袋  
+##### 5926#       发表于 2023-4-16 23:00
+
+你们没事老把专楼顶上来我还以为有新情报，结果进来瞅一样还是长草啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 5927#       发表于 2023-4-17 08:50
+
+骑辉石那个营销案例当时给DW省了一千多万宣传费，SME后面还专门吹过这个事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总比这几年让金沢把更多的钱砸给推特营销部门好
+
+
+*****
+
+####  khxooo  
+##### 5928#       发表于 2023-4-17 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60481776&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-16 21:00</a>
+该开个盘了 明天是否依然无事发生</blockquote>
+没事发生不是肯定的吗，为什么要开盘？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 5929#       发表于 2023-4-17 10:02
+
+礼拜三开个预热池子给个下周的生放预告，也就这样了，也行还能开几个幕间强化下？
+
+
+*****
+
+####  exiaexa  
+##### 5930#       发表于 2023-4-17 14:25
+
+我倒是确实没关心过盐疯骑礼的问题，那时候每个线下展都是10个石头，那段时间我都没注意到
+
+后来突然炎上了我还去补了下咋回事儿，后来反正石头照常发对我也没影响
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我确实是铁打的盐川派，我对阿叶这吊人最不满意的就是，他上任这么多年了，除了跪舔无氪以外，唯一的有效的氪金改动是十连改十一连，保底对我来说根本没意义，在我这里他上任以来确实是没啥卵用
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 5931#       发表于 2023-4-17 15:08
+
+作為一隻手遊，活動完了後有另一個活動，不問是否復刻，新活動完了就復刻活動，之後就是循環，這不是理所當然嗎...
+
+連頁遊網遊大多都是這樣，空窗期不會長到數星期都沒消息，
+
+以拿強化幕間這類抽不到有關角色就不用理會，這樣也能拖到2星期也有點佩服
+
+狩獵本本身還是曜日，這樣也能當成活動來拖兩星期，之前更用新的素材提高禮裝，只是多個高難度關卡也能拖星期，也是搞笑
+
+新的曜日的極級也是遲了多年才補回，給的還是種火和金錢而沒有素材本，理應在給了5星種火時就要推出，結果居然是在友情抽才能出現5星種火，這已經是沒用
+
+那時還要卡在金石一直在活動中刷不到，活動在多年前只能換已經多的是的金棋銀棋，不出/抽不到新角再多金銀棋也是沒用，沒得再換藍紅金石
+
+至於保底機制，考慮其現在送石，只能說是給課長用的
+
+
+*****
+
+####  alucardcz  
+##### 5932#       发表于 2023-4-17 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然无事发生
+
+
+*****
+
+####  CrayS1  
+##### 5933#       发表于 2023-4-17 17:36
+
+FGO日服流水还能这么滋润,你们都有责任。
+
+
+*****
+
+####  qixinno2  
+##### 5934#       发表于 2023-4-17 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关我屁事 我纯白嫖
+
+*****
+
+####  保罗赫伯特  
+##### 5935#       发表于 2023-4-17 17:50
+
+随便啦，又不止玩这一个<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 5936#       发表于 2023-4-18 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60494066&amp;ptid=2084912" target="_blank">CrayS1 发表于 2023-4-17 17:36</a>
+
+FGO日服流水还能这么滋润,你们都有责任。</blockquote>
+18、19两年的时候还能用“滋润”形容，2020年以后已经算炸的很厉害了
+
+
+*****
+
+####  alucardcz  
+##### 5937#       发表于 2023-4-18 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是和平的一天
+
+*****
+
+####  里村紅葉  
+##### 5938#       发表于 2023-4-18 17:39
+
+没新活就不必把楼顶上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  alucardcz  
+##### 5939#       发表于 2023-4-18 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60508423&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-4-18 17:39</a>
+
+没新活就不必把楼顶上来了
+
+—— 来自 OnePlus NE2210, Android 12上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每天准时报平安啊（
+
+
+*****
+
+####  khxooo  
+##### 5940#       发表于 2023-4-18 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60508433&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-18 17:40</a>
+每天准时报平安啊（</blockquote>
+让别人知道这楼还有活人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 5941#       发表于 2023-4-18 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60508433&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-18 17:40</a>
+每天准时报平安啊（</blockquote>
+死者现在情绪稳定是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  真红眼教授  
+##### 5942#       发表于 2023-4-18 19:06
+
+看护赛博植物人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 5943#       发表于 2023-4-18 19:07
+
+活动期间都没这么多回复
+
+
+*****
+
+####  黑上シグマ  
+##### 5944#       发表于 2023-4-18 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60509503&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-4-18 19:07</a>
+
+活动期间都没这么多回复</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动期间都在打活动啊
+
+
+*****
+
+####  eilot  
+##### 5945#       发表于 2023-4-18 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60509503&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2023-4-18 19:07</a>
+
+活动期间都没这么多回复</blockquote>
+活動都是討論如何平民隊打90++，得出可能方案後就大家嘗試，之後就沒之後...
+
+
+*****
+
+####  exiaexa  
+##### 5946#       发表于 2023-4-19 10:12
+
+草，刚才在贴吧看见一个被挖出来的17年坟贴没绷住
+
+内容是是盐川除了复刻就不会其它的了吗，天天复刻让咸鱼怎么活
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莉莉橙  
+##### 5947#       发表于 2023-4-19 10:26
+
+糟糠妻型游戏，没互动了嫌关系冷淡，互动多了又抱怨交公粮不堪重负
+
+
+*****
+
+####  quanlix  
+##### 5948#       发表于 2023-4-19 10:52
+
+<img src="https://img.saraba1st.com/forum/202304/19/105230dzmfkrcvluuaffvm.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230419105234.jpg</strong> (176.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-19 10:52 上传
+
+*****
+
+####  cckuku  
+##### 5949#       发表于 2023-4-19 10:57
+
+今年我已经想好了，提妈+泳装艾蕾+泳装r姐+爱歌+兽尼禄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 5950#       发表于 2023-4-19 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60515652&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-4-19 10:12</a>
+
+草，刚才在贴吧看见一个被挖出来的17年坟贴没绷住
+
+内容是是盐川除了复刻就不会其它的了吗，天天复刻让咸鱼 ...</blockquote>
+看了萌娘，再看了究極網的過去活動，其實復刻舊活動究竟有甚麼問題
+
+雖然18年年初真是來了連續空境、SABERWAR和天竺3個復刻，17~19大多都是新舊活動交替，沒有活動就是主線或強化周幕間周兩星期，作為一隻正常的手遊是常見行為....你不復刻舊活動，你叫15年中開服，16~17年那些活動限角如何入手，不過有好多手遊頁遊也真是沒再出開服時的限角
+
+
+*****
+
+####  exiaexa  
+##### 5951#       发表于 2023-4-19 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60517285&amp;ptid=2084912" target="_blank">eilot 发表于 2023-4-19 11:36</a>
+看了萌娘，再看了究極網的過去活動，其實復刻舊活動究竟有甚麼問題
+
+雖然18年年初真是來了連續空境、SABE ...</blockquote>
+我不知道你啥时候玩的fgo，阿盐在任的时候fgo是不带停的，活动/复刻一个接一个堪比隔壁gbf，直接把那一年的玩家给干麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且那时候的玩家是真的相信"盐川硬压着新活动不放整天搞复刻"，而不是现在的产能不足还硬不复刻
+
+前提条件都不一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5952#       发表于 2023-4-19 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都没到17点居然有那么多新回复我还以为有情报了（
+
+*****
+
+####  eilot  
+##### 5953#       发表于 2023-4-19 12:39
+
+ 本帖最后由 eilot 于 2023-4-19 12:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60518053&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-4-19 12:30</a>
+
+我不知道你啥时候玩的fgo，阿盐在任的时候fgo是不带停的，活动/复刻一个接一个堪比隔壁gbf，直接把那一年 ...</blockquote>
+原來如此，雖然是開服就玩，但之後棄多年是約20年前後才同一帳號再開，剛好就是錯過了盐川時期，因此那段時期的活動角都是沒有，(沒有泳裝師父、聖誕S和黑貞、信長和茶茶、騎金時)
+
+所以我之前才不停問何時才會補回活動角，因前年真是給出萬聖祭一口氣將有關活動角補回再給新活動角，所以就期待之後及上年會否來聖誕祭，但想不到連聖誕居然是給再再之前的復刻小太陽...
+
+
+*****
+
+####  UNISONIA  
+##### 5954#       发表于 2023-4-19 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60518053&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-4-19 12:30</a>
+
+我不知道你啥时候玩的fgo，阿盐在任的时候fgo是不带停的，活动/复刻一个接一个堪比隔壁gbf，直接把那一年 ...</blockquote>
+但是17年产能其实挺强的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+四章新主线（体量跟现在要出的Ordeal Call也是类似的了）+CCC联动，虽然153和154之间间隔非常短但是也给他赶工出来了
+
+虽然有复刻但是新活动的密度比疫情后要高，利用绿拐营销话题性导致1001、老福和刑部姬这几个当时强度也不咋行的卡氪金成绩都蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 5955#       发表于 2023-4-19 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60518965&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2023-4-19 13:47</a>
+但是17年产能其实挺强的了
+
+四章新主线（体量跟现在要出的Ordeal Call也是类似的了）+CCC联动，虽 ...</blockquote>
+所以我才说情况不一样，当时确实是高歌猛进，而且是实打实的每周都有新消息，线下、其他内容联动、打卡、新活动、复刻，从头到尾玩家都没怎么冷场过
+
+现在嘛，能有新消息就算成功
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 5956#       发表于 2023-4-19 14:08
+
+30岁青壮年跟70岁老头子怎么比嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 5957#       发表于 2023-4-19 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有3个小时就能报平安了（
+
+
+*****
+
+####  exiaexa  
+##### 5958#       发表于 2023-4-19 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60519252&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-4-19 14:08</a>
+
+30岁青壮年跟70岁老头子怎么比嘛</blockquote>
+那你还是太看不起70岁老头子了
+
+隔壁GBF四个字母依旧在按照几年前的步伐整活
+
+结果把大家都给整吐了，玩不动玩不动
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 5959#       发表于 2023-4-19 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60519896&amp;ptid=2084912" target="_blank">exiaexa 发表于 2023-4-19 15:00</a>
+
+那你还是太看不起70岁老头子了
+
+隔壁GBF四个字母依旧在按照几年前的步伐整活</blockquote>
+我GBF18年入坑19年就玩不动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">古战场这种两边拉一堆人比谁杀怪杀的快的弱智活动真的吃不消
+
+
+*****
+
+####  alucardcz  
+##### 5960#       发表于 2023-4-19 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">离报平安还剩50分钟  今天这么热闹会不会是什么预兆（
+
+
+*****
+
+####  qixinno2  
+##### 5961#       发表于 2023-4-19 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60520937&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-19 16:10</a>
+
+离报平安还剩50分钟  今天这么热闹会不会是什么预兆（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶多随便开个池子 奶一口无事发生
+
+
+*****
+
+####  alucardcz  
+##### 5962#       发表于 2023-4-19 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了 有事发生 居然有强化本
+
+*****
+
+####  阿提拉  
+##### 5963#       发表于 2023-4-19 17:02
+
+草，这就开了？
+
+
+*****
+
+####  alucardcz  
+##### 5964#       发表于 2023-4-19 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">提妈直接开了
+
+*****
+
+####  qixinno2  
+##### 5965#       发表于 2023-4-19 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么萌新还没豹跳
+
+*****
+
+####  里村紅葉  
+##### 5966#       发表于 2023-4-19 17:06
+
+？？？YLS在干嘛
+
+*****
+
+####  cckuku  
+##### 5967#       发表于 2023-4-19 17:06
+
+酱紫整蛊？
+
+*****
+
+####  roxas.sora  
+##### 5968#       发表于 2023-4-19 17:08
+
+提亚马特突然袭击，毫无预兆
+
+*****
+
+####  alucardcz  
+##### 5969#       发表于 2023-4-19 17:10
+
+这3破脸怎么回事。。太难看了
+
+*****
+
+####  qixinno2  
+##### 5970#       发表于 2023-4-19 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521801&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-19 17:10</a>
+
+这3破脸怎么回事。。太难看了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕
+
+
+*****
+
+####  eilot  
+##### 5971#       发表于 2023-4-19 17:12
+
+居然給了達文西的強化本???
+
+發生甚麼事啊???
+
+
+*****
+
+####  alucardcz  
+##### 5972#       发表于 2023-4-19 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521823&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-19 17:12</a>
+
+欧羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕啥  早寄了
+
+*****
+
+####  qixinno2  
+##### 5973#       发表于 2023-4-19 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521865&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-19 17:13</a>
+
+羡慕啥  早寄了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不信 坐等明天发石头萌新一发单抽出货
+
+*****
+
+####  cckuku  
+##### 5974#       发表于 2023-4-19 17:15
+
+那是不是意味着下个月铁有兽尼禄啊？
+
+*****
+
+####  alucardcz  
+##### 5975#       发表于 2023-4-19 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王哈都有自充了
+
+*****
+
+####  rooarr  
+##### 5976#       发表于 2023-4-19 17:16
+
+又没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5977#       发表于 2023-4-19 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521875&amp;ptid=2084912" target="_blank">qixinno2 发表于 2023-4-19 17:14</a>
+
+我不信 坐等明天发石头萌新一发单抽出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你信不信管我p事？
+
+*****
+
+####  里村紅葉  
+##### 5978#       发表于 2023-4-19 17:16
+
+草，2T CD的回血技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 5979#       发表于 2023-4-19 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521917&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-4-19 17:16</a>
+
+草，2T CD的回血技能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1500有啥用 不如看自充（
+
+*****
+
+####  黑上シグマ  
+##### 5980#       发表于 2023-4-19 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双黄，提妈爱我
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  qixinno2  
+##### 5981#       发表于 2023-4-19 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没了 GG
+
+*****
+
+####  里村紅葉  
+##### 5982#       发表于 2023-4-19 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521927&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-19 17:17</a>
+
+1500有啥用 不如看自充（</blockquote>
+开杀狐1技能也不怕了，满血强迫症大胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 5983#       发表于 2023-4-19 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生放有丹下樱，那谁应该稳了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  alucardcz  
+##### 5984#       发表于 2023-4-19 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521948&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2023-4-19 17:19</a>
+
+开杀狐1技能也不怕了，满血强迫症大胜利</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满血强迫症你居然敢用黑杯
+
+*****
+
+####  Jamaisvu  
+##### 5985#       发表于 2023-4-19 17:20
+
+卡面：
+
+<img src="https://img.saraba1st.com/forum/202304/19/171924xmf7lxf01nq0z51v.jpg" referrerpolicy="no-referrer">
+
+<strong>130891B9BE2212E655365B2F3EDED7B4.jpg</strong> (452.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-19 17:19 上传
+
+这光看卡面不就得抽爆！
+
+眼瞅着代充从435飙到480...幸好提前充过了。
+
+*****
+
+####  alucardcz  
+##### 5986#       发表于 2023-4-19 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521968&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2023-4-19 17:20</a>
+
+卡面：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3破这脸丑出天际 是我有问题吗
+
+
+*****
+
+####  khxooo  
+##### 5987#       发表于 2023-4-19 17:22
+
+230沉了，就这样吧，连个4星从者都没有<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 5988#       发表于 2023-4-19 17:25
+
+感觉不如街机好看
+
+*****
+
+####  阿提拉  
+##### 5989#       发表于 2023-4-19 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">先歪个源为朝，今年到现在还没欧过
+
+*****
+
+####  cckuku  
+##### 5990#       发表于 2023-4-19 17:26
+
+5发10连，小恩提妈枪龙娘B叔<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  里村紅葉  
+##### 5991#       发表于 2023-4-19 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60521959&amp;ptid=2084912" target="_blank">alucardcz 发表于 2023-4-19 17:19</a>
+满血强迫症你居然敢用黑杯</blockquote>
+所以发现伤害够了以后就换白杯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Jamaisvu  
+##### 5992#       发表于 2023-4-19 17:37
+
+话说提妈只是预热啊，估计到时候会和街机那边同时出活动？然后出同一个新五星？（其实我感觉还是没活了提前放出提妈维持热度，现在正在给活动找补...）
+
+*****
+
+####  exiaexa  
+##### 5993#       发表于 2023-4-19 17:38
+
+艹，3宝了，但是礼装3缺2
+告辞
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  壳壳牛  
+##### 5994#       发表于 2023-4-19 17:43
+
+凎
+300石寄了
+
+*****
+
+####  longrider  
+##### 5995#       发表于 2023-4-19 17:46
+
+单抽new了福利多，四舍五入也是龙了
+
+*****
+
+####  angelooo  
+##### 5996#       发表于 2023-4-19 17:47
+
+提妈三破什么情况，看着好怪，满破也……街机满破太优秀了，这么说联动应该还有个五星？
+
+*****
+
+####  angelooo  
+##### 5997#       发表于 2023-4-19 17:48
+
+<blockquote>alucardcz 发表于 2023-4-19 17:22
+3破这脸丑出天际 是我有问题吗</blockquote>
+我觉得你没有问题
+
+*****
+
+####  cckuku  
+##### 5998#       发表于 2023-4-19 17:49
+
+我觉得街机3破好看，满破不如手游。
+
+
+*****
+
+####  白金口袋  
+##### 5999#       发表于 2023-4-19 17:54
+
+这专楼被顶上来居然真的是因为有新情报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 6000#       发表于 2023-4-19 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 这礼装居然是下个活动的礼装？ 我一怒已经把3星的全卖了
+
