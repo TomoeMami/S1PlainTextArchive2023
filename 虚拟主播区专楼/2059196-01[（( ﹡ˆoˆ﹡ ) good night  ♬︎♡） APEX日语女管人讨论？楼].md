@@ -4960,3 +4960,23 @@ Stareidogs
 
 话说这次hnn打的是圈内队吗？怎么感觉有点四不像
 
+*****
+
+####  バーチャルS1er  
+##### 1087#         楼主| 发表于 2023-5-19 20:57
+
+还以为noah要保猎呢，只是上猎早点开始打不是轻松多了
+
+
+*****
+
+####  poipanchao  
+##### 1088#       发表于 2023-5-19 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60908514&amp;ptid=2059196" target="_blank">バーチャルS1er 发表于 2023-5-19 20:57</a>
+
+还以为noah要保猎呢，只是上猎早点开始打不是轻松多了</blockquote>
+很早了，更新就开打了
+
+毕竟不是apex主播，可以从早打到晚，还是有别的工作要干
+
