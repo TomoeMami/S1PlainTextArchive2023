@@ -2809,3 +2809,663 @@ AI很多牛逼的操作。比如MOSS佬表示看AI的立回才知道佩琳可以
  ...</blockquote>
 说来动画第二集里头四谷来制作所时候戴的帽子，是不是就以这个为基础的……
 
+*****
+
+####  madcow  
+##### 376#       发表于 2023-4-24 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">新活动啥，眼镜（？？？
+
+
+*****
+
+####  江戸前ルナ  
+##### 377#         楼主| 发表于 2023-4-24 18:56
+
+群里说疑似现在活动那个眼镜妹新UP。难道另一个是老人文嘉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 378#       发表于 2023-4-24 19:11
+
+文嘉fa，就这么决定了
+
+
+*****
+
+####  LEOKO~  
+##### 379#       发表于 2023-4-24 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60596029&amp;ptid=2104259" target="_blank">madcow 发表于 2023-4-24 17:53</a>
+
+新活动啥，眼镜（？？？</blockquote>
+太阳镜
+
+*****
+
+####  LEOKO~  
+##### 380#       发表于 2023-4-24 23:03
+
+第四话末尾突然来大的
+
+
+*****
+
+####  三合一出现  
+##### 381#       发表于 2023-4-25 08:14
+
+草，新角色是狸猫？？？
+
+
+*****
+
+####  Picavian  
+##### 382#       发表于 2023-4-25 11:03
+
+从阿凹那里借来sp的大手拍人好了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 383#         楼主| 发表于 2023-4-26 16:31
+
+新人这摘眼镜是会变身吗（
+
+话说我不信阿金会单UP啊
+
+
+*****
+
+####  alialex  
+##### 384#       发表于 2023-4-26 16:49
+
+新妹子挺好的，但是常驻非单up池还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+唯一一次单up新常驻的9爷是因为什么来着？
+
+
+*****
+
+####  Rincewind  
+##### 385#       发表于 2023-4-26 23:02
+
+新角色配音居然是小草莓，配合你游对话选项隔三差五向女演员求婚，明天怕不是队长要化身挑染哥了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+绘传这个池子应该就是今年的黄金周新池担当了。三年前的黄金周是单up，去年前年黄金周都是双up，这次的新池应该最多也就双up吧。
+
+
+*****
+
+####  孫光龍  
+##### 386#       发表于 2023-4-27 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个活动都刷完了才给开挂机功能
+
+
+*****
+
+####  Picavian  
+##### 387#       发表于 2023-4-27 14:55
+
+新的小姑娘是蜜蜂主题，昆虫怪人＋１。说不定很快就有和新假面骑士的梗图了
+
+
+*****
+
+####  madcow  
+##### 388#       发表于 2023-4-28 18:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">没有阿迪的竞泳看，遗憾
+
+
+*****
+
+####  江戸前ルナ  
+##### 389#         楼主| 发表于 2023-4-30 17:38
+
+妈的，今天调查把仓底的诗蕙拿出来用，于是久违地又觉得呼咪呼咪该哭晕在厕所。看到有人贴美里江湿身，虽然穿了件外套但是有湿身黑丝，深赞阿金好懂。转头一看呼咪呼咪，光腿没黑丝<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">阿金罪大恶极
+
+今天4月最后1天了，之前说的4月实装的卫星全都没下来，估计又要放在5.9的生放复读一次，阿金罪大恶极
+
+
+*****
+
+####  Rincewind  
+##### 390#       发表于 2023-5-1 02:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60672659&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-4-30 17:38</a>
+妈的，今天调查把仓底的诗蕙拿出来用，于是久违地又觉得呼咪呼咪该哭晕在厕所。看到有人贴美里江湿身，虽然 ...</blockquote>
+诗穗那个筒子不蓄力也不好用吧（）
+
+
+*****
+
+####  江戸前ルナ  
+##### 391#         楼主| 发表于 2023-5-1 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60680097&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-5-1 02:59</a>
+
+诗穗那个筒子不蓄力也不好用吧（）</blockquote>
+专属光束筒子基本性能都差不多那个样子，比如毛子文嘉诗蕙（天音那个太特殊不算），但光束筒子有个最大的缺陷是拆不动皮硬的怪，比如电饭煲之类的，这个在高难道中尤其致命。但诗蕙的蓄力完全解决了这个痛点。然后那个后射TMD是散射，一炮5发！配合光束筒子的爆炸范围可以说完封正面平面。所以这性能简直就是光束筒子之鉴
+
+
+*****
+
+####  冰风血羽  
+##### 392#       发表于 2023-5-1 20:21
+
+想请问下今天开的那个能换直美跟怜换装的图是只给20个材料换东西吗？好多想要的换不了啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  江戸前ルナ  
+##### 393#         楼主| 发表于 2023-5-1 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60687810&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-5-1 20:21</a>
+
+想请问下今天开的那个能换直美跟怜换装的图是只给20个材料换东西吗？好多想要的换不了啊
+
+  -- 来自 能搜索 ...</blockquote>
+因为这类快速复刻不是正经复刻，是阿金为了配合TV进坑的新玩家把以前那些大活动拉出来给他们看剧情的，连打都不需要直接看剧情，所以得的材料换不齐只能选点喜欢的换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+普通活动和正常复刻的话刷完活动肯定能换全交换所里的所有东西的。半周年忘了有没有，周年也会发材料让后进坑的玩家可以选几个活动的活动装直接全部换齐
+
+*****
+
+####  冰风血羽  
+##### 394#       发表于 2023-5-1 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60688177&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-5-1 20:53</a>
+
+因为这类快速复刻不是正经复刻，是阿金为了配合TV进坑的新玩家把以前那些大活动拉出来给他们看剧情的，连 ...</blockquote>
+谢谢，原来如此，只能换个怜跟直美的衣服了
+
+
+*****
+
+####  冰风血羽  
+##### 395#       发表于 2023-5-2 04:54
+
+晚上拼装卧薪到了，换完特典装备发现一个问题，当初小鸟游怜肥姑妈送的特典装备除了大剑MAXlv75之外都能lv80，为啥这次送的只能到70还不能进化，是特典装备亦有差距吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 396#       发表于 2023-5-2 07:41
+
+只能到70的应该是an装备吧？
+
+
+*****
+
+####  江戸前ルナ  
+##### 397#         楼主| 发表于 2023-5-2 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60691268&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-5-2 04:54</a>
+
+晚上拼装卧薪到了，换完特典装备发现一个问题，当初小鸟游怜肥姑妈送的特典装备除了大剑MAXlv75之外都能lv8 ...</blockquote>
+小鸟的特典剑是普通专属，上限80级吧？卧薪的特典是AN装，AN装要刷词条的所以上限只有70级。
+
+
+*****
+
+####  冰风血羽  
+##### 398#       发表于 2023-5-2 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60692111&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-05-02 09:25:07</a>
+小鸟的特典剑是普通专属，上限80级吧？卧薪的特典是AN装，AN装要刷词条的所以上限只有70级。 ...</blockquote>谢谢，明白了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  孫光龍  
+##### 399#       发表于 2023-5-4 15:46
+
+阿金的良心**滴坏了
+活动应该送的游泳服拿出来卖了
+
+
+*****
+
+####  madcow  
+##### 400#       发表于 2023-5-4 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60720076&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-5-4 15:46</a>
+
+阿金的良心**滴坏了
+
+活动应该送的游泳服拿出来卖了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">阿枫还是原来泳装那件更色点（，我还抽了八个不知九个服袋来着（
+
+
+*****
+
+####  江戸前ルナ  
+##### 401#         楼主| 发表于 2023-5-4 20:51
+
+送一件，拿到文嘉那件正好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 402#         楼主| 发表于 2023-5-5 21:28
+
+<img src="https://img.saraba1st.com/forum/202305/05/212704rssxytmwkv7av4fq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230505212512.png</strong> (216.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-5 21:27 上传
+
+<img src="https://img.saraba1st.com/forum/202305/05/212704o3q8crmcrr41111c.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230505212505.png</strong> (237.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-5 21:27 上传
+
+老板娘的蓝票衣服看上去包得严密，但是开档镂空黑丝再包住，这玩法牛逼啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 403#         楼主| 发表于 2023-5-5 22:07
+
+看完这次活动剧情，不得不吐槽下女演员这职业太变态了，连文嘉这种公认女演员中的凡骨都能会三种游泳方式，能去2K米竞泳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+结局再次体现文嘉才是成子坂真BOSS，不愧是财务业务人事权全抓在手的，直接许诺开发一套gear专属来拉人，真正手中有大公司的JK<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  用户名未定义  
+##### 404#       发表于 2023-5-7 07:37
+
+ 本帖最后由 用户名未定义 于 2023-5-7 07:41 编辑 
+
+这次泳装本打算拿件免费的就完了，然后稍微纠结一下在猪和蛙里面选了蛙，结果昨天上游戏看到背景里的猪猪，一下子忍不了，还是给买了。
+
+这就是你换背景的目的吗，太卑鄙了，阿金。
+
+
+*****
+
+####  江戸前ルナ  
+##### 405#         楼主| 发表于 2023-5-7 17:41
+
+[https://www.bilibili.com/video/BV1fo4y1F7ni](https://www.bilibili.com/video/BV1T24y1n7Em)
+
+搬了MOSS大佬的EDEN。这次的EDEN无论人气涩图实力还是gear设计都相当不错。看上去，gear的主题动物是蜂类？
+
+
+*****
+
+####  madcow  
+##### 406#       发表于 2023-5-7 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60736539&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-5-5 21:28</a>
+
+老板娘的蓝票衣服看上去包得严密，但是开档镂空黑丝再包住，这玩法牛逼啊
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">带子绕一圈看起来好怪
+
+
+*****
+
+####  江戸前ルナ  
+##### 407#         楼主| 发表于 2023-5-9 20:52
+
+我日复刻小裤裤！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 408#       发表于 2023-5-9 21:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看复刻完加不加北欧组
+
+
+*****
+
+####  江戸前ルナ  
+##### 409#         楼主| 发表于 2023-5-9 22:26
+
+ 本帖最后由 江戸前ルナ 于 2023-5-9 22:27 编辑 
+
+今晚忘记看了，才看完回放。
+
+先不管那些卫星，
+
+派遣任务5.18
+
+小裤裤复刻把福袋和周年衣服放进了氪金石头商店，只能说又爱又恨，阿金一手好PUA<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">按日期算，连续三周，最后一周就是月底，有没新人就看这一波了，到底是出王炸北欧组还是先出母女组呢？（所以明娜到底咋办呢，不如到时再拉个海德玛莉吧
+
+文嘉的肥姑妈有新的剑实装！！！<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">（然而还没收到补款通知
+
+
+*****
+
+####  孫光龍  
+##### 410#       发表于 2023-5-9 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又惦记起文嘉加强来了是吧，fa之前最后的机会了
+
+
+*****
+
+####  江戸前ルナ  
+##### 411#         楼主| 发表于 2023-5-9 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60792835&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-5-9 22:36</a>
+
+又惦记起文嘉加强来了是吧，fa之前最后的机会了</blockquote>
+毕竟作为老板娘，虽然身为凡骨，当年第一个给自己分支却弱到现在弱了那么多年<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  外骨骼  
+##### 412#       发表于 2023-5-10 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60793340&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-5-9 23:23</a>
+毕竟作为老板娘，虽然身为凡骨，当年第一个给自己分支却弱到现在弱了那么多年 ...</blockquote>
+而且自带的泳装也是比较…老派…土
+
+
+*****
+
+####  madcow  
+##### 413#       发表于 2023-5-10 10:28
+
+那我觉得自带泳装最奇怪的还是真理的（
+
+
+*****
+
+####  冰风血羽  
+##### 414#       发表于 2023-5-11 15:48
+
+攒了40抽，请问是现在下手还是等后面池子？
+
+
+*****
+
+####  yygundam  
+##### 415#       发表于 2023-5-11 16:35
+
+ 本帖最后由 yygundam 于 2023-5-11 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60810937&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-5-11 15:48</a>
+
+攒了40抽，请问是现在下手还是等后面池子？</blockquote>
+看你喜欢特定角色还是喜欢强度，喜欢强度的话芳佳和莉涅都很强，一个是强力的电属性奶妈（比本家的爱花好用很多），一个是简单好用的重力实弹狙击。下个池子的哈特曼属于个性很强比较难上手的角色，巴尔克霍隆比较一言难尽，然后再下一个池子的坂本打boss很厉害，佩琳我没玩也没怎么看人用过，不太清楚了。
+
+此外就是有最后追加新角色的可能性，姑且提一下。
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  wilkyway  
+##### 416#       发表于 2023-5-11 16:39
+
+话说这enigma到底提了多少数值怎么活动这200刷着论坛一只手点点点就过了打完才注意到血条不对<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 417#       发表于 2023-5-11 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60811402&amp;ptid=2104259" target="_blank">yygundam 发表于 2023-5-11 16:35</a>
+
+看你喜欢特定角色还是喜欢强度，喜欢强度的话芳佳和莉涅都很强，一个是强力的电属性奶妈（比本家的爱花好 ...</blockquote>
+谢谢，那我就等池子都出完再看看
+
+*****
+
+####  江戸前ルナ  
+##### 418#         楼主| 发表于 2023-5-11 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60811447&amp;ptid=2104259" target="_blank">wilkyway 发表于 2023-5-11 16:39</a>
+
+话说这enigma到底提了多少数值怎么活动这200刷着论坛一只手点点点就过了打完才注意到血条不对 ...</blockquote>
+活动200的BOSS弹幕是阉割版的，道中难度其实也跟普通调查图差不多
+
+*****
+
+####  江戸前ルナ  
+##### 419#         楼主| 发表于 2023-5-11 17:37
+
+话说这衣服150一套，虽然多了几个饰品但还是贵啊，少点饰品就要衣服正常价行不<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Picavian  
+##### 420#       发表于 2023-5-11 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60796999&amp;ptid=2104259" target="_blank">madcow 发表于 2023-5-10 10:28</a>
+
+那我觉得自带泳装最奇怪的还是真理的（</blockquote>
+那套其实有现实世界的款式。阿嘎在某些地方选择走了真实而老气的路线
+
+就比如说东京shard名义上模拟二十一世纪初叶，结果橙子板里头看电影用的是录像带（
+
+
+*****
+
+####  江戸前ルナ  
+##### 421#         楼主| 发表于 2023-5-11 23:25
+
+今天刚好是弱重力要击。去试了下开了盘子40狙击的莉涅猛得一逼<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">穿赤之广场服全程福利糊脸也爽得飞起<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+另外搬了个小结大触用泥头车戏耍地狱犬的视频
+[https://www.bilibili.com/video/BV1Lc411P7Qu/](https://www.bilibili.com/video/BV1Lc411P7Qu/)
+
+
+*****
+
+####  不灭的旋律  
+##### 422#       发表于 2023-5-12 09:10
+
+免费十连来了莉涅，强度还跟得上现在的版本吗？枪派生有没有必要？需要上弹感觉还是有贯通和霰弹的原版更好用
+
+
+*****
+
+####  yygundam  
+##### 423#       发表于 2023-5-12 12:02
+
+重力实弹狙我感觉还是能玩的，尤其大招还是挺bug。虽然我自己后来是去玩あんこ了。。。
+
+至于枪嘛，原版是立射~8000，前射~11000。派生是立射~14500，前射~19000（打空之后大概7500/9300，没散射）。你自己判断吧。（打木桩，都是80级枪）
+
+
+*****
+
+####  孫光龍  
+##### 424#       发表于 2023-5-12 12:09
+
+这游戏养成没啥成本...跟不跟的上版本练满玩玩呗...
+
+
+*****
+
+####  江戸前ルナ  
+##### 425#         楼主| 发表于 2023-5-12 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60818637&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-5-12 09:10</a>
+
+免费十连来了莉涅，强度还跟得上现在的版本吗？枪派生有没有必要？需要上弹感觉还是有贯通和霰弹的原版更好 ...</blockquote>
+开了盘子的莉涅昨天拿去打多人，抢分比AN未罗还要高。现在盘子可以有40狙击，在打光手脚之前莉涅就是个大爹<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+分支我是严重不推荐，上弹非常影响输出流畅性特别是绕射。最关键是没了散弹，虽然有弹时伤害高了但打晕和清杂都输一大截。
+
+
+*****
+
+####  yygundam  
+##### 426#       发表于 2023-5-12 12:27
+
+补充一下，其实DPS还是派生枪高一些，派生大概10秒能打出8发，大概14到15万伤害，而原版枪10秒大概11发，也就11到12万的样子。至于手感那是个人习惯问题了。
+
+不过同场补充一个不算是对比的对比吧，あんこ用蓄力射击在10秒能打出17万（当然这是不考虑手脚技能的情况就是，而且あんこ射击是站桩，也就协力能有很安逸的连续输出环境）。
+
+
+*****
+
+####  不灭的旋律  
+##### 427#       发表于 2023-5-12 14:15
+
+其实我想要大魔王和爱花组成电击双奶的没想到魔王老婆先来了
+
+恭喜某人你的文嘉剑千呼万唤终于出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 428#       发表于 2023-5-12 16:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">文嘉胶剑上了，有没有史诗级加强啊
+
+
+*****
+
+####  拍不到脑袋  
+##### 429#       发表于 2023-5-12 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有加强
+
+
+*****
+
+####  江戸前ルナ  
+##### 430#         楼主| 发表于 2023-5-12 17:34
+
+订了肥姑妈，所以还没换（等补款不知道要多久了，看能不能忍住吧
+
+去推特看了下，只能说近战能到新出普池的水准，不那么刮吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 431#       发表于 2023-5-12 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">说起来偶尔会碰到那种游戏突然卡死一动不动的情况，你们有吗（
+
+
+*****
+
+####  yygundam  
+##### 432#       发表于 2023-5-12 23:28
+
+协力用特定角色在某几个特定boss的时候崩过不少次（画面卡住，音乐还在播放，有时候过一会直接闪退，有时候不退，只能自己手动杀进程），不过不算频繁，一般一个月碰到个一两次吧，手头的几个不同手机都碰到过。协力之外好像没有遇到过。
+
+
+*****
+
+####  外骨骼  
+##### 433#       发表于 2023-5-13 04:12
+
+啊！犹豫中，免费的泳衣忘记换了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 434#       发表于 2023-5-13 06:31
+
+背景墙那几张照片是截图吗？好好看
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  外骨骼  
+##### 435#       发表于 2023-5-13 09:40
+
+是群友的照片
+
+
+*****
+
+####  江戸前ルナ  
+##### 436#         楼主| 发表于 2023-5-13 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60829606&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-5-13 06:31</a>
+
+背景墙那几张照片是截图吗？好好看
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+游戏内的摄影模式啊，这模式还带了自带的渲染系统。
+
+[https://colopl.co.jp/alicegearaegis/lp/aegis_photocontest/](https://colopl.co.jp/alicegearaegis/lp/aegis_photocontest/)
+
+这次的参赛获奖作品展
+
+生放送里也有获奖作品评价
+[https://www.bilibili.com/video/BV1Jc411K7ar](https://www.bilibili.com/video/BV1Jc411K7ar)
+
+
+*****
+
+####  冰风血羽  
+##### 437#       发表于 2023-5-14 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60835246&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-5-13 20:08</a>
+
+游戏内的摄影模式啊，这模式还带了自带的渲染系统。
+
+https://colopl.co.jp/alicegearaegis/lp/aegis_pho ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大手子啊，我自己截图都是乱七八糟的
+
+
+*****
+
+####  希望之花  
+##### 438#       发表于 2023-5-15 02:30
+
+等不及了，快把北欧组端上来罢
+
+
+*****
+
+####  不灭的旋律  
+##### 439#       发表于 2023-5-17 21:11
+
+别高兴太早，万一来的是502或者文工团呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Picavian  
+##### 440#       发表于 2023-5-18 15:42
+
+能有创意到让502甚至文工团来就不是阿金了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yygundam  
+##### 441#       发表于 2023-5-19 08:52
+
+其实除了北欧那俩之外501还有3个人（
+
