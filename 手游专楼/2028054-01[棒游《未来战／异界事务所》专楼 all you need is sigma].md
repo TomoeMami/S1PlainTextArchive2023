@@ -1030,3 +1030,44 @@ pc端没游客选项吧
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 915#         楼主| 发表于 2023-5-16 22:59
+
+<img src="https://p.sda1.dev/11/7b2c06ffbc38bd93845eca2547a113a6/CMP_20230516225746241.jpg" referrerpolicy="no-referrer">老婆的胸画的有点奇怪
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 916#         楼主| 发表于 2023-5-19 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得换飞天奶的皮肤
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 917#       发表于 2023-5-19 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">飞天奶的皮肤差点换不到了 没注意换了下面的赌了 结果这周打不了材料 还好今天邮箱里发了2000 得救了
+
+我之前看公告到下周的 结果这周出了翻牌活动的芯片覆盖了任务物品
+
+
+*****
+
+####  rgauss  
+##### 918#         楼主| 发表于 2023-5-20 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60909211&amp;ptid=2028054" target="_blank">要嗝屁了 发表于 2023-5-19 21:46</a>
+飞天奶的皮肤差点换不到了 没注意换了下面的赌了 结果这周打不了材料 还好今天邮箱里发了2000 得救 ...</blockquote>
+啊 两个活动都掉的啊 不过掉率很低 我十次本大概掉30个蛋
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
