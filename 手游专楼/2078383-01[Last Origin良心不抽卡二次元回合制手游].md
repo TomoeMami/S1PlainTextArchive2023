@@ -692,3 +692,29 @@ https://zerlarnystyle.com/post-23194/
 一些老的攻略推荐老李白猫啥的有点过时了，现在大 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">谢谢老哥建议，我正对着一up主的视频准备练狼队，现在拉了个100的玛丽aoe扫图用，永恒目前日服好像没活动搞不到，今天还在捞活动本没刷到大天线
 
+*****
+
+####  leina0602  
+##### 64#       发表于 2023-5-18 23:58
+
+日服三周年前夜祭发了好多东西，好爽哦<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小鸟游泉  
+##### 65#       发表于 2023-5-19 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60896699&amp;ptid=2078383" target="_blank">leina0602 发表于 2023-5-18 23:58</a>
+
+日服三周年前夜祭发了好多东西，好爽哦</blockquote>
+他们给的实在是太多了，真是良心游戏<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  铁火辉夜  
+##### 66#       发表于 2023-5-19 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日服天国之邀常驻了，新的衣食父母火皮鼓即将回到她忠实的3-4<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
