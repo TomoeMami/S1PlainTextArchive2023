@@ -1037,3 +1037,50 @@ https://youtube.com/@HitenSeiha</blockquote>
 今年出的杏奈拉拉队应援solo，艾米莉病娇Qsolo、步的全员恶人solo，都是组内神中神大好评的，去年活动新曲质量也都挺高的。
 梨衣熊正经唱歌好听，差点没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7152#       发表于 2023-5-19 14:30
+
+100连石头抽光，可奈和弥生的童装一件没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+出了三个重复常驻ssr，我寻思我这自建号也没多少ssr啊，你搁这重复<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+好了，活动也不用冲了，没有石头买体直接摆烂<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 7153#       发表于 2023-5-19 14:33
+
+ 本帖最后由 BQlin 于 2023-5-19 14:39 编辑 
+
+这次发色不错，结果150下去连个响都没
+
+5倍活动多久没出了，感觉有几个月没打过了
+
+草了，再来50还是没，行，继续屯了
+
+
+*****
+
+####  花开安菲路  
+##### 7154#       发表于 2023-5-19 14:58
+
+草，挺简单的谱，初见还是稳定漏一个，我这集中力是真不<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/11/a14d6f7bfa4123ed103b9d9ca3ebcbf8/CMP_20230519145303797.jpg" referrerpolicy="no-referrer">
+还好第二把稳住了<img src="https://p.sda1.dev/11/fbc85c6db2498af00b8e4afb8c268931/CMP_20230519145814263.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zoomegg  
+##### 7155#       发表于 2023-5-19 19:08
+
+出现了！音速贵妇人咯吱！！！
+
+
+*****
+
+####  三味线陆战型  
+##### 7156#       发表于 2023-5-19 23:06
+
+该抽票了家人们
+
