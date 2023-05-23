@@ -5415,3 +5415,669 @@ here
 
 大约什么时候抽公主？太岁星君人设还不错，封神系列不出个纣王吗？
 
+*****
+
+####  苍蓝之枪  
+##### 44324#       发表于 2023-4-23 19:34
+
+设施全部造完了，是不是可以把礼装全下了然后上羁绊礼装清茶壶了?
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 44325#       发表于 2023-4-24 09:16
+
+剧情推完，其实故事挺好看的，后面也明显有潜力做得更多。
+
+这怎么最后一章就跟催命似的赶紧草草收尾<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 44326#       发表于 2023-4-24 22:05
+
+话说，等级在100-119的卡面和满120的卡面区别究竟在哪里？
+
+
+*****
+
+####  赤备传承  
+##### 44327#       发表于 2023-4-24 23:59
+
+沉迷大航海，冲刺建筑吃苹果，突然提示ap爆了，原来老咸鱼升到160了，为了祝贺十连一发，拉姆拉姆一个
+
+
+*****
+
+####  苍蓝之枪  
+##### 44328#       发表于 2023-4-25 00:36
+
+才158级......
+
+不过群里欧皇又呼符豹跳了，我是一张都不舍得用......
+
+
+*****
+
+####  武者小路紫苑  
+##### 44329#       发表于 2023-4-25 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">据说下个活动剧情是粪中之粪？难得有小见川千明的说
+
+
+*****
+
+####  真红眼教授  
+##### 44330#       发表于 2023-4-25 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60610195&amp;ptid=1712412" target="_blank">武者小路紫苑 发表于 2023-4-25 18:13</a>
+
+据说下个活动剧情是粪中之粪？难得有小见川千明的说</blockquote>
+结尾还可以，中间据说很烂
+
+
+*****
+
+####  khxooo  
+##### 44331#       发表于 2023-4-26 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60610195&amp;ptid=1712412" target="_blank">武者小路紫苑 发表于 2023-4-25 18:13</a>
+
+据说下个活动剧情是粪中之粪？难得有小见川千明的说</blockquote>
+是的，粪中粪，在我的眼里比2.5.2还粪<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44332#       发表于 2023-4-27 19:54
+
+抽8宝用了一半的友情点，而且活动礼装一张都没出，有点虚了.....
+
+
+*****
+
+####  GuDaZi  
+##### 44333#       发表于 2023-4-27 20:11
+
+从暗狐到现在终于抽到新五星了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DET  
+##### 44334#       发表于 2023-4-27 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">上次友情池有UP才抽了两千从者币，这次一定要把几千万友情点抽干，多造圣杯
+
+
+*****
+
+####  GuDaZi  
+##### 44335#       发表于 2023-4-28 18:53
+
+这剧情谁写的？班杨前期就这么屑，后面好像还更差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44336#       发表于 2023-5-1 00:16
+
+没注意到挖掘工具居然不是什么本都出的，然后因为缺锤子直接卡了一天，现在才注意......
+
+是不是应该直接重置?
+
+
+*****
+
+####  深渊骑士  
+##### 44337#       发表于 2023-5-1 18:54
+
+查了一下，下个活动是八犬传吧？这么烂吗？也好，剧情直接跳过打材料就行，不浪费时间
+
+
+*****
+
+####  J-002  
+##### 44338#       发表于 2023-5-1 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60678710&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-5-1 00:16</a>
+
+没注意到挖掘工具居然不是什么本都出的，然后因为缺锤子直接卡了一天，现在才注意......
+
+是不是应该直接重 ...</blockquote>
+前期所有本都只出两种颜色的工具，你要全挖肯定不能只打最高收益的
+
+
+*****
+
+####  khxooo  
+##### 44339#       发表于 2023-5-1 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60687065&amp;ptid=1712412" target="_blank">深渊骑士 发表于 2023-5-1 18:54</a>
+查了一下，下个活动是八犬传吧？这么烂吗？也好，剧情直接跳过打材料就行，不浪费时间 ...</blockquote>
+八犬传虽然是平淡如水，但起码比这坨屎好多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 44340#       发表于 2023-5-2 13:44
+
+这90弓本的金蛋掉率体感有点高，上午清体力，4次有2次掉金蛋，可惜这个不是90+本
+
+
+*****
+
+####  霄度天  
+##### 44341#       发表于 2023-5-3 06:15
+
+这次活动忽略S班杨的屑人设问题，我也没搞懂到底表达了个啥故事啊，太意味不明了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 44342#       发表于 2023-5-3 12:35
+
+给摩根点满20NP的被动之后感觉越来越好使了，没抽二宝还是点个百级好了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44343#       发表于 2023-5-3 12:38
+
+感觉被卡进度卡得很严重......现在才到银素材本
+
+
+*****
+
+####  待宵  
+##### 44344#       发表于 2023-5-3 21:50
+
+这次卡池有人抽了吗？友情点倒是已清空了
+
+
+*****
+
+####  DET  
+##### 44345#       发表于 2023-5-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60711361&amp;ptid=1712412" target="_blank">待宵 发表于 2023-5-3 21:50</a>
+
+这次卡池有人抽了吗？友情点倒是已清空了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">丢了几颗石头出了四星就不抽了，术阶绿卡冲浪打手+1
+
+
+*****
+
+####  霄度天  
+##### 44346#       发表于 2023-5-3 22:47
+
+30石鼠鼠+1，鼠鼠还是挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 44347#       发表于 2023-5-3 22:52
+
+ 本帖最后由 khxooo 于 2023-5-3 22:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60711361&amp;ptid=1712412" target="_blank">待宵 发表于 2023-5-3 21:50</a>
+
+这次卡池有人抽了吗？友情点倒是已清空了</blockquote>
+千里眼全部盯着未来的卡池，近的有夏露露，以后的有周年泳装，斑杨这角色在大部分的眼中要厨力没厨力，要强度没强度，有人抽就奇怪了。除了厨子和抽鼠鼠豹跳了之外，估计斑杨这角色会是国服持有量最低的几个角色之一了。
+
+*****
+
+####  khxooo  
+##### 44348#       发表于 2023-5-3 22:57
+
+剩下10金苹果，礼装去到加10了，剩下QP和剑刷、莱尼斯这几个吃铁钉的没有满之外，大号所有从者主动技能达999成了。小号除了弁庆这家伙外，也达成了全主动技能999了。
+
+
+*****
+
+####  qixinno2  
+##### 44349#       发表于 2023-5-4 07:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去抽达芬奇了
+
+
+*****
+
+####  失落之翼  
+##### 44350#       发表于 2023-5-4 16:37
+
+不意外小番茄的池子又沉了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓬莱梦梦  
+##### 44351#       发表于 2023-5-4 18:50
+
+现在的90+本拿什么打比较好，我还是双CABER 二宝仇凛冲不起来了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫嶌開世  
+##### 44352#       发表于 2023-5-4 19:15
+
+现在才到银本是否有点太卡了
+
+*****
+
+####  DET  
+##### 44353#       发表于 2023-5-4 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60722606&amp;ptid=1712412" target="_blank">蓬莱梦梦 发表于 2023-5-4 18:50</a>
+
+现在的90+本拿什么打比较好，我还是双CABER 二宝仇凛冲不起来了</blockquote>
+现在都用单体打了，比如这次就可以用三藏……<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  电波系腑海林  
+##### 44354#       发表于 2023-5-4 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60722606&amp;ptid=1712412" target="_blank">蓬莱梦梦 发表于 2023-5-4 18:50</a>
+现在的90+本拿什么打比较好，我还是双CABER 二宝仇凛冲不起来了</blockquote>
+海伦娜（摩根） 三藏加奥伯龙，没有三藏用3宝以上的姑姑也行。第一面光炮，二三面单体术。下个无限池就有万恶的90++了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  J-002  
+##### 44355#       发表于 2023-5-4 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60722606&amp;ptid=1712412" target="_blank">蓬莱梦梦 发表于 2023-5-4 18:50</a>
+
+现在的90+本拿什么打比较好，我还是双CABER 二宝仇凛冲不起来了</blockquote>
+我懒得费脑子，1宝伊利亚换人五加成，正好练新决战服
+
+伊利亚尼托C马大奥伯龙，伊利亚带宝石，其他人活动礼装
+
+1t尼托即死掉杂兵
+
+2t奥伯龙群充马大13充自己，然后马大伊利亚宝具
+
+3t剩下buff都给伊利亚
+
+反正我都是录操作让它自己打，不用补刀就行了
+
+
+*****
+
+####  苍蓝之枪  
+##### 44356#       发表于 2023-5-5 01:07
+
+211本，尚在暴击队的狙击范围内
+
+只要发牌员不发癫
+
+
+*****
+
+####  密特里奈斯  
+##### 44357#       发表于 2023-5-5 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60726693&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-5-5 01:07</a>
+
+211本，尚在暴击队的狙击范围内
+
+只要发牌员不发癫</blockquote>
+狂娜双杀狐后置放个20冲或者洗牌服，1面有双红就A掉，23面一面宝具一面红卡，1面无红说明后面两面肯定有一面可以暴击打掉，就随便了，1面三红23面都宝具，1面5狂娜牌……洗牌或者等一回合吧
+
+概率极低，毕竟只有一面5狂娜没法打
+
+
+*****
+
+####  艾尔特翔  
+##### 44358#       发表于 2023-5-5 14:21
+
+尼托+三藏+杀狐，换人奥博龙，三藏有加攻，尼托三藏都是高自冲，拐杀狐+奥博龙，充能溢出
+
+
+*****
+
+####  khxooo  
+##### 44359#       发表于 2023-5-5 16:42
+
+奥伯龙+三藏/金时+海伦娜不换人。
+
+
+*****
+
+####  Blackson  
+##### 44360#       发表于 2023-5-5 17:55
+
+参考圣诞90+的打法挪用过来就行
+
+
+*****
+
+####  苍蓝之枪  
+##### 44361#       发表于 2023-5-5 19:56
+
+至今没有海伦娜
+
+
+*****
+
+####  khxooo  
+##### 44362#       发表于 2023-5-6 20:38
+
+小号全部主动技能999搞掂了，可以只需要签到了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44363#       发表于 2023-5-6 20:47
+
+高难居然交了一条令咒......鼠鼠开宝具的时候正好没肃正....
+
+
+*****
+
+####  布伦史塔德  
+##### 44364#       发表于 2023-5-6 22:31
+
+道满 姑姑 奥伯龙 
+
+
+*****
+
+####  苍蓝之枪  
+##### 44365#       发表于 2023-5-7 19:05
+
+话说全程抱商店礼装能毕业吗?总感觉金素材需求量好像有点大
+
+
+*****
+
+####  shimotsuki14  
+##### 44366#       发表于 2023-5-8 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60762243&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-5-7 19:05</a>
+话说全程抱商店礼装能毕业吗?总感觉金素材需求量好像有点大</blockquote>
+连棋子一起拿了可能要吃点苹果
+不拿棋子的话我铺四张活动礼装加一张五星氪金礼装已经把金材料拿完了，这次金银铜每种只吃900素材，不是1200
+
+
+*****
+
+####  苍蓝之枪  
+##### 44367#       发表于 2023-5-10 00:03
+
+只打阴间本好像完不成周常啊，这周常设计是不是有问题
+
+
+*****
+
+####  6030sylar  
+##### 44368#       发表于 2023-5-11 17:17
+
+礼装和四星从者换哪个好
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  艾尔特翔  
+##### 44369#       发表于 2023-5-11 17:59
+
+不说BOX不太好推荐啊，４星，光炮尼托100自充+即死，海妈可拐可打手，单体：金砖头蓝卡出星暴击一把手，雪碧可以但有点落伍了，等一年的话，贤王大强化，也可以考虑
+
+
+*****
+
+####  GuDaZi  
+##### 44370#       发表于 2023-5-11 18:28
+
+限定优先，有new选new。四星自选基本是收藏作用。
+五星自选是不是只有一次？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 44371#       发表于 2023-5-11 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60812317&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-5-11 17:59</a>
+
+不说BOX不太好推荐啊，４星，光炮尼托100自充+即死，海妈可拐可打手，单体：金砖头蓝卡出星暴击一把手，雪 ...</blockquote>
+这几个都有，要不换个武则天当拐？
+
+*****
+
+####  6030sylar  
+##### 44372#       发表于 2023-5-11 18:56
+
+<img src="https://i.328888.xyz/2023/05/11/iqcU9x.jpeg" referrerpolicy="no-referrer">
+
+这样，画了就是有的，求推荐
+
+
+*****
+
+####  khxooo  
+##### 44373#       发表于 2023-5-11 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60812885&amp;ptid=1712412" target="_blank">6030sylar 发表于 2023-5-11 18:56</a>
+
+这样，画了就是有的，求推荐
+
+比较想要的是多布雷尼亚和武则天</blockquote>
+你玩绿卡吗？玩就选武则天，起码有点用，多布雷尼亚就真的是一点用都没有了。
+
+*****
+
+####  6030sylar  
+##### 44374#       发表于 2023-5-11 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60813487&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-5-11 19:47</a>
+
+你玩绿卡吗？玩就选武则天，起码有点用，多布雷尼亚就真的是一点用都没有了。 ...</blockquote>
+有什么玩不玩的，当然是抄作业什么环境上什么人，绿卡核心cba已经有了，
+
+武则天是觉得有点用，多布雷尼亚就是xp放出
+
+
+*****
+
+####  艾尔特翔  
+##### 44375#       发表于 2023-5-11 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60812634&amp;ptid=1712412" target="_blank">6030sylar 发表于 2023-5-11 18:35</a>
+
+这几个都有，要不换个武则天当拐？</blockquote>
+武则天是绿拐，还是副拐，当前绿卡环境最差，已经没必要了。看你的图：
+
+黑呆（灵衣不错），
+
+黑枪呆（虽是光炮，但是暴击也很强，强度还可以），
+
+帕西瓦尔，蓝卡光炮，回收不错，只要点1技能就好，
+
+赫费斯提翁，100冲单体蓝，外来90++有一定场（不过1宝威力有限）
+
+New的话也就上面几个可以选下
+
+
+*****
+
+####  khxooo  
+##### 44376#       发表于 2023-5-11 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60813529&amp;ptid=1712412" target="_blank">6030sylar 发表于 2023-5-11 19:52</a>
+
+有什么玩不玩的，当然是抄作业什么环境上什么人，绿卡核心cba已经有了，
+
+武则天是觉得有点用，多布雷尼亚 ...</blockquote>
+你说XP的话那当然是听弟弟的，不过从功利的角度我就建议你在你缺的几个剧情限定中选一个，毕竟有些常驻不知道什么时候就出来了。
+
+
+*****
+
+####  深渊骑士  
+##### 44377#       发表于 2023-5-12 07:48
+
+在几个没有的女从者间思考了一下后选了黑剑呆，毕竟这个是限定的，歪不出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 44378#       发表于 2023-5-12 09:50
+
+总算把友情点抽干备好丸子了，接下来就等周年换黑杯了
+
+
+*****
+
+####  DET  
+##### 44379#       发表于 2023-5-12 13:57
+
+在强度和xp之间犹豫了好久，最后还是功利地选择了高贵的剧情限定的黑呆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  flyzzhj  
+##### 44380#       发表于 2023-5-12 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60812885&amp;ptid=1712412" target="_blank">6030sylar 发表于 2023-5-11 18:56</a>
+
+这样，画了就是有的，求推荐
+
+比较想要的是多布雷尼亚和武则天</blockquote>
+当然是黑呆or南半球！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  布伦史塔德  
+##### 44381#       发表于 2023-5-12 15:08
+
+不知道换啥 于是换了被年少无知的我卖掉的安娜
+
+
+*****
+
+####  johnkamsar  
+##### 44382#       发表于 2023-5-12 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一圈，选了黑枪路过，反正其他几个都齐了，刚好凑一凑
+
+
+*****
+
+####  6030sylar  
+##### 44383#       发表于 2023-5-13 21:45
+
+还是换了不夜亲，拒接幼态审美，从你他做起
+
+
+*****
+
+####  朝仓和美  
+##### 44384#       发表于 2023-5-14 00:38
+
+剧情限定里没有的，只有：李书文/柳生/加藤段藏/凯尼斯
+
+要选的话好像就柳生能用一下？
+
+
+*****
+
+####  khxooo  
+##### 44385#       发表于 2023-5-14 01:44
+
+ 本帖最后由 khxooo 于 2023-5-14 01:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60837941&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2023-5-14 00:38</a>
+
+剧情限定里没有的，只有：李书文/柳生/加藤段藏/凯尼斯
+
+要选的话好像就柳生能用一下？ ...</blockquote>
+蓝卡剑单体，能有什么作用，而且还有阿荣这个坎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不如李书文，石头多一点。而且蓝卡枪单体可是只有李书文、长尾景虎和妖兰。而且未来李书文已经没有UP了，柳生还有两次机会。
+
+
+*****
+
+####  kuarwbwe  
+##### 44386#       发表于 2023-5-14 19:58
+
+终于出了杨玉环了。刚出那年退坑了没抽，之后连续狙了三次福袋全没有。最乐的是有一次歪了小王子。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+福袋：你抽我会出一个外星人。
+
+我：难道说是？
+
+小王子：！没错，正是在下。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  紫嶌開世  
+##### 44387#       发表于 2023-5-17 19:40
+
+因为入坑以来摸的池子比较浅，只有奥宝梵高和狂娜池，自选四星有非常多的new……几乎都是new（2.6系和圆桌系有了）
+咕哒们有强度上推荐的吗
+优先剧情限定？
+有点想要选金钻头还挺帅的
+以及特别喜欢枪主从，可以选凯妮斯吗
+
+
+*****
+
+####  khxooo  
+##### 44388#       发表于 2023-5-17 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60880573&amp;ptid=1712412" target="_blank">紫嶌開世 发表于 2023-5-17 19:40</a>
+
+因为入坑以来摸的池子比较浅，只有奥宝梵高和狂娜池，自选四星有非常多的new……几乎都是new（2.6系和圆桌 ...</blockquote>
+金钻头自带无敌贯通，有特攻有宝具本，身板够硬，而你又喜欢金钻头那么选她没问题。凯尼斯就一个普通的红卡枪光炮，代替品太多了。但是金钻头可是蓝单T1的存在。
+
+*****
+
+####  紫嶌開世  
+##### 44389#       发表于 2023-5-17 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60880613&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-5-17 19:44</a>
+金钻头自带无敌贯通，有特攻有宝具本，身板够硬，而你又喜欢金钻头那么选她没问题。凯尼斯就一个普通的红 ...</blockquote>
+好的谢谢，喜欢酷姐<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44390#       发表于 2023-5-18 05:26
+
+给金钻头升个3宝应该不亏吧
+
+
+*****
+
+####  flyzzhj  
+##### 44391#       发表于 2023-5-18 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早上弄了40抽，前面金杀反面杀卫宫，最后一发跑狗双黄克娄巴特拉，终于有了
+
+
+*****
+
+####  shimotsuki14  
+##### 44392#       发表于 2023-5-20 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">犹豫了很久结果忘记换四星从者了
+虽然每个都有，大部分都满了
+
