@@ -1956,3 +1956,22 @@ SNK自己出的才能插，还不兼容旧的PDD和咸鱼上的廉价SNK手柄
 
 如果不是街霸6，在考虑买摇杆
 
+*****
+
+####  褪色的雪花  
+##### 189#       发表于 2023-5-21 16:14
+
+又有车了 想卖的可以上
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  vviosonia  
+##### 190#       发表于 2023-5-22 09:59
+
+NeoGeo mini 199亚版<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9080, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
