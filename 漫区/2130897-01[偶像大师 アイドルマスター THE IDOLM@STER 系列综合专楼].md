@@ -2284,3 +2284,161 @@ get.jpg
 
 u149第6集志希人气又要上升一节了 拿下总选举应该没悬念了
 
+*****
+
+####  lactone  
+##### 221#       发表于 2023-5-16 10:58
+
+ 本帖最后由 lactone 于 2023-5-16 11:00 编辑 
+
+志希miku芙芙奏Nao美波这些大人气角色都没拿过总冠军
+今年改赛制了搞不好很多人机会更少了
+
+阿肇P表示都不做这个梦了
+
+新三巨头人气还是堪忧，苹果妹和李阿姆这都是有梗撑着，鲨鱼没梗就很难
+除非u149给搞个原创新三巨头回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  七草にちか  
+##### 222#       发表于 2023-5-16 11:45
+
+<img src="https://p.sda1.dev/11/89b123db11eeb463b035b6065b8718da/IMG_CMP_193029457.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Erikas  
+##### 223#       发表于 2023-5-16 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">另一组的14岁已经在试探水晶鞋了，一之濑投起来，这次丢鞋面子哪搁
+
+*****
+
+####  koodooliz  
+##### 224#       发表于 2023-5-16 12:01
+
+街机好像快开始测试了。
+
+
+*****
+
+####  四宫家印  
+##### 225#       发表于 2023-5-16 13:08
+
+<blockquote>七草にちか 发表于 2023-5-16 11:45
+</blockquote>
+美咕噜要弯道超车了吗
+
+283的S1冠军得到了前辈的传功，她现在已经势不可挡了（
+
+*****
+
+####  冰寒之月  
+##### 226#       发表于 2023-5-16 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60863173&amp;ptid=2130897" target="_blank">四宫家印 发表于 2023-5-16 13:08</a>
+
+美咕噜要弯道超车了吗
+
+283的S1冠军得到了前辈的传功，她现在已经势不可挡了（ ...</blockquote>
+是S2冠军
+
+S1是夏叶
+
+
+*****
+
+####  四宫家印  
+##### 227#       发表于 2023-5-16 13:17
+
+<blockquote>冰寒之月 发表于 2023-5-16 13:12
+是S2冠军
+
+S1是夏叶</blockquote>
+记错了，以为是S1来着
+
+
+*****
+
+####  Unlight  
+##### 228#         楼主| 发表于 2023-5-16 18:52
+
+才发现李依在Live上唱过Blooming Star<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+BV1NP4y1R7a5
+
+
+*****
+
+####  lactone  
+##### 229#       发表于 2023-5-16 20:27
+
+ 本帖最后由 lactone 于 2023-5-16 20:32 编辑 
+
+话说149现在出场的这帮萝莉在选举里反而没有后面的萝莉成绩好
+
+第八次总选举小梢和雪美第三第四应该就是萝莉帮最高排名了，然而动画做不到她们出场
+
+— from Xiaomi 2211133C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 230#       发表于 2023-5-19 00:02
+
+发现我星耀季节一次电脑死机强制关机之后，制作人名字没了，之前的剧情记录也没了
+
+有人遇到过啊，是不是只能自认倒霉了？
+
+<img src="https://img.saraba1st.com/forum/202305/19/000201vwwpg80gz3y3w00i.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (203.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-19 00:02 上传
+
+完了，阁下的剧情只剩个满羁绊后的互动了，我记得二周目是保留羁绊的，难道剧情开不了了？
+
+
+*****
+
+####  七草にちか  
+##### 231#       发表于 2023-5-21 16:31
+
+【群P整活迎接新人 高山P却成最大赢家- 《偶像大师：闪耀色彩》5周年animate cafe探店】 [https://www.bilibili.com/video/BV1dP411X74h](https://www.bilibili.com/video/BV1dP411X74h)
+
+
+*****
+
+####  Unlight  
+##### 232#         楼主| 发表于 2023-5-23 15:43
+
+土豆可以用那谁吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/23/154247u0tppyoovo2tpi5t.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2692.JPG</strong> (190.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-23 15:42 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 233#       发表于 2023-5-23 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60959538&amp;ptid=2130897" target="_blank">Unlight 发表于 2023-5-23 15:43</a>
+土豆可以用那谁吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">万南心眼小
+

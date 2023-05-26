@@ -3385,3 +3385,13 @@ syl，最近打神之天平，男主从阿努比斯系统里面把青梅脑子�
 
 以及打包卖给Rush Style了？
 
+*****
+
+####  Toby_dak  
+##### 2277#       发表于 2023-5-23 15:49
+
+前两天看到手游官推的イルフリーデ，直接血压飙升<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都没了。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
