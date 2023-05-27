@@ -4579,3 +4579,13 @@ DAY14从12点开始打了一晚上，打完5点天亮了，猫叔到第几天了
 
 女仆剑圣这么可爱的卡面强度这么寄
 
+*****
+
+####  花星空  
+##### 1280#       发表于 2023-5-24 16:21
+
+昨天刷到这个视频突然发现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+麻子大概是一边写稿一边打麻将的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1HX4y1y7MZ/](https://www.bilibili.com/video/BV1HX4y1y7MZ/)
+
