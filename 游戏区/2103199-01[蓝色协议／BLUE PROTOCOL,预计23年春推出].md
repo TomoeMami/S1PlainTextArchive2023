@@ -2296,3 +2296,235 @@ Fsh2ZvKacAAgPpo.jfif
 
 前两天的pll上小吉还亲自引流
 
+*****
+
+####  azbhg1  
+##### 252#       发表于 2023-5-23 19:11
+
+<img src="https://p.sda1.dev/11/e3512d7eef80bc05123ed1d2e04c9220/72cbd1fb469f4cad.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windaria  
+##### 253#       发表于 2023-5-23 19:15
+
+居然真的公布了，日期这么确定了，应该不会又跳票了吧
+
+*****
+
+####  新庄運切  
+##### 254#       发表于 2023-5-23 19:16
+
+出了评鉴一下11区最新最in的mmorpg<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1024676511  
+##### 255#       发表于 2023-5-23 19:17
+
+ 本帖最后由 1024676511 于 2023-5-23 19:21 编辑 
+
+终于来了吗
+
+那么之前说好的港台服同步开服呢
+
+*****
+
+####  Piano-Forest  
+##### 256#       发表于 2023-5-23 19:21
+
+PC版6月14日开服
+
+上线将包含三章主线剧情、最高等级50、5种职业、各类任务等
+<img src="https://p.sda1.dev/11/c2c84a803e541f9bad7b75cf0c1d3c20/001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/fb21140c0c79c685a2ffebc87b933a9c/003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/bf9b8944db89156f89ef2030515ec8db/004.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nagisa123  
+##### 257#       发表于 2023-5-23 19:30
+
+好耶，终于来了
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 258#       发表于 2023-5-23 19:36
+
+玩玩看了 只有日服吗现在
+
+*****
+
+####  isa2456  
+##### 259#       发表于 2023-5-23 19:39
+
+还是想试试的，没看过测试视频，希望别想ngs那样只是到处农怪<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヘブバン  
+##### 260#       发表于 2023-5-23 19:42
+
+<blockquote>新庄運切 发表于 2023-5-23 19:16
+出了评鉴一下11区最新最in的mmorpg</blockquote>
+那为什么不去玩ff14呢。
+
+你对一个跳票两年的网游有什么期待..
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 261#       发表于 2023-5-23 19:54
+
+这个游戏要是能火我只能说现在MMO可太少了。。
+
+*****
+
+####  ヘブバン  
+##### 262#       发表于 2023-5-23 19:57
+
+<blockquote>fantuanxiaoyi 发表于 2023-5-23 19:54
+这个游戏要是能火我只能说现在MMO可太少了。。</blockquote>
+二刺猿mmo几乎没有
+
+*****
+
+####  新庄運切  
+##### 263#       发表于 2023-5-23 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60962888&amp;ptid=2103199" target="_blank">ヘブバン 发表于 2023-5-23 19:42</a>
+
+那为什么不去玩ff14呢。
+
+你对一个跳票两年的网游有什么期待..</blockquote>
+因为玩过玩腻了啊，当然尝试一下最新的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raimouse  
+##### 264#       发表于 2023-5-23 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">跳票这么久，谨慎不看好
+
+印象中好像还锁区的吧
+
+
+*****
+
+####  Jietf  
+##### 265#       发表于 2023-5-23 20:34
+
+怎么收费呢
+
+
+*****
+
+####  ckseng  
+##### 266#       发表于 2023-5-23 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60963344&amp;ptid=2103199" target="_blank">raimouse 发表于 2023-5-23 20:16</a>
+
+跳票这么久，谨慎不看好
+
+印象中好像还锁区的吧</blockquote>
+你不妨回忆这几十年有多少不锁区的日厂网游？应该跟出版法有关吧
+
+*****
+
+####  raimouse  
+##### 267#       发表于 2023-5-23 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60964341&amp;ptid=2103199" target="_blank">ckseng 发表于 2023-5-23 21:40</a>
+
+你不妨回忆这几十年有多少不锁区的日厂网游？应该跟出版法有关吧</blockquote>
+锁也分严不严的。有些随便挂个梯子就能上去了。PSO2我记得就抓的特别严。
+
+
+*****
+
+####  七千星  
+##### 268#       发表于 2023-5-23 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能和wow一样随便跳楼吗,希望不要和ngs一样坐牢吧
+
+
+*****
+
+####  windaria  
+##### 269#       发表于 2023-5-23 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60964978&amp;ptid=2103199" target="_blank">七千星 发表于 2023-5-23 22:35</a>
+
+能和wow一样随便跳楼吗,希望不要和ngs一样坐牢吧</blockquote>
+按照测试内容来看，多半也是坐牢
+
+*****
+
+####  法拉  
+##### 270#       发表于 2023-5-23 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60964978&amp;ptid=2103199" target="_blank">七千星 发表于 2023-5-23 22:35</a>
+
+能和wow一样随便跳楼吗,希望不要和ngs一样坐牢吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ngs马上要换赛道建房子当二次元mc了
+
+
+*****
+
+####  ky怪  
+##### 271#       发表于 2023-5-23 23:31
+
+想试试，看看我的下一款SAO能不能是蓝色协议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficulp  
+##### 272#       发表于 2023-5-24 01:05
+
+草怎么开发了这么久，感觉已经过时了
+
+
+*****
+
+####  cgte030629  
+##### 273#       发表于 2023-5-24 05:34
+
+ 本帖最后由 cgte030629 于 2023-5-24 05:35 编辑 
+
+看了上测直播实在是不怎么看好这游戏，有点除了画面一无是处的味了。
+没交易所，战斗又无趣，玩什么内容呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+隔壁无聊王ngs至少还有暖暖，战斗系统也还算可以。
+
+
+*****
+
+####  cvql  
+##### 274#       发表于 2023-5-24 06:55
+
+技术层面上的问题不是大问题。问题最大的是mmo设计理念。
+
+—— 来自 samsung SM-N9760, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  alucardcz  
+##### 275#       发表于 2023-5-24 07:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">去看了个30团的视频...毫无战术 各打各的  突出一个乱打  这游戏在现在这环境下真的活的下去吗
+
+
+*****
+
+####  tsubaki  
+##### 276#       发表于 2023-5-24 07:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就上次测试那吊样子这正式能加多少内容都是问题
+
