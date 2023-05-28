@@ -370,3 +370,10 @@ gr2级别的都能刷，推荐gt500和新出的奥迪dtm
 萌新 想撒丁岛刷钱 PP值高的只有一辆抽到的919 能调教下刷吗？不能的话求推辆不要太贵100w以下的车 实在是 ...</blockquote>
 道奇那辆火星车的gr1版本，改到800pp
 
+*****
+
+####  Totokei  
+##### 1757#       发表于 2023-5-25 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">史诗级更新，现在改造用的引擎以及终极零件可以直接买了，光靠抽奖不知道猴年马月
+
