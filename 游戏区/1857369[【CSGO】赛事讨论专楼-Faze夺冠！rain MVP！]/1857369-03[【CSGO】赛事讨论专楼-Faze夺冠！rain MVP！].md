@@ -2188,3 +2188,3576 @@ x队现在每次决赛都是点子哥疯狂c，然后四小将往地上一躺开
 
 NGA那边有人发ai预测的挑战者组<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+*****
+
+####  NEIN  
+##### 3350#       发表于 2023-5-4 10:57
+
+《CS：GO》优先状态升级包 上调低价区价格，国区上调至￥103
+？啊？我major币呢
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  heseran  
+##### 3351#       发表于 2023-5-5 09:32
+
+major通行证更新了，可以开始抄作业了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3352#       发表于 2023-5-5 10:22
+
+30多就出了个报丧鹰的金贴，后面出了个navi和黑豹的全息
+
+
+*****
+
+####  Jimlee079  
+##### 3353#       发表于 2023-5-5 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">坐等抄作业
+
+
+*****
+
+####  heseran  
+##### 3354#       发表于 2023-5-5 13:40
+
+<img src="https://img.saraba1st.com/forum/202305/05/133556trkwciec01s0re8x.jpg" referrerpolicy="no-referrer">
+
+<strong>20230505133449_1.jpg</strong> (188.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-5 13:35 上传
+
+打算就这样搞了，但是感觉OG和老鼠哪个放下去都可以
+
+
+*****
+
+####  朔方原的星  
+##### 3355#         楼主| 发表于 2023-5-7 20:02
+
+<img src="https://img.saraba1st.com/forum/202305/07/200226mwzqbcwzqqeuwmui.jpg" referrerpolicy="no-referrer">
+
+<strong>d562720126c4a1f65873944e961437cb2183230.jpg</strong> (139.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-7 20:02 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩机器发作业了，和我的一模一样
+
+
+*****
+
+####  Niyah  
+##### 3356#       发表于 2023-5-7 21:07
+
+没看赛程，就按最近看比赛的主观感受填了
+
+20230507210524_1.jpg
+(132.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-7 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202305/07/210627wa6eryco6mfghe6c.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3357#       发表于 2023-5-8 18:53
+
+BOROS真的恐怖吧，谁看谁死啊<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  反方向的波  
+##### 3358#       发表于 2023-5-8 19:24
+
+寄兔啥情况
+
+
+*****
+
+####  heseran  
+##### 3359#       发表于 2023-5-8 19:35
+
+Jsk满甲满道具ups<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，6000块没起枪哈哈哈哈
+
+*****
+
+####  朔方原的星  
+##### 3360#         楼主| 发表于 2023-5-8 19:48
+
+ 本帖最后由 朔方原的星 于 2023-5-8 19:50 编辑 
+
+G2行不行啊草，我开始后悔没选fluxo了我操作业还能改，懒狗V社，我先改了我不管了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3361#       发表于 2023-5-8 20:11
+
+吓死了好吧，强队还是有韧性，调整过来了。
+
+*****
+
+####  Niyah  
+##### 3362#       发表于 2023-5-8 20:16
+
+丧，boros杀四个赢不了，更丧的是把作业贴了一下之后发现忘填monte了，中场的时候把og下了换成monte
+
+
+*****
+
+####  heseran  
+##### 3363#       发表于 2023-5-8 20:57
+
+液体在干什么啊？在这样我改作业了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 3364#       发表于 2023-5-8 22:27
+
+现在直播挂机还掉箱子不
+
+
+*****
+
+####  朔方原的星  
+##### 3365#         楼主| 发表于 2023-5-8 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60780577&amp;ptid=1857369" target="_blank">团结奋进碇真嗣 发表于 2023-5-8 22:27</a>
+
+现在直播挂机还掉箱子不</blockquote>
+你这号注册之前不就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 3366#       发表于 2023-5-9 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60781061&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-8 23:02</a>
+你这号注册之前不就没了</blockquote>
+那代币开的箱子是出纪念品吗
+
+
+*****
+
+####  ispep  
+##### 3367#       发表于 2023-5-9 08:23
+
+ 本帖最后由 ispep 于 2023-5-9 08:24 编辑 
+
+液体只能说意料之中吧，整了几届活了上届开始就不选了。就怕输fluxo，不过bo3应该不至于吧
+
+*****
+
+####  heseran  
+##### 3368#       发表于 2023-5-9 08:27
+
+液体要是输给fluxo我的作业可能就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3369#       发表于 2023-5-9 08:58
+
+这液体又是不能大伙一起发挥，还不如大伙一起拉了算了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3370#         楼主| 发表于 2023-5-9 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60781759&amp;ptid=1857369" target="_blank">团结奋进碇真嗣 发表于 2023-5-9 00:21</a>
+那代币开的箱子是出纪念品吗</blockquote>
+是，但是现在没签名了
+
+*****
+
+####  朔方原的星  
+##### 3371#         楼主| 发表于 2023-5-9 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60782892&amp;ptid=1857369" target="_blank">heseran 发表于 2023-5-9 08:27</a>
+液体要是输给fluxo我的作业可能就炸了</blockquote>
+输fluxo就别丢人了，直接解散吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3372#       发表于 2023-5-9 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60783287&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-9 09:13</a>
+
+输fluxo就别丢人了，直接解散吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正下次绝对不选液体了，妈的一点都不能信
+
+
+*****
+
+####  dev2ce  
+##### 3373#       发表于 2023-5-9 12:24
+
+na又没人了，液体出了贴纸就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3374#       发表于 2023-5-9 12:43
+
+液体3个bo3应该打的出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Niyah  
+##### 3375#       发表于 2023-5-9 21:54
+
+兔宝拿下！今晚液体别翻车作业基本就稳了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  那由  
+##### 3376#       发表于 2023-5-9 23:43
+
+我是ropz就把队友全🦈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  攻城匠师黑索  
+##### 3377#       发表于 2023-5-10 00:20
+
+没想到第一个0-3的居然是老鼠..<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3378#       发表于 2023-5-10 00:20
+
+爆爆爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NEIN  
+##### 3379#       发表于 2023-5-10 00:52
+
+🐴体🐴体🐴体🐴体🐴体🐴体🐴体🐴体🐴体🐴体🐴体🐴体
+服了呀，打个南美二狗还能炸成这样的，这下只能指望forze和nip全出线了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  ispep  
+##### 3380#       发表于 2023-5-10 01:36
+
+起床一看这液体丑陋得不敢相信……
+
+*****
+
+####  Rainwedell  
+##### 3381#       发表于 2023-5-10 01:39
+
+这是想要我作业死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Niyah  
+##### 3382#       发表于 2023-5-10 09:10
+
+本来以为液体稳了都不打算看，睡前瞅了一眼图一<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  攻城匠师黑索  
+##### 3383#       发表于 2023-5-10 20:53
+
+没有钻石币！<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GStar  
+##### 3384#       发表于 2023-5-10 21:16
+
+og倒了，无了啊，得faze、Monte、液体三个出线2个才能过竞猜了
+
+
+*****
+
+####  那由  
+##### 3385#       发表于 2023-5-10 22:25
+
+faze这啃老别还啃输喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  heseran  
+##### 3386#       发表于 2023-5-10 22:31
+
+总监这个系列赛在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  超法拉  
+##### 3387#       发表于 2023-5-10 22:33
+
+差点顶级choke
+
+
+*****
+
+####  heseran  
+##### 3388#       发表于 2023-5-11 07:47
+
+作业过了，甚至monte和液体还在2-2<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">，说不定还能多对两个。
+
+
+*****
+
+####  曼陀罗肥  
+##### 3389#       发表于 2023-5-11 14:33
+
+明天g2打小蜜蜂啊，按之前的规律来看，这次是轮到g2赢了吧，这样的话小蜜蜂不会要开局0-2吧
+
+
+*****
+
+####  dev2ce  
+##### 3390#       发表于 2023-5-11 20:05
+
+Jerry3次挑战者组2-3了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3391#         楼主| 发表于 2023-5-11 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60813686&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-11 20:05</a>
+Jerry3次挑战者组2-3了</blockquote>
+纯粹自己不配赢，不知道今晚能不能看到玩机器作业爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ispep  
+##### 3392#       发表于 2023-5-11 20:20
+
+这forze<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恶搞之王  
+##### 3393#       发表于 2023-5-11 21:32
+
+monte估计也要寄了，等一个玩机器直播磕头
+
+*****
+
+####  heseran  
+##### 3394#       发表于 2023-5-11 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60813859&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-11 20:18</a>
+纯粹自己不配赢，不知道今晚能不能看到玩机器作业爆炸</blockquote>
+玩机器昨天直播的时候还说作业炸了倒立拉稀还是干啥来着，乐起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3395#       发表于 2023-5-11 21:37
+
+玩神惯例是炸了磕头<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ispep  
+##### 3396#       发表于 2023-5-12 01:22
+
+杀回来了液体，我要选他0-3
+这奖励的三支队伍真是有点搞吧，感觉og老鼠死得有点冤哪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3397#         楼主| 发表于 2023-5-12 06:22
+
+坏了，让玩机器给跑掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3398#       发表于 2023-5-12 07:51
+
+第一轮甚至对了7个<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">，但是液体我再也不会相信了。
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 3399#       发表于 2023-5-12 09:01
+
+这通行证到底啥用啊？就给箱子？客户端也看不了直播啊，还是我没找到？
+
+
+*****
+
+####  dev2ce  
+##### 3400#       发表于 2023-5-12 15:05
+
+如果有个稳定强队竞猜好搞多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，伦敦卡托柏林斯德哥尔摩都是
+
+
+*****
+
+####  heseran  
+##### 3401#       发表于 2023-5-12 19:58
+
+ 本帖最后由 heseran 于 2023-5-12 20:00 编辑 
+
+<img src="https://img.saraba1st.com/forum/202305/12/193731nna2eezaxk6k2tbx.jpg" referrerpolicy="no-referrer">
+
+<strong>20230512193202_1.jpg</strong> (174.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 19:37 上传
+
+传奇组作业就这样做了。下面前五个是肯定要选的，ENCE0-2开局进入挑战者组，3-0进入传奇组，韧性和爆发力值得一个位置；剩下一个位置黑豹和nip都可以，nip太僵硬了，传奇组会很难，不选；monte能进传奇组已经可以开香槟了，不选。液体这个系列赛打的什么玩意儿，不能信，不选。0-3填itb或者GL都可以，itb纸面实力最弱，捡了一个传奇组名额，GL虽然第一把打navi，看起来更稳，但是我觉得GL可以杀回一分。3-0放弃，但是我赌nip打不过fnatic，就放他了！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3402#       发表于 2023-5-12 23:49
+
+第一天就来刺激的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+20230512195543_1.jpg
+(127.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-12 23:49 上传
+
+<img src="https://img.saraba1st.com/forum/202305/12/234914n1zv232y2vkv2h01.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FerMonster  
+##### 3403#       发表于 2023-5-13 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60828661&amp;ptid=1857369" target="_blank">Niyah 发表于 2023-5-12 23:49</a>
+
+第一天就来刺激的</blockquote>
+建议把APEKS弄掉，这个队属于下限高的那种，传奇组的队伍他hold不住。
+
+
+*****
+
+####  Niyah  
+##### 3404#       发表于 2023-5-13 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60828940&amp;ptid=1857369" target="_blank">FerMonster 发表于 2023-5-13 00:29</a>
+
+建议把APEKS弄掉，这个队属于下限高的那种，传奇组的队伍他hold不住。</blockquote>
+本来想填宇宙队的，但宇宙队实在很难放心；9nine有冥王，nip神神鬼鬼的，monte教练又没来，剩下的就按喜好填了APEKS了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ispep  
+##### 3405#       发表于 2023-5-13 18:00
+
+其实传奇赛挺好猜啊，看了一圈下面七个真是铁打的，虽然对faze有点点看法
+最自我的做法就是填了30bne03液体<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在看了一下要是遇到itb应该液体还是能过的的
+
+
+*****
+
+####  ispep  
+##### 3406#       发表于 2023-5-13 18:38
+
+ 本帖最后由 ispep 于 2023-5-13 18:40 编辑 
+
+看文字感觉一直在e<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3407#       发表于 2023-5-13 18:55
+
+液体宰🐷是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无论东西  
+##### 3408#       发表于 2023-5-13 19:19
+
+艺术哥这家里藏一把狙打到一半回去换回来是真的艺术啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3409#         楼主| 发表于 2023-5-13 20:25
+
+披肩是真拉了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KozueAkimoto  
+##### 3410#       发表于 2023-5-13 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60835446&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-13 20:25</a>
+披肩是真拉了啊</blockquote>
+从rmr到现在（bo3开始）只爆发了三个回合（复活赛第二张小镇下半场爆发的），每次faze比赛一输就有人说要换雨神，谁知雨神是最稳定的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3411#         楼主| 发表于 2023-5-13 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60835499&amp;ptid=1857369" target="_blank">KozueAkimoto 发表于 2023-5-13 20:28</a>
+
+从rmr到现在（bo3开始）只爆发了三个回合（复活赛第二张小镇下半场爆发的），每次faze比赛一输就有人说要 ...</blockquote>
+总监从液体时就一直不是个稳定的选手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雨神之前也摆了几年，不过现在来说肯定还是总监不行
+
+雨神已经第二春了，总监还在不稳
+
+
+*****
+
+####  KozueAkimoto  
+##### 3412#       发表于 2023-5-13 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60835537&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-13 20:31</a>
+总监从液体时就一直不是个稳定的选手雨神之前也摆了几年，不过现在来说肯定还是总监不行
+
+雨神已经 ...</blockquote>
+只能说雨神天赋是真的吊
+
+*****
+
+####  dev2ce  
+##### 3413#       发表于 2023-5-13 20:49
+
+总监要是一直那么稳定怎么可能去faze浪费一年（2021）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达维安爵士  
+##### 3414#       发表于 2023-5-13 20:49
+
+披肩赶紧重新做个发型吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3415#         楼主| 发表于 2023-5-13 20:58
+
+itb这边这icu大乱斗，真是把大伙都逗乐了，余兴节目属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3416#       发表于 2023-5-13 21:00
+
+twistzz不想玩可以退<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，twistzz之前最强的其实也就是防守方架枪，现在架不住了可还行
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  朔方原的星  
+##### 3417#         楼主| 发表于 2023-5-13 21:14
+
+这小蜜蜂，陌生，难道说难道说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3418#       发表于 2023-5-13 21:32
+
+我操，薯薯上半场最后一局太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恶搞之王  
+##### 3419#       发表于 2023-5-13 21:33
+
+这残局太可怕了
+
+*****
+
+####  空气蛹  
+##### 3420#       发表于 2023-5-13 21:35
+
+大番薯这个残局太狠了
+
+—— 来自 realme RMX3562, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  heseran  
+##### 3421#       发表于 2023-5-13 21:43
+
+G2吃多了？4打2送俩？
+
+*****
+
+####  达维安爵士  
+##### 3422#       发表于 2023-5-13 21:57
+
+虾哥这是转行气氛组了吗
+
+*****
+
+####  朔方原的星  
+##### 3423#         楼主| 发表于 2023-5-13 22:00
+
+现在熟悉了，快进到16-13<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  尖刺外婆  
+##### 3424#       发表于 2023-5-13 22:06
+
+这俩队还是老味道
+
+*****
+
+####  朔方原的星  
+##### 3425#         楼主| 发表于 2023-5-13 22:08
+
+好好好，希望apex病情稳定住，这个major有搞头好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 3426#       发表于 2023-5-13 22:10
+
+前面有事，从10:13开始看的，不知道咋评价了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DICE20  
+##### 3427#       发表于 2023-5-13 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧禄兄弟这一年多你赢一把我赢一把的循环居然被打破了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ispep  
+##### 3428#       发表于 2023-5-13 22:17
+
+没事，前面没后面好看<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">7分过后开始大乱斗
+apex看起来比以前好好多啊
+
+
+*****
+
+####  朔方原的星  
+##### 3429#         楼主| 发表于 2023-5-13 23:47
+
+狂哥太狠了，眼看液体3-0真不是梦了
+
+*****
+
+####  那由  
+##### 3430#       发表于 2023-5-13 23:50
+
+npl尿裤子了要
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ispep  
+##### 3431#       发表于 2023-5-13 23:50
+
+c9剧本？
+
+
+*****
+
+####  朔方原的星  
+##### 3432#         楼主| 发表于 2023-5-13 23:58
+
+宰猪，纯粹的宰猪，狂哥太狠了，走哪破哪然后赢，ezpz
+
+*****
+
+####  恶搞之王  
+##### 3433#       发表于 2023-5-13 23:59
+
+狂哥C闷了，半场149ADR，炸鱼了
+
+
+*****
+
+####  xuzy0919  
+##### 3434#       发表于 2023-5-14 00:24
+
+白忙活了
+
+
+*****
+
+####  heseran  
+##### 3435#       发表于 2023-5-14 01:35
+
+3:0的作业光速寄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，第一轮选液体，菜得跟啥一样，这轮没选液体你猛起来了是吧
+
+
+*****
+
+####  ispep  
+##### 3436#       发表于 2023-5-14 04:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60838242&amp;ptid=1857369" target="_blank">heseran 发表于 2023-5-14 01:35</a>
+3:0的作业光速寄，第一轮选液体，菜得跟啥一样，这轮没选液体你猛起来了是吧 ...</blockquote>
+上次c9一模一样的剧本，然后淘汰赛莫名其妙被老鼠带走<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cwlo  
+##### 3437#       发表于 2023-5-14 04:36
+
+爆！全世界都GG！
+
+
+*****
+
+####  ispep  
+##### 3438#       发表于 2023-5-14 04:42
+
+四个0-2写了三个，这下提前结束了
+真精彩啊
+
+*****
+
+####  恶搞之王  
+##### 3439#       发表于 2023-5-14 04:51
+
+好了，超级大爆，全球作业大爆炸咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3440#         楼主| 发表于 2023-5-14 07:46
+
+超级大爆！那该滚蛋的队伍都早点滚蛋然后让小蜜蜂和x队打决赛得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3441#       发表于 2023-5-14 09:17
+
+g2和黑豹出一个，然后是x队和小蜜蜂，这就三个了，navi，ence，faze出两个，还有希望<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3442#       发表于 2023-5-14 09:41
+
+一觉醒来爆成这样，第一天真这么刺激<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3443#       发表于 2023-5-14 17:37
+
+G2和小蜜蜂是兄弟队什么梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧好多说这个的，看来21年没怎么看确实错过太多东西了
+以及一套知名阵容确实对俱乐部品牌塑造有很大好处，明明现在G2从头到尾跟法国都没关系了，还在法国主场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3444#         楼主| 发表于 2023-5-14 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60842932&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-14 17:37</a>
+G2和小蜜蜂是兄弟队什么梗贴吧好多说这个的，看来21年没怎么看确实错过太多东西了
+以及一套知名阵容 ...</blockquote>
+没啥深的渊源，就是shox老杰克之类的选手，包括教练xtqzzz都在g2待过也来小蜜蜂打过，Apex什么的也是老法国那一帮，再加上之前一段时间两队一起抽象一起荣，粉丝关系就不错咯
+
+
+*****
+
+####  dev2ce  
+##### 3445#       发表于 2023-5-14 22:30
+
+杜!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3446#         楼主| 发表于 2023-5-14 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60845343&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-14 22:30</a>
+杜!但🐝冠军组淘汰赛别choke了</blockquote>
+apex病情已经初现复发的苗头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3447#       发表于 2023-5-15 00:21
+
+是不是要G2打faze了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3448#       发表于 2023-5-15 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60845471&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-14 22:48</a>
+apex病情已经初现复发的苗头</blockquote>
+现在犯犯病得了，淘汰赛正常就行<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NEIN  
+##### 3449#       发表于 2023-5-15 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60846248&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-15 00:21</a>
+是不是要G2打faze了</blockquote>
+gl赢了fnc之后就不会了，2个都有可能3-2出线
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  恶搞之王  
+##### 3450#       发表于 2023-5-15 02:16
+
+第四轮真的各种年度大戏
+
+navi打monte，飞柱和SDY，woro2k外加斜眼的恩怨情仇全在这场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3451#       发表于 2023-5-15 18:00
+
+bne真成faze杀手蟹了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  达维安爵士  
+##### 3452#       发表于 2023-5-15 18:17
+
+恒河舢板危<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3453#       发表于 2023-5-15 18:19
+
+草，看了眼数据16-3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3454#         楼主| 发表于 2023-5-15 18:19
+
+faze这脑壳都被打烂了
+
+*****
+
+####  那由  
+##### 3455#       发表于 2023-5-15 18:19
+
+点开一看nip怎么压着ence打，还不是靠rez的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3456#         楼主| 发表于 2023-5-15 18:20
+
+今晚主要节目氦得是monte打Navi，虽然不喜欢Monte这队，但我肯定是更想看Monte赢，因为乐子太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要素齐全，被Navi摁死了就没意思了
+
+
+*****
+
+####  Rainwedell  
+##### 3457#       发表于 2023-5-15 18:29
+
+faze图二ct不拿10分都是直接抬走的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  那由  
+##### 3458#       发表于 2023-5-15 19:01
+
+我测，ence和faze不会真双双把家还了吧
+
+
+*****
+
+####  heseran  
+##### 3459#       发表于 2023-5-15 19:20
+
+完了，我的作业……
+
+*****
+
+####  宝儿  
+##### 3460#       发表于 2023-5-15 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60854763&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-15 18:20</a>
+
+今晚主要节目氦得是monte打Navi，虽然不喜欢Monte这队，但我肯定是更想看Monte赢，因为乐子太多了要 ...</blockquote>
+很难死吧  navi再菜也不至于吧
+
+
+*****
+
+####  人別離苦  
+##### 3461#       发表于 2023-5-15 19:40
+
+返航了<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3462#       发表于 2023-5-15 19:47
+
+ence就这么走了，唏嘘啊
+
+
+*****
+
+####  Rainwedell  
+##### 3463#       发表于 2023-5-15 19:55
+
+这就是责任神 ropz吗？
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  朔方原的星  
+##### 3464#         楼主| 发表于 2023-5-15 19:56
+
+BNE常规赛打得是真好，差点就把faze抬走了
+加时赛打乱了，连着毫无意义地开局送头把自己打崩，真的亏，不知道会不会影响图三士气
+
+*****
+
+####  朔方原的星  
+##### 3465#         楼主| 发表于 2023-5-15 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60855396&amp;ptid=1857369" target="_blank">heseran 发表于 2023-5-15 19:20</a>
+完了，我的作业……</blockquote>
+都这时候了，肯定是乐子重要啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3466#       发表于 2023-5-15 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60855795&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-15 19:56</a>
+都这时候了，肯定是乐子重要啊</blockquote>
+确实，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">faze g2 navi必须全部晋级作业才能过，还是看看近处的monte打navi有多有意思吧
+
+
+*****
+
+####  那由  
+##### 3467#       发表于 2023-5-15 20:32
+
+飞柱要寄了
+
+
+*****
+
+####  heseran  
+##### 3468#       发表于 2023-5-15 20:35
+
+节目效果起来了，守了10分
+
+
+*****
+
+####  c88711611  
+##### 3469#       发表于 2023-5-15 20:45
+
+大t图，t都拿不到分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  攻城匠师黑索  
+##### 3470#       发表于 2023-5-15 21:03
+
+孙大勇图一27-14真薄纱吧
+
+*****
+
+####  朔方原的星  
+##### 3471#         楼主| 发表于 2023-5-15 21:03
+
+monte图一拿下，BNE眼看也还有希望翻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐子爽啊，让我看看今晚还有谁，就是你了G2，来表演一个被fnatic殴打吧
+
+*****
+
+####  liva  
+##### 3472#       发表于 2023-5-15 21:04
+
+他吗的 这最后一次MAJOR真的是太勾八喜剧了
+
+*****
+
+####  c88711611  
+##### 3473#       发表于 2023-5-15 21:07
+
+隔壁正在上演，谁还不会打T了来自: iPhone客户端
+
+*****
+
+####  朔方原的星  
+##### 3474#         楼主| 发表于 2023-5-15 21:09
+
+这gxx真是一杆好狙
+
+这FAZE状态就是一坨屎，除了ropz没一个配赢的，BNE就是主打一个突然犯病，但凡轻点犯病真的早稳稳抬走了
+
+
+*****
+
+####  朔方原的星  
+##### 3475#         楼主| 发表于 2023-5-15 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真给他抢救回来了，BNE就是太上头了，叫点暂停冷冷脑子真能走得更远
+
+
+*****
+
+####  Rainwedell  
+##### 3476#       发表于 2023-5-15 21:24
+
+真太抽象了，你不说是major，队名换成vp我觉得铁假赛
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  liva  
+##### 3477#       发表于 2023-5-15 21:27
+
+这FAZE捡回了一条狗命。。
+
+*****
+
+####  宝儿  
+##### 3478#       发表于 2023-5-15 21:29
+
+navi别搞啊 navi  给你你就吃是吧！
+
+
+*****
+
+####  c88711611  
+##### 3479#       发表于 2023-5-15 21:34
+
+我看Navi就是刚不过啊，枪法被碾压了。之前小蜜蜂赢也是小蜜蜂火力更猛来自: iPhone客户端
+
+*****
+
+####  cwlo  
+##### 3480#       发表于 2023-5-15 21:34
+
+FAZE现在就ROPZ稳定一点，其他两个说拉就拉，老头们就不指望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3481#         楼主| 发表于 2023-5-15 21:39
+
+今晚太过瘾了，ttf2也不打了，不如这个带劲
+
+*****
+
+####  宝儿  
+##### 3482#       发表于 2023-5-15 21:46
+
+navi烂完了！
+
+*****
+
+####  dev2ce  
+##### 3483#       发表于 2023-5-15 21:49
+
+这下真宰🐷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 3484#       发表于 2023-5-15 21:50
+
+monte没教练打成这样，这太疯狂了
+
+*****
+
+####  dev2ce  
+##### 3485#       发表于 2023-5-15 21:51
+
+榜一大哥去年跟吹气球一样膨胀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3486#         楼主| 发表于 2023-5-15 21:53
+
+玩机器还勾八换台，有sdy手撕森破好看？
+
+*****
+
+####  liva  
+##### 3487#       发表于 2023-5-15 21:55
+
+SDY全锅，谁让他坐错位置了
+
+*****
+
+####  c88711611  
+##### 3488#       发表于 2023-5-15 21:56
+
+宰猪咯
+
+*****
+
+####  恶搞之王  
+##### 3489#       发表于 2023-5-15 21:57
+
+好好好，薄纱宰猪咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cwlo  
+##### 3490#       发表于 2023-5-15 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">世界名画！！
+
+*****
+
+####  那由  
+##### 3491#       发表于 2023-5-15 21:58
+
+杀猪过年！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  朔方原的星  
+##### 3492#         楼主| 发表于 2023-5-15 22:00
+
+<img src="https://p.sda1.dev/11/626874dc9aced02fbcccbb0895830611/mmexport1684159149747.jpg" referrerpolicy="no-referrer">
+别人截的图，我早看曹泳裤去了
+
+*****
+
+####  liva  
+##### 3493#       发表于 2023-5-15 22:00
+
+曹泳裤不得奔丧去了
+
+
+*****
+
+####  DICE20  
+##### 3494#       发表于 2023-5-15 22:06
+
+Blast这赛后直接放Twitter可太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这次UI也很有意思Blast.tv还实时标注多杀翻盘这些方便回看 Blast还是会办比赛啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  朔方原的星  
+##### 3495#         楼主| 发表于 2023-5-15 22:24
+
+g2滚蛋真不是梦
+懒得看了，看完sdy复仇局再看g2这场真的觉得没意思，玩游戏去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 3496#       发表于 2023-5-15 22:24
+
+4分够吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  doublehit  
+##### 3497#       发表于 2023-5-15 22:24
+
+G2怎么一种烂完了的感觉来自: iPhone客户端
+
+*****
+
+####  Rainwedell  
+##### 3498#       发表于 2023-5-15 22:25
+
+不会最后是看着最烂的faze进冠军组吧
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  奈纪亚美  
+##### 3499#       发表于 2023-5-15 22:25
+
+这中场，不知道的以为G2在打决赛呢
+
+
+*****
+
+####  dev2ce  
+##### 3500#       发表于 2023-5-15 23:14
+
+快进到G2打navi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NEIN  
+##### 3501#       发表于 2023-5-15 23:52
+
+反正作业已经完蛋了，🦐兵🦐将能不能赶紧滚出major，打的太丑陋了
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  人別離苦  
+##### 3502#       发表于 2023-5-16 01:36
+
+持续质疑<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NEIN  
+##### 3503#       发表于 2023-5-16 01:37
+
+回家！下一张图cs_747咯
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  doublehit  
+##### 3504#       发表于 2023-5-16 01:37
+
+一虾到底，一虾到底<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  Niyah  
+##### 3505#       发表于 2023-5-16 01:39
+
+我的作业看apeks了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3506#       发表于 2023-5-16 01:40
+
+只能说极端尼粉给我把Niko的印象分拉太低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DICE20  
+##### 3507#       发表于 2023-5-16 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这Niko真的是关键局每次都能猜到啥剧本而且基本不令人失望
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  c88711611  
+##### 3508#       发表于 2023-5-16 01:44
+
+太子真别碰瓷载物了，挑战者组其他爽了，回家局就这？来自: iPhone客户端
+
+
+*****
+
+####  dev2ce  
+##### 3509#       发表于 2023-5-16 01:54
+
+Niko也没啥好说的，最好的机会就是波士顿，自己没抓住
+
+*****
+
+####  松狮酱  
+##### 3510#       发表于 2023-5-16 01:58
+
+G2喜欢放弃里约集训，嘻嘻只能说好似喵
+
+
+*****
+
+####  拉萨乌姆  
+##### 3511#       发表于 2023-5-16 04:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听说世一步又回家啦
+
+*****
+
+####  宮脇咲良  
+##### 3512#       发表于 2023-5-16 05:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60858950&amp;ptid=1857369" target="_blank">松狮酱 发表于 2023-5-16 01:58</a>
+
+G2喜欢放弃里约集训，嘻嘻只能说好似喵</blockquote>
+夜店集训是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天妇罗  
+##### 3513#       发表于 2023-5-16 06:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60858907&amp;ptid=1857369" target="_blank">c88711611 发表于 2023-5-16 01:44</a>
+
+太子真别碰瓷载物了，挑战者组其他爽了，回家局就这？</blockquote>
+一个动不动就红温的经济黑洞狙击手，何德何能碰瓷手枪步枪狙击综合top1的载物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ml1642879  
+##### 3514#       发表于 2023-5-16 10:26
+
+ 本帖最后由 ml1642879 于 2023-5-16 10:32 编辑 
+
+GO罕见的作业比GO主播稳，怎么回事呢？
+
+
+*****
+
+####  奈纪亚美  
+##### 3515#       发表于 2023-5-16 11:12
+
+ban核子放大厦，回家不冤好吧
+
+
+*****
+
+####  奈纪亚美  
+##### 3516#       发表于 2023-5-16 11:12
+
+ban核子放大厦，回家不冤好吧
+
+
+*****
+
+####  dev2ce  
+##### 3517#       发表于 2023-5-16 18:10
+
+op是不想赢吗，faze<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3518#         楼主| 发表于 2023-5-16 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60866965&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-16 18:10</a>
+选op是不想赢吗，faze</blockquote>
+如果navi上去了有望看到monte双杀navi吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3519#       发表于 2023-5-16 18:41
+
+这P元帅尽大力了
+
+
+*****
+
+####  andychen  
+##### 3520#       发表于 2023-5-16 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想看NAVI淘汰FAZE，然后冠军组第一轮再被MONTE干爆
+
+
+*****
+
+####  c88711611  
+##### 3521#       发表于 2023-5-16 20:27
+
+《透支》《偿还》ROPZ今天偿还了来自: iPhone客户端
+
+
+*****
+
+####  拉萨乌姆  
+##### 3522#       发表于 2023-5-16 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">faze这回打完要散伙了吧？
+
+
+*****
+
+####  拉萨乌姆  
+##### 3523#       发表于 2023-5-16 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚说完，navi赛点开始浪...
+
+
+*****
+
+####  c88711611  
+##### 3524#       发表于 2023-5-16 20:54
+
+加时，谁输了都是究极长痛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉萨乌姆  
+##### 3525#       发表于 2023-5-16 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死，真让翻了。喜欢浪嗷
+
+*****
+
+####  宝儿  
+##### 3526#       发表于 2023-5-16 20:54
+
+真他妈加了  绝了
+
+*****
+
+####  c88711611  
+##### 3527#       发表于 2023-5-16 20:54
+
+加时，究极长痛局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  c88711611  
+##### 3528#       发表于 2023-5-16 21:01
+
+这图真的是大t图吗？怎么感觉打起来哪里有点不对<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cwlo  
+##### 3529#       发表于 2023-5-16 21:01
+
+西蓝花力中暴力
+
+
+*****
+
+####  拉萨乌姆  
+##### 3530#       发表于 2023-5-16 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">刚才我是真的没有想到会是这个结局
+
+*****
+
+####  拉萨乌姆  
+##### 3531#       发表于 2023-5-16 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">折磨
+
+*****
+
+####  宝儿  
+##### 3532#       发表于 2023-5-16 21:07
+
+终极长痛！
+
+
+*****
+
+####  那由  
+##### 3533#       发表于 2023-5-16 21:16
+
+飞柱滚啦！天生回家！
+
+*****
+
+####  dev2ce  
+##### 3534#       发表于 2023-5-16 21:16
+
+faze这韧性，淘汰赛大有可为<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是打小蜜蜂吗
+
+*****
+
+####  c88711611  
+##### 3535#       发表于 2023-5-16 21:16
+
+杀猪喽，舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉萨乌姆  
+##### 3536#       发表于 2023-5-16 21:17
+
+半场开香槟，好似喵
+
+*****
+
+####  zpl123  
+##### 3537#       发表于 2023-5-16 21:17
+
+navi好似喵
+
+*****
+
+####  keleemo123  
+##### 3538#       发表于 2023-5-16 21:17
+
+faze！！！！！！faze！！！！！！faze！！！！！！faze！！！！！！faze！！！！！！
+
+*****
+
+####  keleemo123  
+##### 3539#       发表于 2023-5-16 21:17
+
+faze！！！！！！faze！！！！！！faze！！！！！！faze！！！！！！faze！！！！！！
+
+*****
+
+####  Rainwedell  
+##### 3540#       发表于 2023-5-16 21:17
+
+这两队每次都是打满，然后谁赢谁吃大补丸进去开宰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  BallanceHZ  
+##### 3541#       发表于 2023-5-16 21:18
+
+究极长痛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 3542#       发表于 2023-5-16 21:18
+
+够刺激这比赛，npl双杀那局到现在的心情应该挺特别吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3543#       发表于 2023-5-16 21:19
+
+究极tmd长痛
+
+*****
+
+####  sorara  
+##### 3544#       发表于 2023-5-16 21:20
+
+这比赛费心脏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keleemo123  
+##### 3545#       发表于 2023-5-16 21:20
+
+孙大勇你毁了navi你毁了这个家！
+
+*****
+
+####  无论东西  
+##### 3546#       发表于 2023-5-16 21:21
+
+老头这韧性是真的厉害啊，熬不死
+
+
+*****
+
+####  andychen  
+##### 3547#       发表于 2023-5-16 21:27
+
+这俩队和昨天一样状态一坨屎
+
+要是冠军组还是这样，上去也是一轮游的命
+
+*****
+
+####  dev2ce  
+##### 3548#       发表于 2023-5-16 21:29
+
+有一说一，榜一大哥现在再烂之前该拿的都拿过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3549#       发表于 2023-5-16 21:37
+
+这两队都拿过了，没拿过的那个昨天就死了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  恶搞之王  
+##### 3550#       发表于 2023-5-16 21:49
+
+清算时间到，blad3真的navi唯一指定出生
+
+个逼打职业只配在二线混叼毛成绩没有，到navi抱上大腿了出了成绩以为是自己那套体系牛逼，看不起这个瞧不起那个，妈的人家zonic，robban那个像他这个吊样
+
+现在求锤得锤，只能说一句好死
+
+
+*****
+
+####  达维安爵士  
+##### 3551#       发表于 2023-5-16 21:59
+
+blad3：打法没问题，CS2干回来
+
+*****
+
+####  KozueAkimoto  
+##### 3552#       发表于 2023-5-16 22:01
+
+我9:15就退出直播间，看老陈下棋 然后看本子漫画 洗完澡回头看看完美app faze赢了？
+
+
+*****
+
+####  iam_hcl  
+##### 3553#       发表于 2023-5-16 23:38
+
+这两天看faze的比赛我是真的感觉心脏病都要吓出来了，跑三千米感觉心率都没这么快<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  恶搞之王  
+##### 3554#       发表于 2023-5-17 01:16
+
+fnc也被送回家了，重新定义G2强度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ispep  
+##### 3555#       发表于 2023-5-17 01:54
+
+头盔出线这么离谱的事都发生了，最后别是液体冠军吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3556#       发表于 2023-5-17 06:57
+
+作业有了，图二遗迹apeks半场2-13输手枪局一路追到加时，过程也挺精彩
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 朔方原的星| + 1|牛的|
+
+查看全部评分
+
+*****
+
+####  dev2ce  
+##### 3557#       发表于 2023-5-17 10:28
+
+csgo最后的major是瑞典人受难记<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最好的机会了🐝，能抓住吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3558#       发表于 2023-5-17 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60873061&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-17 10:28</a>
+csgo最后的major是瑞典人受难记
+最好的机会了🐝，能抓住吗</blockquote>
+相信zywoo和zywoo的嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  frenzy  
+##### 3559#       发表于 2023-5-17 12:41
+
+八强一个俄罗斯人都没，csgo major有史以来第一次
+
+*****
+
+####  曼陀罗肥  
+##### 3560#       发表于 2023-5-17 18:49
+
+小蜜蜂拿到上届c9剧本直接八强来个大的
+
+
+*****
+
+####  qianoooo  
+##### 3561#       发表于 2023-5-18 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">法国人素质还是差 heroic和钢盔出来狂嘘
+
+
+*****
+
+####  我是小卯  
+##### 3562#       发表于 2023-5-18 20:50
+
+blast的舞台效果还是那么帅:D
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  朔方原的星  
+##### 3563#         楼主| 发表于 2023-5-18 20:51
+
+出场动画和灯光还是很帅，不过舞台有点怪，总感觉队员们出场之后走到这个小圈里手足无措的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Niyah  
+##### 3564#       发表于 2023-5-18 21:10
+
+希望点子夺冠
+
+20230518210910_1.jpg
+(98.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-18 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202305/18/211008oenhlwb84jel05nh.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3565#       发表于 2023-5-18 21:11
+
+这bp打满了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3566#         楼主| 发表于 2023-5-18 21:29
+
+坏了，这次stavn好硬，小蜜蜂被亲爹送走的概率大增<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  诽谤麦当劳  
+##### 3567#       发表于 2023-5-18 21:33
+
+不行不行，枪都打不过
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  dev2ce  
+##### 3568#       发表于 2023-5-18 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60894977&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-18 21:11</a>
+这bp打满了吧faze的op，现在</blockquote>
+的前提是faze拿下nuke
+
+*****
+
+####  dev2ce  
+##### 3569#       发表于 2023-5-18 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60895127&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-18 21:29</a>
+坏了，这次stavn好硬，小蜜蜂被亲爹送走的概率大增</blockquote>
+直接被英国钢盔带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Caa  
+##### 3570#       发表于 2023-5-18 21:42
+
+x队的枪一直这么刚的吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  六道仙鱼  
+##### 3571#       发表于 2023-5-18 21:43
+
+faze开始忙活了嘛
+
+*****
+
+####  六道仙鱼  
+##### 3572#       发表于 2023-5-18 21:45
+
+该返航了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Caa  
+##### 3573#       发表于 2023-5-18 21:48
+
+玩神一句x队从不choke，faze直接连拿5分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  六道仙鱼  
+##### 3574#       发表于 2023-5-18 21:59
+
+哈哈，究极白忙活。
+
+*****
+
+####  DICE20  
+##### 3575#       发表于 2023-5-18 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">顶级白忙活 Faze这把把打得跟major决赛一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  朔方原的星  
+##### 3576#         楼主| 发表于 2023-5-18 22:01
+
+披肩还是披了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过x队的强度看来也没有一开始看着那么吓人
+
+
+*****
+
+####  Caa  
+##### 3577#       发表于 2023-5-18 22:02
+
+三打二没打过，铁板下来还被配电房打了个侧身，估计是紧张了
+
+*****
+
+####  六道仙鱼  
+##### 3578#       发表于 2023-5-18 22:04
+
+x队中间防守进攻太流畅了。还以为直接带走了。
+
+*****
+
+####  keleemo123  
+##### 3579#       发表于 2023-5-18 22:05
+
+8强跟决赛一样！一场马脚我看两场决赛！我赚麻了！！还有小玩磕头了 我赢三次！ 爽噜~~~~~~~~~~~~~~~~~~~~
+
+*****
+
+####  反方向的波  
+##### 3580#       发表于 2023-5-18 22:08
+
+总监每到关键时刻就能反向发力真的蚌埠住了
+
+
+*****
+
+####  dev2ce  
+##### 3581#       发表于 2023-5-18 22:45
+
+图三要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  六道仙鱼  
+##### 3582#       发表于 2023-5-18 22:55
+
+马上x队开始铁血防守
+
+*****
+
+####  Caa  
+##### 3583#       发表于 2023-5-18 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总监总体副作用有半年了吧
+
+
+*****
+
+####  dev2ce  
+##### 3584#       发表于 2023-5-18 23:18
+
+图三了，要是🐝被钢盔带走那是真爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 3585#       发表于 2023-5-18 23:22
+
+被钢盔带走直接一年不看小蜜蜂，那真的太痛了
+
+
+*****
+
+####  Caa  
+##### 3586#       发表于 2023-5-19 00:00
+
+ropz<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我的ropz
+
+
+*****
+
+####  keleemo123  
+##### 3587#       发表于 2023-5-19 00:13
+
+为有责任啊啊啊啊啊啊啊啊啊啊！！！！！不要这样被带走啊faze！！！！！
+
+*****
+
+####  六道仙鱼  
+##### 3588#       发表于 2023-5-19 00:15
+
+返航！
+
+*****
+
+####  Rainwedell  
+##### 3589#       发表于 2023-5-19 00:15
+
+twistzz我都懒得喷了，出生发挥
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Caa  
+##### 3590#       发表于 2023-5-19 00:17
+
+披肩这真的突破口，稳定被单杀<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 3591#       发表于 2023-5-19 00:18
+
+披肩你玩不玩，整个major都是出生
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Niyah  
+##### 3592#       发表于 2023-5-19 00:19
+
+半场朋友说9-16，我说不过六分，真的刚好六分拿下，X队<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3593#       发表于 2023-5-19 00:23
+
+总监不想玩可以退游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">架点架不住，补枪补不上，责任神是真的尽力了。
+
+*****
+
+####  keleemo123  
+##### 3594#       发表于 2023-5-19 00:27
+
+哎 大表哥那个表情 痛痛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">！痛痛痛痛痛痛痛痛啊！
+
+
+*****
+
+####  无论东西  
+##### 3595#       发表于 2023-5-19 00:42
+
+唉，faze byebye
+
+小蜜蜂给我赢！
+
+
+*****
+
+####  Rainwedell  
+##### 3596#       发表于 2023-5-19 00:46
+
+不行，越想越气。本来拿下major后对输赢基本都看淡了，twistzz以前送就送了，我对他评价本来就不高，关键时候能有爆发力就行，但这个major在队友拼命把队伍抬进线下的情况下 twistzz能做到从头➗到尾，关键局更是➗中➗确实击穿了我的心理防线<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">。
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  曼陀罗肥  
+##### 3597#       发表于 2023-5-19 01:12
+
+小蜜蜂真别来个大的行不行，主场至少进个四强吧
+
+
+*****
+
+####  dev2ce  
+##### 3598#       发表于 2023-5-19 01:33
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Caa  
+##### 3599#       发表于 2023-5-19 01:40
+
+英国队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钢盔这风格真有意思
+
+
+*****
+
+####  keleemo123  
+##### 3600#       发表于 2023-5-19 01:58
+
+法国最冷的一天！
+
+
+*****
+
+####  曼陀罗肥  
+##### 3601#       发表于 2023-5-19 02:09
+
+小蜜蜂这几个人今天真的软完了
+
+*****
+
+####  Caa  
+##### 3602#       发表于 2023-5-19 02:16
+
+本来说随便看看睡觉，结果意外得好看，各种意义上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诽谤麦当劳  
+##### 3603#       发表于 2023-5-19 02:17
+
+确实慢热
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  DICE20  
+##### 3604#       发表于 2023-5-19 02:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">财富密码：打B
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  恶搞之王  
+##### 3605#       发表于 2023-5-19 02:27
+
+蜜蜂现在致胜还是靠进攻
+
+这种二线队的防守战术和纪律想接住蜜蜂的进攻可太难了
+
+
+*****
+
+####  曼陀罗肥  
+##### 3606#       发表于 2023-5-19 03:38
+
+真的哈人打得
+
+*****
+
+####  Caa  
+##### 3607#       发表于 2023-5-19 03:39
+
+草莽英雄打正规军还是嫩了点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3608#       发表于 2023-5-19 03:40
+
+🐝这状态，继续加油吧只能
+
+
+*****
+
+####  曼陀罗肥  
+##### 3609#       发表于 2023-5-19 03:44
+
+小蜜蜂最近十连胜都是大分赢的，还有很多都是翻盘局，看得人真的血压拉满
+
+
+*****
+
+####  恶搞之王  
+##### 3610#       发表于 2023-5-19 03:56
+
+蜜蜂这个队就主打一个反常规
+
+你觉得是个T图，他们CT好像打的还行
+
+你觉得是个CT图，他们T各种薄纱
+
+然后反过来给你整活，在CT图上各种防守脑溢血，T图上冲警察局
+
+
+*****
+
+####  天妇罗  
+##### 3611#       发表于 2023-5-19 07:00
+
+小蜜蜂最近就这样，bo3各种2-0还以为是碾压，仔细一看把把血压拉满
+
+
+*****
+
+####  雨中曲  
+##### 3612#       发表于 2023-5-19 07:08
+
+抽象能赢小蜜蜂，抽象回家鸡兔二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天妇罗  
+##### 3613#       发表于 2023-5-19 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60897826&amp;ptid=1857369" target="_blank">雨中曲 发表于 2023-5-19 07:08</a>
+
+抽象能赢小蜜蜂，抽象回家鸡兔二</blockquote>
+蜜蜂战术抽象了，枪还是能刚起来的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plok201  
+##### 3614#       发表于 2023-5-19 08:37
+
+你别说抽不抽象，就问你一秒4导播都切不过来准不准
+
+
+*****
+
+####  AlphardAlSheya  
+##### 3615#       发表于 2023-5-19 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60897826&amp;ptid=1857369" target="_blank">雨中曲 发表于 2023-5-19 07:08</a>
+
+抽象能赢小蜜蜂，抽象回家鸡兔二</blockquote>
+毕竟小蜜蜂大哥是番薯，G2大哥是🦐🦐🦐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Caa  
+##### 3616#       发表于 2023-5-19 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60899323&amp;ptid=1857369" target="_blank">AlphardAlSheya 发表于 2023-5-19 10:03</a>
+毕竟小蜜蜂大哥是番薯，G2大哥是🦐🦐🦐啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼这表现真的配叫大哥吗，全靠小孩jks
+
+
+*****
+
+####  利剑Crazy-88  
+##### 3617#       发表于 2023-5-19 12:50
+
+虾哥今年还是有躺好等C的想法的（仅限于队伍成绩好的时候），一到袋鼠人和小孩儿力不从心的局他就又变成魔怔送头人，往黄布香蕉道等地方猛feed了
+
+
+*****
+
+####  keleemo123  
+##### 3618#       发表于 2023-5-19 13:52
+
+<img src="https://img.saraba1st.com/forum/202305/19/135248l3wd324bbbe5o2zb.jpg" referrerpolicy="no-referrer">
+
+<strong>-4411095008a8d1c0.jpg</strong> (203.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-5-19 13:52 上传
+
+
+*****
+
+####  Robakey  
+##### 3619#       发表于 2023-5-19 20:54
+
+小蜜蜂这个状态很难不冠
+
+
+*****
+
+####  Niyah  
+##### 3620#       发表于 2023-5-19 21:36
+
+这对枪质量大哥对决好看了
+
+
+*****
+
+####  朔方原的星  
+##### 3621#         楼主| 发表于 2023-5-19 21:59
+
+boros准是真准，但脑子是真一点没有啊，24k纯吕布
+
+
+*****
+
+####  恶搞之王  
+##### 3622#       发表于 2023-5-19 22:04
+
+这im也太暴力了
+
+boros这么carry都顶不住im
+
+
+*****
+
+####  团结奋进碇真嗣  
+##### 3623#       发表于 2023-5-19 22:34
+
+现场喊的是L's go liquid吗
+
+
+*****
+
+####  dev2ce  
+##### 3624#       发表于 2023-5-19 22:55
+
+Monte这op也太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 3625#       发表于 2023-5-19 22:58
+
+sdy：飞猪不打我也不打了
+
+*****
+
+####  曼陀罗肥  
+##### 3626#       发表于 2023-5-19 22:59
+
+ 本帖最后由 曼陀罗肥 于 2023-5-19 23:00 编辑 
+
+如果明天米人还不醒那小蜜蜂得被apeks或液体的胜者磕枪磕暴啊，这些队枪也太准了
+
+*****
+
+####  那由  
+##### 3627#       发表于 2023-5-19 22:59
+
+<img src="https://img.saraba1st.com/forum/202305/19/225950obd8wmakowi3xddk.png" referrerpolicy="no-referrer">
+
+<strong>6YMN`I4R8UB99Y`ZDV)`AHF.png</strong> (193.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-19 22:59 上传
+
+爆杀完飞柱之后心满意足
+
+
+*****
+
+####  诽谤麦当劳  
+##### 3628#       发表于 2023-5-19 23:03
+
+不如畅想一下im会去哪
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  dev2ce  
+##### 3629#       发表于 2023-5-19 23:06
+
+im现在rating已经比番薯高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1.46
+
+
+*****
+
+####  恶搞之王  
+##### 3630#       发表于 2023-5-19 23:51
+
+个人估计，im在CS2之前没啥换队机会，一线队这个点换人很尴尬的
+
+关键他年纪不小了，比番薯还大一岁，而且据说他英语不太利索
+
+
+*****
+
+####  曼陀罗肥  
+##### 3631#       发表于 2023-5-20 00:17
+
+ 本帖最后由 曼陀罗肥 于 2023-5-20 00:20 编辑 
+
+真准吧都这些兵队，决赛不会是apeks打gl超级大爆吧
+
+*****
+
+####  曼陀罗肥  
+##### 3632#       发表于 2023-5-20 00:20
+
+风怒
+
+
+*****
+
+####  恶搞之王  
+##### 3633#       发表于 2023-5-20 02:20
+
+液体回家
+
+决赛基本预定蜜蜂X队二番战了
+
+
+*****
+
+####  ispep  
+##### 3634#       发表于 2023-5-20 02:55
+
+担心的事情都没有发生，x队加油吧，又一次机会
+
+
+*****
+
+####  dev2ce  
+##### 3635#       发表于 2023-5-20 05:29
+
+难道决赛不能是gl大战apeks吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  那由  
+##### 3636#       发表于 2023-5-20 08:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是X队亚军的话就好玩了
+
+
+*****
+
+####  dev2ce  
+##### 3637#       发表于 2023-5-20 16:39
+
+v社是真的懒，柏林之后到现在四年了，平均下来一年一次major<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  曼陀罗肥  
+##### 3638#       发表于 2023-5-20 21:12
+
+今晚小蜜蜂看米了，如果还是只有载物魔男两个火力点小蜜蜂要像昨天液体那样出局了
+
+
+*****
+
+####  keleemo123  
+##### 3639#       发表于 2023-5-20 23:14
+
+真精彩啊 看得我热血沸腾了都
+
+*****
+
+####  曼陀罗肥  
+##### 3640#       发表于 2023-5-20 23:20
+
+gl apeks决赛要来了吗
+
+
+*****
+
+####  heseran  
+##### 3641#       发表于 2023-5-20 23:31
+
+点子哥着急了啊！图三来了
+
+
+*****
+
+####  朔方原的星  
+##### 3642#         楼主| 发表于 2023-5-20 23:33
+
+mirage感觉gl还是有点悬啊，不知道im的挂今天能不能开起来，开不起来感觉寄了
+gl绝活遗迹没拿下挺可惜的
+
+*****
+
+####  Niyah  
+##### 3643#       发表于 2023-5-20 23:34
+
+哎可惜了，点子和stavn追那两分都激动得喊出来了，如果可以还是希望能2:0稳稳拿下
+
+*****
+
+####  keleemo123  
+##### 3644#       发表于 2023-5-20 23:35
+
+各位吊大的帅哥 有了解刚才观众席举的那个玩偶在哪买吗 
+
+
+*****
+
+####  雨中曲  
+##### 3645#       发表于 2023-5-20 23:43
+
+还说看一场小蜜蜂比赛，睡觉的，不熬夜了
+
+
+*****
+
+####  那由  
+##### 3646#       发表于 2023-5-21 00:04
+
+gl apeks会师决赛，玩神3000贵宾面如死灰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  曼陀罗肥  
+##### 3647#       发表于 2023-5-21 00:09
+
+这im真major顿悟哥吧
+
+
+*****
+
+####  曼陀罗肥  
+##### 3648#       发表于 2023-5-21 00:20
+
+寄了
+
+*****
+
+####  Niyah  
+##### 3649#       发表于 2023-5-21 00:21
+
+我慌了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 3650#       发表于 2023-5-21 00:21
+
+im1.43跟你闹呢
+
+*****
+
+####  dev2ce  
+##### 3651#       发表于 2023-5-21 00:21
+
+gl大战apeks!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3652#       发表于 2023-5-21 00:23
+
+blast这次奖杯不是一般的丑啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keleemo123  
+##### 3653#       发表于 2023-5-21 00:25
+
+今年是im年！？ 质疑
+
+*****
+
+####  那由  
+##### 3654#       发表于 2023-5-21 00:30
+
+x队没了呀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cwlo  
+##### 3655#       发表于 2023-5-21 00:33
+
+没想到IM哥强到这种地步
+
+*****
+
+####  Avantasi  
+##### 3656#       发表于 2023-5-21 00:35
+
+队内大哥8-18，又虾了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  BallanceHZ  
+##### 3657#       发表于 2023-5-21 00:37
+
+这im真离谱吧
+
+*****
+
+####  朔方原的星  
+##### 3658#         楼主| 发表于 2023-5-21 00:37
+
+GL真一黑到底啊
+小蜜蜂能不能过apeks和gl真不好说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+stavn不负众望又虾了
+
+*****
+
+####  那由  
+##### 3659#       发表于 2023-5-21 00:40
+
+ 本帖最后由 那由 于 2023-5-21 00:41 编辑 
+
+点子这泪目了啊，直接回顾十年别是退役宣言吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  DICE20  
+##### 3660#       发表于 2023-5-21 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小苍蝇粉丝已经不敢看了 感觉apeks都过不去决赛直接脑壳打A神竞猜超级大爆了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Niyah  
+##### 3661#       发表于 2023-5-21 00:41
+
+心碎了，可能很久很久我都忘不了点子赛前动员那番话
+
+*****
+
+####  ispep  
+##### 3662#       发表于 2023-5-21 00:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3663#       发表于 2023-5-21 00:48
+
+im 10maps rating 1.44
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无论东西  
+##### 3664#       发表于 2023-5-21 00:52
+
+IM这枪现在可以说是世界第一刚了，碰载物肯定好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+小蜜蜂总不能也接着爆冷输吧
+
+
+*****
+
+####  Niyah  
+##### 3665#       发表于 2023-5-21 00:52
+
+不知道今年后面的比赛这IM是个什么状态，如果能进top20等着看他的数据。没记错以前步枪impact最高是狂的1.36，后面是fer巅峰那年的1.33？
+
+*****
+
+####  dev2ce  
+##### 3666#       发表于 2023-5-21 00:56
+
+虽然cadian一直说十年十年，但他成为冠军竞争者得到2020年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但那年没major
+
+
+*****
+
+####  曼陀罗肥  
+##### 3667#       发表于 2023-5-21 01:20
+
+小蜜蜂该回家了
+
+*****
+
+####  恶搞之王  
+##### 3668#       发表于 2023-5-21 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60925231&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-21 00:56</a>
+
+虽然cadian一直说十年十年，但他成为冠军竞争者得到2020年了但那年没major ...</blockquote>
+2020heroic可算了吧
+
+真有major可没教练bug用
+
+
+*****
+
+####  曼陀罗肥  
+##### 3669#       发表于 2023-5-21 02:25
+
+apex稳了快两个月，四强来个大的，人都看晕了
+
+
+*****
+
+####  曼陀罗肥  
+##### 3670#       发表于 2023-5-21 02:49
+
+真的吐了，到底几次多打少被翻了
+
+
+*****
+
+####  曼陀罗肥  
+##### 3671#       发表于 2023-5-21 02:56
+
+小蜜蜂的比赛真的抽象，怎么能这么抽象
+
+*****
+
+####  zhacaizn  
+##### 3672#       发表于 2023-5-21 02:57
+
+GL2：0两个小分暴打的apeks，小蜜蜂赢的有点难
+
+*****
+
+####  andychen  
+##### 3673#       发表于 2023-5-21 03:00
+
+小蜜蜂的状态没有前面好了
+
+apex开始犯病，A队双子星第一图也不咋地
+
+
+*****
+
+####  DICE20  
+##### 3674#       发表于 2023-5-21 03:04
+
+这就是Major把大分队伍的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  keleemo123  
+##### 3675#       发表于 2023-5-21 03:19
+
+不会大爆特爆吧 蜜蜂惨败 载物被塞满🥖关进黑牢
+
+
+*****
+
+####  andychen  
+##### 3676#       发表于 2023-5-21 03:32
+
+JKM真的不行，这队到此为止了
+
+apeks如果要再进一步还是换个大哥吧
+
+
+*****
+
+####  Rainwedell  
+##### 3677#       发表于 2023-5-21 03:51
+
+jkm都是和16rain那个时代组队的了，打到这也行吧，不能要求更多
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  曼陀罗肥  
+##### 3678#       发表于 2023-5-21 03:55
+
+载物这几天不管怎么样真得吃法棍吧，纯靠几个老头擦屁股
+
+
+*****
+
+####  andychen  
+##### 3679#       发表于 2023-5-21 04:08
+
+说实话，这两场BO3感觉竞技水平有点差距
+
+小蜜蜂要是还是今天这发挥，那GL大概率冠了
+
+*****
+
+####  DICE20  
+##### 3680#       发表于 2023-5-21 04:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这真的是Zywoo吗 好急还导管的你遮住id我真以为是哪个老头了……这主场该不会他紧张了吧……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Avantasi  
+##### 3681#       发表于 2023-5-21 04:09
+
+恭喜gl<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  天妇罗  
+##### 3682#       发表于 2023-5-21 04:16
+
+蜜蜂：你就说赢没赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 3683#       发表于 2023-5-21 04:21
+
+小蜜蜂一直大分翻盘一直赢，但是明天打载物状态不调整一下真会被im创烂
+
+
+*****
+
+####  aimpoint  
+##### 3684#       发表于 2023-5-21 05:24
+
+蜜蜂终于苟进决赛了，不容易，图一豆豆送的，真要看的脑溢血了。这状态明天真有可能被GL薄纱。
+
+*****
+
+####  dev2ce  
+##### 3685#       发表于 2023-5-21 05:30
+
+决赛又是新的开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加油吧
+
+
+*****
+
+####  rrtyui  
+##### 3686#       发表于 2023-5-21 08:04
+
+加油啊gl<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  混子走天下  
+##### 3687#       发表于 2023-5-21 11:36
+
+mirage这图真该换掉了吧，直接成为打老头的版本答案了，不过这图只看状态倒不是最大的问题，最严重的问题是这张图已经失去战略意义了，状态好又做足了准备的情况下也有可能会被一波小分直接冲烂
+
+—— 来自 Xiaomi M2007J17C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  混子走天下  
+##### 3688#       发表于 2023-5-21 11:36
+
+风怒
+
+
+*****
+
+####  dev2ce  
+##### 3689#       发表于 2023-5-21 12:35
+
+ 本帖最后由 dev2ce 于 2023-5-21 12:36 编辑 
+
+晚上比赛真不好说的，GL之前里约挑战者组bo1赢过🐝，虽然那届ZywOo状态很一般
+主场有时候也是压力，这就不得不说a队三届blast哥本哈根站234的往事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然丹麦主场夺过冠
+
+*****
+
+####  heseran  
+##### 3690#       发表于 2023-5-21 12:42
+
+今晚打完要是直接公布cs2公测日就好了
+
+
+*****
+
+####  andychen  
+##### 3691#       发表于 2023-5-21 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60928579&amp;ptid=1857369" target="_blank">heseran 发表于 2023-5-21 12:42</a>
+今晚打完要是直接公布cs2公测日就好了</blockquote>
+后台已经拍到有valve办公室了，这回肯定有CS2大新闻要官宣
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  朔方原的星  
+##### 3692#         楼主| 发表于 2023-5-21 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60928523&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-21 12:35</a>
+晚上比赛真不好说的，GL之前里约挑战者组bo1赢过🐝，虽然那届ZywOo状态很一般
+主场有时候也是压力，这就不 ...</blockquote>
+载物和米真不好说能不能顶住压力
+Apex也是上头犯病概率倍增
+老a队压力不是大问题，就是不好说会不会被gl秒麻了……
+反正现在看着总感觉gl比小蜜蜂稳，越打越嗨的，心态好气势足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天妇罗  
+##### 3693#       发表于 2023-5-21 14:15
+
+最后一个csgo major了，要我说应该结束之后直接开cs2公测才对
+
+
+*****
+
+####  dev2ce  
+##### 3694#       发表于 2023-5-21 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929418&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-21 14:02</a>
+载物和米真不好说能不能顶住压力
+Apex也是上头犯病概率倍增
+老a队压力不是大问题，就是不好说会不会被gl ...</blockquote>
+杜魔心态肯定没问题，就是状态不稳定，ZywOo和米人能不能顶住major决赛的压力还两说，憨豆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+GL也是轻装上阵，赢了血赚，输了已经创造历史了，心态相对来说占优一点，主场有时真的是增压器
+
+
+*****
+
+####  曼陀罗肥  
+##### 3695#       发表于 2023-5-21 19:39
+
+载物能限制一下im就行了，他那狙从传奇组第一把名场面以后就猛空，之前还有老头擦屁股，决赛再虾就自己葬送最好局势了。
+
+
+*****
+
+####  heseran  
+##### 3696#       发表于 2023-5-21 21:05
+
+rpk和shox这鼠标垫，办公室随便拿的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keleemo123  
+##### 3697#       发表于 2023-5-21 21:09
+
+哈哈哈哈哈哈哈哈哈哈哈哈每次表演赛都是那么欢乐
+
+
+*****
+
+####  heseran  
+##### 3698#       发表于 2023-5-21 21:44
+
+这无限道具哈哈哈哈
+
+
+*****
+
+####  我是小卯  
+##### 3699#       发表于 2023-5-21 22:42
+
+要来啦，im顿悟哥大战载之力十段！<img src="https://img.chkaja.com/61d4a78ae3e2ab47.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3700#       发表于 2023-5-21 22:46
+
+op，nuke，小镇，不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  那由  
+##### 3701#       发表于 2023-5-21 22:59
+
+现场有弱智，玩神直播间都爆了
+
+*****
+
+####  heseran  
+##### 3702#       发表于 2023-5-21 23:00
+
+直播直接挂了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现场有傻逼
+
+*****
+
+####  格雷殿下  
+##### 3703#       发表于 2023-5-21 23:01
+
+怎么一打开玩机器，就不播了？
+
+*****
+
+####  keleemo123  
+##### 3704#       发表于 2023-5-21 23:01
+
+**傻逼人间最畜生啊啊啊啊啊啊啊啊啊啊啊啊啊 
+
+*****
+
+####  keleemo123  
+##### 3705#       发表于 2023-5-21 23:02
+
+恢复了开始参访了
+
+
+*****
+
+####  heseran  
+##### 3706#       发表于 2023-5-21 23:32
+
+服了，没回放<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 3707#       发表于 2023-5-21 23:35
+
+这赛马是什么情况啊
+
+*****
+
+####  dev2ce  
+##### 3708#       发表于 2023-5-21 23:39
+
+被强起翻几回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3709#       发表于 2023-5-21 23:49
+
+头尾各拿一分，强起翻盘两分，别卡托打液体op重演了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 3710#       发表于 2023-5-21 23:50
+
+11:4不稳啊，小蜜蜂op 13分被翻过的
+
+*****
+
+####  恶搞之王  
+##### 3711#       发表于 2023-5-21 23:51
+
+GL这队的OP非常依赖进攻发挥，进攻4分基本没了
+
+
+*****
+
+####  曼陀罗肥  
+##### 3712#       发表于 2023-5-21 23:54
+
+小蜜蜂别搞啊
+
+*****
+
+####  zhacaizn  
+##### 3713#       发表于 2023-5-21 23:56
+
+看起来到决赛了GL反而给自己压力了，各种变形
+
+*****
+
+####  dev2ce  
+##### 3714#       发表于 2023-5-21 23:57
+
+狠狠翻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 3715#       发表于 2023-5-21 23:58
+
+小蜜蜂开始犯病开始抽象
+
+
+*****
+
+####  keleemo123  
+##### 3716#       发表于 2023-5-22 00:02
+
+gl图二干回来！别真被宰了啊 ！！！！bo3太短了
+
+*****
+
+####  zhacaizn  
+##### 3717#       发表于 2023-5-22 00:05
+
+im真哑火了
+
+*****
+
+####  卡尔荣格  
+##### 3718#       发表于 2023-5-22 00:06
+
+果然被血入了，光速2比0了吧
+
+*****
+
+####  无论东西  
+##### 3719#       发表于 2023-5-22 00:06
+
+这IM怎么今天对枪都没对过APEX啊，别这么快就虾了呀
+
+*****
+
+####  恶搞之王  
+##### 3720#       发表于 2023-5-22 00:08
+
+nuke没啥好聊的了
+
+GL的nuke跟三线队有来有回的，这nuke能赢真比拿major还难
+
+
+*****
+
+####  Niyah  
+##### 3721#       发表于 2023-5-22 00:10
+
+最近三个月gl核子8次50胜率，蜜蜂8次100胜率
+
+*****
+
+####  曼陀罗肥  
+##### 3722#       发表于 2023-5-22 00:10
+
+ 本帖最后由 曼陀罗肥 于 2023-5-22 00:13 编辑 
+
+gl不会真拿的avangar剧本吧，回去看了一下连第一局比分都一样，16:6
+
+
+*****
+
+####  stplum  
+##### 3723#       发表于 2023-5-22 00:23
+
+这决赛打得跟表演赛似的
+
+
+*****
+
+####  周藤信彦  
+##### 3724#       发表于 2023-5-22 00:34
+
+im不装了？
+
+*****
+
+####  keleemo123  
+##### 3725#       发表于 2023-5-22 00:34
+
+im！！！！！觉醒！！！！！！！！。exe启动！！！！！！！！
+
+
+*****
+
+####  dev2ce  
+##### 3726#       发表于 2023-5-22 00:45
+
+有点要图三的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhacaizn  
+##### 3727#       发表于 2023-5-22 00:47
+
+哈人，IM醒了就有的看了
+
+*****
+
+####  keleemo123  
+##### 3728#       发表于 2023-5-22 00:50
+
+紧张刺激的后半场要来了！！！！！！！！！！最精华的部分！
+
+*****
+
+####  heseran  
+##### 3729#       发表于 2023-5-22 00:51
+
+隔着墙瞄人，拉出来直接打死，这im有点恐怖吧
+
+
+*****
+
+####  Niyah  
+##### 3730#       发表于 2023-5-22 00:58
+
+这个反杀太夸张太暴力了
+
+
+*****
+
+####  Avantasi  
+##### 3731#       发表于 2023-5-22 01:08
+
+im现在没对枪机会了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  曼陀罗肥  
+##### 3732#       发表于 2023-5-22 01:14
+
+这决赛看的人晕了
+
+*****
+
+####  keleemo123  
+##### 3733#       发表于 2023-5-22 01:19
+
+🎺🎺🎺🎺🎺🎺🎺🎺🎺🎺🎺🎺🎺🎺
+
+*****
+
+####  zhacaizn  
+##### 3734#       发表于 2023-5-22 01:19
+
+嗨，只冲了一波，换边是真的攻不进去了
+
+*****
+
+####  曼陀罗肥  
+##### 3735#       发表于 2023-5-22 01:21
+
+救赎
+
+*****
+
+####  stplum  
+##### 3736#       发表于 2023-5-22 01:21
+
+榜一大哥探点
+
+*****
+
+####  dev2ce  
+##### 3737#       发表于 2023-5-22 01:21
+
+🏆五星上将<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpl123  
+##### 3738#       发表于 2023-5-22 01:21
+
+nice!
+
+*****
+
+####  PENTAX-DA  
+##### 3739#       发表于 2023-5-22 01:21
+
+恭喜尼公子成为csgo最大小丑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+既没有top1也没有major冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BallanceHZ  
+##### 3740#       发表于 2023-5-22 01:22
+
+五星上将麦克阿杜！
+zywoo！
+
+
+*****
+
+####  keleemo123  
+##### 3741#       发表于 2023-5-22 01:22
+
+豆！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！豆！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！豆！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+*****
+
+####  DICE20  
+##### 3742#       发表于 2023-5-22 01:23
+
+五星老杜头！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+iM上半场23-8最后25-20还是功亏一篑啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Avantasi  
+##### 3743#       发表于 2023-5-22 01:23
+
+天时地利人和
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  NEIN  
+##### 3744#       发表于 2023-5-22 01:23
+
+csgo这goat真的是载吧，major也有了，实力最低top2
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  恶搞之王  
+##### 3745#       发表于 2023-5-22 01:24
+
+真正的天地人啊
+
+恭喜小蜜蜂
+
+*****
+
+####  dev2ce  
+##### 3746#       发表于 2023-5-22 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938373&amp;ptid=1857369" target="_blank">PENTAX-DA 发表于 2023-5-22 01:21</a>
+恭喜尼公子成为csgo最大小丑
+
+既没有top1也没有major冠军</blockquote>
+17年决赛输阿冷太多次了
+
+*****
+
+####  BallanceHZ  
+##### 3747#       发表于 2023-5-22 01:25
+
+apex：fuck you
+
+*****
+
+####  Avantasi  
+##### 3748#       发表于 2023-5-22 01:26
+
+可惜载物那个残局没打成功
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  aimpoint  
+##### 3749#       发表于 2023-5-22 01:26
+
+蜜蜂再次展现了强大的韧性，牛逼！Zywoo 牛逼！
+
+*****
+
+####  天妇罗  
+##### 3750#       发表于 2023-5-22 01:26
+
+你就说赢没赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rarity5  
+##### 3751#       发表于 2023-5-22 01:28
+
+zonic太吊了，带队最强的教练
+
+*****
+
+####  keleemo123  
+##### 3752#       发表于 2023-5-22 01:29
+
+卧槽奖杯也太难看了
+
+*****
+
+####  PENTAX-DA  
+##### 3753#       发表于 2023-5-22 01:30
+
+这奖杯立体一点跟个塑料肛塞一样
+
+*****
+
+####  keleemo123  
+##### 3754#       发表于 2023-5-22 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938447&amp;ptid=1857369" target="_blank">PENTAX-DA 发表于 2023-5-22 01:30</a>
+
+这奖杯立体一点跟个塑料肛塞一样</blockquote>
+哈哈哈哈哈哈哈哈哈哈魔男举着一个大肛塞 笑死了
+
+
+*****
+
+####  DICE20  
+##### 3755#       发表于 2023-5-22 01:32
+
+突然发现虽然除了最后这OP大分但是从不加时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就问你是不是赛事统治力最强把
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  曼陀罗肥  
+##### 3756#       发表于 2023-5-22 01:40
+
+小蜜蜂居然一路全胜拿下major了，一路抽象一路赢，人都得高血压
+
+*****
+
+####  Niyah  
+##### 3757#       发表于 2023-5-22 01:40
+
+感慨啊，虽然估计大部分职业哥还会在csgo2走下去，但还是有一种很多故事就此落幕的感觉
+
+
+*****
+
+####  枪聆弹语  
+##### 3758#       发表于 2023-5-22 01:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">蜀黍的人迷满足了
+
+
+*****
+
+####  我是小卯  
+##### 3759#       发表于 2023-5-22 01:52
+
+恭喜vitality！结束啦~！
+
+
+*****
+
+####  Vladimeow  
+##### 3760#       发表于 2023-5-22 02:10
+
+大番薯应得的
+
+
+*****
+
+####  天妇罗  
+##### 3761#       发表于 2023-5-22 02:29
+
+真就没有cs2消息是吧，v社你可以的
+
+
+*****
+
+####  天妇罗  
+##### 3762#       发表于 2023-5-22 03:00
+
+成也IM败也IM，nuke上半23杀，下半2杀。
+
+
+*****
+
+####  dev2ce  
+##### 3763#       发表于 2023-5-22 09:37
+
+我是不太理解选手之间关系好，所以粉丝不能吵架的理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了情商为负的冷老六，推特battle的格雷武和cadian，有几个选手关系差的
+
+
+*****
+
+####  朔方原的星  
+##### 3764#         楼主| 发表于 2023-5-22 10:05
+
+这下感觉再没多少看比赛的动力了，差不多可以歇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3765#       发表于 2023-5-22 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940492&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-5-22 10:05</a>
+这下感觉再没多少看比赛的动力了，差不多可以歇了</blockquote>
+可以看看🐝在鸽达拉斯的前提下，能不能连拿剩下三个esl比赛冠军，拿大满贯，说的我自己都笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NEIN  
+##### 3766#       发表于 2023-5-22 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940073&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-5-22 09:37</a>
+我是不太理解选手之间关系好，所以粉丝不能吵架的理论除了情商为负的冷老六，推特battle的格雷武和c ...</blockquote>
+本届最大看点之一不就是woro2k和森破对打吗，虽然不知道他们两个私下关系和好没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Rainwedell  
+##### 3767#       发表于 2023-5-22 10:37
+
+天时地利人和啊，恭喜番薯，在csgo时代好歹有个major冠军了<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  keleemo123  
+##### 3768#       发表于 2023-5-24 20:11
+
+ra打蒙古 ！！！冲啊！！！把蒙古队羊奶打出来！！！！！！！！
+
+
+*****
+
+####  dev2ce  
+##### 3769#       发表于 2023-5-24 22:53
+
+传闻G2又要换指挥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那看来去年淹死在里约RMR没换指挥，挺不符合G2的
+
+
+*****
+
+####  heseran  
+##### 3770#       发表于 2023-5-24 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">连拿俩冠军还不行啊。
+
+
+*****
+
+####  恶搞之王  
+##### 3771#       发表于 2023-5-25 07:51
+
+G2有那钱换指挥不如找个正牌教练
+
+战术研究全靠hooxi做，swani弄来点外卖的吗
+
+
+*****
+
+####  Rainwedell  
+##### 3772#       发表于 2023-5-25 08:10
+
+真换那小将倒也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，karrigan之前梦之队钦点指挥，这次就拿了亚军，换完说不定有点提升，就是g2可能没搞明白自己菜真不是指挥的问题。
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ispep  
+##### 3773#       发表于 2023-5-25 10:50
+
+NiKo前指挥又添一人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3774#       发表于 2023-5-25 10:56
+
+major之后变阵也是常规吧，好多队都传了，G2变阵的话HooXi可能转教练
+
