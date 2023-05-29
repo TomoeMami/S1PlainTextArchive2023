@@ -2691,3 +2691,74 @@ steam开大屏模式后，显示和操作我觉得还挺好，说白了就是缺
 那感觉不如带个全能本出去，屏幕还大些，毕竟都带充电宝和掌机也得带个包装 ...</blockquote>
 需求不一样呗，掌机和游戏本的受众还是不同的
 
+*****
+
+####  酷乐  
+##### 257#       发表于 2023-5-25 22:42
+
+最新BIOS下，7w低功耗也比SD强了。
+
+
+*****
+
+####  u2deack  
+##### 258#       发表于 2023-5-25 23:56
+
+之前不是说那些win掌机也会支持steam os么，现在又没下文了嘛
+
+
+*****
+
+####  ft5555  
+##### 259#       发表于 2023-5-26 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60992328&amp;ptid=2127262" target="_blank">酷乐 发表于 2023-5-25 22:42</a>
+
+最新BIOS下，7w低功耗也比SD强了。</blockquote>
+有评测地址吗？
+
+
+*****
+
+####  keytomylife  
+##### 260#       发表于 2023-5-26 00:28
+
+另外一个测评的说GPU曲线不如7840U
+
+说可能是他手上这颗7840U体质好，或者ASUS BIOS没调教好
+
+*****
+
+####  酷乐  
+##### 261#       发表于 2023-5-26 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60993089&amp;ptid=2127262" target="_blank">ft5555 发表于 2023-5-26 00:14</a>
+
+有评测地址吗？</blockquote>
+[https://www.youtube.com/watch?v=reXJ8W0hx_g&amp;t=902s](https://www.youtube.com/watch?v=reXJ8W0hx_g&amp;t=902s)
+[https://www.bilibili.com/video/BV1hg4y1c7ax/](https://www.bilibili.com/video/BV1hg4y1c7ax/)
+
+
+*****
+
+####  ultraseven  
+##### 262#       发表于 2023-5-26 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60993182&amp;ptid=2127262" target="_blank">keytomylife 发表于 2023-5-26 00:28</a>
+
+另外一个测评的说GPU曲线不如7840U
+
+说可能是他手上这颗7840U体质好，或者ASUS BIOS没调教好</blockquote>
+你说的是The Phawx吗？我感觉他的评测有问题
+
+
+*****
+
+####  ft5555  
+##### 263#       发表于 2023-5-26 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60993193&amp;ptid=2127262" target="_blank">酷乐 发表于 2023-5-26 00:30</a>
+[https://www.youtube.com/watch?v=reXJ8W0hx_g&amp;t=902s](https://www.youtube.com/watch?v=reXJ8W0hx_g&amp;t=902s)
+[https://www.bilibili.com/video/BV1hg4y1c7ax/](https://www.bilibili.com/video/BV1hg4y1c7ax/)</blockquote>
+粗略看了下 没说7w下 rog赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我看的不仔细么
+
