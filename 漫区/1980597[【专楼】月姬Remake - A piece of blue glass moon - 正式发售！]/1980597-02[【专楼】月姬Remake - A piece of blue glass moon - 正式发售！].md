@@ -444,3 +444,34 @@ type earth先不说看到后面直死魔眼就该认出来了吧
 —— 来自 Xiaomi 22061218C, And ...</blockquote>
 是不太值，心理价位700左右吧
 
+*****
+
+####  蓮華  
+##### 1560#       发表于 2023-5-27 12:20
+
+ 本帖最后由 蓮華 于 2023-5-27 12:24 编辑 
+
+<img src="https://img.saraba1st.com/forum/202305/27/122401tcnecrj767ence6e.jpg" referrerpolicy="no-referrer">
+
+<strong>FxGLIBqakAAgKGv.jpg</strong> (115.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-27 12:24 上传
+
+<img src="https://img.saraba1st.com/forum/202305/27/122042fysd8d89kcy96a29.jpg" referrerpolicy="no-referrer">
+
+<strong>FxGQF-BaIAATnE7.jpg</strong> (394.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-27 12:20 上传
+
+<img src="https://img.saraba1st.com/forum/202305/27/122258npkk1nee1dlnuzlk.jpg" referrerpolicy="no-referrer">
+
+<strong>FxGUmlhXgAIgBYx.jpg</strong> (146.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-27 12:22 上传
+
