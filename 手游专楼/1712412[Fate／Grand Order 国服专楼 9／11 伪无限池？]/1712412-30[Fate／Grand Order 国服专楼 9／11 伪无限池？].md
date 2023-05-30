@@ -6081,3 +6081,63 @@ New的话也就上面几个可以选下
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">犹豫了很久结果忘记换四星从者了
 虽然每个都有，大部分都满了
 
+*****
+
+####  khxooo  
+##### 44393#       发表于 2023-5-25 21:55
+
+无论打多少次，通古斯这场是最恶心的战斗，没有之一<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DET  
+##### 44394#       发表于 2023-5-25 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">通古斯还要打第二次，真的被恶心吐了
+
+
+*****
+
+####  khxooo  
+##### 44395#       发表于 2023-5-26 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60992117&amp;ptid=1712412" target="_blank">DET 发表于 2023-5-25 22:21</a>
+
+通古斯还要打第二次，真的被恶心吐了</blockquote>
+我TM足足打了4次<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 44396#       发表于 2023-5-26 08:15
+
+通古斯活动光看收益是游戏之最（能刷大量羁绊），但是主线战斗却是恶心至极（降强化成功率、带死亡亡语的小怪等等）
+
+
+*****
+
+####  Urakawa  
+##### 44397#       发表于 2023-5-26 08:53
+
+活动加成没了再打主线真糟糕<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ambition  
+##### 44398#       发表于 2023-5-26 16:05
+
+我带着地铺队进去就翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  6030sylar  
+##### 44399#       发表于 2023-5-27 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你们不说我都不知道能换
+
