@@ -649,3 +649,559 @@ PSV做一个新的PSV串流手柄合情合理。
 那还玩个基霸，想在外面没网的地方玩怎么办？</blockquote>
 不要当掌机，当成PS5的外设比较好
 
+*****
+
+####  404489039  
+##### 100#       发表于 2023-5-25 20:20
+
+PS4年代就用过PSV ipad 串流，鉴定为一坨大便
+
+还专门为一坨大便出硬件，不愧为索索
+
+
+*****
+
+####  泥潭办证先锋  
+##### 101#       发表于 2023-5-26 21:51
+
+索尼新掌机？不是已经出过了吗？我已经玩上了啊！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/26/215005j331te5e3iq7bg82.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7271.jpeg</strong> (856.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-26 21:50 上传
+
+
+*****
+
+####  allenz3  
+##### 102#       发表于 2023-5-26 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60990982&amp;ptid=2127553" target="_blank">404489039 发表于 2023-5-25 20:20</a>
+PS4年代就用过PSV ipad 串流，鉴定为一坨大便
+
+还专门为一坨大便出硬件，不愧为索索 ...</blockquote>
+ps4的cpu太差，基本是没法用的，720p还严重掉帧，ps5正常的多
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  陈词与芍药  
+##### 103#         楼主| 发表于 2023-5-27 10:42
+
+<img src="https://img.saraba1st.com/forum/202305/26/224206r6pmmrj6b9ib7mn6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1658.JPG</strong> (112.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-27 10:42 上传
+
+Project Q的电池续航约为3-4小时
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  罗克萨斯  
+##### 104#       发表于 2023-5-27 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61007523&amp;ptid=2127553" target="_blank">陈词与芍药 发表于 2023-5-27 10:42</a>
+Project Q的电池续航约为3-4小时
+
+—— 来自 S1Fun</blockquote>
+串流机续航还不如正儿八经掌机，这也太惨了吧，必定暴死。
+
+*****
+
+####  SergeGlenn  
+##### 105#       发表于 2023-5-27 10:48
+
+和手柄续航一致。。。。
+
+*****
+
+####  Rainwedell  
+##### 106#       发表于 2023-5-27 10:52
+
+这续航玩个蛋<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  医生狼多  
+##### 107#       发表于 2023-5-27 10:59
+
+这下真手柄了
+
+
+*****
+
+####  喵喵叫的猫  
+##### 108#       发表于 2023-5-27 11:05
+
+现在就看重量了 感觉也不会轻
+这形状为啥不屏幕后面做大一点塞个大电池
+反正也不会影响手感
+
+
+*****
+
+####  彩虹肥宅  
+##### 109#       发表于 2023-5-27 13:03
+
+这续航认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，不过如果震动和手柄一模一样也能理解。
+
+—— 来自 OPPO PGJM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  leavan  
+##### 110#       发表于 2023-5-27 13:21
+
+纯电子垃圾。不过索尼可以发动水军和公关队伍，发售后又是ign满分，df惊艳，划时代的硬件，
+
+*****
+
+####  CMANMKII  
+##### 111#       发表于 2023-5-27 13:23
+
+前有VR2，后有这个，总是出些没什么人买，只有富哥尝鲜后吃灰或者卖二手的东西
+
+
+*****
+
+####  allenz3  
+##### 112#       发表于 2023-5-27 13:30
+
+有没有人要买上市后才知道，VR2都卖出60w了，之前还出了耳机，充电底座，精英手柄呢，又不是没人买，你不需要不代表没人需要
+
+
+*****
+
+####  samchen007  
+##### 113#       发表于 2023-5-27 13:35
+
+就不能设计的好看一点吗？
+
+*****
+
+####  超赛锡纸烫  
+##### 114#       发表于 2023-5-27 13:39
+
+一个串流配件也能急成这样，贷款水军都出来了，都买ps5了吗？有你啥事啊
+
+
+*****
+
+####  Cielflame  
+##### 115#       发表于 2023-5-27 14:00
+
+价格在1000块左右的话可以考虑搞一个，有时候电视被占着就省的搬主机回自己屋里才能玩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ziyer  
+##### 116#       发表于 2023-5-27 14:18
+
+虽然我确实需要这个，但是这个造型和续航，真的无语，超过1k我都不打算买了，但是我心里清楚，大概率超过1k
+
+
+*****
+
+####  Rainwedell  
+##### 117#       发表于 2023-5-27 17:20
+
+这玩意我比较想知道能不能顺手串流PC，可以的话估计会整一个，现在ipad串流体验得再拿个手柄，有个自带手柄的屏幕挺适合我需求
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  pwg1234567  
+##### 118#       发表于 2023-5-27 17:30
+
+为什么坛友们看到这些新设备时先是一阵各种外形、技术什么的贬低，完了又加个定语表示「不高于xx元」「xx元以下」就买，啥意思？既然这东西不合你心意又何必在乎价格？买回来干嘛？
+
+
+*****
+
+####  pgain2004  
+##### 119#       发表于 2023-5-27 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61011041&amp;ptid=2127553" target="_blank">pwg1234567 发表于 2023-5-27 17:30</a>
+为什么坛友们看到这些新设备时先是一阵各种外形、技术什么的贬低，完了又加个定语表示「不高于xx元」「xx元 ...</blockquote>
+…………？
+
+你的消费都只上完美顶配版吗？
+
+
+*****
+
+####  qratosone  
+##### 120#       发表于 2023-5-27 17:57
+
+这个续航是真的逆天
+
+
+*****
+
+####  医生狼多  
+##### 121#       发表于 2023-5-27 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61010916&amp;ptid=2127553" target="_blank">Rainwedell 发表于 2023-5-27 17:20</a>
+这玩意我比较想知道能不能顺手串流PC，可以的话估计会整一个，现在ipad串流体验得再拿个手柄，有个自带手柄 ...</blockquote>
+我觉得按vr2前车之鉴看估计不会支持pc，要不然还要去和g胖谈啥的
+想要pc，ps串流可以看看几个国产安卓掌机or罗技云掌机，手感预计是比不上这个，但胜在全面，还可以玩玩模拟器啥的。
+想要完全的稳定就自己买分体手柄➕peakdo毫米波掌机，我是嫌有对准要求加上两个设备来回拔插所以还是出掉了
+
+*****
+
+####  黄泉川此方  
+##### 122#       发表于 2023-5-27 18:13
+
+好价交朋友都可以买
+
+
+*****
+
+####  pwg1234567  
+##### 123#       发表于 2023-5-27 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61011242&amp;ptid=2127553" target="_blank">pgain2004 发表于 2023-5-27 17:49</a>
+ …………？  你的消费都只上完美顶配版吗？</blockquote>
+什么顶不顶配的<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+*****
+
+####  404489039  
+##### 124#       发表于 2023-5-27 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61010916&amp;ptid=2127553" target="_blank">Rainwedell 发表于 2023-5-27 17:20</a>
+这玩意我比较想知道能不能顺手串流PC，可以的话估计会整一个，现在ipad串流体验得再拿个手柄，有个自带手柄 ...</blockquote>
+你索索作风不可能支持PC
+
+
+*****
+
+####  平井姨夫  
+##### 125#       发表于 2023-5-27 19:06
+
+不知道运行什么系统，如果可以破解，串流一下PC或者运行点Retro模拟器挺不错
+
+*****
+
+####  eyeego  
+##### 126#       发表于 2023-5-27 19:08
+
+老实说psvtv当年的想法就挺不错的 可惜索尼脑子里一坨屎 现在看来这么多年了屎还是没掏干净<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 127#       发表于 2023-5-27 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61011968&amp;ptid=2127553" target="_blank">404489039 发表于 2023-5-27 18:55</a>
+你索索作风不可能支持PC</blockquote>
+估计还是会弄一个，我确实馋他这手柄<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">，不过看着续航也太短了，一个串流机做这么大不能多塞点电池吗？
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  allenz3  
+##### 128#       发表于 2023-5-27 20:27
+
+这些舅舅刚刚才在showcase翻车了，什么续航售价听听就好了，具体以公布为准吧还是
+
+*****
+
+####  pgain2004  
+##### 129#       发表于 2023-5-27 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61011951&amp;ptid=2127553" target="_blank">pwg1234567 发表于 2023-5-27 18:54</a>
+
+什么顶不顶配的我说的是非必要设备跟价格高低有什么关联</blockquote>
+有缺点但价格足够低就可以忍受不是很常见、很容易理解吗？
+
+又不是说被互联网语境夸张化的所有缺点描述都真的让商品变得毫无价值
+
+而且什么叫非必要设备呢？非要划定这界限，怕不是也得盖个几十楼
+
+*****
+
+####  陈词与芍药  
+##### 72#         楼主| 发表于 2023-5-25 07:19
+
+ 本帖最后由 陈词与芍药 于 2023-5-24 19:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202305/24/191913yu1tsbnthsmmt877.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1579.JPG</strong> (688.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-25 07:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+一款將於今年晚些時候推出的專用設備，讓您可以通過 Wi-Fi 使用 Remote Play 來玩安裝在 PS5 主機上的任何兼容的遊戲。該設備配備色彩鮮豔的 8 英寸 LCD 屏幕，帧率高達 60fps，分辨率高達 1080p，當您遠離電視時，該設備可提供從 PS5 流式傳輸的清晰視覺效果和流暢的遊戲體驗。該設備具有 DualSense 無線控制器的所有按鈕和功能，包括自適應觸發器和触覺反饋。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  沧兰殇  
+##### 73#       发表于 2023-5-25 07:24
+
+感觉屏幕太靠下了，手柄太靠上了，而且手持设备这个手柄真的会舒服吗？
+
+*****
+
+####  ヘブバン  
+##### 74#       发表于 2023-5-25 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60981130&amp;ptid=2127553" target="_blank">沧兰殇 发表于 2023-5-25 07:24</a>
+
+感觉屏幕太靠下了，手柄太靠上了，而且手持设备这个手柄真的会舒服吗？</blockquote>
+手柄键位位置不就是和steamdeck差不多么。
+
+造型确实傻逼。
+
+*****
+
+####  无动于衷  
+##### 75#       发表于 2023-5-25 07:27
+
+没有这个必要,jpg
+
+
+*****
+
+####  0zero0  
+##### 76#       发表于 2023-5-25 07:39
+
+WIIU手柄
+
+
+*****
+
+####  沧兰殇  
+##### 77#       发表于 2023-5-25 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60981138&amp;ptid=2127553" target="_blank">ヘブバン 发表于 2023-5-25 07:26</a>
+手柄键位位置不就是和steamdeck差不多么。
+
+造型确实傻逼。</blockquote>
+其他家都是一体的，索尼手柄是两个凸出来的角
+
+*****
+
+####  ヘブバン  
+##### 78#       发表于 2023-5-25 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60981226&amp;ptid=2127553" target="_blank">沧兰殇 发表于 2023-5-25 07:45</a>
+
+其他家都是一体的，索尼手柄是两个凸出来的角</blockquote>
+对啊，所以造型傻逼
+
+
+*****
+
+####  yla  
+##### 79#       发表于 2023-5-25 08:06
+
+emmmm，憋了那么久，出来的不是psv2，是wiiu的game pad啊
+
+
+*****
+
+####  唯_change  
+##### 80#       发表于 2023-5-25 08:20
+
+过两年WIN掌机已经十分成熟了，如果是真的纯串流就是索尼的又一个烂产品
+
+*****
+
+####  iou90  
+##### 81#       发表于 2023-5-25 08:20
+
+感觉会很重 而且这尺寸好大
+
+
+*****
+
+####  wlgdc  
+##### 82#       发表于 2023-5-25 08:53
+
+所以这是手柄还是屏幕，手柄也就500-1000，屏幕起码1500。这设计分不清是日本还是美国，说是中国肯定有人信，一刀切。
+
+
+*****
+
+####  eva02eva02  
+##### 83#       发表于 2023-5-25 09:14
+
+首发云原神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 84#       发表于 2023-5-25 09:23
+
+思路我觉得倒是没什么太大问题，价格到位一切好说，但是本身的外型设计有点烂得匪夷所思，感觉索尼好像很想把引以为傲的手柄震动完全复刻到这个串流掌机上，整个设计非常简单暴力地把手柄切成两半再加个屏幕<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，完全没考虑掌机的便携性
+
+
+*****
+
+####  byisme001  
+##### 85#       发表于 2023-5-25 09:26
+
+应该给索尼的产品经理发小红花
+
+*****
+
+####  泰坦失足  
+##### 86#       发表于 2023-5-25 09:26
+
+[https://tieba.baidu.com/p/8286712002](https://tieba.baidu.com/p/8286712002)
+
+还有比这更早的爆料吗，看楼主的说法，至少今年没PS5 Pro了
+
+*****
+
+####  医生狼多  
+##### 87#       发表于 2023-5-25 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60982078&amp;ptid=2127553" target="_blank">泰坦失足 发表于 2023-5-25 09:26</a>
+https://tieba.baidu.com/p/8286712002
+
+还有比这更早的爆料吗，看楼主的说法，至少今年没PS5 Pro了 ...</blockquote>
+这个应该是最早了，外媒是tom最早提的
+pro要明年年末呢，不会现在出的
+就是tom说的可拆卸居然没影，搞不懂
+
+
+*****
+
+####  oldttt  
+##### 88#       发表于 2023-5-25 09:42
+
+大法这是出什么问题了 vr2说出来都让人难以相信 又来一个
+
+
+*****
+
+####  ヘブバン  
+##### 89#       发表于 2023-5-25 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60982269&amp;ptid=2127553" target="_blank">oldttt 发表于 2023-5-25 09:42</a>
+
+大法这是出什么问题了 vr2说出来都让人难以相信 又来一个</blockquote>
+vr2怎么了？
+
+vr2唯一的问题就是贵了点，但就这样已经比同期vr卖的好了。
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 90#       发表于 2023-5-25 09:51
+
+我就说是串流掌机，索尼现在还哪有这个资源搞什么独立掌机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 91#       发表于 2023-5-25 09:59
+
+既然支持触觉震动那我会买，犹豫的可以等我评测
+
+*****
+
+####  Lisylfn  
+##### 92#       发表于 2023-5-25 10:00
+
+能插sim卡或者esim吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  大暴死  
+##### 93#       发表于 2023-5-25 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60982448&amp;ptid=2127553" target="_blank">Fuero 发表于 2023-5-25 09:59</a>
+既然支持触觉震动那我会买，犹豫的可以等我评测</blockquote>
+富哥带带我，等着接盘你的4090<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  子夜的黑暗  
+##### 94#       发表于 2023-5-25 10:25
+
+先不说网络问题，这个造型基本已经没法拿出去了吧，除非随身携带专用收纳包，感觉很不结实啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Vladimeow  
+##### 95#       发表于 2023-5-25 10:45
+
+帧率高达60 分辨率高达1080
+
+—— 来自 vivo V2168A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  crosz1985  
+##### 96#       发表于 2023-5-25 10:53
+
+玩意儿能保证延迟比手机串流低吗
+
+
+*****
+
+####  陈词与芍药  
+##### 97#         楼主| 发表于 2023-5-25 18:40
+
+Tom Henderson：目前計劃於 2023 年 11 月中下旬發布。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  22174559  
+##### 98#       发表于 2023-5-25 18:41
+
+赶紧破解模拟ps2
+
+
+*****
+
+####  白猫MKII  
+##### 99#       发表于 2023-5-25 19:57
+
+等一个富哥首发，我来接盘
+
+
