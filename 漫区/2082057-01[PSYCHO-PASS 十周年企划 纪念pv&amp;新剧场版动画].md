@@ -1276,3 +1276,25 @@ IG做近身搏击的演出一直都可以的
 
 2023-5-18 00:43 上传
 
+*****
+
+####  Erikas  
+##### 120#       发表于 2023-5-29 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才知道出了新的剧场版，连宜野座换了新造型都忘了
+在电影院看的爆音版特别爽，打戏好看量多管饱，就是当爆米花电影看也值得了
+矛盾冲突和反派都没什么亮眼的地方，可能是也知道这是短板吧，没在这些问题的具体思辨中浪费过多篇幅
+
+最后看西比拉解锁权限公安拿主宰者重拳👊出击暴力分子时候真是大快人心<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">，跟着西比拉干就是了
+
+
+*****
+
+####  zxzx7753  
+##### 121#       发表于 2023-5-29 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60836957&amp;ptid=2082057" target="_blank">KOPKOM 发表于 2023-5-13 22:49</a>
+
+感觉这作在泥潭完全没有讨论度，最后一幕铁窗泪真是让人心疼朱爷。。。</blockquote>
+因为第二季做烂了 第三季也完全不同风格  就各讲各的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
