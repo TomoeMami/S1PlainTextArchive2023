@@ -430,3 +430,10 @@ qq群：568981296
 
 这个8.5深圳的还看交响再演bd，貌似在准备激光烤肉x<img src="https://p.sda1.dev/11/d4e4f1ac0c95ba5d58f0f218a7fc8cb8/CMP_20230517021321884.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  nh_zzz  
+##### 747#       发表于 2023-5-29 15:21
+
+前传漫画要出官中了，预售应该快了，特典是纸（不是真人）<img src="https://p.sda1.dev/11/1b1ea75c59a0df9acfef4e3c7f069259/CMP_20230529152012142.jpg" referrerpolicy="no-referrer">
+
