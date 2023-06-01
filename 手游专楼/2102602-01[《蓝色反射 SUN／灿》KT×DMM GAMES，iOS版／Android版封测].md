@@ -1087,3 +1087,29 @@ EXNOA，你值得信赖，笑死
 
 这几天送10连送的有点多啊
 
+*****
+
+####  V2ABGundam  
+##### 81#       发表于 2023-5-29 20:43
+
+爱央要来了，日菜子和阳樱莉也确定在路上了
+
+刚才youtube直播公屏上全都在打“帅哥无双”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+推土机模式也挺好的，众生平等不留遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 82#       发表于 2023-5-29 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61043183&amp;ptid=2102602" target="_blank">V2ABGundam 发表于 2023-5-29 20:43</a>
+
+爱央要来了，日菜子和阳樱莉也确定在路上了
+
+刚才youtube直播公屏上全都在打“帅哥无双”
+
+推土机模式 ...</blockquote>
+这么快，岸田还给画新立绘
+
