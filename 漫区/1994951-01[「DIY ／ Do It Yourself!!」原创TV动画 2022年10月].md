@@ -9345,3 +9345,130 @@ Music Collection
 
 本身就是地方振兴的一环，动画设定在近未来其实有些淡化了地域性，真人版应该会更贴些
 
+*****
+
+####  千恋万花  
+##### 680#       发表于 2023-5-28 16:01
+
+🪛•🛠️•━━━━
+
+TVアニメ「Do It Yourself!! 」
+
+実写ドラマの放送決定‼️
+
+　　　　　　　　  ━━━━•🛠️•🪛
+
+MBS / TBS #ドラマイズム にて
+
+7月4日(火)から放送スタート‼️
+<img src="https://p.sda1.dev/11/eaa872fe13b15120c245c231ca91b4a8/diy_anime-1662730431366660098-img1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 681#       发表于 2023-5-28 16:02
+
+／
+
+TVドラマ「DIY!!-どぅー・いっと・ゆあせるふ-」
+
+MBS / TBS #ドラマイズム にて
+
+🗓7月4日(火)から放送スタート‼️
+
+＼
+
+CAST解禁✨
+
+🪑主人公 せるふ役 :  #上村ひなの (日向坂46) さん
+
+🪑幼馴染 ぷりん役 :  #野口衣織 (＝LOVE)さん
+
+ほかメインキャスト一挙お揃いのキービジュアル公開⚒
+<img src="https://p.sda1.dev/11/c361b938ce91f5063b3b7515a50b52d6/dorama_diy-1662730431169548291-img1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 682#         楼主| 发表于 2023-5-28 16:04
+
+˗ˏˋ TVドラマ化記念㊗
+
+　　　　　　お祝いイラスト到着 ˎˊ˗
+
+◤￣￣￣￣￣￣￣￣￣￣￣￣￣￣￣
+
+ アニメ キャラクターデザイン担当
+
+　　　　  #松尾祐輔 さん
+
+＿＿＿＿＿＿＿＿＿＿＿＿＿＿＿◢
+
+TVドラマ「DIY!! 」🗓7月4日(火)より
+
+📺MBS/TBS ドラマイズム枠にて放送スタート‼️
+<img src="https://p.sda1.dev/11/4ab89ec06b6c418c5f24065ec2432584/20230528_160254.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/78bf4e7f1f5e86d6b92cbc93b722767e/20230528_160309.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我特么吹爆  
+##### 683#       发表于 2023-5-28 16:25
+
+想起
+摇曳露营真人版
+这是抚子
+<img src="https://p.sda1.dev/11/e91dc33be0cf42497380749499fb7313/CMP_20230528162500436.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山代风我  
+##### 684#       发表于 2023-5-28 16:41
+
+想看真人版傲娇布丁<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水莲寺流歌  
+##### 685#       发表于 2023-5-28 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不错，这布丁看着就像个傲娇
+
+
+*****
+
+####  wanwanjun  
+##### 686#       发表于 2023-5-28 16:54
+
+还以为是第二季制作决定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  好much橘  
+##### 687#       发表于 2023-5-28 16:58
+
+回想到现在，还是担心赛露芙受伤的画面，痛
+
+*****
+
+####  wanwanjun  
+##### 688#       发表于 2023-5-28 16:58
+
+<img src="https://p.sda1.dev/11/9141160b7694318ad4fdf5fa30d19d83/IMG_CMP_192862560.jpeg" referrerpolicy="no-referrer">
+都看不出来谁是谁，，，猫猫的选角有点烂
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  07579394  
+##### 689#       发表于 2023-5-29 10:21
+
+emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
