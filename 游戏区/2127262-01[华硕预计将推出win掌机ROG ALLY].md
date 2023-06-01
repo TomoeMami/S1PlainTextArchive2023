@@ -2762,3 +2762,40 @@ steam开大屏模式后，显示和操作我觉得还挺好，说白了就是缺
 [https://www.bilibili.com/video/BV1hg4y1c7ax/](https://www.bilibili.com/video/BV1hg4y1c7ax/)</blockquote>
 粗略看了下 没说7w下 rog赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我看的不仔细么
 
+*****
+
+####  roxassix  
+##### 264#       发表于 2023-5-29 11:17
+
+日版价格出了，z1e的10w9k8，z1的8w9k8。sd512卖9w9k8可以说是一点性价比没有了（<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KTD  
+##### 265#       发表于 2023-5-29 17:17
+
+看到前排指望rog掌机能做到5k爆杀国产机的，笑了
+
+指望rog性价比？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keytomylife  
+##### 266#       发表于 2023-5-29 17:23
+
+z1e款699刀，z1款599刀
+
+不爆杀那一堆国产机？
+
+
+*****
+
+####  脚本水平  
+##### 267#       发表于 2023-5-29 17:25
+
+国产机还是有点优势的 比如接口多
+不过价格是真的被爆杀了
+
+差不多价格能买眼睛谁会买寨
+
