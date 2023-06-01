@@ -8051,3 +8051,4743 @@ https://tdm-anime.com/special/nakano_asakusa/
 
 系统大概率在装傻吧，监控会看不到两个学生潜入画面肯定有问题，这幼儿园什么cp都有够政治正确了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kxh007458  
+##### 1000#       发表于 2023-5-21 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929314&amp;ptid=2088657" target="_blank">怀特布莱克 发表于 2023-5-21 13:52</a>
+
+宇佐美医生就是代的话为什么他没发病？</blockquote>
+目前来看发病原因依旧不明，也说过没有传染性。
+
+
+*****
+
+####  右代宫嘉音  
+##### 1001#       发表于 2023-5-21 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60927692&amp;ptid=2088657" target="_blank"> Piano-Forest 发表于 2023-5-21 11:05</a> ＜#09＞学園の子供たち   宇佐美はキル光線のマークと同じ模様のボタンを持っていた。 再びマークを追う事にした マルとキルコは途中、資源探しをしていた情報屋ジューイチと遭遇する。 マークについて 知った様子を見せるジューイチから情報を買い取る二人だが……。 一方、学園では職員達 の緊急会議が開かれていた。明かされるトキオの異変とは……  脚本：深見真  絵コンテ：野村和也  演出：野村和也  作 </blockquote>
+话说只有预告图没有几秒的预告动画吗来自: iPhone客户端
+
+*****
+
+####  Kfly  
+##### 1002#       发表于 2023-5-21 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929443&amp;ptid=2088657" target="_blank">kxh007458 发表于 2023-5-21 14:03</a>
+
+目前来看发病原因依旧不明，也说过没有传染性。</blockquote>
+有猜可能和发色有关，确实看下来深发色的死亡率比浅发色的高不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/21/142452frih8c4z48fhcgy4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (347.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 14:24 上传
+
+*****
+
+####  TomDu  
+##### 1003#       发表于 2023-5-21 14:28
+
+最后我想用这只眼睛看一看蓝天。
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tako  
+##### 1004#       发表于 2023-5-21 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60927452&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 10:48</a>
+
+制作真厉害啊
+
+只是可惜虽然我没看漫画还是被剧透了，不然体验应该不一样
+
+如果早点把枪拿出来问是不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">白衣人团体最开始断腿女代表的观点是“科技只会给人类带来不幸，电力和便利的代价是猛毒”，如果能贯彻这个理念，那么在“解放”了被不灭教团荼毒的那些病人之后，他们应该会离开医院，空荡荡的医院里没有猎物，那么车底的那个卵会一直处于休眠状态。
+
+可惜趁乱夺权的光头是个垂涎医院里的电力和科技设备的野心家，白衣团体走上了屠龙者终成龙的路。对应这话的标题《各自的选择》，天堂地狱只一念之差，剧情设计的太精妙了
+
+今天又看了遍才发现美美姬的左眼是医生挖给她的，欲语泪先流<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RhmBWT_Wu  
+##### 1005#       发表于 2023-5-21 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929789&amp;ptid=2088657" target="_blank">tako 发表于 2023-5-21 14:34</a>
+
+白衣人团体最开始断腿女代表的观点是“科技只会给人类带来不幸，电力和便利的代价是猛毒”，如果 ...</blockquote>
+水桥的死只是个意外吗
+
+看后面他的操作我一度怀疑不灭教团里扔石头的也是他安排的，但后来又想了想好像不太可能，刚好扔到水桥旁边，刚好垂直头着地，应该算不到那么细吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千恋万花  
+##### 1006#       发表于 2023-5-21 14:43
+
+ 本帖最后由 千恋万花 于 2023-5-21 14:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929857&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 14:41</a>
+
+水桥的死只是个意外吗
+
+看后面他的操作我一度怀疑不灭教团里扔石头的也是他安排的，但后来又想了想好像不 ...</blockquote>扔石头的应该只是偶然，后面夺权的光头也说「机不可失  时不再来」
+
+
+*****
+
+####  Kfly  
+##### 1007#       发表于 2023-5-21 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929857&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 14:41</a>
+
+水桥的死只是个意外吗
+
+看后面他的操作我一度怀疑不灭教团里扔石头的也是他安排的，但后来又想了想好像不 ...</blockquote>
+其实水桥没死，这段应该不会省略，下一集会讲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AKUSTON  
+##### 1008#       发表于 2023-5-21 15:09
+
+感觉动画组意图太明显,后面如果能处理的更好就行
+
+
+*****
+
+####  熊猫roey  
+##### 1009#       发表于 2023-5-21 15:18
+
+喜欢动画开头原创的这个细节，暗示了这帮人乌合之众的本质
+
+IMG_5374.GIF
+(959.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 15:18 上传
+
+<img src="https://img.saraba1st.com/forum/202305/21/151829jpd4uuzz5p45c7oa.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悠悠你心  
+##### 1010#       发表于 2023-5-21 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929857&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 14:41</a>
+水桥的死只是个意外吗
+
+看后面他的操作我一度怀疑不灭教团里扔石头的也是他安排的，但后来又想了想好像不 ...</blockquote>
+水桥不是给了个特写，躺着嘴还张开嘴呼吸嘛，怎么就死了。。。
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  蒜皮  
+##### 1011#       发表于 2023-5-21 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929857&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 14:41</a>
+
+水桥的死只是个意外吗
+
+看后面他的操作我一度怀疑不灭教团里扔石头的也是他安排的，但后来又想了想好像不 ...</blockquote>
+她没死呢，中间有人来报信说地下室怪物死了的时候她嘴还动了一下
+
+虽然我觉得她那个头先着地的摔法，八成是要高位截瘫了，还不如死了呢
+
+*****
+
+####  RhmBWT_Wu  
+##### 1012#       发表于 2023-5-21 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60930333&amp;ptid=2088657" target="_blank">悠悠你心 发表于 2023-5-21 15:30</a>
+
+水桥不是给了个特写，躺着嘴还张开嘴呼吸嘛，怎么就死了。。。
+
+—— 来自 HONOR PGT-AN20, Android 13上 ...</blockquote>
+草，应该是我走神看漏了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好much橘  
+##### 1013#       发表于 2023-5-21 15:35
+
+ 本帖最后由 好much橘 于 2023-5-21 15:38 编辑 
+
+看Disney+翻译的时候，记得有说感染了一次迟早还会再发病，切除患处应该只是延长死掉变成食人怪的时间 了，应该理解没错。
+这样说的话，其实大楼这的两拨人迟早也都会分为人类和食人怪，白衣那一波那个截腿的女性首领要是真死了，估计很快也要变成食人怪核心反噬到那一群人身上，地下的食人怪苏醒估计是更显眼的明示。
+
+这集感觉除了时间线上挑明了是外面二人组要更晚一些以外（要能推理出医生星尾二人是学园里的代和美实姬），还有一点就是食人怪能由普通人变成，而非指定学园内超能力的人，只要患病就有可能，也难怪末日环境一直没有机会重建得很大，毕竟根本杀不完。
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">越来越倾向于食人怪这玩意就像新冠一样是某种偶发的病毒了，首先袭击了学园内的阿苏罗和多罗雄，毕竟研究人员看着火化的那一坨也挺意外的，可能和没脸的婴儿一起融合超进化了啥啥啥的，然后化身食人怪，学园里的悲剧诞生，再慢慢扩散到世界范围。但不知道传染方式是什么，有点难防。
+时间线是外面二人组较晚的话，感觉所谓的“两线交汇处”学园的情况估计也比较棘手，毕竟久久、美实姬、代也跑了出来，可能被洗了记忆（换了名字），如果不放弃阿圆=时男的猜测的话，阿圆回忆童年的那一集没有天国和其他小孩的场景也能说明洗记忆的可能性。
+给斩子枪的三仓姐，感觉能对应学园里一直跳舞的那一位，发型、性别感觉比较像，还没仔细对比过。
+
+*****
+
+####  悠悠你心  
+##### 1014#       发表于 2023-5-21 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60930369&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 15:34</a>
+草，应该是我走神看漏了</blockquote>
+很正常，不少人都没注意到，看到了就会后面直接反应过来光头在说谎，另有所图。
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  好much橘  
+##### 1015#       发表于 2023-5-21 15:51
+
+想再看一眼天空，会是因为学园里一直看不见吗，所以有某种追求吗<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+一直有让时男逃出到“外面”的声音，是针对非人部分还是哪个部分，学园方的人类高层到底算好人还是算坏人，有BOSS相但又不完全像是，有种灰色感，但大概最终还是辜负了很多学生的生活。
+
+
+*****
+
+####  雨樊133122  
+##### 1016#       发表于 2023-5-21 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+触动到了。
+
+*****
+
+####  蒜皮  
+##### 1017#       发表于 2023-5-21 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60930411&amp;ptid=2088657" target="_blank">悠悠你心 发表于 2023-5-21 15:38</a>
+
+很正常，不少人都没注意到，看到了就会后面直接反应过来光头在说谎，另有所图。
+
+—— 来自 HONOR PGT-AN ...</blockquote>
+我觉得还挺明显的吧，我看到下一段光头唐突把人说死了还以为我看错了又倒回去看了一遍确认自己没看错来着
+
+
+*****
+
+####  Huiiii  
+##### 1018#       发表于 2023-5-21 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60929671&amp;ptid=2088657" target="_blank">Kfly 发表于 2023-5-21 14:24</a>
+有猜可能和发色有关，确实看下来深发色的死亡率比浅发色的高不少
+
+ ...</blockquote>
+建议编辑，这已经动画楼应该出现的信息量。
+
+*****
+
+####  Kfly  
+##### 1019#       发表于 2023-5-21 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60931198&amp;ptid=2088657" target="_blank">Huiiii 发表于 2023-5-21 16:35</a>
+
+建议编辑，这已经动画楼应该出现的信息量。</blockquote>
+我的，你也编辑一下引用的部分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 1020#       发表于 2023-5-21 17:54
+
+什么绀学姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/11/0e770b54d2804c70028be98d551ed368/CMP_20230521175502399.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白面馒头233  
+##### 1021#       发表于 2023-5-21 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太好哭了这集
+
+
+*****
+
+####  梅斯之围  
+##### 1022#       发表于 2023-5-21 19:25
+
+为什么大夫瞎了一只眼，他自己也有那种病然后挖掉了么
+
+这么说的话前面的酒店大亨是不是也会这样
+
+*****
+
+####  睡不醒的虾米  
+##### 1023#       发表于 2023-5-21 19:32
+
+<blockquote>梅斯之围 发表于 2023-5-21 19:25
+为什么大夫瞎了一只眼，他自己也有那种病然后挖掉了么
+
+这么说的话前面的酒店大亨是不是也会这样 ...</blockquote>
+认真看剧啦，他把眼睛给自己的恋人了啊
+
+
+*****
+
+####  Kfly  
+##### 1024#       发表于 2023-5-21 19:33
+
+ 本帖最后由 Kfly 于 2023-5-21 19:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60934196&amp;ptid=2088657" target="_blank">梅斯之围 发表于 2023-5-21 19:25</a>
+
+为什么大夫瞎了一只眼，他自己也有那种病然后挖掉了么
+
+这么说的话前面的酒店大亨是不是也会这样 ...</blockquote>
+已经解释得很直接了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202305/21/193228vjza7c4442cirn74.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (257.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202305/21/193434f8m6gukomx9buzb9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 19:34 上传
+
+后面有一幕女孩也是：
+
+<img src="https://img.saraba1st.com/forum/202305/21/193300vwldvodkkkilwxht.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 19:33 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 梅斯之围| + 1||
+
+查看全部评分
+
+
+*****
+
+####  香蜂草  
+##### 1025#       发表于 2023-5-21 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60934196&amp;ptid=2088657" target="_blank">梅斯之围 发表于 2023-5-21 19:25</a>
+
+为什么大夫瞎了一只眼，他自己也有那种病然后挖掉了么
+
+这么说的话前面的酒店大亨是不是也会这样 ...</blockquote>
+星尾最后的遗言里说了啊，宇津美把自己的一只眼睛移植给了她。
+
+
+*****
+
+####  zz的日常  
+##### 1026#       发表于 2023-5-21 21:15
+
+这么说学校里的学生 是已经在前几集都出现过么
+那个很会爬墙的女孩 和前几集拿个很多触手的鱼之类的…？来自: iPhone客户端
+
+
+*****
+
+####  狮子咕  
+##### 1027#       发表于 2023-5-21 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">说起来遗言那段感觉日语那种写法比单纯的翻译更催泪一点吧？就是每说一句话，把那句【阿里嘎多】放在每个句子的结尾，好像着重的效果更好一点？
+
+*****
+
+####  Ichthy  
+##### 1028#       发表于 2023-5-21 21:51
+
+动画的表现要好很多啊，尤其是白和美美姬的感情。
+
+
+*****
+
+####  molemole  
+##### 1029#       发表于 2023-5-21 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60935576&amp;ptid=2088657" target="_blank">zz的日常 发表于 2023-5-21 21:15</a>
+
+这么说学校里的学生 是已经在前几集都出现过么
+
+那个很会爬墙的女孩 和前几集拿个很多触手的鱼之类的…？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">思路是对的
+
+
+*****
+
+####  101stroad  
+##### 1030#       发表于 2023-5-21 22:35
+
+<img src="https://img.saraba1st.com/forum/202305/21/223411as9vx4oxlaonoras.png" referrerpolicy="no-referrer">
+
+<strong>截屏2023-05-21 22.05.50.png</strong> (566.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 22:34 上传
+
+<img src="https://img.saraba1st.com/forum/202305/21/223411t4ijyhylxt216tmd.png" referrerpolicy="no-referrer">
+
+<strong>截屏2023-05-21 22.13.44.png</strong> (639.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 22:34 上传
+
+   
+
+才发现这个左撇子的细节...
+
+
+*****
+
+####  tengshuo980  
+##### 1031#       发表于 2023-5-21 22:51
+
+真不错
+
+
+*****
+
+####  好much橘  
+##### 1032#       发表于 2023-5-21 23:10
+
+这集最后才发现阿圆衣服后面有字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+we are neither machines not same pieces
+不过顺便看了下之前的集数甚至本集前面的部分，都是
+we are neither machines nor game pieces
+大致是后者才对
+<img src="https://p.sda1.dev/11/424e2261e5a3674bb1d20e7493765355/CMP_20230521230730229.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/67777bd1cbddd8c76deac9f844e3cc57/CMP_20230521230730283.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yalbsd  
+##### 1033#       发表于 2023-5-21 23:24
+
+太好看了
+
+*****
+
+####  好much橘  
+##### 1034#       发表于 2023-5-21 23:28
+
+回看发现，斩子身上伤疤的事情大致已经回收了，部位差不多一致。
+<img src="https://p.sda1.dev/11/6e07412316e8ff158aff9ae94e0c07ea/CMP_20230521231630829.png" referrerpolicy="no-referrer">
+
+话说这变食人怪的病该不会是吃番茄吃的吧（
+EP1进旅馆老板娘线的第一二个镜头有说明老板娘养鸡和种叶子比较像天国番茄的植物，不过没有茎像藤蔓一样爬杆子就是了，碰上的食人怪刚好也是鸟型。不局限于人类物种，然后概率发生/某个犯病的条件，病从口入不算传染性，好像也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ec9a1d614aa4f47155f838f5b865e5e7/CMP_20230521231804064.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f3be58d9da638a5782a8bbb78e53f6b8/CMP_20230521231804116.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mersher  
+##### 1035#       发表于 2023-5-21 23:32
+
+看到前面鱼那集就猜到人物应该是有对应的，这集应该是那个美美姬和喜欢她爱搞器械的蘑菇头，ed后面也对上了，明示了吧，那这样的话，双线这时间感觉应该是错位的，520放这种真刀啊，这集插曲很煽情，乌鸦起飞的蒙太奇运用的也很到位，车下小怪物醒了，那帮子抢电力动能的可能要完蛋了，ed改过了吧，插入得由减入深，歌词那个为什么 为什么 会迎来这种结局正好对上男主自责他们的死亡画面，宇佐美死前那个硬币一样的上面有三只脚的鸟，与那把枪的符号一样，一开始没看懂什么谢谢眼睛，后面看回忆，原来是眼睛也挖过去移植了，竟然没排异，这技术厉害了
+
+
+*****
+
+####  三尖酸努努  
+##### 1036#       发表于 2023-5-21 23:35
+
+这集文戏真好，情绪太饱满了，牛尾配乐立大功
+
+
+*****
+
+####  reficulp  
+##### 1037#       发表于 2023-5-21 23:43
+
+漫画党，看漫画的时候根本没注意到宇佐美的眼睛移植出去了，这集看到倒映在眼睛里的蓝色，那句谢谢你给了我眼睛时强调宇佐美眼罩的镜头，突如其来的心痛<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 1038#       发表于 2023-5-21 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937276&amp;ptid=2088657" target="_blank">mersher 发表于 2023-5-21 23:32</a>
+看到前面鱼那集就猜到人物应该是有对应的，这集应该是那个美美姬和喜欢她爱搞器械的蘑菇头，ed后面也对上了 ...</blockquote>
+啊？啊？啊？
+原来是这样啊 原来如此
+
+*****
+
+####  klmmmx  
+##### 1039#       发表于 2023-5-21 23:47
+
+看哭，改编质量超乎想象，整个故事的分量都沉重了很多。
+
+*****
+
+####  霖星  
+##### 1040#       发表于 2023-5-21 23:50
+
+好像没有说为啥地下车库里的怪物不会袭击医生他们
+
+
+*****
+
+####  Alicest  
+##### 1041#       发表于 2023-5-21 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60922443&amp;ptid=2088657" target="_blank">熊猫roey 发表于 2023-5-20 21:42</a>
+都直接砸脸上了，再迟钝的应该也能反应过来吧</blockquote>
+我没意识到 最后感觉有点突兀 对强调蓝眼睛隐隐感觉有点不对 不看这楼是真没往那想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 1042#       发表于 2023-5-21 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937542&amp;ptid=2088657" target="_blank">霖星 发表于 2023-5-21 23:50</a>
+好像没有说为啥地下车库里的怪物不会袭击医生他们</blockquote>
+也没说不会袭击啊，斩子推测是把怪物和幼崽都关在下面，让它们因为缺少食物陷入假死状态。
+至于医生和怪物的关系一点都没多讲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 1043#       发表于 2023-5-21 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60925151&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-21 00:49</a>
+心情激动……简单梳理下这集在个人观感下的暗示，对错都有可能，不过我感觉应该没啥问题了。
+
+主要可以确定 ...</blockquote>
+预言竞是在这里…！
+
+*****
+
+####  霖星  
+##### 1044#       发表于 2023-5-22 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937614&amp;ptid=2088657" target="_blank">Kfly 发表于 2023-5-21 23:55</a>
+
+也没说不会袭击啊，斩子推测是把怪物和幼崽都关在下面，让它们因为缺少食物陷入假死状态。
+
+至于医生和怪 ...</blockquote>
+这怪物那么傻的么，没有吃的不会出门找
+
+只会死守着那里等食物上门<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好much橘  
+##### 1045#       发表于 2023-5-22 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937669&amp;ptid=2088657" target="_blank">霖星 发表于 2023-5-22 00:00</a>
+这怪物那么傻的么，没有吃的不会出门找
+
+只会死守着那里等食物上门 ...</blockquote>
+会不会是食人怪的激活和光线有关系？刚到地下停车场时有提过一嘴灯全开着，不过剧情上的重点是他们有电。现在这个激活的刚好是在车底，光照不到。
+
+*****
+
+####  mersher  
+##### 1046#       发表于 2023-5-22 00:07
+
+想起来了，美美姬算是预言能力，前面有一集她自己说的有两人会来救她，还有蘑菇头 告别的时候什么切啊针刺啊，关小黑屋啊，都实现了，那最后吃了她也会实现？宇佐美自杀变怪物吃了她？有点可惜她这幅样子没把什么信息告诉男主他们，话说，字幕组的翻译真的好多，光B上看的剧集，就有真流，小丸，小圆<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 1047#       发表于 2023-5-22 00:11
+
+他妈的，进来之后被剧透了时间轴。我他妈的就不应该进来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  霖星  
+##### 1048#       发表于 2023-5-22 00:11
+
+对了，这里剧情有点BUG啊
+
+医生说是担心美美姬死后变成怪物所以不敢主动断开她的维生装置
+
+但是动画前几集里那个同样得病的小孩火化后应该是没变成怪物的
+
+以大楼里电力的充足程度来看，普通的火化应该也不难做到
+
+*****
+
+####  mersher  
+##### 1049#       发表于 2023-5-22 00:11
+
+啊，还想起来那个酒店大亨是个隐患啊，按这集说的，以后也会可能变，有一个漏的，这世界就没救了吧，男主的药剂到底是给谁的？
+
+
+*****
+
+####  Kfly  
+##### 1050#       发表于 2023-5-22 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937669&amp;ptid=2088657" target="_blank">霖星 发表于 2023-5-22 00:00</a>
+这怪物那么傻的么，没有吃的不会出门找
+
+只会死守着那里等食物上门 ...</blockquote>
+很可能就是出不去啊，没法保证这类有特殊能力的怪物破门能力有多厉害，目前看下来能力没那么花里胡哨的怪鸟和鱼战斗能力都比较强，有隐身能力的怪物和会幻术的怪物战斗能力（物理）并不太行的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kfly  
+##### 1051#       发表于 2023-5-22 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937815&amp;ptid=2088657" target="_blank">霖星 发表于 2023-5-22 00:11</a>
+对了，这里剧情有点BUG啊
+
+医生说是担心美美姬死后变成怪物所以不敢主动断开她的维生装置
+
+但是动画前几集里 ...</blockquote>
+这个我也有些在意，但没必要去细究，很好圆：不知道火化有没有用/知道有用但医生不愿意这么做/患者本人不愿意<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 1052#       发表于 2023-5-22 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937819&amp;ptid=2088657" target="_blank">mersher 发表于 2023-5-22 00:11</a>
+啊，还想起来那个酒店大亨是个隐患啊，按这集说的，以后也会可能变，有一个漏的，这世界就没救了吧，男主的 ...</blockquote>
+药剂的作用对象前几集就说过了，是“一个长的和真流很像的人”
+
+
+*****
+
+####  S.A  
+##### 1053#       发表于 2023-5-22 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937815&amp;ptid=2088657" target="_blank">霖星 发表于 2023-5-22 00:11</a>
+
+对了，这里剧情有点BUG啊
+
+医生说是担心美美姬死后变成怪物所以不敢主动断开她的维生装置
+
+但是动画前几集里 ...</blockquote>
+孩子们是不知道多罗尾火化的结果的。
+
+而且多罗尾火化之后有没有变成怪物...目前甚至还不能确定<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 1054#       发表于 2023-5-22 00:24
+
+c part的杀伤力比漫画强了很多<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mersher  
+##### 1055#       发表于 2023-5-22 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937901&amp;ptid=2088657" target="_blank">Kfly 发表于 2023-5-22 00:19</a>
+
+药剂的作用对象前几集就说过了，是“一个长的和真流很像的人”</blockquote>
+那就学院里那个女的？按这集的话要么美美姬那样病变了，要么像宇佐美那样也长大出来了？那还有天国吗，打名字才发现他们俩名字都换过了
+
+*****
+
+####  断翼  
+##### 1056#       发表于 2023-5-22 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937819&amp;ptid=2088657" target="_blank">mersher 发表于 2023-5-22 00:11</a>
+
+啊，还想起来那个酒店大亨是个隐患啊，按这集说的，以后也会可能变，有一个漏的，这世界就没救了吧，男主的 ...</blockquote>
+酒店大亨算是个伏笔，因为年龄上对不上，所以可能和maru差不多年纪
+
+你看医生都明显不止20了，所以应该不是同一代的人
+
+
+*****
+
+####  mersher  
+##### 1057#       发表于 2023-5-22 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938014&amp;ptid=2088657" target="_blank">断翼 发表于 2023-5-22 00:32</a>
+
+酒店大亨算是个伏笔，因为年龄上对不上，所以可能和maru差不多年纪
+
+你看医生都明显不止20了，所以应该不 ...</blockquote>
+也是，大亨自己说灾后生的，医生快奔3了，二代人了，但学院里的有核心，大亨也有核心，属于同源同类，或者说是亲戚？等后续揭秘了
+
+
+*****
+
+####  碎月  
+##### 1058#       发表于 2023-5-22 01:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这集看完心中久久不能平静
+
+之前有一集给了墙上画的镜头我就觉得不太对劲了，现在果然……
+
+
+*****
+
+####  炽热  
+##### 1059#       发表于 2023-5-22 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60922973&amp;ptid=2088657" target="_blank">S.A 发表于 2023-05-20 22:17:59</a></blockquote>凶手总会回到案发现场<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ParadiseMartyr  
+##### 1060#       发表于 2023-5-22 01:46
+
+我不想看剧透，我就问问动画能把剧情全做完吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  宝月夜宵  
+##### 1061#       发表于 2023-5-22 01:46
+
+被刀到嗦不出话<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 1062#       发表于 2023-5-22 01:52
+
+看这集的时候想到了《海马》第7集，也是一段开头一言难尽、过程难以言表、结局却优美温柔的爱的故事。
+
+
+*****
+
+####  Booorunestud  
+##### 1063#       发表于 2023-5-22 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938554&amp;ptid=2088657" target="_blank">ParadiseMartyr 发表于 2023-5-22 01:46</a>
+我不想看剧透，我就问问动画能把剧情全做完吗
+
+—— 来自 S1Fun</blockquote>
+漫画本身还在连载，动画做完一季大概是目前漫画的一多半进度
+
+
+*****
+
+####  Leliel  
+##### 1064#       发表于 2023-5-22 02:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937770&amp;ptid=2088657" target="_blank">mersher 发表于 2023-5-22 00:07</a>
+
+想起来了，美美姬算是预言能力，前面有一集她自己说的有两人会来救她，还有蘑菇头 告别的时候什么切啊针刺 ...</blockquote>
+从后面的剧情来看，男主人公的名字应该是由来于圆形记号
+
+所以maru写作丸或者成圆更接近其本来的含义
+
+说起来，女主人公的名字kiruko应该是春树和桐子两个名字的合体
+
+不过好像中文翻译也基本都默认用约定俗成的斩子了
+
+
+*****
+
+####  Garterbelt  
+##### 1065#       发表于 2023-5-22 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938554&amp;ptid=2088657" target="_blank">ParadiseMartyr 发表于 2023-5-22 01:46</a>
+
+我不想看剧透，我就问问动画能把剧情全做完吗
+
+—— 来自 S1Fun</blockquote>
+我估计至少白和美美姬这一条线是可以基本做完的
+
+
+*****
+
+####  nxh1999  
+##### 1066#       发表于 2023-5-22 08:45
+
+第8集做得真好，看过漫画之后看动画，气氛比漫画那里更感人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1067#       发表于 2023-5-22 08:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">动画党自己靠C part推测了一下，结果似乎猜对了部分剧情？猜出来那一刻恍然大悟非常惊喜，不过也留下了诸如时间线方面的更多谜团
+
+这集里我有点好奇的是，白衣人领袖真死了吗？大楼底下的人是怎么被白衣人买通成我们的人的？虽然这些不讲清楚好像也不影响，但我比较好奇…
+
+以及，准备去看漫画了！
+
+
+*****
+
+####  ylssb10438  
+##### 1068#       发表于 2023-5-22 09:05
+
+这集的众生相还挺有辐射的味道的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千恋万花  
+##### 1069#       发表于 2023-5-22 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938710&amp;ptid=2088657" target="_blank">Leliel 发表于 2023-5-22 02:23</a>
+
+从后面的剧情来看，男主人公的名字应该是由来于圆形记号
+
+所以maru写作丸或者成圆更接近其本来的含义
+
+说起 ...</blockquote>
+SweetSub 的「キルコ」译名是姐弟名字各取一字的「希子」
+<img src="https://p.sda1.dev/11/1401d30d37faeaad9029be15e48042fc/2023-05-22-0923_14.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 1070#       发表于 2023-5-22 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60939523&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-22 08:51</a>
+动画党自己靠C part推测了一下，结果似乎猜对了部分剧情？猜出来那一刻恍然大悟非常惊喜，不过也留 ...</blockquote>
+水桥没死，有个她嘴动的特写，是那个光头传假消息煽动人心
+
+*****
+
+####  蒜皮  
+##### 1071#       发表于 2023-5-22 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938554&amp;ptid=2088657" target="_blank">ParadiseMartyr 发表于 2023-5-22 01:46</a>
+我不想看剧透，我就问问动画能把剧情全做完吗
+
+—— 来自 S1Fun</blockquote>
+不能，漫画本身也还在连载
+
+*****
+
+####  古桥一浩  
+##### 1072#       发表于 2023-5-22 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60939462&amp;ptid=2088657" target="_blank">nxh1999 发表于 2023-05-22 08:45:15</a>
+第8集做得真好，看过漫画之后看动画，气氛比漫画那里更感人</blockquote>是的，漫画那个我的这双手只能杀人，看起来甚至有些生草。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 1073#       发表于 2023-5-22 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940059&amp;ptid=2088657" target="_blank">古桥一浩 发表于 2023-5-22 09:37</a>
+是的，漫画那个我的这双手只能杀人，看起来甚至有些生草。
+
+  -- 来自 能手机投票的 Stage1官方 Android客 ...</blockquote>
+感觉漫画表达的更多是对自己生气，而动画还有悲伤的情绪，这是漫画表现不出来的
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1074#       发表于 2023-5-22 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940004&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-22 09:33</a>
+
+水桥没死，有个她嘴动的特写，是那个光头传假消息煽动人心</blockquote>
+这个我注意到了，所以她被扔那自生自灭了吗，还是以后会有剧情（如果涉及剧透就不说了）<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 1075#       发表于 2023-5-22 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940225&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-22 09:47</a>
+
+这个我注意到了，所以她被扔那自生自灭了吗，还是以后会有剧情（如果涉及剧透就不说了） ...</blockquote>
+我动画党，我也不知道后续<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  scorbian  
+##### 1076#       发表于 2023-5-22 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60939878&amp;ptid=2088657" target="_blank">千恋万花 发表于 2023-5-22 09:23</a>
+
+SweetSub 的「キルコ」译名是姐弟名字各取一字的「希子」</blockquote>
+这是不是把手枪叫做西天光线那个组，还有阿圆的技能翻成圆寂之触挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花達香奈  
+##### 1077#       发表于 2023-5-22 10:10
+
+对了地下车库那摊大的和几只小的什么来历？
+
+看医生表现不像是学园里的小伙伴，难道是野生的？不是说自限性疾病没有人传人吗？
+
+*****
+
+####  Junetheriver  
+##### 1078#       发表于 2023-5-22 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940225&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-22 09:47</a>
+
+这个我注意到了，所以她被扔那自生自灭了吗，还是以后会有剧情（如果涉及剧透就不说了） ...</blockquote>
+她最后还平安活着，原作党也不确定那段剧情会不会在下集保留，也可能直接删掉了
+
+
+*****
+
+####  Kfly  
+##### 1079#       发表于 2023-5-22 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940584&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-22 10:10</a>
+
+对了地下车库那摊大的和几只小的什么来历？
+
+看医生表现不像是学园里的小伙伴，难道是野生的？不是说自限性 ...</blockquote>
+推测是母体和幼崽的关系……
+
+<img src="https://img.saraba1st.com/forum/202305/22/101623i004ddyycdi9129u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-22 10:16 上传
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1080#       发表于 2023-5-22 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940620&amp;ptid=2088657" target="_blank">Junetheriver 发表于 2023-5-22 10:12</a>
+
+她最后还平安活着，原作党也不确定那段剧情会不会在下集保留，也可能直接删掉了 ...</blockquote>
+感谢原作党，这周有空就加急看一下原作<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花達香奈  
+##### 1081#       发表于 2023-5-22 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940710&amp;ptid=2088657" target="_blank">Kfly 发表于 2023-5-22 10:17</a>
+
+推测是母体和幼崽的关系……</blockquote>
+你和我肯定有一个语文不及格……
+
+*****
+
+####  S.A  
+##### 1082#       发表于 2023-5-22 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940584&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-22 10:10</a>
+
+对了地下车库那摊大的和几只小的什么来历？
+
+看医生表现不像是学园里的小伙伴，难道是野生的？不是说自限性 ...</blockquote>
+你猜宇佐美是怎么知道学院的孩子死了之后会变怪物的？学院教的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  S.A  
+##### 1083#       发表于 2023-5-22 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60938554&amp;ptid=2088657" target="_blank">ParadiseMartyr 发表于 2023-5-22 01:46</a>
+
+我不想看剧透，我就问问动画能把剧情全做完吗
+
+—— 来自 S1Fun</blockquote>
+做不完，我估计了一下，也许制作组会改编一下做到学院线完结的那里，不确定有没有下一季的情况下这样结构会比较完整。
+
+
+*****
+
+####  Kfly  
+##### 1084#       发表于 2023-5-22 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940828&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-22 10:23</a>
+
+你和我肯定有一个语文不及格……</blockquote>
+你问的不是大怪物和小怪物的关系吗，我给出作品内角色的推测，这理解没错啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cocococo10  
+##### 1085#       发表于 2023-5-22 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60939523&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-22 08:51</a>
+动画党自己靠C part推测了一下，结果似乎猜对了部分剧情？猜出来那一刻恍然大悟非常惊喜，不过也留 ...</blockquote>
+大楼车库守门那个是白衣人派去的卧底，第七集有详细描述，最后被光头佬灭口了。
+
+
+*****
+
+####  zakki  
+##### 1086#       发表于 2023-5-22 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940584&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-22 10:10</a>
+
+对了地下车库那摊大的和几只小的什么来历？
+
+看医生表现不像是学园里的小伙伴，难道是野生的？不是说自限性 ...</blockquote>
+地下车库的蛭子是什么动画肯定是做不到的，就算是漫画也只是有暗示了一下来历，没彻底讲出来
+
+
+*****
+
+####  KissMoon  
+##### 1087#       发表于 2023-5-22 12:12
+
+看动画组，他们想的话，下话可明示示地下车库的
+
+
+*****
+
+####  罗克萨斯  
+##### 1088#       发表于 2023-5-22 12:32
+
+第8话bangumi评论数已经300+了，果然好评如潮，我看的时候也差点落泪了。
+
+看漫画时我就在想：白会不会变成蛭子？目前并无感染迹象，不知道自尽后是不是就像正常人类一样死去。
+
+
+*****
+
+####  帆前  
+##### 1089#       发表于 2023-5-22 12:34
+
+纯动画党刚看完第8集，突然有个恐极的脑洞：之前看天国线画多手鱼，然后魔境线就真的出现了多手鱼。一直猜天国线和魔境线的关系是不是怪物实验，现在看到宇佐美医生回结尾突然放天国线的金毛女学生，就想，莫非天国线和魔境线不是同时推进？难道是天国避难所的学生们跑出来，然后其中的金毛女学生带出了食人病，她的爱人一直救她，就成了这集的宇佐美医生，男主和斩子其实是生活在天国线几十年后的时间
+
+
+*****
+
+####  IWS2000  
+##### 1090#       发表于 2023-5-22 12:50
+
+这集看完好难受啊，原先我还不能接受小时候美美姬和闷骚男这对cp的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 1091#       发表于 2023-5-22 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60943482&amp;ptid=2088657" target="_blank">IWS2000 发表于 2023-5-22 12:50</a>
+这集看完好难受啊，原先我还不能接受小时候美美姬和闷骚男这对cp的</blockquote>
+我一开始以为他俩没成，没想到居然成了
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1092#       发表于 2023-5-22 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60942087&amp;ptid=2088657" target="_blank">cocococo10 发表于 2023-5-22 11:27</a>
+
+大楼车库守门那个是白衣人派去的卧底，第七集有详细描述，最后被光头佬灭口了。 ...</blockquote>
+是的我知道是卧底，不过我的想法是接触到大楼之后居然还能忠心卧底，毕竟对杂鱼来说，无非是跟哪个老大过的问题<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">是有点太纠结剧情了
+
+
+*****
+
+####  S.A  
+##### 1093#       发表于 2023-5-22 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60943867&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-22 13:22</a>
+
+是的我知道是卧底，不过我的想法是接触到大楼之后居然还能忠心卧底，毕竟对杂鱼来说，无非是跟哪个老大过 ...</blockquote>
+一个是野心家到处都有，一个是宇佐美这个星尾单推人实在算不上什么好领袖，除了星尾和机械相关的问题他对别的都是毫不关心，觉得跟着他在这个末世没前途也很正常。
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1094#       发表于 2023-5-22 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60944040&amp;ptid=2088657" target="_blank">S.A 发表于 2023-5-22 13:38</a>
+
+一个是野心家到处都有，一个是宇佐美这个星尾单推人实在算不上什么好领袖，除了星尾和机械相关的问题他对 ...</blockquote>
+哎确实是，从对别人的问题解答就能看出来，心是好的但其实做不到领袖的程度<img src="https://static.saraba1st.com/image/smiley/face2017/260.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dozen  
+##### 1095#       发表于 2023-5-22 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60943677&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-22 13:06</a>
+我一开始以为他俩没成，没想到居然成了</blockquote>
+一开始都会觉得美美姬会是关键人物的吧，相较下白显得很路人
+
+
+*****
+
+####  蒜皮  
+##### 1096#       发表于 2023-5-22 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60945892&amp;ptid=2088657" target="_blank">dozen 发表于 2023-5-22 15:37</a>
+
+一开始都会觉得美美姬会是关键人物的吧，相较下白显得很路人</blockquote>
+确实，这种预言系的角色按理说应该是核中核人物了
+
+
+*****
+
+####  KissMoon  
+##### 1097#       发表于 2023-5-22 16:17
+
+高原学园的孩子多多少少都能预言。预言能力在这学园是大路货
+
+*****
+
+####  Kaltsit  
+##### 1098#       发表于 2023-5-22 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">表白时美美姬说不会想拿针刺我是指这个?
+
+
+*****
+
+####  右代宫嘉音  
+##### 1099#       发表于 2023-5-22 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60946335&amp;ptid=2088657" target="_blank"> 蒜皮 发表于 2023-5-22 16:02</a> 引用:dozen 发表于 2023-5-22 15:37 一开始都会觉得美美姬会是关键人物的吧，相较下白显得很路人 确实，这种预言系的角色按理说应该是核中核人物了 </blockquote>
+可学园里会预言的孩子不是好几个人吗？
+阿苏罗，瑚那，美美姬来自: iPhone客户端
+
+
+*****
+
+####  霖星  
+##### 1100#       发表于 2023-5-22 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60943280&amp;ptid=2088657" target="_blank">帆前 发表于 2023-5-22 12:34</a>
+
+纯动画党刚看完第8集，突然有个恐极的脑洞：之前看天国线画多手鱼，然后魔境线就真的出现了多手鱼。一直猜 ...</blockquote>
+说多了涉及剧透
+
+就这集给出的情报可以说的就是学院线的孩子们有部分会得怪病，死后变成怪物
+
+这种病目前来看是不会传染人的
+
+医生和美美姬因为某种原因离开学院后发现美美姬开始病发了
+
+就开始了漫长时间的治疗过程，并在这段时间内时不时的救治其他慕名而来的病人
+
+直到魔境线主角二人组的来到
+
+
+*****
+
+####  agion117  
+##### 1101#       发表于 2023-5-22 20:23
+
+漫画当时还没意识到医生把自己的眼睛送出去了，动画这里补了一个画面挺好的
+
+
+*****
+
+####  我是大鲨鱼  
+##### 1102#       发表于 2023-5-22 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60946656&amp;ptid=2088657" target="_blank">Kaltsit 发表于 2023-5-22 16:21</a>
+
+表白时美美姬说不会想拿针刺我是指这个?</blockquote>
+……也就是说，美美姬早就在梦里预见过这样的未来，但因为是预见梦所以并不能理解这些动作的涵义，所以才会在表白时说这几句话吧……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  afsd109  
+##### 1103#       发表于 2023-5-22 23:14
+
+说起来宇佐美本来只是机械工而不是医生，反而是卢敏大哥会外科知识，会不会白衣女老大本来就是小伤结果被庸医宇佐美顺手直接切脚了？
+
+
+*****
+
+####  断翼  
+##### 1104#       发表于 2023-5-23 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60951585&amp;ptid=2088657" target="_blank">afsd109 发表于 2023-5-22 23:14</a>
+
+说起来宇佐美本来只是机械工而不是医生，反而是卢敏大哥会外科知识，会不会白衣女老大本来就是小伤结果被庸 ...</blockquote>
+原作里这里就已经提到原因，现在可能安排到下一话
+
+总之水桥绝对不算坏人，也是真心同情星尾，但这一切都被那个光头利用了
+
+
+*****
+
+####  喵喵叫的猫  
+##### 1105#       发表于 2023-5-23 12:15
+
+才发现誰も彼も何処も何も知らない (#08 Special Arrange)前天已经上在线商店了，赶紧去买了
+
+明天发售的cd也有这首，不过虽然写着#08但除了cd有多一个ファーストテイクver在线商店还有个难听得要死的マル&amp;キルコver应该没有其他版本了
+
+本来还以为之后会一刀来一首Arrange<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+链接：[https://pan.baidu.com/s/18Xz8gtnep79yushI8VHkJA?pwd=u5t7](https://pan.baidu.com/s/18Xz8gtnep79yushI8VHkJA?pwd=u5t7) 
+
+提取码：u5t7
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 好much橘| + 1|感谢分享|
+
+查看全部评分
+
+
+*****
+
+####  宝月夜宵  
+##### 1106#       发表于 2023-5-23 13:07
+
+<blockquote>aptx8285144 发表于 2023-5-19 19:37
+看到第6话，十分搞笑的一话，石黑正数这起码是青年向的尺度吧，这胸部还有男同接吻，女旅店员是147 ...</blockquote>
+话说时雄是女的吧，怎么就男同了
+
+
+*****
+
+####  香蜂草  
+##### 1107#       发表于 2023-5-23 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60957570&amp;ptid=2088657" target="_blank">宝月夜宵 发表于 2023-5-23 13:07</a>
+话说时雄是女的吧，怎么就男同了</blockquote>
+很多人（很可能是大部分人）一开始都以为时雄是清秀的男孩子。
+
+
+*****
+
+####  ds2008  
+##### 1108#       发表于 2023-5-23 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60951585&amp;ptid=2088657" target="_blank">afsd109 发表于 2023-5-22 23:14</a>
+
+说起来宇佐美本来只是机械工而不是医生，反而是卢敏大哥会外科知识，会不会白衣女老大本来就是小伤结果被庸 ...</blockquote>
+这一集动画删了，漫画在两帮械斗的时候有提到，水桥当时的腿已经坏死，不截肢有生命风险。
+
+
+*****
+
+####  cocoaghost  
+##### 1109#       发表于 2023-5-23 20:36
+
+这集中期爆点的情感表达也太好了...好久没看到这么酸爽的情景了...
+
+
+*****
+
+####  downforce  
+##### 1110#       发表于 2023-5-23 20:45
+
+ 本帖最后由 downforce 于 2023-5-23 20:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60940584&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-22 10:10</a>
+
+对了地下车库那摊大的和几只小的什么来历？
+
+看医生表现不像是学园里的小伙伴，难道是野生的？不是说自限性 ...</blockquote>
+自限性疾病和传不传染又不是互斥的。新冠还是自限性疾病呢，也不妨碍新冠病毒可以人传人。
+
+
+*****
+
+####  纯夏  
+##### 1111#       发表于 2023-5-24 15:48
+
+动画党  看到这第8集的确很煽情<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 不过因为叙事手法的原因还是比我推第1集的冲击力小点…
+
+谜题慢慢解开的感觉真棒 期待后面的剧本
+
+
+*****
+
+####  macongju1  
+##### 1112#       发表于 2023-5-24 18:47
+
+从一开始旅馆那集不就有怪物是人变得了吗？妈妈儿子那个，为啥搞的像现在才揭晓一样？
+
+
+*****
+
+####  ylssb10438  
+##### 1113#       发表于 2023-5-24 18:57
+
+虽然但是，第一集说的是儿子被怪物吃了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 1114#       发表于 2023-5-25 09:51
+
+这集宇佐美的手下说稻崎露敏“擅长外科”、“不希望再有人死去”，难道身体里装的其实是那个改造女主的医生？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  睡不醒的虾米  
+##### 1115#       发表于 2023-5-25 09:57
+
+<blockquote>macongju1 发表于 2023-5-24 18:47
+从一开始旅馆那集不就有怪物是人变得了吗？妈妈儿子那个，为啥搞的像现在才揭晓一样？ ...</blockquote>
+那个旅馆是怪物把儿子吃了，然后老板娘娘一厢情愿地认为怪物有了儿子的意识。
+
+
+*****
+
+####  Azako  
+##### 1116#       发表于 2023-5-25 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60937815&amp;ptid=2088657" target="_blank">霖星 发表于 2023-05-22 00:11:40</a>
+对了，这里剧情有点BUG啊
+
+医生说是担心美美姬死后变成怪物所以不敢主动断开她的维生装置
+
+但是动画前几集里 ...</blockquote>你怎么确定火化以后就不会变了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，留下来的黑球也有可能是假死状态的蛭子啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  熊猫roey  
+##### 1117#       发表于 2023-5-25 17:58
+
+被火化的那个小孩留下来的东西现在是读者圈里涉及核心设定的假药素材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  macongju1  
+##### 1118#       发表于 2023-5-25 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60982433&amp;ptid=2088657" target="_blank">睡不醒的虾米 发表于 2023-5-25 09:57</a>
+
+那个旅馆是怪物把儿子吃了，然后老板娘娘一厢情愿地认为怪物有了儿子的意识。 ...</blockquote>
+喔喔，那是我记错了
+
+
+*****
+
+####  Kfly  
+##### 1119#       发表于 2023-5-25 23:55
+
+回顾瑚那给时雄的墙上那几幅画，其中一副被火包围的“怪物”应该就是在指火化多罗尾遗体这件事？而园长等人对这个“核”的后续处理完全没写……看上去是很有问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 1120#       发表于 2023-5-26 23:33
+
+这位医生和刚死的病人是cp关系吗，好痴情呀，感觉有点可惜了，话说那群说要建立秩序的人感觉好小丑一样的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Azako  
+##### 1121#       发表于 2023-5-27 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61005361&amp;ptid=2088657" target="_blank">aptx8285144 发表于 2023-05-26 23:33:55</a>
+这位医生和刚死的病人是cp关系吗，好痴情呀，感觉有点可惜了，话说那群说要建立秩序的人感觉好小丑一样的感 ...</blockquote>光头从一开始就是想抢发电机，组织抗议只不过是为了忽悠别人帮他抢罢了，管地下车库的那个间谍明显就是知道太多被灭口了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只是算计到头没想到车库里漏了一个蛭子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  仟音一心  
+##### 1122#       发表于 2023-5-27 07:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60943226&amp;ptid=2088657" target="_blank">罗克萨斯 发表于 2023-5-22 12:32</a>
+第8话bangumi评论数已经300+了，果然好评如潮，我看的时候也差点落泪了。
+
+看漫画时我就在想：白会不会变成 ...</blockquote>
+目前的表现来看白是不会变的，但是不知道是怎么做到的。
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1123#       发表于 2023-5-27 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61006512&amp;ptid=2088657" target="_blank">仟音一心 发表于 2023-5-27 07:28</a>
+
+目前的表现来看白是不会变的，但是不知道是怎么做到的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">白可以确定吗，我倒是更好奇三仓变没变
+
+
+*****
+
+####  仟音一心  
+##### 1124#       发表于 2023-5-27 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61007027&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-27 09:32</a>
+白可以确定吗，我倒是更好奇三仓变没变</blockquote>
+白的意思是得了病的就会变，不得就不会变。
+但是三仓更让我懵了。
+
+*****
+
+####  vidomina  
+##### 1125#       发表于 2023-5-27 09:52
+
+<blockquote>斯特拉斯堡的雪 发表于 2023-5-27 09:32
+白可以确定吗，我倒是更好奇三仓变没变</blockquote>
+应该没变，推测一下，三仓死在一个幸存者聚集区，死亡后应该立马就被人火化了，没机会变，就跟多罗尾一样。当然如果没烧而是埋了就不知道会怎样了。
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1126#       发表于 2023-5-27 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61007107&amp;ptid=2088657" target="_blank">仟音一心 发表于 2023-5-27 09:45</a>
+
+白的意思是得了病的就会变，不得就不会变。
+
+但是三仓更让我懵了。</blockquote>
+但其实白没见过多罗尾火化，目前剧情也不确定多罗尾变了没，所以白的结论是否可靠要打个问号？
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1127#       发表于 2023-5-27 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61007149&amp;ptid=2088657" target="_blank">vidomina 发表于 2023-5-27 09:52</a>
+
+应该没变，推测一下，三仓死在一个幸存者聚集区，死亡后应该立马就被人火化了，没机会变，就跟多罗尾一样 ...</blockquote>
+多罗尾我个人不太确定变没变，三仓这个我倾向于没变，但为什么她能不变就很神奇了
+
+推测和她给小丸（真流）的药有关
+
+
+*****
+
+####  vidomina  
+##### 1128#       发表于 2023-5-27 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61007254&amp;ptid=2088657" target="_blank">斯特拉斯堡的雪 发表于 2023-5-27 10:06</a>
+
+多罗尾我个人不太确定变没变，三仓这个我倾向于没变，但为什么她能不变就很神奇了
+
+推测和她给小丸（真流） ...</blockquote>
+我理解的是变的直接原因是发病死，而不是核。
+
+真流摸进入过怪物或者蛭子的体内，确认过核心没有发生过变化，所以变怪物本质应该是人的意识消亡后，发病的肉体突变或者核心控制发病的肉体突变来的。没有肉体的核心是不会变化的。
+
+
+*****
+
+####  Piano-Forest  
+##### 1129#       发表于 2023-5-27 11:45
+
+<img src="https://p.sda1.dev/11/d36afa963803033f61b1e4ba6f8b29fa/20230527_114240.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊猫roey  
+##### 1130#       发表于 2023-5-27 21:31
+
+这集删了很多线索，感觉不会有二期。
+唉，这种小众青年漫能有一个质量的动画已经很不容易了，该知足<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  熊猫roey  
+##### 1131#       发表于 2023-5-27 21:32
+
+另外这集能不能激起泥潭的<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悠悠你心  
+##### 1132#       发表于 2023-5-27 22:31
+
+这集感觉火箭速度堪比第2话了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  好much橘  
+##### 1133#       发表于 2023-5-27 23:32
+
+啊？
+上集刚感觉顿悟了许多的东西，现在感觉又一团迷雾了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好much橘  
+##### 1134#       发表于 2023-5-27 23:32
+
+风怒
+
+
+*****
+
+####  好much橘  
+##### 1135#       发表于 2023-5-28 00:51
+
+拼了一下，好像也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉没啥相关记忆。
+<img src="https://p.sda1.dev/11/01a37c917eb20f858a7c6d875d34f41b/3ffd0b0684450c4d.jpg" referrerpolicy="no-referrer">
+好碎片的孤立线索，感觉最有讨论思路的还是那三个大崩坏猜测，虽然目前指向外星人的线索比较多就是了。不过直觉上我个人比较倾向于三合一的方向。
+
+话说美实姬看见的阿苏罗影子除了像那个鸟型食人怪以外，也好像一张人脸，加了个嘴巴个人感觉还挺吓人的，翅膀处两个蓝光的位置也能凑成眼珠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/eb7676f325c39a74e672704893a8c9a8/Snipaste_2023-05-28_00-47-09.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KissMoon  
+##### 1136#       发表于 2023-5-28 06:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61013803&amp;ptid=2088657" target="_blank">熊猫roey 发表于 2023-5-27 21:31</a>
+
+这集删了很多线索，感觉不会有二期。
+
+唉，这种小众青年漫能有这样质量的动画已经很不容易了，该知足 ...</blockquote>
+但按长度，不可能有个结局啊
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1137#       发表于 2023-5-28 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">话说看到墙上的画，我想起来了鱼那集被船员错误指路的“三叶草”便利店
+
+结果回去找了一下图案
+
+不能说是一模一样，只能说是毫不相干！
+
+猜想失败
+
+
+*****
+
+####  Earendil_C  
+##### 1138#       发表于 2023-5-28 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">越看越想看漫画，迷题太多啦
+
+*****
+
+####  101stroad  
+##### 1139#       发表于 2023-5-28 10:18
+
+四驱得利卡真好啊（重点错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 1140#       发表于 2023-5-28 10:20
+
+啊？猝不及防
+
+<img src="https://img.saraba1st.com/forum/202305/28/102023hbujsjzg00ikbgpg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (258.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 10:20 上传
+
+
+*****
+
+####  Alicest  
+##### 1141#       发表于 2023-5-28 10:23
+
+啊？到底哪些是真的
+
+*****
+
+####  Kfly  
+##### 1142#       发表于 2023-5-28 10:25
+
+可能有一部分是真的，可能都是真的，可能都是假的谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Keiji  
+##### 1143#       发表于 2023-5-28 10:37
+
+是外星人吧，这个造型肯定是外星人吧👽
+
+
+*****
+
+####  Kfly  
+##### 1144#       发表于 2023-5-28 10:52
+
+话说当时看漫画时都没注意是六指，难怪第五集那一幕能看到大拇指：
+
+<img src="https://img.saraba1st.com/forum/202305/28/105144d4i7znllwe3nqlei.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 10:51 上传
+
+<img src="https://img.saraba1st.com/forum/202305/28/105158tlwvcyccowyyyy6c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 10:51 上传
+
+
+*****
+
+####  199april  
+##### 1145#       发表于 2023-5-28 10:58
+
+没看漫画 所以天国就是基因飞升的研究所
+
+食人就是失败的产物？
+
+*****
+
+####  Piano-Forest  
+##### 1146#       发表于 2023-5-28 11:00
+
+作画監督：ひらおかえみ
+
+作画監督：福嶋沙映
+<img src="https://p.sda1.dev/11/27425f40952ecf862a8b59b0374df514/20230528_105707.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b5d1dc97562b41558fea288e93af8a7a/20230528_105708.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/cacaofish/status/1662469055838814209](https://twitter.com/cacaofish/status/1662469055838814209)
+
+天国大魔境9話第二原画にて少しですが参加させて頂きました。
+
+ご視聴ありがとうございました。
+
+9話もお楽しみ頂けたでしょうか？
+
+引き続き天国大魔境を何卒宜しくお願い致します。
+
+こちら担当した第二原画抜選カットになります。
+<img src="https://p.sda1.dev/11/f00d0c72f9c98411eee73f7bb0e09fda/20230528_105724.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/54b4f3034d3ed584da3feff2194fe800/20230528_105726.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/950157007e486684116924e7fe0c90d9/20230528_105728.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/c65751f75898ec05d87ff5653654a883/20230528_105730.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 1147#       发表于 2023-5-28 11:06
+
+第10話「壁の町」
+
+高原学園の茨城施設へと向かう事にしたマルとキルコは、 ジューイチから「壁の町にいる 自分の赤ちゃんの生死を確かめてほしい」と依頼される。 茨城への道中だった事から依頼 を引き受けた二人は、女性が支配しているという壁の町へと辿り着くが、ジューイチから 聞いていた様子とはどこか変わっていて……
+
+脚本：窪山阿佐子 
+
+絵コンテ：五十嵐海 
+
+演出：五十嵐海 
+
+作画監督：竹内哲也
+<img src="https://p.sda1.dev/11/b900361d73067b5f18743f8ed4b75b87/f23cd56a6e2bb38273d185980c471d71133125f9_646a03ad09833.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/dfdb59c044b48c0cd359e72ba096a5f9/e72e4bf8cb3f9175e8722abdb16fca629e9b4562_646a03ab7330d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/63fa38475e45e79bbfafdc4c2e60fb17/76c4ccf8cb78de7a19e3dab5f5a87b9eb471ed62_646a03ac1813a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/fded473fdf3f57f4a412402d2ad549c5/cf7c9ab7c69405ae5a4aa41a00008988fbb91758_646a03acb03c1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/1cbbda4050c734447665258025c94185/877392b87484d97361bd94ebf1292e6da7a6ace0_646a03abc16f4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 1148#       发表于 2023-5-28 11:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知大伙怎么评价那位说书人看板上的内容，其实有几个大家已经经历过了。
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Earendil_C  
+##### 1149#       发表于 2023-5-28 11:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下集的staff阵容有点豪华啊
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1150#       发表于 2023-5-28 11:45
+
+再看动画就发现鸟形状标志这里提示很明显（天呐我看漫画有多粗糙，不是斩子说我都没发现）
+
+以及泳装美美姬 可爱可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1151#       发表于 2023-5-28 11:48
+
+ 本帖最后由 斯特拉斯堡的雪 于 2023-5-28 11:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61019638&amp;ptid=2088657" target="_blank">悠悠你心 发表于 2023-5-28 11:07</a>
+
+不知大伙怎么评价那位说书人看板上的内容，其实有几个大家已经经历过了。
+
+—— 来自 HONOR PGT-AN2 ...</blockquote>
+人肉锅是指小旅馆吗难道<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">后知后觉，老板娘端的那不会真是人肉吧？？
+
+不过感觉可能是说旅馆实际上会吃人…但锅还是野生动物吧…（现在不确定那是不是锅了）
+
+*****
+
+####  熊猫roey  
+##### 1152#       发表于 2023-5-28 11:51
+
+居然能拉来五十岚海，大期待了，这就是双厨狂喜吗，喜欢的动画人来制作喜欢的作品，我在电锯动画受到的伤害都被大魔境治愈了，感谢p.i.g，感谢森大贵<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1153#       发表于 2023-5-28 12:00
+
+说起来我看动画再到漫画前20话，一直没认识到时雄是女的
+
+还是和朋友聊天她注意到和小奈房间那集说的
+
+结果今天和另一个朋友交流，他也是看到怀孕这里才意识到是女的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我愿称之为诡计（让我一开始做了一个错误的猜想）
+
+*****
+
+####  蒜皮  
+##### 1154#       发表于 2023-5-28 12:01
+
+下集终于要换地图了么
+
+*****
+
+####  帆前  
+##### 1155#       发表于 2023-5-28 12:01
+
+啊？居然是女的吗，之前一直以为是南通（
+
+<img src="https://img.saraba1st.com/forum/202305/28/120140e70c5qtv7wmmo0hc.png" referrerpolicy="no-referrer">
+
+<strong>247675116852462792.png</strong> (159.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 12:01 上传
+
+*****
+
+####  蒜皮  
+##### 1156#       发表于 2023-5-28 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020289&amp;ptid=2088657" target="_blank">帆前 发表于 2023-5-28 12:01</a>
+
+啊？居然是女的吗，之前一直以为是南通（</blockquote>
+之前有一话不是露出欧派了么，那大小明显是女的啊
+
+
+*****
+
+####  蒜皮  
+##### 1157#       发表于 2023-5-28 12:03
+
+话说这个学园的AI问题很大啊，动不动就黑摄像头隐瞒事实
+
+*****
+
+####  蒜皮  
+##### 1158#       发表于 2023-5-28 12:04
+
+不过看起来一开始手法还很粗糙，只会黑屏，后面都会作假视频了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cauchua2  
+##### 1159#       发表于 2023-5-28 12:08
+
+高原学院的办公司，哪些纸箱放在露天的地方真能保存15年？
+
+*****
+
+####  ds2008  
+##### 1160#       发表于 2023-5-28 12:11
+
+这集讲了差不多4话的内容，加上上集跳过的半话。看着动画这季是赶在37话之后完结了。动画还剩4集，漫画还有10话内容的样子。
+
+*****
+
+####  KissMoon  
+##### 1161#       发表于 2023-5-28 12:12
+
+话说，说书人的外貌怎当上种猪的？
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 1162#       发表于 2023-5-28 12:26
+
+种猪被榨了10年成这样了，年轻10岁应该还可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  山代风我  
+##### 1163#       发表于 2023-5-28 12:28
+
+五十岚海分镜回，还是竹内坐镇作监，下集大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 1164#       发表于 2023-5-28 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020315&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-28 12:04</a>
+
+不过看起来一开始手法还很粗糙，只会黑屏，后面都会作假视频了</blockquote>
+也不一定，阿斯拉鬼魂说的可能性？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 1165#       发表于 2023-5-28 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020370&amp;ptid=2088657" target="_blank">cauchua2 发表于 2023-5-28 12:08</a>
+
+高原学院的办公司，哪些纸箱放在露天的地方真能保存15年？</blockquote>
+也不是露天吧，在屋里，只要不淋雨，问题不大
+
+我家里不少纸箱子放在太阳底下晒了五六年了屁事没有
+
+*****
+
+####  熊猫roey  
+##### 1166#       发表于 2023-5-28 12:45
+
+ 本帖最后由 熊猫roey 于 2023-5-28 12:48 编辑 
+
+两位摸鱼社畜，一位玩纸牌一位看漫画
+
+<img src="https://img.saraba1st.com/forum/202305/28/124350hvaakzyyvxjxmvx3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (329.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 12:43 上传
+
+<img src="https://img.saraba1st.com/forum/202305/28/124403woi2b7f2if2rhaka.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (398.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 12:44 上传
+
+好奇漫画是啥，倒过来看了下，应该是外天楼
+
+<img src="https://img.saraba1st.com/forum/202305/28/124435k13zgw2i8vphc1rj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (182.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 12:44 上传
+
+<img src="https://img.saraba1st.com/forum/202305/28/124446f81yfefcwfdhye8c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9337f39fadd5a571c9ee1a45460da23c.jpeg</strong> (484.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 12:44 上传
+
+<img src="https://img.saraba1st.com/forum/202305/28/124504cjddqaj00snz4xol.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>204d9266cd1ea36646f978b6f22012f8.jpeg</strong> (555.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 12:45 上传
+
+*****
+
+####  蒜皮  
+##### 1167#       发表于 2023-5-28 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020604&amp;ptid=2088657" target="_blank">Kfly 发表于 2023-5-28 12:29</a>
+
+也不一定，阿斯拉鬼魂说的可能性？</blockquote>
+这位真不是外星人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  鬼谷ask  
+##### 1168#       发表于 2023-5-28 12:45
+
+下集staff蛮豪华的，期待值up
+
+*****
+
+####  好much橘  
+##### 1169#       发表于 2023-5-28 12:48
+
+五十嵐海+竹內哲也
+下周继续守着<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悠悠你心  
+##### 1170#       发表于 2023-5-28 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020760&amp;ptid=2088657" target="_blank">熊猫roey 发表于 2023-5-28 12:45</a>
+两位摸鱼社畜，一位玩纸牌一位看漫画</blockquote>
+ed较其他集多写了一笔
+
+协力 石黑正数《外天楼》（讲谈社kc刊）
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  熊猫roey  
+##### 1171#       发表于 2023-5-28 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020817&amp;ptid=2088657" target="_blank">悠悠你心 发表于 2023-5-28 12:50</a>
+
+ed较其他集多写了一笔
+
+协力 石黑正数《外天楼》（讲谈社kc刊）</blockquote>
+原来如此，之前姐姐卖cd那里有没有提《睡觉的笨蛋》？
+
+
+*****
+
+####  seki_m  
+##### 1172#       发表于 2023-5-28 13:02
+
+学院有一幕是婴儿全都是怪物形态，是不是暗示了只有学院出来的人才会变成食人魔？
+
+
+*****
+
+####  feliznavidad  
+##### 1173#       发表于 2023-5-28 13:04
+
+这一集做了四话的量啊，好多内容都删了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+说书人的声优我看漫画的时候一直脑补三木真一郎的声线，竟然不是，好可惜啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  悠悠你心  
+##### 1174#       发表于 2023-5-28 13:44
+
+ 本帖最后由 悠悠你心 于 2023-5-28 13:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020823&amp;ptid=2088657" target="_blank">熊猫roey 发表于 2023-5-28 12:51</a>
+原来如此，之前姐姐卖cd那里有没有提《睡觉的笨蛋》？</blockquote>
+没说作品名字，提的是 协力 德间书店 ryu comics 编辑部
+
+睡觉的笨蛋就是这家的吧？
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  luoyianwu  
+##### 1175#       发表于 2023-5-28 13:54
+
+外天楼对应的是第5话第10、11页
+
+谁找得到哦
+
+
+*****
+
+####  熊猫roey  
+##### 1176#       发表于 2023-5-28 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61021269&amp;ptid=2088657" target="_blank">悠悠你心 发表于 2023-5-28 13:44</a>
+没说作品名字，提的是 协力 德间书店 ryu comics 编辑部
+
+睡觉的笨蛋就是这家的吧？</blockquote>
+确实是这家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1177#       发表于 2023-5-28 14:39
+
+那个吹逼换钱的哥们还挺有意思的，另外他拍到的那个照片，不会真是阿斯罗的吧？感觉很像啊
+
+只有美实姬看得到阿斯罗的影子，难道是什么特殊能力？就和之前那个久久可以爬墙一样？
+
+还有这个阿斯罗长得也太怪了，不会真是外星人吧，那个说书人的外星人说难道是真的？
+
+天国和魔境两条线终于出现共通的高原学院了，不知道后续是什么展开
+
+
+*****
+
+####  蒜皮  
+##### 1178#       发表于 2023-5-28 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61021810&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-28 14:39</a>
+那个吹逼换钱的哥们还挺有意思的，另外他拍到的那个照片，不会真是阿斯罗的吧？感觉很像啊
+
+只有美实姬看得 ...</blockquote>
+我觉得他那三个假说搞不好都是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小行星带来外星人，最后生物武器分赃不均打起来，也不是不能理解
+
+*****
+
+####  Alicest  
+##### 1179#       发表于 2023-5-28 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020315&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-28 12:04</a>
+不过看起来一开始手法还很粗糙，只会黑屏，后面都会作假视频了</blockquote>
+与其说是假视频，最简单的方法就是截取之前没人的片段循环播放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰寒之月  
+##### 1180#       发表于 2023-5-28 15:28
+
+没看过漫画 盲猜一个tokio就是maru的妈妈 感觉这俩长得一模一样
+
+
+*****
+
+####  蒜皮  
+##### 1181#       发表于 2023-5-28 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61022286&amp;ptid=2088657" target="_blank">冰寒之月 发表于 2023-5-28 15:28</a>
+
+没看过漫画 盲猜一个tokio就是maru的妈妈 感觉这俩长得一模一样</blockquote>
+年龄好像也对得上
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1182#       发表于 2023-5-28 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61022051&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-28 15:04</a>
+
+我觉得他那三个假说搞不好都是真的
+
+小行星带来外星人，最后生物武器分赃不均打起来，也不是不能理 ...</blockquote>
+别说还真挺可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KissMoon  
+##### 1183#       发表于 2023-5-28 18:27
+
+<blockquote>199april 发表于 2023-5-28 10:58
+没看漫画 所以天国就是基因飞升的研究所
+
+食人就是失败的产物？</blockquote>
+差不多吧，这作品大量借用日本神话，估计是人类妄图染指神的基因
+
+*****
+
+####  KissMoon  
+##### 1184#       发表于 2023-5-28 18:28
+
+高原学园就是高天原
+
+
+*****
+
+####  好much橘  
+##### 1185#       发表于 2023-5-28 21:42
+
+<img src="https://img.saraba1st.com/forum/202305/28/213532kwp17kz6t2212ukt.jpg" referrerpolicy="no-referrer">
+
+<strong>C51164AB-33CE-4AD6-87FF-201BEAA6B1EE.jpg</strong> (841.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-28 21:35 上传
+
+提到了地图啥的，返回去看了眼。以比较典型的水地形作为基准，找了下宇佐美指的城镇，边上刚好有个“医疗设施运营中”，没准宇佐美就是在这些地方学的医术呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+另一个“医疗设施运营中”说不定就是大本营呢，地形看起来也挺显眼的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Junakr  
+##### 1186#       发表于 2023-5-28 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61029260&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-28 21:42</a>
+
+提到了地图啥的，返回去看了眼。以比较典型的水地形作为基准，找了下宇佐美指的城镇，边上刚好有个“医疗 ...</blockquote>
+左边圈起来的地方不是江户城吗……已经不能算显眼的地步了。
+
+右边宇佐美指的位置在浅草一带，和竹早待过的孤儿院位置很接近，那边的医疗设施应该指的就是给斩子做手术的浅草寺医院……
+
+草，连了起来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  梅斯之围  
+##### 1187#       发表于 2023-5-28 22:33
+
+ 本帖最后由 梅斯之围 于 2023-5-28 22:34 编辑 
+
+忍不住吐槽一下，各个汉化组翻译的学校的人名都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+开头那段缓了会才反应过来是回忆
+
+
+*****
+
+####  好much橘  
+##### 1188#       发表于 2023-5-28 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61029678&amp;ptid=2088657" target="_blank">Junakr 发表于 2023-5-28 22:03</a>
+左边圈起来的地方不是江户城吗……已经不能算显眼的地步了。
+
+右边宇佐美指的位置在浅草一带，和竹早待过 ...</blockquote>
+日本地理基本不太熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+回去求证了一下，EP3五年前竹早兄妹确实是浅草地区，那之后的集数说不定还要故地重游？
+而且之前就有点在意了，目前集数为数不多真正的枪声，一个就是五年前春希晕过去的枪声，另一个就是宇佐美自尽时候的枪声了，但总感觉关联起来有些强行了。按这样说，两边要是真有联系的话，这把枪说不定还真能搭上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 1189#       发表于 2023-5-28 23:07
+
+看到地震后跑进楼里搜物资，不怕余震的嘛
+
+还有这大叔故事会也太跳跃了，怎么画面一转就从学校跳到“城镇”了
+
+虽然女儿国的故事是在胡诌但是感觉几个人合伙逃出学校设施是确有其事，尤其是这集确认了时雄怀了孕
+
+*****
+
+####  KissMoon  
+##### 1190#       发表于 2023-5-28 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61030623&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-28 22:58</a>
+
+日本地理基本不太熟悉
+
+回去求证了一下，EP3五年前竹早兄妹确实是浅草地区，那之后的集数说不定还 ...</blockquote>
+罗宾送的枪？
+
+
+*****
+
+####  Junakr  
+##### 1191#       发表于 2023-5-29 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61030623&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-28 22:58</a>
+
+日本地理基本不太熟悉
+
+回去求证了一下，EP3五年前竹早兄妹确实是浅草地区，那之后的集数说不定还 ...</blockquote>
+漫画党可能会比较清楚这其中的联系，五年前的浅草事件至今还藏着许多谜题没有解开，漫画也没有进展到这里。
+
+漫画中这段宇佐美指的地图没有动画清晰，不知道当时有没有人考据出具体位置，这下动画直接确认了宇佐美曾经在浅草待过，一些后面的线索产生了确实的关联，等于某些猜测有了新的论据，也就是新的假药<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">！
+
+不过在这里说出来就剧透了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  我是大鲨鱼  
+##### 1192#       发表于 2023-5-29 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61020760&amp;ptid=2088657" target="_blank">熊猫roey 发表于 2023-5-28 12:45</a>
+
+两位摸鱼社畜，一位玩纸牌一位看漫画</blockquote>
+左上还有个挂着网页版S1的，开的版面还特么是小黑屋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1193#       发表于 2023-5-29 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61030182&amp;ptid=2088657" target="_blank">梅斯之围 发表于 2023-5-28 22:33</a>
+
+忍不住吐槽一下，各个汉化组翻译的学校的人名都不一样
+
+开头那段缓了会才反应过来是回忆
+
+ ...</blockquote>
+现在和朋友聊动画，因为我们看的是不同翻译组，一律打罗马音沟通…<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 1194#       发表于 2023-5-29 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61031594&amp;ptid=2088657" target="_blank">Junakr 发表于 2023-5-29 00:26</a>
+
+漫画党可能会比较清楚这其中的联系，五年前的浅草事件至今还藏着许多谜题没有解开，漫画也没有进展到这里 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">我看了漫画但对浅草这块没产生好奇，真的大意了…这就去重新复习一下＋看看分析
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 1195#         楼主| 发表于 2023-5-29 11:53
+
+浅草一直都是石黑宇宙的要地，阿抖一伙就在浅草<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  起名困难症  
+##### 1196#       发表于 2023-5-29 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61032042&amp;ptid=2088657" target="_blank">我是大鲨鱼 发表于 2023-5-29 01:39</a>
+左上还有个挂着网页版S1的， ...</blockquote>
+哪里有s1，我去瞅瞅
+
+
+*****
+
+####  Garterbelt  
+##### 1197#       发表于 2023-5-29 13:33
+
+我当时二刷漫画的时候才注意到石黑给阿斯拉长袍胸口画了微妙的弧度，动画配上声优声线一起看来阿斯拉是女性无疑了
+
+
+*****
+
+####  我是大鲨鱼  
+##### 1198#       发表于 2023-5-29 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61036318&amp;ptid=2088657" target="_blank">起名困难症 发表于 2023-5-29 12:17</a>
+
+哪里有s1，我去瞅瞅</blockquote>
+我说的这个截图，好像S1的小黑屋版面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/28/124350hvaakzyyvxjxmvx3.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thebella  
+##### 1199#       发表于 2023-5-29 19:09
+
+外星人动起来真掉san啊 说书人动起来就很有人肉rpg npc那味儿了哈哈
+
+*****
+
+####  千恋万花  
+##### 770#       发表于 2023-4-29 17:02
+
+ 本帖最后由 千恋万花 于 2023-4-29 17:03 编辑 
+
+|||◤ 応援イラスト到着 ◥|||
+
+「#天国大魔境」放送に向けて、
+
+応援イラストを寄稿いただきました✨
+
+第4回はイラストレーター
+
+ #ケースワベ (@KSUWABE) さん
+
+📺本日22時よりTOKYOMX・BS11ほかにて順次放送
+
+🔗[https://tdm-anime.com/onair/](https://tdm-anime.com/onair/)
+<img src="https://p.sda1.dev/11/1e9184a584b63a3ddfdad03b27dcbf1d/tdm_anime-1652236286873436160-img1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ichthy  
+##### 771#       发表于 2023-4-30 01:24
+
+做了好多多餘的改編，剛適應男主的公鴨嗓這集又難受的不行。
+
+
+*****
+
+####  泡影的地生鱼  
+##### 772#       发表于 2023-4-30 01:35
+
+监督贺图&amp;石黑秀的斩子光线+原稿
+
+|||◤　　#天国大魔境  　  |
+|　　第5話「お迎えの日」 ◢|||
+
+ご視聴いただいた皆様、
+
+ありがとうございました！
+
+ご感想はぜひ  #天国大魔境 まで✨
+
+────────────
+
+　   　[イラスト]
+
+作画監督 具志堅眞由さん
+
+────────────
+
+📺好評放送&amp;配信中🎦
+
+tdm-anime.com/onair/
+
+https://twitter.com/tdm_anime/status/1652303721626492929?s=19
+
+アニメ第5話、今晩です。
+
+マルとキルコは港を仕切っているヤ〇ザから聞いた町へ。
+
+謎の施設の中は「ここから逃げて」
+
+…の続きです。
+
+よろしくお願いします。
+
+＃天国大魔境
+
+https://twitter.com/masakazuishi/status/1652153063602556928?s=19
+
+<img src="https://img.saraba1st.com/forum/202304/30/013521fgbki998mw928k3b.jpg" referrerpolicy="no-referrer">
+
+<strong>20230430_013135.jpg</strong> (184.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-30 01:35 上传
+
+<img src="https://img.saraba1st.com/forum/202304/30/013522m8e2bucbcsbue1u0.jpg" referrerpolicy="no-referrer">
+
+<strong>20230430_013224.jpg</strong> (225.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-4-30 01:35 上传
+
+
+*****
+
+####  我是大鲨鱼  
+##### 773#       发表于 2023-4-30 07:26
+
+在AGE上看到这一话只有22:07的长度，是使用了删减过的片源嘛？
+
+
+*****
+
+####  梅斯之围  
+##### 774#       发表于 2023-4-30 10:08
+
+我很在意男主的牙后来有没有补上，这涉及剧透么
+
+
+*****
+
+####  Piano-Forest  
+##### 775#       发表于 2023-4-30 11:08
+
+TVアニメ『天国大魔境』ノンクレジット ED映像（特別版）｜マル（CV. 佐藤元）＆キルコ（CV. 千本木彩花）「誰も彼も何処も何も知らない」
+[https://youtu.be/daWy4oxqSg8](https://youtu.be/daWy4oxqSg8)
+
+作画監督 具志堅眞由
+<img src="https://p.sda1.dev/11/e7e92030c71e635d7fee2e289f5ac03a/20230430_110628.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 776#       发表于 2023-4-30 11:10
+
+第6話「100%安全水」
+
+『医者』がいるという不滅教団を目指すマルとキルコ。
+
+道中、トトリという少女が経営するホテルへと泊まる事になる。荷物を預け100％安全な水を汲みに向かうが、そこにはテントの町で襲ってきた自警団がひどい傷を受け倒れていて……。
+
+一方、体調不良のため保健室で休むトキオの前に、亡くなったはずのアスラが姿を現す。
+
+脚本：窪山阿佐子
+
+絵コンテ：古川良太・増田惇人・奥野治男
+
+演出：増田惇人・斎藤秀二・浜田将太
+
+作画監督：古川良太・福嶋沙映・奥野治男・高乗陽子・小林冴子・小松真梨子・河村明夫・村松尚雄・長谷川早紀
+<img src="https://p.sda1.dev/11/a94380114e51460f093911c4c44ea5e5/2f58cde821c9500d7f867bc27be16f904b5904fb_6443fd734ad84.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/38ccbe6b5dc7fed6ee3753becc50c3e3/d773e15e9520fae7ff4bd1d669a3931595f5429d_6443fd72902d7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/338d2fe8320e787d4f939dc8eeb71dd4/7eef7fcd6c2e96b9cee43da8260458be0794d656_6443fd72cd146.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/be5a9e6026c49eab89dfe30ec9edf3e4/d2d25a9e64def7865d0ea3b325189ecc8866ce7f_6443fd73850b3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/c40ae2f68971ff26fa8edf5ffce77105/cc869c187f77109e6152910a2bc41f81ebeb7204_6443fd731192d.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 777#       发表于 2023-4-30 11:20
+
+旅馆大亨出场! 声优会是破音机吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  睡不醒的虾米  
+##### 778#       发表于 2023-4-30 12:16
+
+这动画的推进好稳啊，不急不缓又很吸引人。
+
+
+*****
+
+####  Keiji  
+##### 779#       发表于 2023-4-30 12:55
+
+一集一集地，等起来好难受啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Antidote丶  
+##### 780#       发表于 2023-4-30 14:43
+
+这集怎么叫迎接之日呢，漫画这一标题在41话，还早得很呢
+
+
+*****
+
+####  千恋万花  
+##### 781#       发表于 2023-4-30 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60669914&amp;ptid=2088657" target="_blank">Antidote丶 发表于 2023-4-30 14:43</a>
+
+这集怎么叫迎接之日呢，漫画这一标题在41话，还早得很呢</blockquote>
+猜测这里其实也是个双关，但是翻译目前想不到如何兼顾
+お迎え：
+迎えることを丁寧にいう語。また、迎える人を敬って、その人を迎えることをいう語（字面意思的迎接）
+臨終に、阿弥陀仏が浄土に導くため迎えに来ること。「冥土 (めいど) から―が来る」（来迎接将死之人→多良男）
+
+*****
+
+####  clamp07830  
+##### 782#       发表于 2023-4-30 14:56
+
+旅馆大亨是破音姬的话完美
+
+*****
+
+####  btts  
+##### 783#       发表于 2023-4-30 15:00
+
+跳舞时的足部特写也太色了，ig好会<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悠悠你心  
+##### 784#       发表于 2023-4-30 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才反应过来第五话都已经做进pv了，感觉工期还是很稳的。
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  zakki  
+##### 785#       发表于 2023-4-30 15:48
+
+步鸟和翔鸟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wsktcy  
+##### 786#       发表于 2023-4-30 15:54
+
+这一话小情侣日常看得十分舒适<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白面馒头233  
+##### 787#       发表于 2023-4-30 18:51
+
+动画节奏太稳了，两位的交互真的很贴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">。以及有一些地方真的是故意误导动画党的。
+
+
+*****
+
+####  意大利面  
+##### 788#       发表于 2023-4-30 19:31
+
+第五话还是相对平淡了点
+
+
+*****
+
+####  thebella  
+##### 789#       发表于 2023-4-30 20:59
+
+最喜欢看少男少女（？）打情骂俏
+
+
+*****
+
+####  牛尾宪辅  
+##### 790#       发表于 2023-4-30 21:11
+
+第六集的分镜演出作监这么多，请问是因为工期紧张还是别的什么原因啊？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  意大利面  
+##### 791#       发表于 2023-4-30 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60669914&amp;ptid=2088657" target="_blank">Antidote丶 发表于 2023-4-30 14:43</a>
+
+这集怎么叫迎接之日呢，漫画这一标题在41话，还早得很呢</blockquote>
+因为动画中院长第一次说出这个日子吧，拿来当标题就能呈现非常久远的伏笔效果
+
+
+*****
+
+####  蒜皮  
+##### 792#       发表于 2023-4-30 22:06
+
+这集院长最后被推着轮椅的表情意外地很逗，感觉冲淡了一些沉重的气氛
+
+
+*****
+
+####  好much橘  
+##### 793#       发表于 2023-4-30 23:37
+
+斩子换东西时好多保存状况良好的物品啊，该不会都是一路收破烂留下来的吧。
+眼光真好，行家啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+也提起两次了，说是伏笔可能也行，但想不出有啥作用。难道阿圆的能力除了打食人怪以外还能抛光修复？
+
+
+*****
+
+####  千千千千鸟  
+##### 794#       发表于 2023-4-30 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">设施里的历年是17，而阿圆是崩坏那年出生今年15岁，也就是设施里的时间线其实是2年后？
+
+而且第一集那个有疑似预知能力的女生对时男说会有2个人来找他貌似也证实了孩子们在设施里的玩耍的时间线应该在二人组遇到怪物之前啊。
+
+但是之前又好像在暗示设施里这些孩子们实际上是2人组遇到过的怪物，也就是说二人组寻找天国的时候这些小孩已经变成怪物了，那2年后怎么会有那个貌似是人手鱼的小孩在设施里呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zenithzenith  
+##### 795#       发表于 2023-5-1 01:41
+
+个人觉得在不灭教团章节后去补漫画最为合适！可以再等一等
+
+
+*****
+
+####  斯文老狗  
+##### 796#       发表于 2023-5-1 02:29
+
+时间叙诡+1
+
+—— 来自 realme RMX3161, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 797#       发表于 2023-5-1 06:41
+
+这集学校线的研究人员逼格大降啊，合着你们也不完全清楚这些孩子的底细<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我是大鲨鱼  
+##### 798#       发表于 2023-5-1 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60678209&amp;ptid=2088657" target="_blank">千千千千鸟 发表于 2023-4-30 23:43</a>
+学校里的历年是17，而阿圆&amp;#x ...</blockquote>
+很想跟你讨论但是这样就剧透了，破坏了你的体验。所以如果大家不回复你，并不是因为你的思考没有亮点和乐趣。请继续，如果有兴趣的话也欢迎随时加入漫画党，反正无非是从一个小坑跳进一个大坑，隔壁漫画楼里也是一群人在猜后续剧情<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  米奥莉奈  
+##### 799#       发表于 2023-5-2 10:44
+
+斩子这不是完全雌堕了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希克苏鲁伯  
+##### 800#       发表于 2023-5-2 13:59
+
+谁规定怪物一定是人变的，也许是怪物死后再改造的生化速成栽培人呢，这样时间线能做的文章更多了
+
+
+*****
+
+####  娜娜米  
+##### 801#       发表于 2023-5-2 23:23
+
+天国的配乐也是牛尾是吗？看电锯人的时候就很想吐槽了，经常在战斗的时候滥用电子合成音，真的很水很没有记忆点，天国简直是把电锯人的配乐搬过来用了一样，以后看到他就避雷了
+
+
+*****
+
+####  Boliva  
+##### 802#       发表于 2023-5-3 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60678209&amp;ptid=2088657" target="_blank">千千千千鸟 发表于 2023-4-30 23:43</a>
+
+学校里的历年是17，而阿圆&amp;#x ...</blockquote>
+看完动画再看漫画吧，我就是忍不住看了漫画……少了点新鲜感<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泡影的地生鱼  
+##### 803#       发表于 2023-5-3 05:52
+
+牛尾这次的音乐没摸啊。。。pv里面出现过的那首打斗音乐对节奏的调动可不是盖的
+
+目前做的最好的一首就第三集春希桐子蒙太奇回忆那段，非常的安静，工整，回环，逐渐渗透着调动情绪。我相信虽然这是一个动画原创的桥段，日后有人再说起天國大魔境第三集，脑海中出现的也是桐子背着春希在雪里面慢慢的前进，用这首背景音乐。
+
+
+*****
+
+####  我是大鲨鱼  
+##### 804#       发表于 2023-5-3 06:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60670003&amp;ptid=2088657" target="_blank">千恋万花 发表于 2023-4-30 14:55</a>
+
+猜测这里其实也是个双关，但是翻译目前想不到如何兼顾
+
+お迎え：
+
+迎えることを丁寧にいう語。 ...</blockquote>
+接引之日？
+
+
+*****
+
+####  liangjin2  
+##### 805#       发表于 2023-5-3 15:31
+
+请问这个动画国内有网站买吗？
+
+
+*****
+
+####  kxh007458  
+##### 806#       发表于 2023-5-3 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60707281&amp;ptid=2088657" target="_blank">liangjin2 发表于 2023-5-3 15:31</a>
+
+请问这个动画国内有网站买吗？</blockquote>
+没有，内容过于少儿不宜，谁敢买啊
+
+
+*****
+
+####  蒜皮  
+##### 807#       发表于 2023-5-3 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60707508&amp;ptid=2088657" target="_blank">kxh007458 发表于 2023-5-3 15:59</a>
+
+没有，内容过于少儿不宜，谁敢买啊</blockquote>
+然而制作委员会里面却有网易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜皮  
+##### 808#       发表于 2023-5-3 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60680429&amp;ptid=2088657" target="_blank">拖鞋脚后跟 发表于 2023-5-1 06:41</a>
+
+这集学校线的研究人员逼格大降啊，合着你们也不完全清楚这些孩子的底细 ...</blockquote>
+上集就下降了好吧，被人摸到实验室里去了都没发现
+
+现在B格转移到AI身上了
+
+*****
+
+####  蒜皮  
+##### 809#       发表于 2023-5-3 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60678209&amp;ptid=2088657" target="_blank">千千千千鸟 发表于 2023-4-30 23:43</a>
+
+学校里的历年是17，而阿圆&amp;#x ...</blockquote>
+考虑到学校这个年号是自己编的，不太可能是崩坏前，因为崩坏前根本没有编年号的必要
+
+
+*****
+
+####  silvia  
+##### 810#       发表于 2023-5-3 18:41
+
+maru该不会就是那个tokio看到的实验品吧？
+
+
+*****
+
+####  kxh007458  
+##### 811#       发表于 2023-5-3 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60708150&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-3 17:12</a>
+
+然而制作委员会里面却有网易</blockquote>
+阿B买都买了才发现被背刺不敢拿出来播的事都有，网易这个往好了说还是可以说是单纯是投资或者借此接触业界都好说嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 812#       发表于 2023-5-5 22:37
+
+这片的这话带点黄色味道的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Garterbelt  
+##### 813#       发表于 2023-5-6 11:06
+
+旅店大亨的声优披露了吗？
+
+*****
+
+####  冰原狼  
+##### 814#       发表于 2023-5-6 13:04
+
+怕被剧透不敢爬楼，礼问本片一共多少话？有分割放送吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  大主教伊瑞尔  
+##### 815#       发表于 2023-5-6 14:09
+
+石黑表示和动画方面就酒店大亨的衣着问题进行了多番磋商<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 816#       发表于 2023-5-6 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60742895&amp;ptid=2088657" target="_blank">冰原狼 发表于 2023-5-6 13:04</a>
+
+怕被剧透不敢爬楼，礼问本片一共多少话？有分割放送吗？
+
+—— 来自 S1Fun</blockquote>
+目前已知这季度共 13 集，有没有续集未知
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 冰原狼| + 1|多谢|
+
+查看全部评分
+
+*****
+
+####  悠悠你心  
+##### 817#       发表于 2023-5-6 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于某角色的衣着，动画竟然不照搬。。。
+
+越来越期待那一段是怎么做的了，很希望动画制作组给一个他们的理解。
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  Piano-Forest  
+##### 818#       发表于 2023-5-6 15:43
+
+<img src="https://p.sda1.dev/11/993b22931c8c4942c944c04654c41990/20230506_154233.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜皮  
+##### 819#       发表于 2023-5-6 21:17
+
+这滑墙减速方式就TM离谱，人均超人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 820#       发表于 2023-5-6 21:24
+
+为啥男主能进到那个女的的体内？
+
+*****
+
+####  clamp07830  
+##### 821#       发表于 2023-5-6 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60750848&amp;ptid=2088657" target="_blank">新HGCG 发表于 2023-5-6 21:24</a>
+
+为啥男主能进到那个女的的体内？</blockquote>
+伏笔
+
+*****
+
+####  新HGCG  
+##### 822#       发表于 2023-5-6 21:27
+
+可恶
+
+又脱又艹
+
+怎么就没男主摸女主的奶可以看
+
+*****
+
+####  澜沫  
+##### 823#       发表于 2023-5-6 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">挺喜欢的，难得欢乐回
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 824#       发表于 2023-5-6 22:23
+
+酒店大亨是不是破音机？
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  花達香奈  
+##### 825#       发表于 2023-5-6 22:47
+
+kona和tokio就是男主父母了吧，他们从哪里学造人的？
+
+
+*****
+
+####  蒜皮  
+##### 826#       发表于 2023-5-6 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60750848&amp;ptid=2088657" target="_blank">新HGCG 发表于 2023-5-6 21:24</a>
+
+为啥男主能进到那个女的的体内？</blockquote>
+他那个能力应该不止能对怪物使用
+
+*****
+
+####  thebella  
+##### 827#       发表于 2023-5-6 22:58
+
+请问哪家字幕比较好，且和漫画人名一致？
+
+
+*****
+
+####  悠悠你心  
+##### 828#       发表于 2023-5-6 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60751598&amp;ptid=2088657" target="_blank">大主教伊瑞尔 发表于 2023-5-6 22:23</a>
+酒店大亨是不是破音机？
+
+— from Google Pixel 4a (5G), Android 13 of S1 Next Goose v2.5.2-play ...</blockquote>
+松冈美里
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  zakki  
+##### 829#       发表于 2023-5-7 00:29
+
+翔鸟还是不咋像步鸟的，比如胸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泡影的地生鱼  
+##### 830#       发表于 2023-5-7 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60751997&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-6 22:47</a>
+
+kona和tokio就是男主父母了吧，他们从哪里学造人的？</blockquote>
+漫画在动画大概第三话女同接吻那里删掉了一些细节。原作有一句话是“她们发明了接吻”，所以可以推测关于性的知识研究员没有告诉孩子们，全都是无师自通的
+
+
+*****
+
+####  蜡烛泽君  
+##### 831#       发表于 2023-5-7 02:30
+
+第一集打斗不会就是天花板了吧，这几集战斗节奏不能说很糟也可以说是毫无亮点了。哪怕照搬原作也是悠哉乐哉，完全看不出紧张刺激的成分，我对鱼人战意见最大，明明可以做出眼前一亮的感觉，结果声优表现跟日常对话毫无区别，牛尾的表现也不够劲。而到了这一集直接放静止帧几乎可以确定万策尽了。
+
+
+*****
+
+####  bubuki  
+##### 832#       发表于 2023-5-7 10:09
+
+旅馆大亨太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说她懂避孕吗？
+
+
+*****
+
+####  thebella  
+##### 833#       发表于 2023-5-7 10:23
+
+ 本帖最后由 thebella 于 2023-5-7 10:31 编辑 
+
+充满了黄色笑话的一话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过不讨厌 毕竟是可爱的少年少女
+
+漫画里斩子从地形判断出有猫腻，改了可惜
+
+时生的性别之谜终于揭露啦！
+
+
+*****
+
+####  Garterbelt  
+##### 834#       发表于 2023-5-7 10:55
+
+怎么还专门给一个墙上挂水手服的镜头的，官方玩梗是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  布伦史塔德  
+##### 835#       发表于 2023-5-7 11:04
+
+不知道为什么 现在看见男主就好想笑 
+
+ED了 但没完全ED<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 836#       发表于 2023-5-7 11:12
+
+コンテ・作画監督 古川良太
+<img src="https://p.sda1.dev/11/11473c9c8fddfe305075a7f52052d9a1/20230507_111142.jpg" referrerpolicy="no-referrer">
+
+第7話「不滅教団」
+
+不滅教団の『医者』へと会いに来たマルとキルコ。 しかし声をかけてきたのは、不滅教団と敵対している組織リビューマンだった。 リビューマンは『医者』が行う治療に対し激しい嫌悪を抱いており、二人にとある依頼をする。 引き受けた二人だが、キルコは浅草の医者が居るという可能性を捨てきれず冷静さを欠いている様子で……
+
+脚本：野村イクミ 
+
+絵コンテ：奥野治男 
+
+演出：阿部将光 
+
+作画監督：片桐貴悠・奥野治男・具志堅眞由
+<img src="https://p.sda1.dev/11/ebb142d17b6e94c314b2a90e3eb6f93d/beb8ce80ff087fbb3525821f230b4bf52c1aa54c_6457062348708.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/69e0a4e5b3d7c8bec14f45e1c3a27880/64679ae2b328eab5f359461de3ae878c4048e125_64570624360bd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/1f58fc63c9815aa528d1a69192dbe00e/a45e29afc600e5fd39c1b2e838f1268af75047db_64570623db560.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b20f61552060ec07ffaa5107e7160126/83c061a5aca655a1158f1dffea25d4c560c9faea_6457062395666.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/bafd1e3a40d37cb7f281aa8d08769dde/1a87527f4c48af4951e126f0ec27037c7053f5c9_6457062480eca.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liangjin2  
+##### 837#       发表于 2023-5-7 11:19
+
+最后这幕意思是时生是女的？
+
+
+*****
+
+####  silvia  
+##### 838#       发表于 2023-5-7 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60755491&amp;ptid=2088657" target="_blank">bubuki 发表于 2023-5-7 10:09</a>
+
+旅馆大亨太乐了话说她懂避孕吗？</blockquote>
+说不定有生殖隔离
+
+
+*****
+
+####  梅斯之围  
+##### 839#       发表于 2023-5-7 13:35
+
+他能进入旅店女孩的话怎么还乐呵呵地聊天，不起疑心的吗
+
+摸到的那个红色的玩意有点像之前阿苏罗火化之后留下的东西
+
+
+*****
+
+####  蒜皮  
+##### 840#       发表于 2023-5-7 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60755491&amp;ptid=2088657" target="_blank">bubuki 发表于 2023-5-7 10:09</a>
+
+旅馆大亨太乐了话说她懂避孕吗？</blockquote>
+我觉得是有可能是她根本不能怀孕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 841#       发表于 2023-5-7 14:00
+
+第七话这是大的要来了？
+
+*****
+
+####  mersher  
+##### 842#       发表于 2023-5-7 14:02
+
+旅店女孩是怪物有关的吧，怪物有那种核心，她又说自己是大灾难后出身的，根据前面一集，那个得黑斑病死了的孩子死了之后也有这种怪物核心，那么大概也就是源头是一个地方的，或者相关
+
+*****
+
+####  宵神乐  
+##### 843#       发表于 2023-5-7 14:02
+
+居然还有情趣内衣
+
+
+*****
+
+####  reficulp  
+##### 844#       发表于 2023-5-7 14:04
+
+目前位置的制作质量都好高，直流摸&amp;#x1F43B;那里笑死了，斩子一脸鄙夷地看着他念致命深潜hhhh
+
+劫后余生放心了就拿来开真流的玩笑
+
+*****
+
+####  宵神乐  
+##### 845#       发表于 2023-5-7 14:07
+
+那些研究员都好像什么都不知道一样
+
+*****
+
+####  mersher  
+##### 846#       发表于 2023-5-7 14:09
+
+这集搞笑部分挺好玩的，不过当中有段禁止画面真的有点emmmmm，没有好的动作演出了，本来以为是那种除了谜题之外的一集一打怪的偏动作片，现在看下来感觉是偏公路片
+
+*****
+
+####  RhmBWT_Wu  
+##### 847#       发表于 2023-5-7 14:10
+
+a part太乐了
+另外为什么不穿墙上挂着的那套制服，我喜欢这种<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  好much橘  
+##### 848#       发表于 2023-5-7 14:19
+
+这集太有意思了，没时间找伏笔都觉得轻松有趣，公路片感。
+比较明显的信息暗示也能接收到，感觉大的要来了，时男还真是女性啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+比较意外的点是，阿苏罗是外星人啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficulp  
+##### 849#       发表于 2023-5-7 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60751997&amp;ptid=2088657" target="_blank">花達香奈 发表于 2023-5-6 22:47</a>
+
+kona和tokio就是男主父母了吧，他们从哪里学造人的？</blockquote>
+这就真的是刻在DNA里的本能了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mersher  
+##### 850#       发表于 2023-5-7 14:37
+
+ed之后竟然还有，b上有些切了有些没切，看了两个版本的视频，那个和男主长得很像的时雄竟然是个女的，一直以为和男主同性别，或者是失忆的男主，看来不是一个人了
+
+*****
+
+####  大主教伊瑞尔  
+##### 851#       发表于 2023-5-7 14:37
+
+酒店大亨那两帧吐舌头，太会了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  薄荷之野  
+##### 852#       发表于 2023-5-7 14:52
+
+节奏有点快，删节有点多：姐弟俩是怎么遇到酒店大亨的，地下铁遇到的俩人是谁，酒店门口担架上的人是怎么被救回来的，突如其来的宿舍床戏铺垫在哪儿…很怀疑tv观众是否能看得清这几段戏。
+
+
+*****
+
+####  太二EricGuo  
+##### 853#       发表于 2023-5-7 15:32
+
+所以酒馆大亨是设施里的哪个小孩？
+
+
+*****
+
+####  wsktcy  
+##### 854#       发表于 2023-5-7 15:34
+
+ 本帖最后由 wsktcy 于 2023-5-7 15:40 编辑 
+
+<img src="https://p.sda1.dev/11/dac4003f21ab7e3a60f275de2a3abee9/CMP_20230507153955529.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  S.A  
+##### 855#       发表于 2023-5-7 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60757977&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-7 14:19</a>
+
+这集太有意思了，没时间找伏笔都觉得轻松有趣，公路片感。
+
+比较明显的信息暗示也能接收到，感觉大的要来了 ...</blockquote>
+阿苏罗只是长得比较异形，但是还是学院的学员。
+
+*****
+
+####  yuigahamayuki  
+##### 856#       发表于 2023-5-7 15:37
+
+看完这集对这个长的很步鸟的角色有点兴趣，去看了漫画对应的话数，评论区被剧透了，然后特地看了下这角色的CV和某个剧中出现过的角色CV相同
+
+
+*****
+
+####  白面馒头233  
+##### 857#       发表于 2023-5-7 16:03
+
+这集斩子说给摸欧派，真流立马跳下去然后回眸邪魅一笑；还有电池里充满了好色能量那里加了点动作，好笑又可爱。很喜欢这一集<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl 翻了漫画，受伤的两人和熊的位置都在地面上，动画为什么要改这一段呢
+
+*****
+
+####  Hello🫥  
+##### 858#       发表于 2023-5-7 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60756223&amp;ptid=2088657" target="_blank">liangjin2 发表于 2023-5-7 11:19</a>
+
+最后这幕意思是时生是女的？</blockquote>
+都有欧派了，应该就是女的了吧，难不成是武装直升机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 859#       发表于 2023-5-7 16:16
+
+看漫画时我就有点纳闷，那头熊不是屯了两个人了嘛，这还不够吃，非要捉主角二人组，准备冬眠呢这是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 860#       发表于 2023-5-7 16:17
+
+ 本帖最后由 千恋万花 于 2023-5-7 16:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60758263&amp;ptid=2088657" target="_blank">薄荷之野 发表于 2023-5-7 14:52</a>
+
+节奏有点快，删节有点多：姐弟俩是怎么遇到酒店大亨的，地下铁遇到的俩人是谁，酒店门口担架上的人是怎么被 ...</blockquote>
+遇到酒店大亨没删吧，漫画就是第 15 话末尾说去找水，第 16 话开头就直接找她问路。
+
+地下停车场的两个人虽然没直接说，但后面叫了名字，跟上一集的混混头领同名，这些手下上集到处找人的时候也出现过，应该能反应过来。
+
+然后那段床戏的确是突如其来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喵喵叫的猫  
+##### 861#       发表于 2023-5-7 16:50
+
+打柱子就开了2枪，为什么后面一直纠结有没有第4枪
+上一话不是才充了电
+是我看漏了什么吗？
+
+*****
+
+####  G2Yike  
+##### 862#       发表于 2023-5-7 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60757568&amp;ptid=2088657" target="_blank">梅斯之围 发表于 2023-5-7 13:35</a>
+
+他能进入旅店女孩的话怎么还乐呵呵地聊天，不起疑心的吗
+
+摸到的那个红色的玩意有点像之前阿苏罗火化之后留 ...</blockquote>
+<strong>是多罗尾不是阿苏罗（。</strong>
+
+
+*****
+
+####  cowgp01  
+##### 863#       发表于 2023-5-7 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60759984&amp;ptid=2088657" target="_blank">喵喵叫的猫 发表于 2023-5-7 16:50</a>
+
+打柱子就开了2枪，为什么后面一直纠结有没有第4枪
+
+上一话不是才充了电
+
+是我看漏了什么吗？ ...</blockquote>
+不是第三枪不一定能打出来么
+
+*****
+
+####  蒜皮  
+##### 864#       发表于 2023-5-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60758263&amp;ptid=2088657" target="_blank">薄荷之野 发表于 2023-5-7 14:52</a>
+节奏有点快，删节有点多：姐弟俩是怎么遇到酒店大亨的，地下铁遇到的俩人是谁，酒店门口担架上的人是怎么被 ...</blockquote>
+除了第一个这些都有说吧
+
+
+*****
+
+####  kaildo  
+##### 865#       发表于 2023-5-7 19:45
+
+这集的那个谁不是步鸟吗，看着好出戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ds2008  
+##### 866#       发表于 2023-5-7 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60759984&amp;ptid=2088657" target="_blank">喵喵叫的猫 发表于 2023-5-7 16:50</a>
+
+打柱子就开了2枪，为什么后面一直纠结有没有第4枪
+
+上一话不是才充了电
+
+是我看漏了什么吗？ ...</blockquote>
+漫画是开了3枪，虽然只有两个开枪动作，但是柱子上是有3个弹孔，动画这里只开了两枪不知道是单纯的搞错了，还是有其他用意。
+
+
+*****
+
+####  reficulp  
+##### 867#       发表于 2023-5-7 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60760228&amp;ptid=2088657" target="_blank">cowgp01 发表于 2023-5-7 16:59</a>
+
+不是第三枪不一定能打出来么</blockquote>
+一定能打三枪，第四枪随缘
+
+
+*****
+
+####  dozen  
+##### 868#       发表于 2023-5-7 22:13
+
+这话人脸绘柄也很不稳啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  mersher  
+##### 869#       发表于 2023-5-7 23:03
+
+看你们讨论的，我看着后面打熊是两枪连发啊，声音是咚咚两下，闪光也是两个星星，也就是打柱子两枪，打熊两枪，一共4枪，他们剧里讨论的时候一直第三枪稳打的，就第四枪不确定
+
+*****
+
+####  Antidote丶  
+##### 870#       发表于 2023-5-7 23:08
+
+确实是动画组的失误吧
+
+<img src="https://img.saraba1st.com/forum/202305/07/230821w5kqd23b929bj9ir.png" referrerpolicy="no-referrer">
+
+<strong>57F79B8F-9F63-4C36-9BC3-5E574B40A1C9.png</strong> (953.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-7 23:08 上传
+
+
+*****
+
+####  carrasco21  
+##### 871#       发表于 2023-5-7 23:15
+
+这集给九分，一分扣在，为啥不让那个妹纸穿墙上的jk服，愤怒了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 872#       发表于 2023-5-7 23:20
+
+上面也有楼友提到了，这里打熊看上去应该是连开了两枪（第二枪是保险起见的补枪？）
+
+略剧透：原作附录有提到连续扣动扳机的话一秒内能射出两发
+<img src="https://p.sda1.dev/11/ae927ce8f743858aa4e034c62577aa1b/TDM06.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Antidote丶  
+##### 873#       发表于 2023-5-7 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60766088&amp;ptid=2088657" target="_blank">千恋万花 发表于 2023-5-7 23:20</a>
+
+上面也有楼友提到了，这里打熊看上去应该是连开了两枪（第二枪是保险起见的补枪？）
+
+略剧透：原作附录有提 ...</blockquote>
+不过按这样前面是不必担心能不能开出第四枪的
+
+*****
+
+####  tako  
+##### 874#       发表于 2023-5-7 23:44
+
+酒店王好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">，后面还会出场吗？
+
+*****
+
+####  kuhailz  
+##### 875#       发表于 2023-5-7 23:49
+
+石黑真喜欢恶趣味
+
+*****
+
+####  Antidote丶  
+##### 876#       发表于 2023-5-7 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60766432&amp;ptid=2088657" target="_blank">tako 发表于 2023-5-7 23:44</a>
+
+酒店王好可爱，后面还会出场吗？</blockquote>
+漫画里暂时还没再出场过
+
+
+*****
+
+####  S.A  
+##### 877#       发表于 2023-5-8 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60766601&amp;ptid=2088657" target="_blank">Antidote丶 发表于 2023-5-7 23:55</a>
+
+漫画里暂时还没再出场过</blockquote>
+其实有的，在回忆里，和爹妈一起出场<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficulp  
+##### 878#       发表于 2023-5-8 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60765836&amp;ptid=2088657" target="_blank">mersher 发表于 2023-5-7 23:03</a>
+
+看你们讨论的，我看着后面打熊是两枪连发啊，声音是咚咚两下，闪光也是两个星星，也就是打柱子两枪，打熊两 ...</blockquote>
+爬在柱子上暖电池的时候，说的是担心第四枪打不出来，正常来说就是因为打掉了三枪只剩下这个不知道有没有的第四枪了。和漫画里是一致的
+
+但是动画前面只打了两枪，然后打熊用了两枪，但是在柱子上暖枪时仍然担心第四枪。这个改动其实是毫无意义的，只能猜是动画组理解有误了
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 879#       发表于 2023-5-8 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60766006&amp;ptid=2088657" target="_blank">carrasco21 发表于 2023-5-7 23:15</a>
+
+这集给九分，一分扣在，为啥不让那个妹纸穿墙上的jk服，愤怒了</blockquote>
+漫画里大亨说了自己年龄，动画方不敢做出来，原创了套校服挂后面做暗示<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jdd468200  
+##### 880#       发表于 2023-5-8 02:39
+
+这集可太乐了。
+
+
+*****
+
+####  108  
+##### 881#       发表于 2023-5-8 08:14
+
+十三岁还是删了么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  芜菁种子  
+##### 882#       发表于 2023-5-8 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60766432&amp;ptid=2088657" target="_blank">tako 发表于 2023-5-7 23:44</a>
+酒店王好可爱，后面还会出场吗？</blockquote>
+漫画后面她就婴儿时期出现了几个镜头
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 883#       发表于 2023-5-8 10:43
+
+一路上遇到的主要过客以后大概都会再出场的
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  古桥一浩  
+##### 884#       发表于 2023-5-8 13:40
+
+<img src="https://img.saraba1st.com/forum/202305/08/134034ypi36dot6js33fdd.jpg" referrerpolicy="no-referrer">
+
+<strong>775576e5372eb902.jpg</strong> (45.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-8 13:40 上传
+
+
+*****
+
+####  mono  
+##### 885#       发表于 2023-5-8 13:49
+
+没有学校的年代怎么还用校服暗示 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 886#       发表于 2023-5-8 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60766432&amp;ptid=2088657" target="_blank">tako 发表于 2023-5-7 23:44</a>
+酒店王好可爱，后面还会出场吗？</blockquote>
+喜欢她的话可以去看石黑的另一部小镇转动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 887#       发表于 2023-5-8 14:15
+
+摸熊的时候发动不了那个啥啥技能，但是触碰酒店大亨的时候可以，是故意这样对比的吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  米奥莉奈  
+##### 888#       发表于 2023-5-8 14:53
+
+虽然恶趣味但是斩子和√k都挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为什么石黑的小圆脸也能萌起来
+
+*****
+
+####  xzhlj0325  
+##### 889#       发表于 2023-5-8 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60774099&amp;ptid=2088657" target="_blank">梅斯之围 发表于 2023-5-8 14:15</a>
+
+摸熊的时候发动不了那个啥啥技能，但是触碰酒店大亨的时候可以，是故意这样对比的吗
+
+—— 来自 S1Fun ...</blockquote>
+这个前几集也是只对怪物核心用过吧，熊是野生动物，酒店王有来历了
+
+
+*****
+
+####  xiaocheng  
+##### 890#       发表于 2023-5-8 17:09
+
+<blockquote>mono 发表于 2023-5-8 13:49
+没有学校的年代怎么还用校服暗示</blockquote>
+因为漫画明说了自己13而动画不敢说（
+
+*****
+
+####  蒜皮  
+##### 891#       发表于 2023-5-8 17:17
+
+草，13啊，那可不是JK了，是JC啊，这也太刑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  镜hinata  
+##### 892#       发表于 2023-5-8 22:52
+
+那酒店大亨还是不是第一次啊
+
+
+*****
+
+####  我是大鲨鱼  
+##### 893#       发表于 2023-5-8 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60780934&amp;ptid=2088657" target="_blank">镜hinata 发表于 2023-5-8 22:52</a>
+
+那酒店大亨还是不是第一次啊</blockquote>
+虽然没有实锤，但从剧情逻辑来看，无论如何都不应该是第一次。
+
+我觉得石黑画这漫画的时候，大概他自己就没考虑过部分读者竟然还抱着处女情结来看这部作品的可能性。这可能也是后面著名争议剧情的由来之一吧。
+
+*****
+
+####  蒜皮  
+##### 894#       发表于 2023-5-8 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60780934&amp;ptid=2088657" target="_blank">镜hinata 发表于 2023-5-8 22:52</a>
+
+那酒店大亨还是不是第一次啊</blockquote>
+看这台词也不可能是第一次吧，第一次哪能这么猛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 895#       发表于 2023-5-8 23:13
+
+等等，那这样的话是不是JS的时候就出来赚钱了，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  卡拉德利姆  
+##### 896#       发表于 2023-5-8 23:29
+
+里面不是还有小天使学校吗，后面其实还有…
+
+
+*****
+
+####  香蜂草  
+##### 897#       发表于 2023-5-8 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60781330&amp;ptid=2088657" target="_blank">卡拉德利姆 发表于 2023-5-8 23:29</a>
+里面不是还有小天使学校吗，后面其实还有…</blockquote>
+小天使学校动画删掉了。其实后面那个，如果真有第二季整章删掉我都不奇怪……<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KissMoon  
+##### 898#       发表于 2023-5-9 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60774099&amp;ptid=2088657" target="_blank">梅斯之围 发表于 2023-5-8 14:15</a>
+
+摸熊的时候发动不了那个啥啥技能，但是触碰酒店大亨的时候可以，是故意这样对比的吗
+
+—— 来自 S1Fun ...</blockquote>
+是的，突出她不一般
+
+
+*****
+
+####  tase  
+##### 899#       发表于 2023-5-9 02:44
+
+怎么把翔鸟的台词给删了啊，这应该挺重要的吧
+
+
+*****
+
+####  KissMoon  
+##### 900#       发表于 2023-5-9 03:10
+
+应是指“从我外貌看就知我父母是俊男美女”吧，但这是二周目才会有感觉的台词，一周目时也不会成为线索
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 901#       发表于 2023-5-9 06:13
+
+youtube有个酒店大亨的切片半天播放破百万
+
+天国大魔境要火.jpg
+
+
+*****
+
+####  好much橘  
+##### 902#       发表于 2023-5-9 06:38
+
+<img src="https://p.sda1.dev/11/dcae42eaa6a002a6a125f5989933628b/CMP_20230509063604046.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷无聊图也刷到了gif，短视频平台没去看，不会真的要火吧。果然欧派是第一生产力。
+
+
+*****
+
+####  蒜皮  
+##### 903#       发表于 2023-5-9 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60782350&amp;ptid=2088657" target="_blank">KissMoon 发表于 2023-5-9 03:10</a>
+
+应是指“从我外貌看就知我父母是俊男美女”吧，但这是二周目才会有感觉的台词，一周目时也不会成为线索 ...</blockquote>
+啊？怎么还有二周目的<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蒜皮  
+##### 904#       发表于 2023-5-9 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60782480&amp;ptid=2088657" target="_blank">大主教伊瑞尔 发表于 2023-5-9 06:13</a>
+
+youtube有个酒店大亨的切片半天播放破百万
+
+天国大魔境要火.jpg</blockquote>
+所以欧美那边直球JS不行，暗示JS就可以是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficulp  
+##### 905#       发表于 2023-5-9 08:13
+
+<blockquote>蒜皮 发表于 2023-5-9 07:54
+啊？怎么还有二周目的</blockquote>
+指看漫画第二遍
+
+
+*****
+
+####  Garterbelt  
+##### 906#       发表于 2023-5-9 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60774616&amp;ptid=2088657" target="_blank">米奥莉奈 发表于 2023-5-8 14:53</a>
+
+虽然恶趣味但是斩子和√k都挺可爱的不知道为什么石黑的小圆脸也能萌起来 ...</blockquote>
+因为石黑认真画女体的时候是真的很瑟<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 907#       发表于 2023-5-9 13:47
+
+这段当时漫画就笑的在床上打滚
+
+
+*****
+
+####  Piano-Forest  
+##### 908#       发表于 2023-5-10 13:25
+
+[https://twitter.com/Osakana_Tomika/status/1655574355361898496](https://twitter.com/Osakana_Tomika/status/1655574355361898496)
+<img src="https://p.sda1.dev/11/14e0e72a5b39fad3a61e9604b1a29c1f/20230510_132441.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  superkidx  
+##### 909#       发表于 2023-5-10 20:30
+
+这个用XX交换摸摸的情节梗 电锯人里也出现过 时间上好像差不多 谁抄谁?
+
+
+*****
+
+####  Piano-Forest  
+##### 910#       发表于 2023-5-10 23:35
+
+岚山步鸟 / 翔鸟（鸟取）
+<img src="https://p.sda1.dev/11/ca9d9251278e0e0437315e1a53facccf/20230510_233329.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  02200059abcd  
+##### 911#       发表于 2023-5-11 00:01
+
+风格上还算比较有特色的作品
+
+
+*****
+
+####  tako  
+##### 912#       发表于 2023-5-11 15:31
+
+老师你这<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Snaky  
+##### 913#       发表于 2023-5-11 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60781191&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-8 23:13</a>
+等等，那这样的话是不是JS的时候就出来赚钱了，可怕</blockquote>
+乱世孤儿，能活着就很好了
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Piano-Forest  
+##### 914#       发表于 2023-5-13 14:19
+
+<img src="https://p.sda1.dev/11/bd344e1c33b6ad7e550be561f54a8c01/20230513_141805.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  molemole  
+##### 915#       发表于 2023-5-13 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这张真流的脸确实很像学姐
+
+
+*****
+
+####  乔槁  
+##### 916#       发表于 2023-5-13 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60832544&amp;ptid=2088657" target="_blank">Piano-Forest 发表于 2023-5-13 14:19</a></blockquote>
+石黑：  我否认翔鸟是步鸟脸，是因为这部作品的学姐步鸟脸组合是春希与真流。
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 917#       发表于 2023-5-13 22:41
+
+春希不是阿猛脸吗
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  好much橘  
+##### 918#       发表于 2023-5-14 02:01
+
+<img src="https://p.sda1.dev/11/6af5af88f408c3b3833ae29ec6cc5951/CMP_20230514013816015.PNG" id="aimg_yCeTD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+感觉这集食人怪能对应上面左中右三幅。
+大的：很多人肢体叠在一起超级加倍感（左）
+小的：爬行状人型（右）+机械牙、多孔（中），虽然感觉融进了苍蝇的样本要更多就是了。
+幻想的机械部分对应不灭教团“机器化”也有可能。
+
+剩下一些疑惑有些和翻译相关，之后等字幕组翻再仔细看看。这集学园含量零，公路二人组对于情爱相关又推进了不少。
+“爱”这种东西感觉更常见于作者的表达，两边齐头并进描写，大概是大量“爱”量变产生质变驱动角色行动后再出现转机的类型？毕竟学园内看来仍算铁板一块，发现鞋印的研究员看起来暂时不会行动、时男去其他人房间也有上帝视角力量瞒着，都属于暗流涌动的范围，松动的螺丝暂不至于直接毁灭整个机器。或者是一场天灾（迎接之日、大灾害）一次性直接改变一切。
+
+好想看下一集，这集两人啵那一下前后太带感了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 919#       发表于 2023-5-14 10:18
+
+观感很舒服的一集，幻觉那段效果很好
+
+斩子在最绝望的时候喊的是露敏，果然还是心有依赖
+
+另外水桥代表旁边那个光头声音我感觉好熟悉，看了一下cv表应该是青山让或者吉田胜哉，但这两个名字我都没啥印象啊
+
+还有就是这集说到“索性讲人的大脑或记忆数据移植给机器人”，我还以为这个世界曾经已经可以实现机械飞升了，结果下一句说是构想，切
+
+
+*****
+
+####  Piano-Forest  
+##### 920#       发表于 2023-5-14 11:39
+
+原画 寺野勇樹
+<img src="https://p.sda1.dev/11/5273f4ce30dfb5228c2f9de98f1c94b6/20230514_113633.jpg" referrerpolicy="no-referrer">
+
+第8話「それぞれの選択」
+
+人食い退治を終えたマルとキルコの前に、不滅教団で『医者』と慕われている宇佐美が現れる。
+
+二人は宇佐美から「ある人を助けてほしい」という依頼を受け、天蓋のある部屋へと案内される。
+
+そこにいたのは、水橋が見たとされる「機械により生かされ続けている人間」
+
+――やがて宇佐美からとある事実が明かされる……
+
+脚本：窪山阿佐子
+
+絵コンテ：藤田春香
+
+演出：仲野 良
+
+作画監督：富坂真帆、奥谷花奈、澤田英彦、小林冴子、廣江啓輔、永野裕大、ゼロ、柴田 海
+<img src="https://p.sda1.dev/11/9dde91048e172b3555d5f8a1213db748/6b811b4f2a3b312610f462989a582075289b9c40_645fa1fa8a2b7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/cc45169fbdf6edb7d4d59908eb5cd2b6/9fb40b965474091bbef2d0a236ded2552667752e_645fa1fb954b7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8bae0edce8b593ee97f2833cb806a21c/db353b803132b47c1e2d5aa2c274837def24838c_645fa1facb198.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/fbba683fa59dc1d038955b8b9ce2c080/227bd5a204c562b4b80b178e0c7f3344c2b177b4_645fa1fa46403.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/0143e31ea6379027d25f637436583d14/c13000c60b2ff0f24c1c7a4efcef0eefc2bcf773_645fa1fb1633f.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Carlos_Habsburg  
+##### 921#       发表于 2023-5-14 12:52
+
+这集的cast表也太直接了吧，丝毫不带掩饰的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KissMoon  
+##### 922#       发表于 2023-5-14 13:04
+
+楼上，很快天国那边就图穷匕现了
+
+
+*****
+
+####  梅斯之围  
+##### 923#       发表于 2023-5-14 13:25
+
+这集男主被打掉的牙看上去好像长回来了
+
+*****
+
+####  梅斯之围  
+##### 924#       发表于 2023-5-14 13:28
+
+看到这些医闹想起地铁离去开头碰到的那个不用电力不用机械的魔怔村庄。印象里好像末日废土世界观里总有一批技术倒车壬
+
+另外没太懂一直出现男女主打情骂俏的意义，难道就是为了让观众笑一笑么
+
+
+*****
+
+####  Keiji  
+##### 925#       发表于 2023-5-14 13:36
+
+快进到下一周<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  molemole  
+##### 926#       发表于 2023-5-14 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60839423&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-14 10:18</a>
+
+观感很舒服的一集，幻觉那段效果很好
+
+斩子在最绝望的时候喊的是露敏，果然还是心有依赖
+
+另外水桥代表旁边那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个世界可是能换脑的，技术水平如何你再想想
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 927#       发表于 2023-5-14 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60841353&amp;ptid=2088657" target="_blank">molemole 发表于 2023-5-14 14:10</a>
+这个世界可是能换脑的，技术水平如何你再想想</blockquote>
+我日，不会是天国那边那个和ai似的玩意儿塞了个人进去吧<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ichthy  
+##### 928#       发表于 2023-5-14 16:38
+
+这集做的要比漫画好懂多了
+
+
+*****
+
+####  睡不醒的虾米  
+##### 929#       发表于 2023-5-14 19:36
+
+话说真流是什么脑回路会想到通过kiss来让斩子冷静的。
+
+
+*****
+
+####  yuruki  
+##### 930#       发表于 2023-5-14 21:13
+
+ 本帖最后由 yuruki 于 2023-5-14 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60843886&amp;ptid=2088657" target="_blank">睡不醒的虾米 发表于 2023-5-14 19:36</a>
+话说真流是什么脑回路会想到通过kiss来让斩子冷静的。</blockquote>
+下不了狠手打晕姐姐，只好抽真空了（叫完罗宾马上呼吸不过来，真流是有多气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ameyu  
+##### 931#       发表于 2023-5-16 00:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60839423&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-14 10:18</a>
+观感很舒服的一集，幻觉那段效果很好
+
+斩子在最绝望的时候喊的是露敏，果然还是心有依赖
+
+另外水桥代表旁边那 ...</blockquote>
+那个是青山让，配过辉夜大小姐想让我告白里的旁白
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Garterbelt  
+##### 932#       发表于 2023-5-16 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60843886&amp;ptid=2088657" target="_blank">睡不醒的虾米 发表于 2023-5-14 19:36</a>
+
+话说真流是什么脑回路会想到通过kiss来让斩子冷静的。</blockquote>
+趁机揩油（不是）
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 933#       发表于 2023-5-16 15:19
+
+就是趁机揩油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  悠悠你心  
+##### 934#       发表于 2023-5-16 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中幻觉了该怎么清醒？这个答案可能有很多条，不排除给中幻觉的人狠狠来上一击。
+
+但这个吻到窒息还能揩油，高，实在是高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 935#       发表于 2023-5-17 12:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">动画进展到现在太喜欢了，之前没追过漫画，这周开始看
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 936#       发表于 2023-5-18 07:20
+
+大魔境真是口碑一致好评但是毫无讨论度啊，中英文社区都这样。泥潭楼秒沉，4chan经常连一栋楼都没有
+
+
+*****
+
+####  好much橘  
+##### 937#       发表于 2023-5-18 08:49
+
+ 本帖最后由 好much橘 于 2023-5-18 08:52 编辑 
+
+那我来猜一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+斩子和阿圆贴贴这么多，而且这两集愈发严重。同时这外面世界的科技技术看起来又不支持换脑，也没原来的、可供替换的身体；而学园里超能力看起来和食人怪强关联，估计也没有那种“让你长一根”的能力。
+那么估计斩子很可能永远都是女性了/发生重大事件不得不放弃桐子的身体转变为男性。
+A、按照贴贴浓度来看，如果永远为女性，那斩子脑内迟早要接受雌堕/变为bl，然后接受阿圆。两人间存在的感情矛盾象征着结束，也象征着斩子内心性别相关议题的结束。
+B、如果是发生重大转变变为男性，按已有的情感纠葛，最适合的身体大概是阿圆？毕竟外面二人组就这俩人，没其他看起来同等级的角色登场。事件也许是快死了托付身体之类的，手术可为医生，可为研究员。但好像还挺狗血<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+C、大结局天国不知道是啥的相关事件解决，但斩子身负重伤，再一次经历手术。食人怪技术已超级发展，天国方为斩子准备食人怪材料制作的人形（也能对应一部分EP5“将它的一部分移植在身上，人就能变得强大和不死”传言），让斩子选择性别，选择继续为女/重新为男，然后进行手术，结束斩子内心的性别议题。
+
+但总感觉猜测风格又有点对不上，应该是更加日常感、小信息和结果不喜欢格外明说的感觉？（旅店老板是否真有恶意、100%水是否真的算被狩猎，以及这一集下地下室是不是被坑过来的猜测，结论“不重要感”挺浓的）
+比如二人组碰上个说能改性别的地方，阿圆“姐姐，你看。”问问她怎么想，然后斩子说“这是我姐姐的身体啦，怎么可能会换。”然后说点这啊哪啊的过去了。
+“其实你是不是很享受啊”
+“是很享受……但我确实是男孩子也没错哦”
+
+话说如果斩子真认为自己雌堕和阿圆一起了，这个表是不是还得换，还是说按角色自身意愿随时变化他俩BL/BG的身份<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b5caa65fe9bfe286f4f58cb6766ee480/CMP_20230518082049260.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Snaky  
+##### 938#       发表于 2023-5-18 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60884965&amp;ptid=2088657" target="_blank">大主教伊瑞尔 发表于 2023-5-18 07:20</a>
+
+大魔境真是口碑一致好评但是毫无讨论度啊，中英文社区都这样。泥潭楼秒沉，4chan经常连一栋楼都没有 ...</blockquote>
+一流原作+一流制作就是这种结果，你看隔壁灵能不也这样
+
+
+*****
+
+####  chdhdhd  
+##### 939#       发表于 2023-5-18 19:35
+
+ 本帖最后由 chdhdhd 于 2023-5-18 19:41 编辑 
+<blockquote>大主教伊瑞尔 发表于 2023-5-18 07:20
+大魔境真是口碑一致好评但是毫无讨论度啊，中英文社区都这样。泥潭楼秒沉，4chan经常连一栋楼都没有 ...</blockquote>
+根源是作品本身质量只是作品促进传播因素之一，而非唯一决定因素。最终还是通过媒体能接触到什么，大家就看什么。更不用说欣赏有门槛，或者挑人的作品
+
+来几个首页推送国内外KOL狂吹一顿，通过过饱和信息轰炸保证把信息喂到圈内圈外受众和非受众的嘴边，自然就火了。
+
+这个问题无解，我其实自认也不比这种观众强。没汉化、没人推荐、甚至网上不好找、或者直接没法找到的东西，不管质量再好我都会错过，其实本质是一个道理。
+
+
+*****
+
+####  aptx8285144  
+##### 940#       发表于 2023-5-19 19:37
+
+看到第6话，十分搞笑的一话，石黑正数这起码是青年向的尺度吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 941#       发表于 2023-5-19 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60752231&amp;ptid=2088657" target="_blank">悠悠你心 发表于 2023-5-6 23:04</a>
+
+松冈美里
+
+—— 来自 HONOR PGT-AN20, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+草，我还以为是147<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 942#       发表于 2023-5-19 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60776970&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-8 17:17</a>
+
+草，13啊，那可不是JK了，是JC啊，这也太刑了</blockquote>
+起码也是国中生而不是小学生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 943#       发表于 2023-5-19 20:05
+
+就算写了那些标识，但这酒店大亨算侵犯客人们的隐私了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 944#       发表于 2023-5-20 12:05
+
+<img src="https://p.sda1.dev/11/bb239fe01d960ec35f02decc86a16a9b/20230520_120417.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊猫roey  
+##### 945#       发表于 2023-5-20 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+杀伤力更足了
+动画这是明示了
+
+*****
+
+####  礼央破流堂  
+##### 946#       发表于 2023-5-20 21:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+“最喜欢你了”
+
+520看不得这个。
+
+
+*****
+
+####  悠悠你心  
+##### 947#       发表于 2023-5-20 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">再一次看哭了。。。
+
+—— 来自 HONOR PGT-AN20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  molemole  
+##### 948#       发表于 2023-5-20 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一集还会再提一次，那时候才是真的有杀伤力
+
+*****
+
+####  molemole  
+##### 949#       发表于 2023-5-20 21:39
+
+这集做的是真不错，配乐也比较合适，比较细心的观众应该能察觉到天国和魔境的关系了
+
+*****
+
+####  Piano-Forest  
+##### 950#       发表于 2023-5-20 21:40
+
+作画監督 奥谷花奈
+
+作画監督 澤田英彦
+<img src="https://p.sda1.dev/11/27661669557d8354cedd1f8dc4d657c6/20230520_213915.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/30ba19d2d262f4d7aa4fb801d863c737/20230520_213917.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  熊猫roey  
+##### 951#       发表于 2023-5-20 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60922418&amp;ptid=2088657" target="_blank">molemole 发表于 2023-5-20 21:39</a>
+这集做的是真不错，配乐也比较合适，比较细心的观众应该能察觉到天国和魔境的关系了 ...</blockquote>
+都直接砸脸上了，再迟钝的应该也能反应过来吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OWO.OMO  
+##### 952#       发表于 2023-5-20 21:42
+
+太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  OWO.OMO  
+##### 953#       发表于 2023-5-20 21:42
+
+太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  OWO.OMO  
+##### 954#       发表于 2023-5-20 21:43
+
+太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  狮子咕  
+##### 955#       发表于 2023-5-20 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不愧是和时雄一张脸的儿子，这也太魅了
+
+<img src="https://img.saraba1st.com/forum/202305/20/220444kotu6tiqifa6zu7q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-20 22:04 上传
+
+
+*****
+
+####  S.A  
+##### 956#       发表于 2023-5-20 22:17
+
+ 本帖最后由 S.A 于 2023-5-20 22:19 编辑 
+
+<img src="https://img.nga.178.com/attachments/mon_202305/20/-9lddQju0-cgt1K2hT1kSh0-sg.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202305/20/221858wqds0ndyy510yyxy.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQju0-cgt1K2hT1kSh0-sg.jpg</strong> (88.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-20 22:18 上传
+
+
+*****
+
+####  tako  
+##### 957#       发表于 2023-5-20 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这下都懂了，为什么明明是医生却搓出一堆废土风的假肢
+
+话说酒店王以后不会也是这种命运吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好much橘  
+##### 958#       发表于 2023-5-20 22:49
+
+我超……<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希克苏鲁伯  
+##### 959#       发表于 2023-5-20 22:56
+
+毕竟动画还是注重一周目体验，直接掀底也不错
+
+
+*****
+
+####  蜡烛泽君  
+##### 960#       发表于 2023-5-20 23:08
+
+神回！看漫画也是这里最感动，最好的一集配得上最好的一话。
+
+
+*****
+
+####  鬼谷ask  
+##### 961#       发表于 2023-5-20 23:24
+
+好看
+
+*****
+
+####  蒜皮  
+##### 962#       发表于 2023-5-20 23:26
+
+草，原来前面说的是这个意思？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  熊猫roey  
+##### 963#       发表于 2023-5-20 23:33
+
+现在只想看最后一集<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 964#       发表于 2023-5-21 00:21
+
+话说如果这集把枪拿出来问情报而不是拿照片的话，是不是可以直通大结局了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ZhouShumiao  
+##### 965#       发表于 2023-5-21 00:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好much橘  
+##### 966#       发表于 2023-5-21 00:49
+
+心情激动……简单梳理下这集在个人观感下的暗示，对错都有可能，不过我感觉应该没啥问题了。
+
+主要可以确定的结论应该就是：本集的星尾小姐和宇佐美医生应该就对应着学园里的美实姬和代（白毛男）。
+
+首先是楼里许多许多出自医生手的患者的机械假肢，上一集只看见了一两个还没感觉，这一集数量一多就完全联想到学园里比较常做机械的男生了。后续返回去看，也确实是白发蓝瞳的那一位。
+
+图片: <img src="https://uploader.shimo.im/f/4s5Q2nxCAs9x7JKo.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+图片: <img src="https://uploader.shimo.im/f/LGxJEgQuyTA73isu.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+二人组第一次掀开帘子看见病床上的女生时，有一组“阿圆看一眼-女生看见阿圆-阿圆放下帘子-女生眼部特写、眼珠颤动”的镜头，有“也许认识些什么”的感觉，猜测她也许来自天国。
+
+（GIF过大）
+
+阿圆使用“阿圆触碰”接触那种像核心一样的东西。
+
+在之前的章节里，一直以为是心脏。或者说是像心脏一样的器官，但现在看来更像某种果实，没有向外泵出血液的那种血管的东西，还很圆润，猜测是对感染者有心脏的作用，但未必是在心脏的位置？
+
+外加根据此前的各种特写，加捏碎时溅射汁液的效果，所以该核心的象征意义极大概率为番茄，对于和故事主线的伏笔是否有关或者说只是某种意义的暗示暂时不知。
+
+图片: <img src="https://uploader.shimo.im/f/jjaBGnzAXcPBgAGv.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+这个医生二人逝去后，手中的勋章一样的扣子也是明示他和天国是有关系的，即斩子的枪的符号，猜测大概率是学园校服上的纽扣，此前的集数在细节处有展示过类似的大概轮廓。
+
+图片: <img src="https://uploader.shimo.im/f/WLPYeNwoJMyQD3xt.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+图片: <img src="https://uploader.shimo.im/f/NP2RqLXaNOFfASIt.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+ED后美实姬的出现，基本能明示本集数和她有关。而且她和代二人在学园里感情戏确实多，大概是真的成cp了。
+
+回看才发现各处展示睫毛的部分，颜色也是棕色<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+图片: <img src="https://uploader.shimo.im/f/fIrarenqzVP6eu7I.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+另附：
+
+EP1美实姬的预言：
+
+图片: <img src="https://uploader.shimo.im/f/MDJrrvBajlqmfE18.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+EP4像是告白的场合：
+
+图片: <img src="https://uploader.shimo.im/f/HM2jNLrpeJO2Bkkw.png" referrerpolicy="no-referrer">!thumbnail?accessToken=eyJhbGciOiJIUzI1NiIsImtpZCI6ImRlZmF1bHQiLCJ0eXAiOiJKV1QifQ.eyJleHAiOjE2ODQ2MDE0MzIsImZpbGVHVUlEIjoibTRrTU1QWnBnWEhHS25rRCIsImlhdCI6MTY4NDYwMTEzMiwiaXNzIjoidXBsb2FkZXJfYWNjZXNzX3Jlc291cmNlIiwidXNlcklkIjoxMTUyMTIyMn0.AVhB-DQNqoN2_8Q3QDi7JiEuHQKINkSB4HD1j98UNsA
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">能看见这样的动画+无剧透体验，真好啊。而且食人怪生成模式的情报交了，也有很多想法，可惜没啥时间来写。
+
+
+*****
+
+####  S.A  
+##### 967#       发表于 2023-5-21 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60924802&amp;ptid=2088657" target="_blank">蒜皮 发表于 2023-5-21 00:21</a>
+
+话说如果这集把枪拿出来问情报而不是拿照片的话，是不是可以直通大结局了 ...</blockquote>
+不行，这一集出现的角色本身情报并不多。
+
+路人就不说了，宇佐美只对星尾有关的事情有了解，对其他没兴趣。
+
+星尾本身也不是核心人物，不如说正是因为他们不是核心人物所以才能落单在这里相依为命。
+
+所以即使问了，他们能提供的情报价值并不大。
+
+
+*****
+
+####  zakki  
+##### 968#       发表于 2023-5-21 01:20
+
+这里揭晓谜底有点儿早了吧，我觉得后面几话纽扣那里最合适，最有醍醐味
+
+
+*****
+
+####  好much橘  
+##### 969#       发表于 2023-5-21 02:19
+
+蛮多群友表示的没啥和学园联想到的，动画的暗示应该还可以继续加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FanFun  
+##### 970#       发表于 2023-5-21 02:35
+
+神回<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 971#       发表于 2023-5-21 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60922421&amp;ptid=2088657" target="_blank">Piano-Forest 发表于 2023-5-20 21:40</a>
+
+作画監督 奥谷花奈
+
+作画監督 澤田英彦</blockquote>
+[https://twitter.com/cacaofish/status/1659925884160344064](https://twitter.com/cacaofish/status/1659925884160344064)
+
+天国大魔境8話
+
+第二原画にて参加させて頂きました。
+
+ご視聴ありがとうございました。
+
+次回の天国大魔境9話もお楽しみください！
+
+こちら担当した2原の抜選カットになります。↓
+<img src="https://p.sda1.dev/11/ac55cb9a70eb4a51b081e2b51ae7234a/20230521_023950.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ee175b07d93f10e76e6b94f2134841f9/20230521_023952.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b5444dddd358ff0d3519f28fe51503e2/20230521_023953.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/633b383e346a09897fed3baf84241478/20230521_023955.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FanFun  
+##### 972#       发表于 2023-5-21 03:08
+
+结尾的美实姬以为是下一集的铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  睡不醒的虾米  
+##### 973#       发表于 2023-5-21 03:15
+
+太好看了……！怎么能那么好看！！
+
+
+*****
+
+####  limboc  
+##### 974#       发表于 2023-5-21 08:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+神回！神回！
+
+“谢谢你让我以人类的姿态死去”
+
+“我做了个开心的梦，但已经记不起来了”
+美美姬真的好可爱呜呜呜
+
+
+*****
+
+####  千恋万花  
+##### 975#       发表于 2023-5-21 08:23
+
+配合特别 ED 食用更佳
+
+
+*****
+
+####  Kfly  
+##### 976#       发表于 2023-5-21 08:38
+
+话说死后多久变成怪物还没定论啊，如果是像多罗尾那样的话，宇佐美其实是可以尝试火化的？结果却没有这么做
+可能是宇佐美不愿意去这么做吧（我太极端了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 977#       发表于 2023-5-21 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60926382&amp;ptid=2088657" target="_blank">Kfly 发表于 2023-5-21 08:38</a><blockquote>
+</blockquote><blockquote>
+</blockquote><blockquote>
+</blockquote>
+
+话说死后多久变成怪物还没定论啊，如果是像多罗尾那样的话，宇佐美其实是可以尝试火化的？结果却没有这么 ...</blockquote>
+
+有九九这个样本算有定论了吧，短时间就会变，大概不会超过一天
+
+
+*****
+
+####  hagiwara  
+##### 978#       发表于 2023-5-21 08:55
+
+这集改的真好啊
+
+*****
+
+####  loneblade  
+##### 979#       发表于 2023-5-21 09:01
+
+这集分镜是藤田春香啊
+
+
+*****
+
+####  花達香奈  
+##### 980#       发表于 2023-5-21 09:12
+
+对比シロ，ミミヒメ三十几的老阿姨了吧还不怎么显老(虽然包成个粽子)
+
+这么多年的亲 密 接 触下来医生还是自 杀的，是否说明变食人者是自限性疾病，未发现明显人传人现象？
+
+
+*****
+
+####  蒜皮  
+##### 981#       发表于 2023-5-21 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60925256&amp;ptid=2088657" target="_blank">S.A 发表于 2023-5-21 00:58</a>
+
+不行，这一集出现的角色本身情报并不多。
+
+路人就不说了，宇佐美只对星尾有关的事情有了解，对其他没兴趣 ...</blockquote>
+至少省了找路的时间吧
+
+二人组到现在连位置在哪都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜皮  
+##### 982#       发表于 2023-5-21 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60925718&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-21 02:19</a>
+
+蛮多群友表示的没啥和学园联想到的，动画的暗示应该还可以继续加大力度 ...</blockquote>
+确实，一开始还以为是每集日常的学校戏份，用来给下一集做引子的
+
+
+*****
+
+####  傘木希美  
+##### 983#       发表于 2023-5-21 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">太强了
+
+*****
+
+####  蒜皮  
+##### 984#       发表于 2023-5-21 10:04
+
+话说地下室还有个漏网之鱼，是不是说明后面白衣人要团灭了
+
+
+*****
+
+####  熊猫roey  
+##### 985#       发表于 2023-5-21 10:18
+
+迪斯尼这官方翻译，鉴定为不如ai
+
+<img src="https://img.saraba1st.com/forum/202305/21/101824dmvlt65a5x57zis7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7febcf3bc071c280c99f3ad5a29f369c.jpeg</strong> (62.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-21 10:18 上传
+
+*****
+
+####  熊猫roey  
+##### 986#       发表于 2023-5-21 10:20
+
+甜组这是熬夜爆肝了吧，好快<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[SweetSub][天国大魔境][Heavenly Delusion][08][WebRip][1080P][AVC 8bit][简日双语]
+
+magnet:?xt=urn:btih:H43ATOITSJ4BODNC76OSSQ327F7IHZNI
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 987#       发表于 2023-5-21 10:48
+
+制作真厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+只是可惜虽然我没看漫画还是被剧透了，不然体验应该不一样
+
+如果早点把枪拿出来问是不是剧情进度会提升不少
+
+另外那个光头好黑啊，女的是不是他的打手还把卧底杀人灭口了，不过留了一个卵没杀，这帮白衣人是不是要团灭了
+
+*****
+
+####  阿垃垃圾历  
+##### 988#       发表于 2023-5-21 10:48
+
+太好看了 这集看哭 
+
+
+*****
+
+####  熊猫roey  
+##### 989#       发表于 2023-5-21 10:56
+
+一定要看甜组版本的字幕，有翻译特殊ED歌词，这集特殊ED歌词是从两位的视角写的，杀伤力拉到 max（最后一集的杀伤力真的不敢想了）
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tase  
+##### 990#       发表于 2023-5-21 11:00
+
+流泪啊...这集只剩流泪了...
+
+
+*****
+
+####  Piano-Forest  
+##### 991#       发表于 2023-5-21 11:05
+
+＜#09＞学園の子供たち 
+
+宇佐美はキル光線のマークと同じ模様のボタンを持っていた。 再びマークを追う事にした マルとキルコは途中、資源探しをしていた情報屋ジューイチと遭遇する。 マークについて 知った様子を見せるジューイチから情報を買い取る二人だが……。 一方、学園では職員達 の緊急会議が開かれていた。明かされるトキオの異変とは……
+
+脚本：深見真 
+
+絵コンテ：野村和也 
+
+演出：野村和也 
+
+作画監督：具志堅眞由・平岡恵実・福嶋沙映・会津五月
+<img src="https://p.sda1.dev/11/171aca4b9e35a3ebe39096dd814b8c96/5526fca30335a8b9ec0fe60fd7a69010467f95f2_6468354756040.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e08b2d510dbd19ae05a03e08d54fc479/785a0525915ec7205cf17b09ff06ce0619ef8209_64683547e3e7d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/60999279b591086f802ef63c158fb5f3/3535775e8a6b737d8242021d13f51bfe90240af8_646835479c44e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/7e23318b2c8eaebfdc408a91d7f55a73/cb18cf45a11302af6c09dd87ef6e6db2133a9249_646835487fbe8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/9377f203f4796ea5c8c11322a7461f88/0d32976da24262fd5852c9b2d1a8596c3dae63ba_646835470a425.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  S.A  
+##### 992#       发表于 2023-5-21 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60927452&amp;ptid=2088657" target="_blank">RhmBWT_Wu 发表于 2023-5-21 10:48</a>
+
+制作真厉害啊
+
+只是可惜虽然我没看漫画还是被剧透了，不然体验应该不一样
+
+如果早点把枪拿出来问是不 ...</blockquote>
+天国的故事编排其实突出一个恶有恶报，里面每个做过恶的地方都有明示或者暗示他们的恶行会给他们带来毁灭。
+
+
+*****
+
+####  ds2008  
+##### 993#       发表于 2023-5-21 11:19
+
+ 本帖最后由 ds2008 于 2023-5-21 11:21 编辑 
+
+动画这一集改编的很好，原作前期铺垫太长了，动画过半了，需要一个爆点了，至少让动画党大部分人去猜测，展开讨论，看漫画的时候我相信绝大多数人根本没想过这些。即便如此动画党和漫画党的差异不过就是后面刀里藏糖和糖里藏刀的区别
+
+
+*****
+
+####  鬼谷ask  
+##### 994#       发表于 2023-5-21 11:59
+
+虽然贷款感觉会有点招黑，但这一集应该是年度单集的有力竞争者吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ds2008  
+##### 995#       发表于 2023-5-21 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60928204&amp;ptid=2088657" target="_blank">鬼谷ask 发表于 2023-5-21 11:59</a>
+
+虽然贷款感觉会有点招黑，但这一集应该是年度单集的有力竞争者吧</blockquote>
+提前开香槟不可取。天国的第一话也不差，而且更多人会选我推的第一话吧，虽然拿90分钟去和别人24分钟比不太公平。你如果说年度动画的话，我觉得没问题。
+
+
+*****
+
+####  蒜皮  
+##### 996#       发表于 2023-5-21 12:48
+
+下一集这是大的要来了？
+
+
+*****
+
+####  幻肢痛  
+##### 997#       发表于 2023-5-21 13:07
+
+这话做的好细致，连maru在玻璃上的倒影都画出来了，虽然图层叠错了。
+
+staff表里的藤田春香更加深了感触。
+
+
+*****
+
+####  Earendil_C  
+##### 998#       发表于 2023-5-21 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">520特别纯爱单回，太神了
+
+
+*****
+
+####  怀特布莱克  
+##### 999#       发表于 2023-5-21 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60925151&amp;ptid=2088657" target="_blank">好much橘 发表于 2023-5-21 00:49</a>
+心情激动……简单梳理下这集在个人观感下的暗示，对错都有可能，不过我感觉应该没啥问题了。
+
+主要可以确定 ...</blockquote>
+宇佐美医生就是代的话为什么他没发病？
+
+
