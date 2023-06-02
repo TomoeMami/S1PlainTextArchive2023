@@ -3469,3 +3469,197 @@ https://colopl.co.jp/alicegearaegis/lp/aegis_pho ...</blockquote>
 
 其实除了北欧那俩之外501还有3个人（
 
+*****
+
+####  lxskcool  
+##### 442#       发表于 2023-5-22 19:59
+
+现在auto券有入手方式了吗，赶了一波活动差不多用完了<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 443#       发表于 2023-5-23 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这免费十连已经两次给我闪彩之后没出联动UP了，库路西
+
+
+*****
+
+####  江戸前ルナ  
+##### 444#         楼主| 发表于 2023-5-23 20:00
+
+佩琳的盘子和分支，强化幅度好大啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 445#       发表于 2023-5-24 08:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上头了，为了可爱的佩琳下池子，果断沉了
+
+
+*****
+
+####  Rincewind  
+##### 446#       发表于 2023-5-26 07:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60821410&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-5-12 12:15</a>
+开了盘子的莉涅昨天拿去打多人，抢分比AN未罗还要高。现在盘子可以有40狙击，在打光手脚之前莉涅就是个大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果说移除了前射散弹的话那确实有点坑了
+主要发数少没打几下就得填弹，狙又很容易横射后射浪费残弹，节奏跟奈奈那个插卡步枪差的不是一点
+
+但是奈奈的插卡步枪能不能伤害更厉害一点，等一个AN上调数值
+
+
+*****
+
+####  yygundam  
+##### 447#       发表于 2023-5-26 14:04
+
+ 本帖最后由 yygundam 于 2023-5-26 14:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60993896&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-5-26 07:24</a>
+
+如果说移除了前射散弹的话那确实有点坑了
+
+主要发数少没打几下就得填弹，狙又很容易横射后射浪费残 ...</blockquote>
+虽然没霰弹但是有个小范围AOE，不过总的来说派生枪不适合过图，更适合打boss（特别是协力，因为协力一张图你打不了5发boss肯定进刚体了）。我是两把枪换着用的。
+
+
+*****
+
+####  江戸前ルナ  
+##### 448#         楼主| 发表于 2023-5-26 14:29
+
+果然是母女组……北欧看来要多等快2年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+至于明娜，麻烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 449#       发表于 2023-5-26 14:55
+
+PV的徽章不但有北欧组还有明娜和静夏，位置都占好了。问题是菜鸡静夏纯粹凑数啊换个其他ACE好不好
+
+
+*****
+
+####  冰风血羽  
+##### 450#       发表于 2023-5-26 15:05
+
+静夏好歹是501编制，唯独不出她说不过去啊
+
+
+*****
+
+####  lxh00770077  
+##### 451#       发表于 2023-5-26 15:19
+
+关键问题不是阿嘎联动的是1944年的501吗
+
+静夏登场都是1945年的事情了，强行拉到阿嘎里估计除了坂本其她人都得挠头问“你谁啊”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 452#         楼主| 发表于 2023-5-26 15:49
+
+静夏做过来连大招都不好做，原作表现太拉跨了没固有魔法没高光杀敌表现。时间上她能过来不如找海德玛莉呢，我要夜鬼。时间不能太晚用第二季的马尔塞尤也行啊。还有这俩都是德国的组501前德棍们就都认识的更没问题了
+
+
+*****
+
+####  alialex  
+##### 453#       发表于 2023-5-26 16:00
+
+相比马尔塞尤还是夜魔比较像跟明娜一组的样子，最好时间点是第三季两个穿越过来，时空错位又认识的角色互相吐槽才是穿越的醍醐味啊
+
+虽然大概率还是静夏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之花  
+##### 454#       发表于 2023-5-26 18:30
+
+赣林娘都忘记有这两位了
+
+北欧组再等一年吗，你游会不会先倒闭啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 455#         楼主| 发表于 2023-5-26 20:15
+
+12个魔女标记的饼阿金都画给你们了，要想501魔女全收集，请小裤裤厨们努力氪金，起码要让游戏再多活3年半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 456#       发表于 2023-5-27 01:43
+
+去看了下PV的12个标记，左上角那个灰色的狼+“士”字设计明显扶桑风格的，就是静夏无误了吧
+
+话说几个组合就北欧组隔的特别开<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 457#         楼主| 发表于 2023-5-27 19:56
+
+AN小鸟要出肥姑妈了……
+
+妈的原来就海景房质量了这次加个千值练监修是为了加价吗<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 458#       发表于 2023-5-27 22:43
+
+还好AN配色不喜欢，不然钱包负担又要加重了。。。
+
+
+*****
+
+####  alialex  
+##### 459#       发表于 2023-5-28 16:28
+
+当时觉得普池衣服不好看想等an再入手，但这an装备的配色咋又那么丑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LEOKO~  
+##### 460#       发表于 2023-5-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60999425&amp;ptid=2104259" target="_blank">lxh00770077 发表于 2023-5-26 15:19</a>
+
+关键问题不是阿嘎联动的是1944年的501吗
+
+静夏登场都是1945年的事情了，强行拉到阿嘎里估计除了坂本其她人都 ...</blockquote>
+世界魔女手游主线就是这情节
+
+
+*****
+
+####  江戸前ルナ  
+##### 461#         楼主| 发表于 2023-5-30 22:47
+
+最新一期的电子杂志了，会长漫画里女演员PVP都要各种干起来了，阿金啥时候在游戏里实装人型BOSS啊（
+
+*****
+
+####  wilkyway  
+##### 462#       发表于 2023-5-30 22:48
+
+真实装了怕不是绿帽子又得ptsd发作(
+
