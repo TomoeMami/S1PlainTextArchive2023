@@ -1230,3 +1230,64 @@ David Hayter 的配音除了感冒期间配的 MGS1 都比较做作。
 
 大塚明夫井上喜久子这两推特活跃度不低的目前也没任何相关反应
 
+*****
+
+####  Piano-Forest  
+##### 124#         楼主| 发表于 2023-5-29 17:05
+
+<img src="https://p.sda1.dev/11/4cc21ad6c9fcfbdd2813ab4b102318f4/IMG_20230529_165055.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  mcq_2  
+##### 125#       发表于 2023-5-29 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60993489&amp;ptid=2135452" target="_blank">kos_mos 发表于 2023-5-26 01:28</a>
+
+合集上PS Store了，有MG12，MGS1包含INTEGRAL，MGS23是HD版。</blockquote>
+ps3上那个hd合集一直没上ps4么
+
+
+*****
+
+####  rzsxd  
+##### 126#       发表于 2023-5-29 17:23
+
+有一说一 当年怎么忽悠上的3DS 还挺好玩的
+
+
+*****
+
+####  qianoooo  
+##### 127#       发表于 2023-5-29 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61040184&amp;ptid=2135452" target="_blank">Piano-Forest 发表于 2023-5-29 17:05</a></blockquote>
+主力都是维塔士 konami只负责指手画脚基本
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Piano-Forest  
+##### 128#         楼主| 发表于 2023-5-31 00:06
+
+[https://jp.ign.com/metal-gear-so ... -snake-eater-konami](https://jp.ign.com/metal-gear-solid-delta-snake-eater/68128/news/mgs3metal-gear-solid-snake-eater-konami)
+[https://www.ign.com/articles/met ... delta-kojima-remake](https://www.ign.com/articles/metal-gear-solid-3-remake-delta-kojima-remake)
+
+[https://m.weibo.cn/detail/4907132741226575](https://m.weibo.cn/detail/4907132741226575)
+
+关于前不久刚刚公布的《潜龙谍影 Δ 食蛇者》，游戏媒体 IGN 就大家比较关心的几个问题向 Konami 进行了提问，并得到以下答复：
+
+●小岛秀夫和新川洋司未参与此次重制。
+
+●重制版的开发工作由 Konami 与新加坡游戏开发商维塔士共同进行。
+
+●重制版会完全忠于原作，不会有任何细节改动。
+
+●角色的配音阵容也不会改变。
+
+●有计划重制系列中的其他作品，但需要玩家们的反馈。
+
+●恐怕不会包含「猿蛇合战」的内容。
+
