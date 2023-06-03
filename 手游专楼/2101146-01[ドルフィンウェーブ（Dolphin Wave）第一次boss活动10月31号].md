@@ -1643,3 +1643,69 @@ ex淘汰赛翻车了，做好对策再进去
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏的爆率楼上这种太晒了吧
 
+*****
+
+####  小五的拖鞋  
+##### 370#         楼主| 发表于 2023-5-29 19:46
+
+<img src="https://img.saraba1st.com/forum/202305/29/194520q481g118dd0l5p2f.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (259.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-29 19:45 上传
+
+花嫁活动，另外5.31前瞻直播
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜活动数值越卡越死，有点想跑路了
+
+
+*****
+
+####  startea15  
+##### 371#       发表于 2023-5-30 01:24
+
+该跑是要跑的，我都转日常签到无课了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  心之光  
+##### 372#       发表于 2023-5-30 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">平常心，有钻就随便抽抽，爆率可太低了
+
+
+*****
+
+####  cwbn  
+##### 373#       发表于 2023-5-30 09:17
+
+这波抽完就准备跑路了，这游戏应该不会有啥新玩意了
+
+
+*****
+
+####  羽出  
+##### 374#       发表于 2023-5-30 21:15
+
+这游戏做白嫖副游其实不错，现在玩下来发现抽卡资源给得还是不少的，比上不足比下有余的那种
+
+虽然没啥乐趣，但每天也只要花5分钟做好日常就好，当抽卡拍照模拟器了
+
+
+*****
+
+####  startea15  
+##### 375#       发表于 2023-5-31 02:47
+
+不打extreme就随便糊糊是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  心之光  
+##### 376#       发表于 2023-5-31 10:42
+
+不打这游戏的ex关卡，就是最轻松的游戏体验<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
