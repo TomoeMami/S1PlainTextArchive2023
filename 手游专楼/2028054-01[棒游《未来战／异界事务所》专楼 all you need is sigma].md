@@ -1080,3 +1080,14 @@ pc端没游客选项吧
 
 跃入加五层 各项系统改善
 
+*****
+
+####  rgauss  
+##### 920#         楼主| 发表于 2023-5-31 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我还没爽到过法学院院长就被削了 
+想了想 艾米也是 虽然削了也强 餐车我抽到了也没用过
+<img src="https://p.sda1.dev/11/376cee5eaa088df3420c7aa72d827208/CMP_20230531132649744.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
