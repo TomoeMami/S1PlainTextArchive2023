@@ -950,3 +950,250 @@ NS时说每个女孩子都可以（当然没说男孩子不可以）
 那个舞台剧脚本演出ほさかよう 这家伙还在供火中
 就现在公布男Q娃舞台剧那帮士大夫没有一个是无辜的
 
+*****
+
+####  天风绯炎  
+##### 100#       发表于 2023-5-30 14:34
+
+挂了老字号q娃的前缀，不愁没人爆金币<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cloudslin  
+##### 101#       发表于 2023-5-30 14:59
+
+最哈人的还是那个介绍里的and more……小时候最害怕的一集<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RYURYUTA  
+##### 102#       发表于 2023-5-30 15:13
+
+草 斯麦路超人你怎么在这里
+
+
+*****
+
+####  花礫  
+##### 103#       发表于 2023-5-30 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60646723&amp;ptid=2131230" target="_blank">凡人 发表于 2023-4-28 12:14</a>
+男性向想要女性市场女性向想要男性市场这种事情太多了，我有点好奇真有人搞过成功案例吗 ...</blockquote>
+基本都没有，几个尝试过的基本都狗带了，最近上松不信邪还要搞歌之公主殿下，也在一脸暴死。
+不知道管人算不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  zing223  
+##### 104#       发表于 2023-5-30 17:45
+
+思麦路这个角竟然还是我觉得里面最好看的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿棍风吟  
+##### 105#       发表于 2023-5-30 17:52
+
+果然是圆古化妆术的锅吗
+
+
+*****
+
+####  reficulp  
+##### 106#       发表于 2023-5-30 18:04
+
+我也能当q娃可能性微存
+
+
+*****
+
+####  支仓爱理  
+##### 107#       发表于 2023-5-30 20:02
+
+一想到能给一些护着空q那个傻逼男的人喂屎，我就和这玩意和解了，再加大点力度 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  李霞  
+##### 108#       发表于 2023-5-30 20:07
+
+<img src="https://p.sda1.dev/11/b5549e0002451f8801a2fe2d9fb660e2/CMP_20230530200711429.jpg" referrerpolicy="no-referrer">
+
+这不得叫蓝猫客串一下? <img src="https://static.saraba1st.com/image/smiley/carton2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bilibilius  
+##### 109#       发表于 2023-5-31 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60649167&amp;ptid=2131230" target="_blank">粉儿alice 发表于 2023-4-28 15:30</a>
+
+这图我记得石锤是假的了</blockquote>
+不，这图基本确定是真实的，应该是秋叶原某个DVD店内拍的。数字君曾经考究过
+[https://prehyou2015.hatenablog.com/entry/taishou](https://prehyou2015.hatenablog.com/entry/taishou)
+
+而且还有其他资料也提过Precure在男性中也有人气的。
+
+<img src="https://img.saraba1st.com/forum/202305/31/001203rp3x0rblfabgg4sp.jpg" referrerpolicy="no-referrer">
+
+<strong>BMpEEZpCEAAXv1w.jpg</strong> (101.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-31 00:12 上传
+
+
+*****
+
+####  猫睛石  
+##### 110#       发表于 2023-5-31 05:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61058494&amp;ptid=2131230" target="_blank">bilibilius 发表于 2023-5-31 00:14</a>
+不，这图基本确定是真实的，应该是秋叶原某个DVD店内拍的。数字君曾经考究过
+
+https://prehyou2015.hatena ...</blockquote>
+この「プリキュアのＤＶＤの購買層」のメインターゲットに成人男子が含まれる、という事が
+
+誇張され、
+拡大解釈され、
+
+「プリキュアは20代30代男子もターゲットにしている」という解釈に繋がっていったものと思われます。
+
+点进那个考察看了下，结论有这么一段……
+
+
+*****
+
+####  舞野咲  
+##### 111#       发表于 2023-5-31 06:57
+
+之前我看这个没怎么破防，直到我看到他们的cure名，他们有cure名这一点让我破防了
+
+
+*****
+
+####  pokemon最爱  
+##### 112#       发表于 2023-5-31 07:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61059224&amp;ptid=2131230" target="_blank">猫睛石 发表于 2023-5-31 05:39</a>
+
+この「プリキュアのＤＶＤの購買層」のメインターゲットに成人男子が含まれる、という事が
+
+誇張され、</blockquote>
+图本身是真的这点没啥问题，只不过那个图好像是哪个店铺根据卖光盘的情况自己统计的，只能说虽然并非目标受众但实际受众中确实是存在男性偏高龄的这一层（也就是俗称的大友）
+
+后续作品制作多少是有意识到这部分观众的。
+
+
+*****
+
+####  雪霜  
+##### 113#       发表于 2023-5-31 12:06
+
+记得当时出现第一个男q娃时有人表示反感结果都是被喷的，现在如何啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 114#       发表于 2023-5-31 12:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61051801&amp;ptid=2131230" target="_blank">RYURYUTA 发表于 2023-5-30 15:13</a>
+
+草 斯麦路超人你怎么在这里</blockquote>
+寺坂：赖我？
+
+*****
+
+####  待宵  
+##### 115#       发表于 2023-5-31 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61059295&amp;ptid=2131230" target="_blank">舞野咲 发表于 2023-5-31 06:57</a>
+
+之前我看这个没怎么破防，直到我看到他们的cure名，他们有cure名这一点让我破防了 ...</blockquote>
+cure名必然有
+
+只求动画乃至全明星别让他们出场也勉强OK
+
+但一想到这毕竟是20周年的一个企划，动画版出现的可能性不小，就挺恶心
+
+
+*****
+
+####  kaiser-william  
+##### 116#       发表于 2023-5-31 12:25
+
+这是为了蹭lgbtq吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  aurela  
+##### 117#       发表于 2023-5-31 13:04
+
+来看性转帅哥然后跑题来的……看这个五彩发色不知道为什么就在想哪个愚人节上美影也能恶搞个七彩葫芦娘出道，蛇精兄弟可能还挺霸总的，压寨夫人蝎子精鳄鱼娘，巡山小妹蛤蟆娘、蜈蚣娘，葫芦金刚芭比和倒三角小细腰蝴蝶公子的悲恋故事……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  粉儿alice  
+##### 118#       发表于 2023-5-31 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61058494&amp;ptid=2131230" target="_blank">bilibilius 发表于 2023-5-31 00:14</a>
+
+不，这图基本确定是真实的，应该是秋叶原某个DVD店内拍的。数字君曾经考究过
+
+https://prehyou2015.hatena ...</blockquote>
+借萌翻图用
+<img src="https://weibo.com/u/2522348994?layerid=3930927622892863" id="aimg_GFPvI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  bilibilius  
+##### 119#       发表于 2023-5-31 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61067550&amp;ptid=2131230" target="_blank">粉儿alice 发表于 2023-5-31 18:44</a>
+
+借萌翻图用</blockquote>
+其实是两码事。初代光之美少女的制作目标年龄层是7-9岁的女孩这点是确定的，那张图也是真实的，不过图里的目标年龄层指的是DVD的贩卖对象。
+
+
+*****
+
+####  王留美  
+##### 120#       发表于 2023-5-31 21:28
+
+其实很正常，前前作的美战就吸引了一堆死宅乃至形成社会新闻，市场对于美战精神续作的两人Q娃的碟片对象层预估包含成年男性简直毫不意外
+
+
+*****
+
+####  HANDAIYV  
+##### 121#       发表于 2023-5-31 22:32
+
+鸟主要还是因为妖精加正太才有人护着，要是一样是国中生甚至更大的话，估计也不会有那么多人给男q说好话了
+
+*****
+
+####  粉儿alice  
+##### 99#       发表于 2023-5-30 13:31
+
+这太斯麦露<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+快进到秋季全明星剧场版登场<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+之前看到这玩意海报从Marvelous官网q娃新闻撤下过 但搜索页还是能搜到 看来是心虚过惹
+反正演员公布下 剧情卖卖腐 自来有人会买单呗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
