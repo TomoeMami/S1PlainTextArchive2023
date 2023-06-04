@@ -2457,3 +2457,10 @@ github的pr说是网站已关闭，然而并没有
 有坛友知道被漫画柜ban ip后多久会恢复吗？以前没被ban还是我看得不够多。。。 ...</blockquote>
 我曾被 ban 两次，大约一周便可以再用。
 
+*****
+
+####  努斯万克  
+##### 247#       发表于 2023-6-1 21:39
+
+问下各位tachiyomi的哪个插件可以完整看柯南啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

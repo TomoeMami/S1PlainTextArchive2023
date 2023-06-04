@@ -718,3 +718,71 @@ https://zerlarnystyle.com/post-23194/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日服天国之邀常驻了，新的衣食父母火皮鼓即将回到她忠实的3-4<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+*****
+
+####  黑上シグマ  
+##### 67#       发表于 2023-5-31 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公司改名字了，从猪变成了挖路基
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  红白二色霉豆腐  
+##### 68#       发表于 2023-5-31 17:13
+
+离线挂机来了，皮肤产能也恢复了一部分，好起来辣<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ashice  
+##### 69#       发表于 2023-5-31 21:47
+
+日服啥时候能有离线挂机，前几天看了战术子轩的视频小心动但是实在没有那个设备去挂机
+
+韩服似乎是没有完整汉化账号还有点麻烦就不考虑了
+
+*****
+
+####  黑上シグマ  
+##### 70#       发表于 2023-5-31 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61069509&amp;ptid=2078383" target="_blank">Ashice 发表于 2023-5-31 21:47</a>
+
+日服啥时候能有离线挂机，前几天看了战术子轩的视频小心动但是实在没有那个设备去挂机
+
+韩服似乎是没有完整 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服进度比韩服慢一年，但之前日服3周年纪念时候说要开始追进度
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以，没人知道
+
+*****
+
+####  Ashice  
+##### 71#       发表于 2023-5-31 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61069520&amp;ptid=2078383" target="_blank">黑上シグマ 发表于 2023-5-31 21:49</a>
+
+日服进度比韩服慢一年，但之前日服3周年纪念时候说要开始追进度
+
+所以，没人知道 ...</blockquote>
+那就再蹲蹲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没赶上第一波开服后边啥时候都无所谓了
+
+
+*****
+
+####  leina0602  
+##### 72#       发表于 2023-5-31 22:07
+
+不错，省下云手机的钱又可以拿来买皮肤
+
+
+*****
+
+####  铁火辉夜  
+##### 73#       发表于 2023-6-1 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日服周年庆自选四个SS看来看去挑了四个没得捞只能建的充充图鉴
+
