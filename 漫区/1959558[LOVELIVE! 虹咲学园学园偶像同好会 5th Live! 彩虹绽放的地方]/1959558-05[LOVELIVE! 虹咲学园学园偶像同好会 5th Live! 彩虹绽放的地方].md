@@ -5761,3 +5761,87 @@ as变成了。。奇怪的东西
 5专和衣服投票
 <img src="https://p.sda1.dev/11/6036d407af1166718db4d2ced28ad17c/2scvqnm8uf2n1i9qpoa8oszvk.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 7263#       发表于 2023-5-29 23:02
+
+[https://twitter.com/kerorira1/status/1661812114221330432](https://twitter.com/kerorira1/status/1661812114221330432)
+<img src="https://p.sda1.dev/11/7081d1f97a3c06e4e38553a74acb2203/20230529_230109.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/cbcb91f8ea1bc49eccd1d76d657734ce/20230529_230115.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/9d962432cf2183fe7a035bf1a965b11f/20230529_230118.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/9c7548de0ebaad004be911757f14c3e5/20230529_230122.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 7264#       发表于 2023-5-29 23:03
+
+[https://twitter.com/ohkowai/status/1663198510643314690](https://twitter.com/ohkowai/status/1663198510643314690)
+
+🫶🫶🫶愛ちゃん誕生日おめでとう！🎂🎂🎂👐👐
+
+#宮下愛生誕祭2023 
+
+#虹ヶ咲 
+
+#lovelive
+<img src="https://p.sda1.dev/11/6f37441e4de163fd77a41999bd5238bf/20230529_230158.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7265#       发表于 2023-5-30 07:30
+
+虹之咲字幕组汉化
+<img src="https://p.sda1.dev/11/38c168e185dd154db690c24a59fd33ee/CMP_20230530072939427.jpg" referrerpolicy="no-referrer">
+“侑同学，看。那个，厉害……发生什么了呢？”
+“哇～好漂亮！这种灯光感觉能在璃奈你的演唱会上用到呢。拍张照留下来吧！”
+
+Rina‘s episode
+轻飘飘地，身体仿佛浮起来一般。
+我正身处于光雕投影制造的空间中。周边五彩缤纷，光线与声音仿佛要将我们带往另一个世界。
+这场景就仿佛演唱会的舞台般，为取悦观众们所造。
+（但是……如果能配合上歌声的话就更好了）
+大概是因为学园偶像的身份，我才会产生这样的想法吧？
+“不知道为什么，突然想听到大家的歌声了呢。”
+侑同学正笑着。果然，她与我正在想同一件事。
+我一边点着头，一边紧紧握住她那牵着我的手。
+
+侑与同好会成员的两人出行企划本月来到侑与璃奈之行！光影变幻的空间里，她们将会诞生怎样的感情呢～
+次回将由栞子陪伴侑出行！两人将会前往某个诞生全新体验地方♪
+详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
+<img src="https://p.sda1.dev/11/130d26000dc4b1bc260d146fa7054d74/CMP_20230530072939489.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7266#       发表于 2023-5-30 07:43
+
+虽然看似正常，但是偷偷十指相扣。璃奈璃很懂啊（
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7267#       发表于 2023-5-30 14:40
+
+最后的as曲封面，最初的打歌服
+畑亚贵作词
+<img src="https://p.sda1.dev/11/3aa691185a59556616ec981bd0e94c65/CMP_20230530143935251.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/95c45ef6915cfb751871778115a8bcd7/CMP_20230530143935303.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7268#       发表于 2023-6-1 18:56
+
+Waku Waku! Monday Morning [https://b23.tv/UGPMlph](https://b23.tv/UGPMlph)
+
+第一首年级曲
+<img src="https://p.sda1.dev/11/cbfea5cb1c6b09ba44fd017b6ac89d70/CMP_20230601185528928.jpg" referrerpolicy="no-referrer">
+
