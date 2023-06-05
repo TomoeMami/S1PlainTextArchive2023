@@ -2110,3 +2110,20 @@ https://bbs.saraba1st.com/2b/thread-1770232-1-1.html</blockquote>
 
 会不会在某一集战前祈祷到一半被打断(
 
+*****
+
+####  Piano-Forest  
+##### 191#         楼主| 发表于 2023-6-2 16:34
+
+OP「僕らのスペクトラ」きただにひろし
+
+作詞:シト
+
+作曲・編曲:尾澤拓実
+
+ED「BLACK STAR」MindaRyn
+
+作詞:SACHIKO
+
+作曲・編曲:小山 寿
+
