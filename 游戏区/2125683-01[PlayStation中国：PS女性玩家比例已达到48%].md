@@ -999,3 +999,204 @@ sie公开数据＝没有数据，你拿不出其他数据＝合理质疑
 众所周知ns妇孺机，女性玩家占比肯定比ps多，现在ps已经1:1，没想到主机玩家男性成为了少数派......索尼这 ...</blockquote>
 按照身边统计学的话，NS的女性玩家远远超过拥有NS的男性玩家，最近好像动森有什么活动，朋友圈发满了；而男性玩家大部分是王者荣耀玩家，都是上了某个等级然后朋友圈发个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我认为动森和王者荣耀都属于社交型游戏，反而没见过谁朋友圈发什么PS XBOX的图，就发发机器照片而已
 
+*****
+
+####  大秦男女  
+##### 100#       发表于 2023-6-2 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61087226&amp;ptid=2125683" target="_blank">Midnight.Coup 发表于 2023-6-2 11:00</a></blockquote>
+你怎麽可以假定他的性別<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月黑杀人夜  
+##### 101#       发表于 2023-6-2 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61087226&amp;ptid=2125683" target="_blank">Midnight.Coup 发表于 2023-06-02 11:00:51</a></blockquote>女性向游戏才会有更多的男性NPC吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Total_Lau  
+##### 102#       发表于 2023-6-2 11:57
+
+比起楼里一堆嚷嚷怎么我就没见过几个女玩家
+
+我还是更愿意相信索尼的统计
+
+*****
+
+####  勇者护手  
+##### 103#       发表于 2023-6-2 11:58
+
+楼里面有些宅宅是真的可悲 坐论坛观天 我没见过等于没有 看到这种和自己认知不符的统计数据第一反应就是破防 牛的牛的
+
+
+*****
+
+####  闽明  
+##### 104#       发表于 2023-6-2 12:12
+
+ 本帖最后由 闽明 于 2023-6-2 12:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不冤
+
+
+*****
+
+####  Bernoulli  
+##### 105#       发表于 2023-6-2 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60208661&amp;ptid=2125683" target="_blank">Deay店长 发表于 2023-3-24 16:41</a>
+
+索尼他自己信吗？看看NGA那群买个游戏机都要老婆批准的人？</blockquote>
+单身女性买个游戏机又不需要老公批准。
+
+*****
+
+####  Gunlun  
+##### 106#       发表于 2023-6-2 12:16
+
+有一说一，这楼里的对女性玩家没什么认识。去豆瓣看一下那个女性玩家联合会就知道豆瓣女玩家有多吹捧索尼和PS了
+
+*****
+
+####  ccow  
+##### 107#       发表于 2023-6-2 12:18
+
+psn注册有男女选择吗？
+
+*****
+
+####  inconolast  
+##### 108#       发表于 2023-6-2 12:24
+
+您索现在这个样子不该直接说有32%的lgbt玩家吗
+
+*****
+
+####  inconolast  
+##### 109#       发表于 2023-6-2 12:24
+
+您索现在这个样子不该直接说有32%的lgbt玩家吗
+
+
+*****
+
+####  Edvinno  
+##### 110#       发表于 2023-6-2 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我寻思完全可以理解，这些年手游和ns扩了那么大的蓝海市场，那么老些女玩家哪怕十分之一想要尝试更高画质或者单纯想买更新更in的游戏机就会去买ps啊，又不会去折腾pc
+
+
+*****
+
+####  chizuru  
+##### 111#       发表于 2023-6-2 13:24
+
+原神改变了PlayStation
+
+
+*****
+
+####  禾芙绿豆沙  
+##### 112#       发表于 2023-6-2 13:33
+
+破防也好数据也罢...实际上男性视角的游戏还是大多数，什么时候反过来了再说吧
+
+
+*****
+
+####  洛亚替身  
+##### 113#       发表于 2023-6-2 13:40
+
+现在偏男性为主的游戏群里女性玩家都不少的，更不用说偏向女性的社交平台，游戏和电影都是娱乐产品....男女比例开始接近很正常，关注游戏本身更重要，没必要对玩家群体用性别视角来看待
+
+
+*****
+
+####  hisousihou  
+##### 114#       发表于 2023-6-2 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在的〇可是非常女性向的
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  诚司  
+##### 115#       发表于 2023-6-2 14:24
+
+得，ps都48%女性，不信就是破防了
+
+你们牛逼好吧
+
+买衣服化妆品女性占多少，男性占多少
+
+ns也女性多，ps占48%，全世界人工资都上交了是吧？有点脑子好吧
+
+
+*****
+
+####  三尖酸努努  
+##### 116#       发表于 2023-6-2 14:54
+
+你这数据给ns我铁信啊，索尼有什么蓝海玩家可言，还坐井观天，质疑一下数据都不行？反正我不信
+
+
+*****
+
+####  飞升之后  
+##### 117#       发表于 2023-6-2 15:11
+
+恭喜PS玩家
+
+
+*****
+
+####  clears  
+##### 118#       发表于 2023-6-2 15:16
+
+没什么问题啊，毕竟吹地平线这种游戏的基本都是女玩家。
+
+*****
+
+####  busuji  
+##### 119#       发表于 2023-6-2 15:18
+
+女玩家远远地八卦一下还好，真跟她们一起玩游戏、讨论游戏，可太难受了。论坛里隐藏的女玩家，只要她不说，你看出来了也不要点破。
+
+因为特意带着性别的身份出来活跃的女玩家，说实话挺下头的。
+
+
+*****
+
+####  Vladimeow  
+##### 120#       发表于 2023-6-2 15:58
+
+就大部分人的身边统计学来说，PS5这个比例有20%不错了
+
+
+*****
+
+####  少年的深渊  
+##### 121#       发表于 2023-6-2 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60216833&amp;ptid=2125683" target="_blank">诚司 发表于 2023-3-25 08:35</a>
+
+集美伟大，连ps上都宣传全是集美，这曾经ps5独占的p5不出个明智吾郎特制大型dlc吗？ ...</blockquote>
+p6直接做成明智吾郎异闻录不更好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  大秦男女  
+##### 99#       发表于 2023-6-2 11:24
+
+意思是女性買國行，男性買海版
+
+
