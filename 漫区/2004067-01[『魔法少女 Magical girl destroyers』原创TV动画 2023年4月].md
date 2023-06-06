@@ -3142,3 +3142,357 @@ Mahou Shoujo Magical Destroyers - 06 [1080p] .ass
 
 —— 来自 Sony NW-A100Series, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+*****
+
+####  Alicest  
+##### 277#       发表于 2023-5-20 21:22
+
+请随意取用
+
+我也想开超级系，还有这集一如既往的不到家 magnet:?xt=urn:btih:3WCZT45ETRQ242ZMPTYXOHVKBQFBGQOF复制代码
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Mahou Shoujo Magical Destroyers - 07 [1080p] .ass
+(35.06 KB, 下载次数: 1)
+
+2023-5-20 21:21 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+[Alicest個人漢化]魔法少女毀滅者 Mahou Shoujo Magical Destroyers - 07 [1080p][内.torrent
+(44 KB, 下载次数: 3)
+
+2023-5-20 21:21 上传
+
+点击文件名下载附件
+
+
+*****
+
+####  幻肢痛  
+##### 278#       发表于 2023-5-21 13:53
+
+这反派让松冈来配就好了。
+
+
+*****
+
+####  三尖酸努努  
+##### 279#       发表于 2023-5-21 15:36
+
+想知道安那其是有个什么不可告人的过去，这会成为爆点吗？
+
+
+*****
+
+####  Alicest  
+##### 280#       发表于 2023-5-21 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60930387&amp;ptid=2004067" target="_blank">三尖酸努努 发表于 2023-5-21 15:36</a>
+
+想知道安那其是有个什么不可告人的过去，这会成为爆点吗？</blockquote>
+不管是能动性还是变身后乃至地位都和shobon家的slayer太像了，多半是t800和t850的关系吧（
+
+
+*****
+
+####  Ichthy  
+##### 281#       发表于 2023-5-21 20:42
+
+居然有组接了
+
+
+*****
+
+####  wanwanjun  
+##### 282#       发表于 2023-5-22 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60935176&amp;ptid=2004067" target="_blank">Ichthy 发表于 2023-5-21 20:42</a>
+居然有组接了</blockquote>
+一直有啊
+
+—— 来自 Sony NW-A100Series, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  怀特布莱克  
+##### 283#       发表于 2023-5-22 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60935176&amp;ptid=2004067" target="_blank">Ichthy 发表于 2023-5-21 20:42</a>
+居然有组接了</blockquote>
+好像有3个组吧
+
+
+*****
+
+####  m98626  
+##### 284#       发表于 2023-5-23 08:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了，SSC还收魔怔挂逼是吧，鉴定为玩战地1玩的
+
+
+*****
+
+####  wanwanjun  
+##### 285#       发表于 2023-5-23 13:10
+
+这咋还带掉san的
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  越动天下  
+##### 286#       发表于 2023-5-24 12:24
+
+刷到了ed 歌还是可以的
+
+
+*****
+
+####  库德里尔  
+##### 287#       发表于 2023-5-24 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60935176&amp;ptid=2004067" target="_blank">Ichthy 发表于 2023-5-21 20:42</a>
+
+居然有组接了</blockquote>
+据我所知，一个北宇治，一个离谱Sub，一个坛友是在稳定更新的。
+
+
+*****
+
+####  丁兔  
+##### 288#       发表于 2023-5-26 17:54
+
+宅男文娱的一生，看隔壁帖子有感，虽然没像本片里一样被全面禁止，但也确实有“不能对喜欢的东西大声说出喜欢”那种感觉了
+
+
+*****
+
+####  水莲寺流歌  
+##### 289#       发表于 2023-5-27 01:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">印象里像这种硬搞单元剧然后每集给你塞点明显的小伏笔，话里话外一副后面有大的生怕你看不出来的片子后面都死的很惨
+
+
+*****
+
+####  Alicest  
+##### 290#       发表于 2023-5-27 15:36
+
+请随意取用
+
+怎么你也唱歌啊 magnet:?xt=urn:btih:N4BH3N32FCN76LVQA3YM7ACT5EFPYOWN复制代码
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Mahou Shoujo Magical Destroyers - 08 [1080p] .ass
+(35.1 KB, 下载次数: 0)
+
+2023-5-27 15:36 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+[Alicest個人漢化]魔法少女毀滅者 Mahou Shoujo Magical Destroyers - 08 [1080p][内.torrent
+(74.69 KB, 下载次数: 0)
+
+2023-5-27 15:36 上传
+
+点击文件名下载附件
+
+
+*****
+
+####  五城桜  
+##### 291#       发表于 2023-5-27 21:38
+
+这集有意思<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 292#       发表于 2023-5-28 02:22
+
+听一遍D City Rock压压惊
+
+
+*****
+
+####  丁兔  
+##### 293#       发表于 2023-5-28 10:03
+
+这集的风格叫什么？实验性？意识流？
+
+
+*****
+
+####  Piano-Forest  
+##### 294#         楼主| 发表于 2023-5-28 10:56
+
+[https://twitter.com/GinsanSecond/status/1662389746851610625](https://twitter.com/GinsanSecond/status/1662389746851610625)
+<img src="https://p.sda1.dev/11/866af5a19e93c37128cb02bd509426e9/20230528_105531.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/0dcd17f65953ac68576bc952f80909e9/20230528_105533.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/1b5c0702624b7f069d88838fe3e6bead/20230528_105534.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wolf1997  
+##### 295#       发表于 2023-5-28 14:33
+
+要是田中在电锯人也能弄出个这种味道的演出，起码能给龙哥挽一下尊
+
+
+*****
+
+####  幻肢痛  
+##### 296#       发表于 2023-5-28 16:09
+
+做得有点走火入魔了，就那一句话念叨了二十分钟。
+
+
+*****
+
+####  爱丁堡official  
+##### 297#       发表于 2023-5-28 22:43
+
+怎么感觉这集资源挺足
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  三尖酸努努  
+##### 298#       发表于 2023-5-28 23:03
+
+tnk演出有点意思，剧情依旧没活
+
+
+*****
+
+####  Ichthy  
+##### 299#       发表于 2023-5-29 00:44
+
+有点意思，看办大会还以为是捏他动画宣言。
+
+
+*****
+
+####  m98626  
+##### 300#       发表于 2023-5-29 05:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">这集疯狂虚实切换把我整懵了，总不会最后跟你说这些都是梦你其实在插管吧
+
+
+*****
+
+####  梶原ひかり  
+##### 301#       发表于 2023-5-30 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这切换来切换去...到底是真是假
+
+
+*****
+
+####  wanwanjun  
+##### 302#       发表于 2023-5-30 22:57
+
+音监太吊了
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Yeaha123  
+##### 303#       发表于 2023-5-31 13:38
+
+这集真的可以
+
+
+*****
+
+####  Piano-Forest  
+##### 304#         楼主| 发表于 2023-5-31 20:14
+
+<img src="https://p.sda1.dev/11/7589e5b5adff74a656611fb9bb0dc207/yande.re 1093516 anarchy__mahou_shoujo_magical_destroyers_ aquastar_inc. bikini mahou_shoujo_magical_destroyers swimsuits tagme weapon.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水莲寺流歌  
+##### 305#       发表于 2023-6-3 01:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集其实气氛不错，主要是塑造了一个很有病的萝莉，就这个仅靠着几处回忆和打斗中穿插小表情支撑起来的角色给人留下的印象比只会复读强调人设的主角团实在深刻的多
+
+
+*****
+
+####  伊地知星歌  
+##### 306#       发表于 2023-6-3 09:46
+
+代发
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Mahou Shoujo Magical Destroyers - 09 [1080p] .ass
+(32.25 KB, 下载次数: 0)
+
+2023-6-3 09:45 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+[Alicest個人漢化]魔法少女毀滅者 Mahou Shoujo Magical Destroyers - 09 [1080p][内.torrent
+(42.46 KB, 下载次数: 0)
+
+2023-6-3 09:45 上传
+
+点击文件名下载附件
+
+*****
+
+####  Junglemgs  
+##### 307#       发表于 2023-6-3 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61097948&amp;ptid=2004067" target="_blank">水莲寺流歌 发表于 2023-6-3 01:32</a>
+
+这集其实气氛不错，主要是塑造了一个很有病的萝莉，就这个仅靠着几处回忆和打斗中穿插小表情支撑起 ...</blockquote>
+真的是很不妙的一对兄妹，妹妹这个回忆一出来我就感觉到“肯定会比哥哥更有病”
+
+
+*****
+
+####  海底铁锚  
+##### 308#       发表于 2023-6-3 12:32
+
+这对兄妹的西尾味道太浓烈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  k1no  
+##### 309#       发表于 2023-6-3 17:55
+
+ 本帖最后由 k1no 于 2023-6-3 17:57 编辑 
+
+最后突然来个桃白白的移动方式有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ichthy  
+##### 310#       发表于 2023-6-3 22:01
+
+原来w嘴假面都是人啊，我还以为是机器人。
+
