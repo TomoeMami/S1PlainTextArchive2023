@@ -844,3 +844,12 @@ https://www.kickstarter.com/proj ... si ...</blockquote>
 
 Embark on a dark investigation in Penny Blood—the latest JPRG from the creators of Shadow Hearts!Amass allies and confront trauma in a world twisted by cosmic horror, mayhem and 𝖒𝖆𝖑𝖎𝖈𝖊.
 
+*****
+
+####  kria  
+##### 79#         楼主| 发表于 2023-6-4 05:23
+
+转贴太麻烦
+
+5月更新
+
