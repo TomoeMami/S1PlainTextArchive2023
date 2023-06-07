@@ -180,3 +180,54 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
 一井0up<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+*****
+
+####  super_uni  
+##### 776#       发表于 2023-6-2 07:36
+
+英文版已出
+
+— from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  super_uni  
+##### 777#       发表于 2023-6-2 15:10
+
+台服玩家反映翻译一炮污，这开服一排抽卡装都不装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/a56e4322e943af37f2b9bd7ec7685f29/CMP_20230602150948513.jpg" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  warerest1  
+##### 778#       发表于 2023-6-2 16:38
+
+这个机翻也太垃圾
+
+*****
+
+####  伊布桑  
+##### 779#         楼主| 发表于 2023-6-2 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61091204&amp;ptid=2009419" target="_blank">super_uni 发表于 2023-6-2 15:10</a>
+台服玩家反映翻译一炮污，这开服一排抽卡装都不装了</blockquote>
+这机翻也太生草了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  Huanghaozheng  
+##### 780#       发表于 2023-6-4 15:16
+
+其实我比较好奇的是就算机翻你也在日服把其他语言上了啊；
+
+你总不能说以后要多语言精修一遍吧这我是不信的；
+
+ 只能说从头到尾透露着一股霓虹ip产业刻板印象的美<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
