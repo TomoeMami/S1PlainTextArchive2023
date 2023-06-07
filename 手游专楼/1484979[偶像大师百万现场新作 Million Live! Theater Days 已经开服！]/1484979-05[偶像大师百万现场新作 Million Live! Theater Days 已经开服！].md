@@ -1101,3 +1101,12 @@ BC秋季完结
 还以为杏奈生日正好更新卡池，会出杏奈新衣服，看来是我想多了。
 日本人是多喜欢蝴蝶结啊，这活动服胸下一堆蝴蝶结显幼过度装饰了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7159#       发表于 2023-6-4 20:23
+
+抽空把上次生放补了，周年曲虽然比去年有点淡，但衣服可爱多了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+最近打铃音个人曲，OM模式打了20多遍还得上回血，得亏百万难度都没这么高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
