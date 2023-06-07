@@ -5761,3 +5761,112 @@ NiKo前指挥又添一人<img src="https://static.saraba1st.com/image/smiley/fac
 
 major之后变阵也是常规吧，好多队都传了，G2变阵的话HooXi可能转教练
 
+*****
+
+####  奈纪亚美  
+##### 3775#       发表于 2023-6-1 05:14
+
+G2烂了呀
+
+
+*****
+
+####  dev2ce  
+##### 3776#       发表于 2023-6-1 09:02
+
+设备老年了还要负重前行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3777#         楼主| 发表于 2023-6-1 09:53
+
+老汤不如又润了算了，现在a队这样真浪费阿汤哥职业生涯剩下的时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3778#       发表于 2023-6-2 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61073331&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-6-1 09:53</a>
+老汤不如又润了算了，现在a队这样真浪费阿汤哥职业生涯剩下的时间</blockquote>
+要变阵了，看来a队管理层搞明白哪怕走流量路线，也是要有成绩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3779#         楼主| 发表于 2023-6-2 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61084165&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-6-2 00:35</a>
+
+要变阵了，看来a队管理层搞明白哪怕走流量路线，也是要有成绩的</blockquote>
+还等24年呢，老汤快熬干了
+
+
+*****
+
+####  roydimus  
+##### 3780#       发表于 2023-6-3 04:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽象啊，阿汤杀了42个还赢不了
+
+常规时间坤坤死了24次，0.5的kd，加时赛愣是打成正的了。。
+
+
+*****
+
+####  dev2ce  
+##### 3781#       发表于 2023-6-3 05:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61084201&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-6-2 00:40</a>
+还等24年呢，老汤快熬干了</blockquote>
+我的建议是一踢四重组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 3782#       发表于 2023-6-3 09:44
+
+昨天一打完就切，看不到选手画面，也不知道汤红了没
+
+
+*****
+
+####  ispep  
+##### 3783#       发表于 2023-6-3 18:28
+
+经典四菜一汤
+
+
+*****
+
+####  Austaras  
+##### 3784#       发表于 2023-6-3 18:58
+
+不如加入小蜜蜂
+
+
+*****
+
+####  Niyah  
+##### 3785#       发表于 2023-6-4 08:44
+
+ence faze打嗨了，这图三好看
+
+
+*****
+
+####  天妇罗  
+##### 3786#       发表于 2023-6-4 09:15
+
+打了快60局，大表哥只杀了22个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 3787#       发表于 2023-6-4 09:17
+
+太阳神加时赛彻底疯了，太crazy了
+
