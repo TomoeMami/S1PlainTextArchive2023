@@ -1046,3 +1046,382 @@ Ave Mujica太对味了<img src="https://static.saraba1st.com/image/smiley/face20
 因为她自己直播弹小飞都一直在笑场啊，小飞的歌各种意义上都不适合现阶段的她们 ...</blockquote>
 我还想，青木作为邦邦这批人里唱歌最正的被你说成一塌糊涂，我还在思考你为啥会继续看这个企划。。。。
 
+*****
+
+####  Piano-Forest  
+##### 100#       发表于 2023-5-24 19:40
+
+OP：[https://youtu.be/_CraJ8654Bg](https://youtu.be/_CraJ8654Bg)
+
+CM：[https://youtu.be/YVyXE61eYCA](https://youtu.be/YVyXE61eYCA)
+
+<img src="https://p.sda1.dev/11/146732d4bd992d8469636e5f833a8042/20230524_184028.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/dca05bfc0a9025522e11b99e89b328b9/20230524_184034.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  joelsun  
+##### 101#       发表于 2023-5-24 21:16
+
+竟然是高中生，不会又是搞邦好快乐的烂剧情吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  DarthAka  
+##### 102#       发表于 2023-5-24 21:33
+
+<blockquote>toshima 发表于 2023-5-14 01:02
+我还想，青木作为邦邦这批人里唱歌最正的被你说成一塌糊涂，我还在思考你为啥会继续看这个企划。。。。 ...</blockquote>
+就不许人家当爱抖（本来就是）看，乃团上台连麦都不开
+
+
+*****
+
+####  Ichthy  
+##### 103#       发表于 2023-5-24 22:30
+
+不是jd主题的么？？？
+
+
+*****
+
+####  DarthAka  
+##### 104#       发表于 2023-5-24 23:01
+
+卖点窝最早也听说是女大，女高又不差她们
+
+
+*****
+
+####  梶原ひかり  
+##### 105#       发表于 2023-5-25 06:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">难道看孤独摇滚大火 连夜又改成高中生了？
+
+
+*****
+
+####  凡人  
+##### 106#       发表于 2023-5-25 07:22
+
+搞了半天不还是之前的邦邦画风，过去在折腾啥？
+
+
+*****
+
+####  泥潭办证先锋  
+##### 107#       发表于 2023-5-25 11:47
+
+不是吸 毒玉玉纹身impact女大学生？
+
+兴致减半<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  K·os  
+##### 108#       发表于 2023-5-26 00:40
+
+mygo是女大是非常典型的谣传谣，在动画公布人设之前没有任何的相关信息，仅仅是因为mygo开始活动时正值邦本家公布升学，mygo都是大学生就这么自然的被联想出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  K·os  
+##### 109#       发表于 2023-5-26 00:43
+
+不过在公布之前，其实我以为这群人都是尼特来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  yevvet  
+##### 110#       发表于 2023-5-29 00:37
+
+新团主唱99%佐佐木李子吧
+
+
+*****
+
+####  紫吹兰  
+##### 111#         楼主| 发表于 2023-5-29 14:51
+
+【「BanG Dream! Morfonication」第一话】 [https://www.bilibili.com/video/B ... 20aefaaf92c802c1a34](https://www.bilibili.com/video/BV1Km4y1b7gm/?share_source=copy_web&amp;vd_source=3cc578f087ea520aefaaf92c802c1a34)
+
+天音传这个武士道自己上传限时上映有点微妙啊，我去到时候不知道会不会也走这个模式
+
+
+*****
+
+####  nh_zzz  
+##### 112#       发表于 2023-5-29 15:16
+
+mygo11.4单独Live
+<img src="https://p.sda1.dev/11/c901a933b82c0fd4733fad0e00015a21/CMP_20230529151545560.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stygian  
+##### 113#       发表于 2023-5-29 15:48
+
+5th先看练得咋样吧。。。4th安可弹的真是一坨无。。。
+
+
+*****
+
+####  粉儿alice  
+##### 114#       发表于 2023-5-29 17:43
+
+原本是破琵琶的单独演唱会 这下又要老带新团惹<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+伊藤还有少歌演唱会 她要连续开三天
+反正武士道相关声优各种身体不良通告请病假太多了
+
+
+*****
+
+####  進藤あまね  
+##### 115#       发表于 2023-6-1 13:43
+
+BanG Dream需要MyGo!!!新鲜血液<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，
+
+如同本群也需要新献穴液<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">。
+
+956530063
+
+等你注入<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+在这里，
+
+听什么都是天音！
+
+干什么都是杨工！
+
+备注：本群对O和管可能不太友好，请谨慎暴露身份<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  泥潭办证先锋  
+##### 116#       发表于 2023-6-1 14:11
+
+脸盲，第一眼看杨工的脸还以为是ikura小姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+而且居然是个软妹，尼邦就算重启，也一定要人家凹个与众不同的角色音，希望最后不会像爱美那样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  nh_zzz  
+##### 117#       发表于 2023-6-1 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61076685&amp;ptid=2066984" target="_blank">泥潭办证先锋 发表于 2023-6-1 14:11</a>
+脸盲，第一眼看杨工的脸还以为是ikura小姐。
+
+而且居然是个软妹，尼邦就算重启，也一定要人家凹个与 ...</blockquote>
+dd粉起码熬到现在有饭吃(指种米计划
+
+
+*****
+
+####  すぴぱら  
+##### 118#       发表于 2023-6-1 22:27
+
+其实更期待内裤套头组合
+
+
+*****
+
+####  nh_zzz  
+##### 119#       发表于 2023-6-4 20:28
+
+新团佐佐木李子和高尾奏音算是开出来了吗？
+
+*****
+
+####  粉儿alice  
+##### 120#       发表于 2023-6-4 20:30
+
+主唱 吉他 佐佐木李子
+吉他 ？
+贝斯 冈田梦以(?)
+鼓手 米泽茜
+键盘 高尾奏音
+
+
+*****
+
+####  AraTurambar  
+##### 121#       发表于 2023-6-4 20:36
+
+吉他疑似波多野比奈。
+
+*****
+
+####  勇者仁杰  
+##### 122#       发表于 2023-6-4 20:40
+
+佐々木李子唱得真是一言难尽
+
+
+*****
+
+####  stygian  
+##### 123#       发表于 2023-6-4 20:47
+
+<img src="https://img.saraba1st.com/forum/202306/04/204730kycsypcgj5yyhl8z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-4 20:47 上传
+
+草
+
+
+*****
+
+####  stygian  
+##### 124#       发表于 2023-6-4 21:04
+
+[https://www.teesmusicschool.com/teacher/teacher-338/](https://www.teesmusicschool.com/teacher/teacher-338/)
+
+鼓在流行乐队TRY TRY NIICHE打过，19年短大毕业的话今年应该24岁左右，的确是专业鼓手就是
+
+
+*****
+
+####  toshima  
+##### 125#       发表于 2023-6-5 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61121476&amp;ptid=2066984" target="_blank">粉儿alice 发表于 2023-6-4 20:30</a>
+
+主唱 吉他 佐佐木李子
+
+吉他 ？
+
+贝斯 冈田梦以(?)</blockquote>
+节奏吉他是渡濑结月，这五个人9成9实锤，不是猜测，是实锤
+
+
+*****
+
+####  AraTurambar  
+##### 126#       发表于 2023-6-5 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61126173&amp;ptid=2066984" target="_blank">toshima 发表于 2023-6-5 00:57</a>
+
+节奏吉他是渡濑结月，这五个人9成9实锤，不是猜测，是实锤</blockquote>
+已经确定了吗？
+
+你们怎么戴个面具都能确定人的。
+
+以及这不等于直接从隔壁D4Dj片场拉了一堆人打工么。
+
+
+*****
+
+####  nh_zzz  
+##### 127#       发表于 2023-6-5 09:53
+
+看到有另外一个版本<img src="https://p.sda1.dev/11/df18d57c7ec9a9726911c4b34aa97286/CMP_20230605095304427.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DarthAka  
+##### 128#       发表于 2023-6-5 10:41
+
+现在看了一圈，主音吉它+键盘+鼓是锤死了，贝斯和节奏吉它没谱，反正总不能武士道一个不塞吧
+
+
+*****
+
+####  紫吹兰  
+##### 129#         楼主| 发表于 2023-6-5 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61129935&amp;ptid=2066984" target="_blank">DarthAka 发表于 2023-6-5 10:41</a>
+
+现在看了一圈，主音吉它+键盘+鼓是锤死了，贝斯和节奏吉它没谱，反正总不能武士道一个不塞吧 ...</blockquote>
+渡濑结月不就是根正苗红的武士道嫡系，不过AVE的声优纯度这么高我是没想到的
+
+
+*****
+
+####  stygian  
+##### 130#       发表于 2023-6-5 11:30
+
+冈田我是有点怀疑的，看了一圈bio没看到有乐器经验，上来就给塞个五弦狠过头了
+
+*****
+
+####  泥潭办证先锋  
+##### 131#       发表于 2023-6-5 11:34
+
+露个腰看一下就知道了是不是冈田梦以了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  toshima  
+##### 132#       发表于 2023-6-5 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61128411&amp;ptid=2066984" target="_blank">AraTurambar 发表于 2023-6-5 09:15</a>
+
+已经确定了吗？
+
+你们怎么戴个面具都能确定人的。</blockquote>
+也还好吧，大爹是主唱+鼓+键盘，剩下俩贝斯和节奏吉他么啦啦队也凑合，3带2不算很离谱
+
+
+*****
+
+####  stygian  
+##### 133#       发表于 2023-6-5 19:05
+
+ 本帖最后由 stygian 于 2023-6-5 19:13 编辑 
+
+看了下档，第二首直接slap，我真不信这贝斯是冈田<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+键盘贝斯鼓技术都到位，两个吉他还是有瑕疵的
+
+还有这造型真不是抄葬尸湖。。。？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DarthAka  
+##### 134#       发表于 2023-6-5 19:37
+
+葬尸湖不是黑金么
+
+
+*****
+
+####  stygian  
+##### 135#       发表于 2023-6-5 19:58
+
+ 本帖最后由 stygian 于 2023-6-5 20:00 编辑 
+
+当代黑金属团不画尸脸又不想露脸保持神秘的都喜欢用这种黑衣长帽的造型
+
+
+*****
+
+####  K·os  
+##### 136#       发表于 2023-6-6 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61139369&amp;ptid=2066984" target="_blank">stygian 发表于 2023-6-5 19:05</a>
+
+看了下档，第二首直接slap，我真不信这贝斯是冈田
+
+还有这造型真不是抄葬尸湖。。。？</blockquote>
+尼邦还是二次元企划，还是优先翻anisong的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
