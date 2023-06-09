@@ -2442,3 +2442,732 @@ BV1NP4y1R7a5
 土豆可以用那谁吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">万南心眼小
 
+*****
+
+####  Unlight  
+##### 234#         楼主| 发表于 2023-5-27 22:47
+
+所以S11将要花落谁家呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/11/5e53b4cd1a39aa15147ad61860448efc/QQ图片20230527224649.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ca022d7729d45c462207863e0bd8e7df/QQ图片20230527224651.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 235#         楼主| 发表于 2023-5-30 17:32
+
+雾子是冠军！
+雾子，yyds！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  七草にちか  
+##### 236#       发表于 2023-5-30 17:56
+
+今年会是我吗
+
+<img src="https://img.saraba1st.com/forum/202305/30/175544zy9hid8rr4z88yy8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (200.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-30 17:55 上传
+
+<img src="https://img.saraba1st.com/forum/202305/30/175550iqy7p01iec52yoqm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-30 17:55 上传
+
+
+*****
+
+####  須理出未来  
+##### 237#       发表于 2023-5-30 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61014786&amp;ptid=2130897" target="_blank">Unlight 发表于 2023-5-27 22:47</a>
+
+所以S11将要花落谁家呢</blockquote>
+今年投票页面上会显示“最近被投票的偶像”，读取该数据统计就能得出精度非常高的实时排名，所以今年的总选几乎相当于半开票进行的。（※当然在这个统计越来越多人知道后，有些人开始一票一票地投，后期精度相比最初时有些许下降）
+
+目前看来，志希稳赢，断层领先于第二名。
+
+2~5大概率是奈绪、蓝子、伊芙、砂糖<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  市川雛菜  
+##### 238#       发表于 2023-5-30 19:52
+
+[啊哈～producer，看淑女的裙底可不好哦～](https://twitter.com/kusa_ka_p/status/1662449942621990912)
+<img src="https://p.sda1.dev/11/c8c50ea5ea59fc72d19b7a9c2839b2ed/IMG_CMP_212843448.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/a02f7ee1f6bd1877cbf6f58e9931ec3a/IMG_CMP_25079310.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/392775c76b5ffce718fd611761bbf674/IMG_CMP_262269700.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七草にちか  
+##### 239#       发表于 2023-5-30 21:08
+
+#一ノ瀬志希生誕祭2023
+<img src="https://p.sda1.dev/11/a38d6f3910f9370b6573abf77eadd8ac/IMG_CMP_266304491.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/0ad3fa4ea4c306838bc62ec1edcfd490/IMG_CMP_256632850.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e38366c42e68c983d29126fee7dda8ed/IMG_CMP_231387872.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/60cbace88cead4c33545a7ae3b05620e/IMG_CMP_69728208.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b6abb98ee51d49d7b4d0dccd589e1bb7/IMG_CMP_225667009.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/9d4a37815cf69f57a69bebf14d1b01ac/IMG_CMP_88258434.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eaglu  
+##### 240#       发表于 2023-5-30 22:27
+
+志希这名次真就321啊
+
+
+*****
+
+####  O三O  
+##### 241#       发表于 2023-5-30 22:41
+
+奈绪这次第二的话也是432了，直接展望S12冠军。
+
+
+*****
+
+####  Erikas  
+##### 242#       发表于 2023-5-30 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">志希宝座也是来之不易，从老兔子起陪跑四届了
+
+
+*****
+
+####  孫光龍  
+##### 243#       发表于 2023-6-1 20:03
+
+建模好像还行
+
+
+*****
+
+####  黑酒杯  
+##### 244#       发表于 2023-6-1 20:09
+
+这腿真的不奇怪嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 245#       发表于 2023-6-1 20:16
+
+感觉也就四肢长了点，别的还挺好？
+
+【偶像大师百万现场 动画OP曲「Rat A Tat!!!」-哔哩哔哩】 https://b23.tv/JFWsQcs
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  七草にちか  
+##### 246#       发表于 2023-6-1 20:53
+
+<[img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/01/205313dxnv4eh42u28i28z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1004.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-1 20:53 上传
+
+
+*****
+
+####  Seeley  
+##### 247#       发表于 2023-6-1 21:56
+
+草地广场舞那一段静香歌织桃子的四肢也有点太修长了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+数7跟之前pv的时候看完还觉得也就静香的四肢有几帧看起来有点怪，现在这次放出来的不知道是镜头角度看起来更长了还是真就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  dassault_system  
+##### 248#       发表于 2023-6-3 06:09
+
+看完ml动画pv，虽然觉得做的不错，到总是有一种不祥的预感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  yoyodream  
+##### 249#       发表于 2023-6-4 20:32
+
+这cgss芳乃的婚纱好顶啊
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  eaglu  
+##### 250#       发表于 2023-6-5 14:08
+
+<img src="https://p.sda1.dev/11/942492669b5de6b65e8e90fa163cbe9d/CMP_20230605140751974.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/13259e0acb85c0c5ae5c70e22718d058/CMP_20230605140752054.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6866c415d12f540e3937daa083f6544d/CMP_20230605140752109.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yoyodream  
+##### 251#       发表于 2023-6-5 14:09
+
+未付声第一，窒息第二，窒息是不是排名4322了艹
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Unlight  
+##### 252#         楼主| 发表于 2023-6-5 14:22
+
+<[img src="https://s1.ax1x.com/2023/06/05/pCC0vjJ.jpg" referrerpolicy="no-referrer">
+<[img src="https://s1.ax1x.com/2023/06/05/pCC0zu9.jpg" referrerpolicy="no-referrer">
+
+志希倒了（哭腔）
+
+
+*****
+
+####  unsh  
+##### 253#       发表于 2023-6-5 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">伊芙这票数也太夸张了吧
+
+*****
+
+####  O三O  
+##### 254#       发表于 2023-6-5 14:33
+
+群里和推上全炸了，CY你在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  四宫家印  
+##### 255#       发表于 2023-6-5 14:36
+
+谁给p一张《火炬手》？就赵本山和宋丹丹那个？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  404489039  
+##### 256#       发表于 2023-6-5 14:40
+
+草这爆冷
+
+
+*****
+
+####  yoyodream  
+##### 257#       发表于 2023-6-5 14:49
+
+民p们加把劲能不能给窒息再冲个灰姑娘出来（
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Erikas  
+##### 258#       发表于 2023-6-5 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩尼玛啊？？灰也关了得了彻底出大师坑
+
+
+*****
+
+####  水莲寺流歌  
+##### 259#       发表于 2023-6-5 14:56
+
+乐了，志希p这下真窒息了
+
+*****
+
+####  Alicest  
+##### 260#       发表于 2023-6-5 14:57
+
+我不了解偶像大师游戏，请问这是什么问题呢
+
+*****
+
+####  kobushi  
+##### 261#       发表于 2023-6-5 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">变成这样4月制服池可能要占一部分责任
+
+*****
+
+####  RhmBWT_Wu  
+##### 262#       发表于 2023-6-5 15:00
+
+爱马仕游戏我只玩过星耀，别的都没接触过不清楚
+这个总选是个啥规则啊，前十只有这位我听都没听说过<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Srchy  
+##### 263#       发表于 2023-6-5 15:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">窒息p不应该爽到吗，明年又能混两首总选曲了
+
+
+*****
+
+####  yoyodream  
+##### 264#       发表于 2023-6-5 15:08
+
+大概解释一下，就是一个比赛分为abcd四组，每组的前5进决赛，然后没付声的会付声，后面10名进复活赛再比一次选一位出来进决赛，问题是这样的这位eve是复活赛冠军，她还是没声，就是有一种可能如果不进前5她就一直没声了。有可能吸了很多散票。
+
+—— 來自 samsung SM-G9900, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  vacuumsword  
+##### 265#       发表于 2023-6-5 15:11
+
+以前搞卡池钦定的时候才叫黑幕呢，现在只能说是未付声吸散票能力太强了
+
+
+*****
+
+####  unsh  
+##### 266#       发表于 2023-6-5 15:22
+
+说好听是多一首歌，不好听就是折磨多一年。（mioP的痛苦回忆）
+
+*****
+
+####  natmk  
+##### 267#       发表于 2023-6-5 15:23
+
+志希居然倒了
+
+*****
+
+####  权志龙  
+##### 268#       发表于 2023-6-5 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让我看看谁在半场开香槟
+
+*****
+
+####  Unlight  
+##### 269#         楼主| 发表于 2023-6-5 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61135308&amp;ptid=2130897" target="_blank">权志龙 发表于 2023-6-5 15:24</a>
+让我看看谁在半场开香槟</blockquote>
+前几天283刚半场开，今天346半场开<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  七草にちか  
+##### 270#       发表于 2023-6-5 15:29
+
+不是雾子前辈还能是谁？该不会真是果穗酱吧
+
+
+*****
+
+####  SchwarzX  
+##### 271#       发表于 2023-6-5 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">伊芙是加时赛进来的，这都能直接第一，你说不黑我都有点不信
+
+算了，ha酱可以唱歌就好
+
+*****
+
+####  Unlight  
+##### 272#         楼主| 发表于 2023-6-5 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61135413&amp;ptid=2130897" target="_blank">七草にちか 发表于 2023-6-5 15:29</a>
+不是雾子前辈还能是谁？该不会真是果穗酱吧</blockquote>
+我现在觉得你也没准能爆冷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Srchy  
+##### 273#       发表于 2023-6-5 15:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如说正是复活上来的21个里就她未付声才能吸到那么多同情票，想过前5稳了没想到能直接把窒息给爆了
+
+*****
+
+####  RhmBWT_Wu  
+##### 274#       发表于 2023-6-5 15:40
+
+283的香槟是在说婚纱吧
+小学生婚纱是不是太牙白了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  vacuumsword  
+##### 275#       发表于 2023-6-5 15:41
+
+这次过后枫姐集齐了总选1-8名顺位
+
+*****
+
+####  冰寒之月  
+##### 276#       发表于 2023-6-5 15:42
+
+先有小高偷雾子婚纱 后有窒息痛失冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萨文科夫  
+##### 277#       发表于 2023-6-5 15:45
+
+路人票这么吓人的，这都能翻<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yoyodream  
+##### 278#       发表于 2023-6-5 15:51
+
+赛制改了，这一次路人票特别多
+
+—— 来自 samsung SM-G9900, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  权志龙  
+##### 279#       发表于 2023-6-5 15:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">热火都有机会拿总冠军，姨父怎么就不能
+
+*****
+
+####  koodooliz  
+##### 280#       发表于 2023-6-5 15:53
+
+又能听枫姐唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  O三O  
+##### 281#       发表于 2023-6-5 15:54
+
+除了窒息第二，我觉得奈绪第七也挺意想不到的，我一直觉得奈绪这次是保三挣二甚至能拿第一的水平。
+
+*****
+
+####  多重影  
+##### 282#       发表于 2023-6-5 15:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然多投就是突出一个无法预测，nao前5都没进，我之前还展望冠军呢
+
+*****
+
+####  冰寒之月  
+##### 283#       发表于 2023-6-5 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61135413&amp;ptid=2130897" target="_blank">七草にちか 发表于 2023-6-5 15:29</a>
+
+不是雾子前辈还能是谁？该不会真是果穗酱吧</blockquote>
+是美琴和闪P结婚了 而日花妹妹你只能在一旁看着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  O三O  
+##### 284#       发表于 2023-6-5 16:16
+
+打开猴区发现有本选的帖子，点进去一看发现二十几楼的帖子被抽的只剩个位数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  segecong  
+##### 285#       发表于 2023-6-5 16:18
+
+论整活程度还是得看你灰P啊
+
+*****
+
+####  RhmBWT_Wu  
+##### 286#       发表于 2023-6-5 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61136490&amp;ptid=2130897" target="_blank">O三O 发表于 2023-6-5 16:16</a>
+打开猴区发现有本选的帖子，点进去一看发现二十几楼的帖子被抽的只剩个位数 ...</blockquote>
+应该不是抽楼，是回帖卡审核了
+别的一堆楼也是这个情况<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  404489039  
+##### 287#       发表于 2023-6-5 16:25
+
+不过枫姐的硬实力还是强
+怎样改都不怕<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大崎甜花  
+##### 288#       发表于 2023-6-5 16:46
+
+奈酱，好强！
+<img src="https://p.sda1.dev/11/2dba586dd588fae67e99b908a56863d1/IMG_CMP_108974596.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuuuuuuuu  
+##### 289#       发表于 2023-6-5 17:17
+
+反正自担没进本选，看个乐子不错<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+就是破防人太多了，还是事不关己最快乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  achilleus  
+##### 290#       发表于 2023-6-5 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61134934&amp;ptid=2130897" target="_blank">yoyodream 发表于 2023-6-5 15:08</a>
+
+大概解释一下，就是一个比赛分为abcd四组，每组的前5进决赛，然后没付声的会付声，后面10名进复活赛再比一 ...</blockquote>
+补充一点，由于决赛圈只有21人，造成很多人的推没进决赛，也就意味着决赛圈的散票数量相当巨大
+
+以前赛制下散票多数会给上年亚军，而这次正好有一个未付声的，于是...
+
+
+*****
+
+####  Vacuolar  
+##### 291#       发表于 2023-6-5 17:42
+
+草了，结果出来前大家毫无自觉，结果出来一对票，顺手的人太多了
+
+
+*****
+
+####  00Q  
+##### 292#       发表于 2023-6-5 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61135699&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2023-6-5 15:42</a>
+
+先有小高偷雾子婚纱 后有窒息痛失冠军</blockquote>
+最近就主打一个偷冠军<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 293#       发表于 2023-6-5 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61136079&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2023-6-5 16:00</a>
+
+是美琴和闪P结婚了 而日花妹妹你只能在一旁看着</blockquote>
+太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  segecong  
+##### 294#       发表于 2023-6-5 18:23
+
+新赛制之后，看到有人说希望打破之前那种一眼就能猜到今年是谁是冠军那种过程。
+
+投本选前，又有人说这不还是跟以前一样？
+
+结果出来整个大活，太乐了。还真是跟之前的一点都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  权志龙  
+##### 295#       发表于 2023-6-5 20:32
+
+虽然今天搞了个大活，但是不得不提773倒了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">希望不是大问题
+
+
+*****
+
+####  粉儿alice  
+##### 296#       发表于 2023-6-5 21:28
+
+等伊芙的声优是谁了呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dassault_system  
+##### 297#       发表于 2023-6-5 23:59
+
+ 本帖最后由 dassault_system 于 2023-6-6 00:01 编辑 
+
+那这么看以后这帮老人想拿水晶鞋更难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+肇p突然心里平衡了许多<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  須理出未来  
+##### 298#       发表于 2023-6-6 00:20
+
+一天在忙，刚刚才上线看到总选结果，人傻了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+之前提到的那个非官方统计（因为网站已经进不去了没法截图，我凭记忆说一下），四次预选和一次复活赛的第一名预测都是准的，那几次的统计是第一名比第二名多1.X%，而本次的统计志希比第二名多2.X%，这样都输了我真的说不出话<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+有句讲句，这投票结果，影响坏得很<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alphahon  
+##### 299#       发表于 2023-6-6 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61135903&amp;ptid=2130897" target="_blank">权志龙 发表于 2023-6-5 15:52</a>
+
+热火都有机会拿总冠军，姨父怎么就不能</blockquote>
+92年的Denmark才是名符其實
+
+*****
+
+####  dassault_system  
+##### 300#       发表于 2023-6-6 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61144244&amp;ptid=2130897" target="_blank">須理出未来 发表于 2023-6-6 00:20</a>
+一天在忙，刚刚才上线看到&amp;#x6 ...</blockquote>
+这种赛制本来就没办法，随着不断的淘汰路人票肯定越来越多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+加上付声这个因素，决赛阶段未付声角色优势太大
+但是又不能强行把付声分开
+否则一些角色拿到前三还不能付声
+
+不过感觉外网上已经有点炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  playhmm  
+##### 301#       发表于 2023-6-6 07:05
+
+下次把氪金票购买上限改成百次次可破
+cy小算盘打得可响啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuuuuuuuu  
+##### 302#       发表于 2023-6-6 08:41
+
+这次伤了氪佬的心，下次还能有那么多陪玩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Srchy  
+##### 303#       发表于 2023-6-6 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看总选票数和月流水就知道现在就已经没几个氪金玩这个的了
+
+
+*****
+
+####  dassault_system  
+##### 304#       发表于 2023-6-6 10:15
+
+ 本帖最后由 dassault_system 于 2023-6-6 10:17 编辑 
+
+当初动画片的时候志希就是已付声角色里唯一没露脸的
+没吃到动画片的红利
+
+这次好不容易来u149客串，然而又遇到这赛制
+
+我是志希p我也破防
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  Ask_10A  
+##### 305#       发表于 2023-6-6 12:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+65BA54AC-3111-4F01-A491-A5D28175D606.jpg
+(93.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-6 12:00 上传
+
+<img src="https://img.saraba1st.com/forum/202306/06/120002bbpg820rpogbrb2g.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dassault_system  
+##### 306#       发表于 2023-6-6 13:41
+
+伊芙的CV干脆就秦佐和子吧，伊芙专业户<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 2206123SC, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  Erikas  
+##### 307#       发表于 2023-6-6 13:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">8选りあむ没干成的事（把りあむ投上第一搞瘫总选）イヴ以更坏的形式做到了
+
+
+*****
+
+####  花开安菲路  
+##### 308#       发表于 2023-6-6 14:41
+
+有没有一种可能，
+
+不改赛制，可能输的更惨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
