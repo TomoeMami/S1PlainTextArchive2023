@@ -4589,3 +4589,169 @@ DAY14从12点开始打了一晚上，打完5点天亮了，猫叔到第几天了
 麻子大概是一边写稿一边打麻将的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV1HX4y1y7MZ/](https://www.bilibili.com/video/BV1HX4y1y7MZ/)
 
+*****
+
+####  Gunlun  
+##### 1281#       发表于 2023-6-2 01:27
+
+这个楼这么冷吗
+
+*****
+
+####  Gunlun  
+##### 1282#       发表于 2023-6-2 01:27
+
+这个楼这么冷吗
+
+
+*****
+
+####  一之江瑞江  
+##### 1283#       发表于 2023-6-2 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉这次活动剧情也不能细想了 
+
+出四个部队能打掉的BOSS 为什么前任部队会被一次又一次全灭(
+
+
+*****
+
+####  leitingkai2  
+##### 1284#       发表于 2023-6-2 17:45
+
+ 本帖最后由 leitingkai2 于 2023-6-2 17:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61092213&amp;ptid=2050204" target="_blank">一之江瑞江 发表于 2023-6-2 16:17</a>
+
+感觉这次活动剧情也不能细想了 
+
+出四个部队能打掉的BOSS 为什么前任部队会被一次又一次全灭( ...</blockquote>
+打过分就会知道这个特殊种boss无论你打分难度提的有多高
+
+它本体都是脆皮到平A都能打死它的耐久
+
+前面的部队都在近身之前就被它的远程炮击攻击和人海战术压死的
+
+31X因为在之前2轮炮击下活下来有了应对炮击的经验，这里解决掉了因为炮击团灭的问题
+
+其他3部队解决小怪，这里解决掉了人海战术的问题
+
+最后31X解决挡路螃蟹就干掉了BOSS
+
+完全没有任何逻辑上的问题 前面的部队败北无非是因为没有BOSS的细致数据和应对经验罢了
+
+还有一点就是主要角色肯定比没有名字的路人强的
+
+四下的BOSS当初也是团灭数部队让讨伐失败，讨伐计划彻底放弃的，主角方2部队就解决掉它了
+
+只能说不管是战前准备还是团队能力都不是一个水平
+
+
+*****
+
+####  nonodundun  
+##### 1285#       发表于 2023-6-2 19:52
+
+新活动整体蛮不错的，31X塑造集体上大分，不管是主角夏洛还是其他5人的塑造都很好，就像新卡一样补齐了31X.剧情逻辑上整体没什么大问题，情感的抒发也很稳健很舒适，比猫和老虎好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过硬扣细节还是有些小问题，比如芙里提卡算炮线躲炮确实大功一件，但她是怎么算出来的，已知量真的够吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+夏洛那袋种子按理说是护身符很重要的东西，但第三天弄丢了也没去找，就很怪
+
+还有就是为什么第二天就发现了换皮炮哥却一直等到第三天31X吃大瘪的时候才去想对策，好歹扔几架无人机监视一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这么扣细节总归有点钻牛角尖，活动剧情整体还是很好的，希望以后能多来点
+
+以及新池子继续剩石头，我倒要看看你飞机社压强度能压到什么时候<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BrainDead  
+##### 1286#       发表于 2023-6-3 03:04
+
+都回来了！红烧天堂活动的水平都回来了！
+
+这期活动除了31X解围的那张CG崩了，几乎挑不出任何毛病。
+
+夏洛背景故事的逻辑线十分清晰，不仅没有一如既往地用都合主义敷衍了事，甚至还用上了主线留下的各种伏笔，在设定合理性上比其他活动高出一大截。
+
+故事完整性无可挑剔，若不是篇幅限制，简直可以拓展成主线第一章类似的长篇故事。夏洛在大家的爱的包围下治愈了创伤，最后不留遗憾地笑着面对未来，可以说是最惨选手的最好救赎。
+
+夏洛角色塑造非常完美，连带着31X的形象得到了整体提升。月歌主动介入，引导夏洛走出阴影，帮助31X团建，也再一次展现出她非凡的成长。
+
+CP方面，月歌 x yukki x 夏洛的互动能一直玩到关服。侦探x修女的组合也浮出了水面，甚至让我品出当初megutama糖的味道。
+
+总之这次活动我打满分！最后还差网球妹没ss了，可要赶紧加油了。
+
+
+*****
+
+####  chivalry  
+##### 1287#       发表于 2023-6-3 08:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">在31x映夏是真的操心
+
+
+*****
+
+####  pf67  
+##### 1288#       发表于 2023-6-4 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61092213&amp;ptid=2050204" target="_blank">一之江瑞江 发表于 2023-6-2 16:17</a>
+
+感觉这次活动剧情也不能细想了 
+
+出四个部队能打掉的BOSS 为什么前任部队会被一次又一次全灭( ...</blockquote>
+首先只有夏洛在的第一只部队才是被它灭的，其他部队和它没有任何关系
+
+其次这boss就是主打一个偷袭，31X没团灭回去带了情报，第二次围剿才会比较顺利。
+
+
+*****
+
+####  真绯瑠之眷属  
+##### 1289#       发表于 2023-6-6 09:57
+
+夏洛真好啊，31x虽然不会打团，但是氛围还是好啊。话说，仔细想想为啥31x的设定要有个↑↓妹啊，按理来说是法国人吧
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1290#       发表于 2023-6-6 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61147416&amp;ptid=2050204" target="_blank">真绯瑠之眷属 发表于 2023-6-6 09:57</a>
+夏洛真好啊，31x虽然不会打团，但是氛围还是好啊。话说，仔细想想为啥31x的设定要有个↑↓妹啊，按理来说是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">在神秘学领域，印↑度↓确实是大国
+
+
+*****
+
+####  道双晨曦  
+##### 1291#       发表于 2023-6-6 11:35
+
+这次活动剧本的完成度相当高啊，夏洛的人物塑造算是完成了。31X集体上大分<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+飞机社什么时候给其他属性出大辅啊，现在火队两大辅带狗都能C<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  从来不吃青菜  
+##### 1292#       发表于 2023-6-6 15:02
+
+这次活动确实挺好，分量足，转场合理，伏笔回收和暖心，角色们也都有戏份，而且前置要求跑完宝珠迷宫30层也让战斗力门槛足以一口气的跑图，打磨下来应该就是为了玩家完整尽快的看完剧情。
+希望以后活动都这样好了，短平快把充分的故事拿出来。
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  HBR  
+##### 1293#       发表于 2023-6-6 16:07
+
+下一轮应该是23年泳装了，希望能拿出不输去年的好活。
+
+不过这种背景下要在现实中搞泳装不太可行
+
