@@ -1541,3 +1541,149 @@ nbl各位影响不大
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1he69690k4uj20g10imdri.jpg" referrerpolicy="no-referrer">
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1he696kcv9wj20k007omzg.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  龙娘777  
+##### 3166#       发表于 2023-6-1 00:44
+
+六一晚这是又有什么惊喜？纸哥卡姐都谜语今晚会去某人直播间 马萨卡？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喜闻乐见  
+##### 3167#         楼主| 发表于 2023-6-1 08:51
+
+🐟厂播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ladiesman802  
+##### 3168#       发表于 2023-6-1 11:15
+
+绝了，这是纯新人吧？ip河北，看厂长说不是养马那个
+
+
+*****
+
+####  喜闻乐见  
+##### 3169#         楼主| 发表于 2023-6-1 19:34
+
+今晚七喜鸭子好诶
+
+
+*****
+
+####  ladiesman802  
+##### 3170#       发表于 2023-6-3 17:17
+
+笑死，厂长这是被新人开盒了
+
+
+*****
+
+####  喜闻乐见  
+##### 3171#         楼主| 发表于 2023-6-3 19:07
+
+<img src="https://img12.360buyimg.com/ddimg/jfs/t1/217485/10/30522/52915/647b1ee7Fc1cff049/63d0f7d7de0ff1dd.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  龙娘777  
+##### 3172#       发表于 2023-6-3 19:27
+
+厂长这是偷师文静？这是你们束缚的固有技能吗 所以厂长到底多大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ladiesman802  
+##### 3173#       发表于 2023-6-4 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61104567&amp;ptid=1926094" target="_blank">龙娘777 发表于 2023-6-3 19:27</a>
+
+厂长这是偷师文静？这是你们束缚的固有技能吗 所以厂长到底多大了</blockquote>
+厂长20年就出道，文静还要往后靠
+
+以前我以为厂长40岁上下，看文字我感觉30岁左右，充满了生活的气息又不失智慧，我以前还以为厂长结婚了，但是又不像
+
+
+*****
+
+####  喜闻乐见  
+##### 3174#         楼主| 发表于 2023-6-5 12:31
+
+3场3d<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  林宏  
+##### 3175#       发表于 2023-6-6 10:56
+
+昨天刷厂子动态，发现cp展的衬衫还能在爱发电买，还有十几件，就入了一个权当圣遗物了。
+
+
+*****
+
+####  佛皇  
+##### 3176#       发表于 2023-6-6 13:21
+
+这个是厂长的前世吗？这么巧的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/06/131953i62pfob5jo75kp60.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-6 13:19 上传
+
+
+*****
+
+####  喜闻乐见  
+##### 3177#         楼主| 发表于 2023-6-6 19:04
+
+ 本帖最后由 喜闻乐见 于 2023-6-6 19:08 编辑 
+
+害得是加油鸭！
+
+卡姐：大家不要冲舰了，
+
+那不得冲爆
+
+
+*****
+
+####  ladiesman802  
+##### 3178#       发表于 2023-6-6 23:12
+
+看得出没啥资金，穷得只能靠真情实感了
+
+前面看二创确实有些长了，中间唱多几首就好了
+
+卡姐说多错多，再说连身份证号都报出来了
+
+
+*****
+
+####  shhekun  
+##### 3179#       发表于 2023-6-6 23:27
+
+卡姐太单纯了，都差点把自己23岁都报出来了。
+
+还好直播间没啥老油条，主要稍微引导下，卡姐能够把15号的活动都透光。
+
+
+*****
+
+####  喜闻乐见  
+##### 3180#         楼主| 发表于 2023-6-7 21:09
+
+ 本帖最后由 喜闻乐见 于 2023-6-7 21:10 编辑 
+
+卡姐哑的声线有丶别致
+

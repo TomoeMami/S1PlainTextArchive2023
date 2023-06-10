@@ -5845,3 +5845,113 @@ Waku Waku! Monday Morning [https://b23.tv/UGPMlph](https://b23.tv/UGPMlph)
 第一首年级曲
 <img src="https://p.sda1.dev/11/cbfea5cb1c6b09ba44fd017b6ac89d70/CMP_20230601185528928.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  斯莱塔墨丘利  
+##### 7269#       发表于 2023-6-6 13:23
+
+<img src="https://p.sda1.dev/11/40d54b96cb3f911754cc67da061d3517/CMP_20230606132319057.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7270#       发表于 2023-6-6 14:40
+
+原来是变更过一次，确实现在的曲子卡的情绪刚刚好。
+
+
+*****
+
+####  仟音一心  
+##### 7271#       发表于 2023-6-6 14:49
+
+<blockquote>斯莱塔墨丘利 发表于 2023-6-6 13:23
+</blockquote>
+
+现在说这个是因为正好这一话又在重播
+
+某人已转
+
+<img src="https://img.saraba1st.com/forum/202306/06/144943puddduwdwbvquxkg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8540.jpeg</strong> (167.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-6 14:49 上传
+
+
+*****
+
+####  仟音一心  
+##### 7272#       发表于 2023-6-6 15:01
+
+<blockquote>ads147147 发表于 2023-6-6 14:40
+原来是变更过一次，确实现在的曲子卡的情绪刚刚好。</blockquote>
+
+【虹团这首未收录曲，差点把我一波送走-哔哩哔哩】 [https://b23.tv/CY2d0kg](https://b23.tv/CY2d0kg)
+
+<img src="https://img.saraba1st.com/forum/202306/06/150134dvgkfnb548mby8lg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8543.jpeg</strong> (182.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-6 15:01 上传
+
+
+*****
+
+####  Huanghaozheng  
+##### 7273#       发表于 2023-6-6 15:14
+
+nice boat最后警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7274#       发表于 2023-6-6 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61153302&amp;ptid=1959558" target="_blank">Huanghaozheng 发表于 2023-6-6 15:14</a>
+nice boat最后警告</blockquote>
+<img src="https://p.sda1.dev/11/f5819c81b3d85a298cbd6583c2827c46/CMP_20230606161445889.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Huanghaozheng  
+##### 7275#       发表于 2023-6-6 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61154413&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-6-6 16:14</a></blockquote>
+但是如果按照背心尊者的剧情来套说不定乐子会更大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（指希罗快来鲨了我
+
+
+*****
+
+####  ads147147  
+##### 7276#       发表于 2023-6-6 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61153039&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-6-6 15:01</a>
+
+【虹团这首未收录曲，差点把我一波送走-哔哩哔哩】 https://b23.tv/CY2d0kg</blockquote>
+原来是这个视频，有印象了，难怪w
+
+
+*****
+
+####  仟音一心  
+##### 7277#       发表于 2023-6-7 16:43
+
+<img src="https://img.saraba1st.com/forum/202306/07/164313zzdlrfg4rnnllmnc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_8563.jpeg</strong> (397.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-7 16:43 上传
+
