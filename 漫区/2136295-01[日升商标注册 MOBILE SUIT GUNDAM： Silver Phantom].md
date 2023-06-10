@@ -573,3 +573,50 @@ SEED看财报的意思是财年内就上映了，只不过财团B还没开始宣
 
 海盗连MB都给了，还能给啥呀
 
+*****
+
+####  Piano-Forest  
+##### 64#         楼主| 发表于 2023-6-7 11:39
+
+<img src="https://p.sda1.dev/11/d7f61779e659f5c63011fa7c6e55d5ab/IMG_20230607_113127.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Duc_d'_Muka  
+##### 65#       发表于 2023-6-7 13:36
+
+大的真的要来吗
+
+
+*****
+
+####  molemole  
+##### 66#       发表于 2023-6-7 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">最好是真的有大的
+
+*****
+
+####  名刀罴斩  
+##### 67#       发表于 2023-6-7 13:52
+
+还能有比那两部剧场版更大的？
+
+*****
+
+####  Evomenon  
+##### 68#       发表于 2023-6-7 13:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">拭目以待，万代最好别像跨年那个节目一样演了个锤子
+
+—— 来自 HUAWEI ELS-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Earendil_C  
+##### 69#       发表于 2023-6-7 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不知道会有闪哈二的消息吗，感觉沉寂很久了
+
