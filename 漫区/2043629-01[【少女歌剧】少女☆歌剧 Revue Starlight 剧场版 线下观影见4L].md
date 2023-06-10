@@ -452,3 +452,46 @@ qq群：568981296
 <img src="https://p.sda1.dev/11/ab7b22f523b3253e50b20e377cf66203/CMP_20230602174625719.jpg" referrerpolicy="no-referrer">
 价格对比参考，之前齐格飞主场delight是同样价格，中等部上一作Regalia4399
 
+*****
+
+####  nh_zzz  
+##### 749#       发表于 2023-6-7 21:50
+
+我要发癫安利你们看中等部新舞台
+生田辉和佃田皆美亲了
+
+*****
+
+####  Alicest  
+##### 750#       发表于 2023-6-7 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 751#       发表于 2023-6-7 22:03
+
+辉哥你在干什么啊辉哥<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+不是，离别战记你们怎么还能加这种戏的？啊？哦凉哥演玛莉亚贝拉啊，那没事了
+
+*****
+
+####  Mr.Giraffe  
+##### 752#       发表于 2023-6-7 22:06
+
+搞到真的啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nh_zzz  
+##### 753#       发表于 2023-6-7 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61176798&amp;ptid=2043629" target="_blank">ardito 发表于 2023-6-7 22:03</a>
+
+辉哥你在干什么啊辉哥
+不是，离别战记你们怎么还能加这种戏的？啊？哦凉哥演玛莉亚贝拉啊，那没 ...</blockquote>
+对比原来再演的剧情也改了
+

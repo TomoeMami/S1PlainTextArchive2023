@@ -290,3 +290,183 @@ boss可以是1代幸存的真雷纳星人跳反
 
 2023-6-2 07:12 上传
 
+*****
+
+####  qiyu1234  
+##### 6222#       发表于 2023-6-7 19:48
+
+ 本帖最后由 qiyu1234 于 2023-6-7 19:50 编辑 
+
+鉴于近期TOF23的4格漫画炎上事件
+
+个人旗帜鲜明的支持TOF停办
+
+TOF本来就是面向日本受众（甚至不完全包括日本玩家）的活动
+
+现在TO主机游戏销量基本盘已经转向欧美
+
+手游也剩下一个，继续办的意义是什么呢
+
+现在这帮子团队根本不明白怎么经营这个牌子了
+
+服务不好，那就别服务了
+
+干什么都是招黑，找黑过系列作品的不懂系列的作者画4格漫画，官方游管账号中之人直接拿官方账号X骚扰直播TOV的管人
+
+这都什么贵物
+
+要我说，回归一个正常的游戏系列吧
+
+当年社长问里TOA那期，问他TALES的吸引力是什么，一问三不知，不知道吉积信喝醉了还是干嘛了，说的什么批话，搞得岩田聪也挺尴尬
+
+大概是社长问里最没营养的一期
+
+这个系列能活到现在，是旧狼组的团队成员和后台不抛头露面的团队技术骨干的功劳
+
+对我来说已经有一个系列彻底变成回忆了
+
+这个系列也完蛋的那天我可能不会再碰电子游戏
+
+
+*****
+
+####  宛若青空  
+##### 6223#       发表于 2023-6-7 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61175165&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-6-7 19:48</a>
+鉴于近期TOF23的4格漫画炎上事件
+
+个人旗帜鲜明的支持TOF停办
+
+TOF本来就是面向日本受众（甚至不完全包括日本 ...</blockquote>
+TO**中之人居然干这种事？之前ToArise宣发时他还露过脸的，真敢做啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 6224#       发表于 2023-6-7 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61175258&amp;ptid=1860328" target="_blank">宛若青空 发表于 2023-6-7 19:57</a>
+TO**中之人居然干这种事？之前ToArise宣发时他还露过脸的，真敢做啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 6225#       发表于 2023-6-7 20:41
+
+还是等富泽这个月能不能掏出什么活吧，看贴吧感觉是制作组已经准备好了。
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  TheOccuria  
+##### 6226#       发表于 2023-6-7 20:46
+
+不关注这些场外花活，我想问的是，你游戏呢？新作开发的慢那冷饭呢？ 
+
+toar或许素质有争议但是销量还不错吧
+
+*****
+
+####  qiyu1234  
+##### 6227#       发表于 2023-6-7 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61175886&amp;ptid=1860328" target="_blank">TheOccuria 发表于 2023-6-7 20:46</a>
+
+不关注这些场外花活，我想问的是，你游戏呢？新作开发的慢那冷饭呢？ 
+
+toar或许素质有争议但是销量还不错吧 ...</blockquote>
+今年三月份发售的仙乐传说移植（PS4、XBOX、NS），有官中
+
+目前NS版的运行问题挺严重的，官方前段时间补丁解决了一小部分，其他的还有待解决
+
+这个移植版的制作人就是我上面提到的那个Y管频道负责人
+
+*****
+
+####  TheOccuria  
+##### 6228#       发表于 2023-6-7 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61175917&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-6-7 20:49</a>
+
+今年三月份发售的仙乐传说移植（PS4、XBOX、NS），有官中
+
+目前NS版的运行问题挺严重的，官方前段时间补 ...</blockquote>
+仙乐的问题不是ps3已经炒过一次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我对这个选择感觉莫名其妙，来点有新鲜感的啊
+
+
+*****
+
+####  qiyu1234  
+##### 6229#       发表于 2023-6-7 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61175936&amp;ptid=1860328" target="_blank">TheOccuria 发表于 2023-6-7 20:51</a>
+
+仙乐的问题不是ps3已经炒过一次了
+
+我对这个选择感觉莫名其妙，来点有新鲜感的啊 ...</blockquote>
+2年前富泽推上说羡慕FF品牌作品的开发体制完备成熟（复刻、高清移植、重制）
+
+从TOSRE来看确实该羡慕，对品牌作品的维护和管理水平不在一个级别
+
+
+*****
+
+####  TheOccuria  
+##### 6230#       发表于 2023-6-7 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61176106&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-6-7 21:05</a>
+
+2年前富泽推上说羡慕FF品牌作品的开发体制完备成熟（复刻、高清移植、重制）
+
+从TOSRE来看确实该羡慕，对 ...</blockquote>
+十多年前to冷饭也不少吧，2d的经常上psp，3ds也有个toa，感觉toa挺适合拿来remastered一下，然后top toe一类的简单hd下上ps ns steam
+
+*****
+
+####  clstc  
+##### 6231#       发表于 2023-6-7 22:33
+
+tos竟然还没打折，还想折扣价重温一下来着
+
+
+*****
+
+####  医生狼多  
+##### 6232#       发表于 2023-6-7 22:38
+
+6月10号-11号有新传说祭，会有新作消息的可能吗
+
+*****
+
+####  qiyu1234  
+##### 6233#       发表于 2023-6-7 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61177165&amp;ptid=1860328" target="_blank">TheOccuria 发表于 2023-6-7 22:30</a>
+
+十多年前to冷饭也不少吧，2d的经常上psp，3ds也有个toa，感觉toa挺适合拿来remastered一下，然后top toe ...</blockquote>
+严格来说就是马场后期开始单机作品频率下降了
+
+13年的TOHR是最后一部开头带老NAMCO的LOGO的TO新作（重制）品（算上纯移植就是13年下半年的PS3的TOS合集）
+
+15年TOZ，16年TOB，相对而言还算正常
+
+之后富泽接手，新作换引擎，作品间隔拉长
+
+19年 TOV DE
+
+21年 TOAR
+
+23年 TOS RE
+
+值得注意的是TOV DE找的欧美比较有名气的移植工作室来做，TOS RE用的BNEI罗马尼亚工作室，差别也挺明显，TOS RE明明更老移植次数更多但移植效果更差
+
+新作还好，但旧作移植的开发规格降级这点，说实话有点让人担心
+
