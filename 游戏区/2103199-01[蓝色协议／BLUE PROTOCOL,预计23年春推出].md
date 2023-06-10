@@ -2528,3 +2528,104 @@ PC版6月14日开服
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就上次测试那吊样子这正式能加多少内容都是问题
 
+*****
+
+####  桐野心音  
+##### 277#       发表于 2023-6-5 14:14
+
+制作组就是拉不下来脸抄，外皮其实已经足够精致了，游戏内容只要抄抄其实就还行，结果目前看是个四不像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 278#       发表于 2023-6-5 14:21
+
+不看好需要这么多人组队才能打boss的mmo
+
+
+*****
+
+####  布拉德莱恩  
+##### 279#       发表于 2023-6-6 08:46
+
+6月6日13:00(JST)开始预下载
+
+
+*****
+
+####  蓝雉  
+##### 280#       发表于 2023-6-6 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61133939&amp;ptid=2103199" target="_blank">桐野心音 发表于 2023-6-5 14:14</a>
+制作组就是拉不下来脸抄，外皮其实已经足够精致了，游戏内容只要抄抄其实就还行，结果目前看是个四不像[f:0 ...</blockquote>
+这游戏立项的目标是刀剑神域<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  良臣没有重谢  
+##### 281#       发表于 2023-6-6 20:51
+
+这游戏s1有群吗？15号开服感觉可以蝗一蝗
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+*****
+
+####  TheOccuria  
+##### 282#       发表于 2023-6-6 21:05
+
+看人说测试封非日本ip的号？是真的？
+
+*****
+
+####  sangzi  
+##### 283#       发表于 2023-6-6 21:11
+
+之前是限定日本ip，可加速器公测后不清楚
+
+
+*****
+
+####  heseran  
+##### 284#       发表于 2023-6-6 21:15
+
+可以先观望一下，蝗是肯定要蝗的
+
+
+*****
+
+####  Jooohnny  
+##### 285#       发表于 2023-6-6 21:43
+
+建了个群，想蝗的可以加一下，676641267
+
+预下载已经开始了
+
+
+*****
+
+####  万年僵尸  
+##### 286#       发表于 2023-6-6 21:50
+
+目前看来的了解就是如果这个游戏出在2013年将绝杀……可惜嘛……<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七千星  
+##### 287#       发表于 2023-6-7 06:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">经典的封IP,国际化的野心呢?
+
+
+*****
+
+####  Yason  
+##### 288#       发表于 2023-6-7 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61159478&amp;ptid=2103199" target="_blank">TheOccuria 发表于 2023-6-6 21:05</a>
+看人说测试封非日本ip的号？是真的？</blockquote>
+我看的一个主播就被封了
+
