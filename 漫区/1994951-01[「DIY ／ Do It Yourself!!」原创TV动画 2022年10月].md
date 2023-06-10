@@ -9472,3 +9472,110 @@ TVドラマ「DIY!! 」🗓7月4日(火)より
 
 emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  須理出未来  
+##### 690#       发表于 2023-6-7 21:05
+
+单人定妆照
+
+結愛せるふ／上村ひなの ( 日向坂46)
+
+<img src="https://img.saraba1st.com/forum/202306/07/210503y07f0933leg0k383.jpg" referrerpolicy="no-referrer">
+
+<strong>結愛せるふ.jpg</strong> (112.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-7 21:05 上传
+
+須理出 未来 (ぷりん) ／野口衣織 （＝LOVE）
+
+<img src="https://img.saraba1st.com/forum/202306/07/210504cm9rr7t90qqkrk4y.jpg" referrerpolicy="no-referrer">
+
+<strong>須理出未来.jpg</strong> (144.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-7 21:05 上传
+
+矢差暮 礼  (くれい)／森山晃帆
+
+<img src="https://img.saraba1st.com/forum/202306/07/210504q8r60r42rrrda644.jpg" referrerpolicy="no-referrer">
+
+<strong>矢差暮礼.jpg</strong> (119.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-7 21:05 上传
+
+日蔭 匠  (たくみん) ／平澤宏々路
+
+<img src="https://img.saraba1st.com/forum/202306/07/210504xbbr8nsuz8nblnri.jpg" referrerpolicy="no-referrer">
+
+<strong>日蔭匠.jpg</strong> (114.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-7 21:05 上传
+
+幸希 心  (しー)／菊地麻衣
+
+<img src="https://img.saraba1st.com/forum/202306/07/210504cjwg6d4v00gg78f6.jpg" referrerpolicy="no-referrer">
+
+<strong>幸希心.jpg</strong> (122.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-7 21:05 上传
+
+ジュリエット・クイーン・エリザベス8世 (ジョブ子)／太田しずく
+
+<img src="https://img.saraba1st.com/forum/202306/07/210503eywdyznwixnyuvyd.jpg" referrerpolicy="no-referrer">
+
+<strong>ジョブ子.jpg</strong> (123.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-7 21:05 上传
+
+
+*****
+
+####  ddy2811  
+##### 691#       发表于 2023-6-7 21:48
+
+不是让人眼前一黑的造型和选角，期待一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性二代  
+##### 692#       发表于 2023-6-7 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61176638&amp;ptid=1994951" target="_blank">ddy2811 发表于 2023-6-7 21:48</a>
+
+不是让人眼前一黑的造型和选角，期待一下吧</blockquote>
+其实我比较期待布丁妈妈
+
+
+*****
+
+####  ddy2811  
+##### 693#       发表于 2023-6-7 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61176647&amp;ptid=1994951" target="_blank">豚厨二象性二代 发表于 2023-6-7 21:48</a>
+
+其实我比较期待布丁妈妈</blockquote>
+你这号换得可真勤啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  豚厨二象性二代  
+##### 694#       发表于 2023-6-7 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61177063&amp;ptid=1994951" target="_blank">ddy2811 发表于 2023-6-7 22:23</a>
+
+你这号换得可真勤啊</blockquote>
+我也不想啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
