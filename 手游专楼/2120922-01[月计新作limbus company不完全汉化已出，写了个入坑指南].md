@@ -2335,3 +2335,454 @@ N辛这伤害太爆炸了，爽到<img src="https://static.saraba1st.com/image/s
 
 好在（？）带的是R马鹿，挨完打后立刻还回去一套闪电四连鞭<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 146#       发表于 2023-5-29 12:30
+
+<img src="https://img.saraba1st.com/forum/202305/29/122343htpcmjhrcfm5r1c5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230529_122310.jpg</strong> (239.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-5-29 12:23 上传
+
+6.1的第二赛季新池子，玫瑰扳手工坊代表罗佳+收尾人默尔索。
+
+（预告片里面的同事有小唐和虫叔）
+
+应该是之前没出现过的势力吧，估计是第四章的新NPC所属。特效蛮炫的，攻击段数看着也不少。话说突破卡面是大战清道夫吗，这什么高危工种...
+
+
+*****
+
+####  奇想楠木  
+##### 147#       发表于 2023-5-29 14:48
+
+有点想入坑，想来问问氪金啥的友好吗。
+
+
+*****
+
+####  法拉  
+##### 148#       发表于 2023-5-29 15:10
+
+ 本帖最后由 法拉 于 2023-5-29 15:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61038118&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-29 14:48</a>
+
+有点想入坑，想来问问氪金啥的友好吗。</blockquote>
+只要充战令，目前暂时所有东西都能肝出来，比较愿意玩的都差不多快全图鉴了
+
+
+*****
+
+####  Jamaisvu  
+##### 149#       发表于 2023-5-29 16:44
+
+ 本帖最后由 Jamaisvu 于 2023-5-29 16:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61038118&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-29 14:48</a>
+
+有点想入坑，想来问问氪金啥的友好吗。</blockquote>
+战令是必须要买的，很多独占ego，给的资源也不少。
+
+如果能氪的话，推荐买点付费狂气，把每个卡池的每日1折付费抽卡都抽了，碎片和人格都有可能到手（我甚至有两个ego是每日单抽出的）。攒下来的免费狂气可以去抽限定卡池的十连，或者换体力。
+
+如果能肝的话，貌似狂气换体力去肝镜牢（共计三层的rougelike副本，奖励通行证经验，通行证60级以后给碎片箱子）可以肝出全图册。不过我现在每天刷一遍镜本都嫌麻烦，这个就见仁见智吧...
+
+总之月计还是挺大方的，活动奖励和bug补偿动不动就给十连，白嫖也能有不错的体验。
+
+B站找了篇氪金指南，入坑的话可以参考下：
+【边狱公司-氪金推荐！-哔哩哔哩】 [https://b23.tv/bk8eILt](https://b23.tv/bk8eILt)
+
+
+*****
+
+####  奇想楠木  
+##### 150#       发表于 2023-5-29 18:29
+
+一上来看到这期通行证就剩2天十小时，这赶得上吗，要不要买，这池子要抽吗
+
+
+*****
+
+####  法拉  
+##### 151#       发表于 2023-5-29 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61041424&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-29 18:29</a>
+
+一上来看到这期通行证就剩2天十小时，这赶得上吗，要不要买，这池子要抽吗 ...</blockquote>
+不要买了，你肝不完的，等下一个赛季吧，战令ego以后也可以换的，就是通讯员和称号可能确实绝版了
+
+
+*****
+
+####  奇想楠木  
+##### 152#       发表于 2023-5-30 14:25
+
+专楼群人多吗。主要目前就像问问那个跳过战斗看了下花费4个模块，但是多给50%奖励意思是我花4个模块得到3模块收益吗，还有碎片换纺锤亏吗，还是等着每天慢慢刷。
+
+
+*****
+
+####  Yuzutea  
+##### 153#       发表于 2023-5-30 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61051172&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-30 14:25</a>
+专楼群人多吗。主要目前就像问问那个跳过战斗看了下花费4个模块，但是多给50%奖励意思是我花4个模块得到3模 ...</blockquote>
+纺锤的话六月一号赛季重置会强制变一半，不是急着升的话等两天好了
+
+
+*****
+
+####  Jamaisvu  
+##### 154#       发表于 2023-5-30 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61051172&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-30 14:25</a>
+
+专楼群人多吗。主要目前就像问问那个跳过战斗看了下花费4个模块，但是多给50%奖励意思是我花4个模块得到3模 ...</blockquote>
+扫荡的话是花费2倍体力获得1.5倍资源，也就是狗粮本手打是20体力8张卡，扫荡是40体力6张卡。
+
+不过纽本每天前三次有双倍加成，正常情况是20体力3个纽，在加成下进行扫荡是40体力4.5*2=9个纽，一天三次加成扫荡就是120体力27个纽，和手打六次的效果一样（3x2x3+3x3=27）。
+
+所以狗粮本建议每天手打一次，纽本有时间就扫荡三次，没时间手打三次。不会有任何亏损。
+
+*****
+
+####  Jamaisvu  
+##### 155#       发表于 2023-5-30 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61051172&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-30 14:25</a>
+
+专楼群人多吗。主要目前就像问问那个跳过战斗看了下花费4个模块，但是多给50%奖励意思是我花4个模块得到3模 ...</blockquote>
+碎片换纺锤是绝对亏的，后者有稳定日常收入来源，前者只能抽卡和开箱子。
+
+每个赛季结束你的箱子和箱子碎片会有一半转换成等量的纽和纽箱，算是日常任务，纽这玩意每过一个赛季应该就会供过于求吧...
+
+（不过养成上限也在逐步提升，W和A级的ego也没上场呢...总之单向兑换的话还是不可逆的一方更珍贵。）
+
+
+*****
+
+####  Jamaisvu  
+##### 156#       发表于 2023-5-30 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61051172&amp;ptid=2120922" target="_blank">奇想楠木 发表于 2023-5-30 14:25</a>
+
+专楼群人多吗。主要目前就像问问那个跳过战斗看了下花费4个模块，但是多给50%奖励意思是我花4个模块得到3模 ...</blockquote>
+新入坑但是没时间清体力的话也记着上线把体力转换成脑啡肽箱子（20体力一个），这游戏刷本都是消耗箱子的，体力也就是过关有用。
+
+每天的镜牢肉鸽第一遍是免费的，相当于省3个箱子，记得进一下，挂到第二天也不会占用下一个免费名额。
+
+主线打到日常关卡都放出就行了，不过第二赛季要出收益更高的镜牢了，不知道有没有前置要求...
+
+总之慢慢玩就行了，章节卡了就等入手强力人格或者等级上去了再挑战。需要准备的也就是第二赛季的镜面折射轨道二号线，人格强度可以看看一号线的通关录像...
+
+（别养剑契李箱、剑契辛克莱、W小组默尔索和黑云会罗佳就对了...）
+
+
+*****
+
+####  Jamaisvu  
+##### 157#       发表于 2023-5-30 17:22
+
+新人格技能预览：
+
+<img src="https://img.saraba1st.com/forum/202305/30/171803r1r9wy99w9q4994b.jpg" referrerpolicy="no-referrer">
+
+<strong>axteQjud-6gf4XhZ4tT3cS1jk-z7.jpg</strong> (410.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-30 17:18 上传
+
+<img src="https://img.saraba1st.com/forum/202305/30/171804trsrhrzrcrz9m0sm.jpg" referrerpolicy="no-referrer">
+
+<strong>axteQjud-4q02XgZ4kT3cS1jk-z7.jpg</strong> (393.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-30 17:18 上传
+
+两个人都是震动体系，大概就是积攒震动—震动爆发—造成混乱，辅助作用更大些，不过罗佳被动倒是能提高输出。
+
+两人都是纯打击角色，对付第四章K社保安应该好用吧...
+
+
+*****
+
+####  Yuzutea  
+##### 158#       发表于 2023-6-1 11:38
+
+这理智削弱之后N浮重要性上升了啊。
+
+
+*****
+
+####  Jamaisvu  
+##### 159#       发表于 2023-6-1 21:09
+
+关于理智值数值增减回溯热更的介绍：
+
+承蒙诸位经理关照。
+
+我们将把理智值增减数值恢复至之前的版本。
+
+- 拼点胜利时获得的理智值数值更改为与以前几乎相同的变动幅度。（增加量：基础为10，第二次拼点开始，每多拼点1次增加20%）
+
+- 取消拼点失败时理智值减少的条件
+
+- 此外击杀目标时，友方单位击杀目标时，友方单位死亡时的条件修复为与之前相同
+
+急于将失误的理智值计划实装，以及游戏测试不足，为各位带来了不愉快的一眼，对此感到十分抱歉。
+
+此外，对于将事先告知的内容推翻一事我们也十分抱歉。
+
+ 对于理智值容易增加一事，我们并非追加了理智值随机减少的机制，而是考虑调整为能更加积极地选用E.G.O的方向。
+
+此方向的调整是通过别的方式进行和核查的，因此可以反映在修复上，将在20:00（CST）时进行实装。实装后补偿1300狂气，限7日内领取。 ​
+
+
+*****
+
+####  Jamaisvu  
+##### 160#       发表于 2023-6-1 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61081947&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-6-1 21:09</a>
+
+关于理智值数值增减回溯热更的介绍：
+
+承蒙诸位经理关照。
+
+我们将把理智值增减数值恢复至之前的版本。</blockquote>
+笑死，理智系统又调回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟这么一改，一大堆靠硬币正面的人格都失业了，比直接削数值还难受。
+
+月计真的是教科书般的手游反例<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么错都能犯。
+
+好在改得快，吸取教训也很诚恳。希望日后能有臻至完美的一天吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wwddrte  
+##### 161#         楼主| 发表于 2023-6-1 21:42
+
+我觉得其实改也有改的道理。之前把满理智硬币正面率从72.5%改到95%，对那些基础值高，硬币增幅小的角色本身就是一种变相的削弱，要是改成理智获取速度减半也只是回到以前的水平，你现在不改了那剑契那几个就继续下水道。不过拼点输了掉理智这个设定肯定不太好，输了掉理智，理智掉了更容易输，恶性循环一边倒。
+
+
+*****
+
+####  Jamaisvu  
+##### 162#       发表于 2023-6-1 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61082354&amp;ptid=2120922" target="_blank">wwddrte 发表于 2023-6-1 21:42</a>
+
+我觉得其实改也有改的道理。之前把满理智硬币正面率从72.5%改到95%，对那些基础值高，硬币增幅小的角色本身 ...</blockquote>
+月计现在是既希望玩家的拼点更随机更有挑战性，又希望ego使用更频繁。结果理智系统的改动导致正常战斗就如履薄冰，更别提花理智去启动ego了...
+
+基础高硬币小的角色其实本身就挺畸形的，为了迎合他们把大家的腿都砍断了不是好主意...第一赛季后期出的都是大硬币角色也说明官方知道怎样才是强的，与其想办法救剑契组的仓管，还不如继续出符合强度审美的新人格...
+
+
+*****
+
+####  Yuzutea  
+##### 163#       发表于 2023-6-1 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">剑契箱子这种就算骰满了点数还没第四章小怪一币的点数高
+
+数值不改现在这根本没可能抬的
+
+
+*****
+
+####  Jamaisvu  
+##### 164#       发表于 2023-6-2 08:20
+
+贴吧有人解包出了第二赛季的新卡，虽然只是预设图（二星工坊锁也上去充数了），但透露了希斯和虫叔两个人的新卫星（不过星级不确定，搞不好这俩是下个池子的...）：
+
+<img src="https://img.saraba1st.com/forum/202306/02/082005zgx0nnyyyp5xgv1v.jpg" referrerpolicy="no-referrer">
+
+<strong>D8208E9082DBF2305F6C9532E8CD7864.jpg</strong> (170.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 08:20 上传
+
+第一赛季的长这样：
+
+<img src="https://img.saraba1st.com/forum/202306/02/082021anujsitnyuz5unfy.jpg" referrerpolicy="no-referrer">
+
+<strong>EF7445AD6A4B8CFD4D665ED114A101EE.jpg</strong> (90.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 08:20 上传
+
+
+*****
+
+####  Jamaisvu  
+##### 165#       发表于 2023-6-2 18:54
+
+ 本帖最后由 Jamaisvu 于 2023-6-2 18:56 编辑 
+
+出预告啦，新三星狐雨EGO希斯克利夫，二星玫瑰扳手格里高利：
+
+<img src="https://img.saraba1st.com/forum/202306/02/185320j00tmhigqqi4z0fi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_185148_tv.danmaku.bili.jpg</strong> (283.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-2 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/185318nb1spbn1simpyuxj.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_185153_tv.danmaku.bili.jpg</strong> (181.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-2 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/185320rym9lxrure6dzxi5.jpg" referrerpolicy="no-referrer">
+
+<strong>7B387C036B8BB45A6D45A6A5E149F437.jpg</strong> (52.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-2 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/185322qt427b66cqlq72c5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_185140_tv.danmaku.bili.jpg</strong> (144.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-2 18:53 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/185321qzppv415s3yufb9p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_185209_tv.danmaku.bili.jpg</strong> (166.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-2 18:53 上传
+
+我就说ego专门建个模只出现在大招动画里有点浪费，现在直接出卡了。
+
+希望良秀的焦化ego也能出卡，那个真挺帅的。
+
+
+*****
+
+####  Yuzutea  
+##### 166#       发表于 2023-6-2 19:30
+
+小夫这也太帅了
+
+辛克莱那符咒和玛丽那珍珠贝不会也是EGO人格吧<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 167#       发表于 2023-6-2 20:07
+
+<blockquote>Yuzutea 发表于 2023-6-2 19:30
+小夫这也太帅了
+
+辛克莱那符咒和玛丽那珍珠贝不会也是EGO人格吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202306/02/200527xyxxdgzzestxnygm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_200353_tv.danmaku.bili.jpg</strong> (112.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/200527ss565575zk5fj8fv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_200405_tv.danmaku.bili.jpg</strong> (116.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 20:05 上传
+
+第二赛季的ego出现在PV的后半段，可以看出发动时背景会有变化。
+
+<img src="https://img.saraba1st.com/forum/202306/02/200558wgpjdpq1o6z5azpt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_200430_tv.danmaku.bili.jpg</strong> (81.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/200558z2omf2wffw5ym51h.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_200511_tv.danmaku.bili.jpg</strong> (55.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 20:05 上传
+
+<img src="https://img.saraba1st.com/forum/202306/02/200558f1ufntz1hxnhiin5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230602_200515_tv.danmaku.bili.jpg</strong> (57.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-2 20:05 上传
+
+而贝壳玛、符咒辛、雨狐希和玫瑰工坊人格都出现在前半段，且战斗背景和地图一样，应该坐实了是ego人格。
+
+
+*****
+
+####  Jamaisvu  
+##### 168#       发表于 2023-6-5 18:07
+
+ 本帖最后由 Jamaisvu 于 2023-6-5 18:11 编辑 
+
+雨伞小夫和工坊虫叔的技能出了：
+
+<img src="https://img.saraba1st.com/forum/202306/05/181105gpjpjpzx7i59gzp3.jpg" referrerpolicy="no-referrer">
+
+<strong>C6A2700A7D688099AA896206433B352E.jpg</strong> (393.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-5 18:11 上传
+
+<img src="https://img.saraba1st.com/forum/202306/05/181106f478o5k5akq772dz.jpg" referrerpolicy="no-referrer">
+
+<strong>335DFE59548A1EE2E7E29CB54417E2A5.jpg</strong> (106.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-5 18:11 上传
+
+伞狐希斯有个新机制“沉潜”，回合开始时会降低自己的理智，同时也可以消耗层数提升威力。看样子是个跟N辛类似的角色？应该很强，不过是打击类角色，暂且取代不了兔子的出场率...
+
+
+*****
+
+####  Yuzutea  
+##### 169#       发表于 2023-6-8 11:59
+
+ 本帖最后由 Yuzutea 于 2023-6-8 15:44 编辑 
+
+这狐夫强度直逼三幻神啊
+
+感觉YJ又要被冲了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+最后那二连Boss很棒啊
+
