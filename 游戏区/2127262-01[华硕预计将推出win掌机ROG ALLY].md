@@ -2799,3 +2799,30 @@ z1e款699刀，z1款599刀
 
 差不多价格能买眼睛谁会买寨
 
+*****
+
+####  医生狼多  
+##### 268#         楼主| 发表于 2023-6-8 12:40
+
+ROG 玩家国度宣布将在 6 月 13 日 20:00 举办 ROG 新品发布会，发布有关「#ROG掌机# 」（即 Ally）的行货情报。主机硬件信息：AMD 锐龙 Z1 Extreme 处理器，RDNA3 集显，7 英寸 1080P/120Hz 高刷触屏，定制冰川散热掌机版，双低噪风扇。 ​​​
+
+*****
+
+####  adslnet0519  
+##### 269#       发表于 2023-6-8 13:24
+
+再怎么说ally用的这个z1毕竟是4nm工艺的zen4+rdna3，在能耗比这一项上干翻sd的7nm工艺zen2+rdna2应该是笃笃定定的，要是做不到那就是rog的问题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  褪色的雪花  
+##### 270#       发表于 2023-6-8 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61184290&amp;ptid=2127262" target="_blank">adslnet0519 发表于 2023-6-8 13:24</a>
+再怎么说ally用的这个z1毕竟是4nm工艺的zen4+rdna3，在能耗比这一项上干翻sd的7nm工艺zen2+rdna2应该是笃笃 ...</blockquote>
+现在看评测大概是win的问题吧
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
