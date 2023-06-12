@@ -779,3 +779,10 @@ http://m.muwai.com/info/64259.html
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  黑羽侖人  
+##### 85#       发表于 2023-6-9 17:51
+
+至今連載仍然未有消息，話說作者這是身體有多差啊？休刊好久了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真擔心
+
