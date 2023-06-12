@@ -347,3 +347,63 @@ BD全卷特典有u149的衣服<img src="https://static.saraba1st.com/image/smile
 
 预选课过不想课了……反正已经捞到一首歌了就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kobushi  
+##### 5384#       发表于 2023-6-5 14:05
+
+我的天惹<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天杀包子神  
+##### 5385#       发表于 2023-6-6 02:24
+
+好消息 U149开播了
+
+坏消息 U149一个都没进总选
+
+
+*****
+
+####  月球列车  
+##### 5386#       发表于 2023-6-6 22:44
+
+总选的新投票方式是不是有点不公平阿<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flynnei  
+##### 5387#       发表于 2023-6-7 14:57
+
+楼里好安静
+
+*****
+
+####  flynnei  
+##### 5388#       发表于 2023-6-7 14:57
+
+楼里好安静
+
+
+*****
+
+####  两个路人  
+##### 5389#       发表于 2023-6-9 01:51
+
+这种投票不就属于你开心就好吗？不用太认真较劲啦。除非你能N开小号，单投上万把票，爆官方舞弊黑幕吧（茶
+
+
+*****
+
+####  dragrass  
+##### 5390#       发表于 2023-6-9 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61194275&amp;ptid=1130963" target="_blank">两个路人 发表于 2023-6-9 01:51</a>
+这种投票不就属于你开心就好吗？不用太认真较劲啦。除非你能N开小号，单投上万把票，爆官方舞弊黑幕吧（茶 ...</blockquote>
+关键是投票得氪金或者肝活动啊
+
+— from Xiaomi 2211133C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+

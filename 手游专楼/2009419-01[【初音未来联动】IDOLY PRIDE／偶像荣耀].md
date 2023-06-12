@@ -231,3 +231,36 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
  只能说从头到尾透露着一股霓虹ip产业刻板印象的美<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+*****
+
+####  两个路人  
+##### 781#       发表于 2023-6-9 15:47
+
+原来已经开台服了嘛… 看评论翻译质量还要等chatgpt等AI翻译来拯救了 233 https://apps.qoo-app.com/en/app/22847 
+
+
+*****
+
+####  两个路人  
+##### 782#       发表于 2023-6-9 15:56
+
+<blockquote>Huanghaozheng 发表于 2023-6-4 15:16
+其实我比较好奇的是就算机翻你也在日服把其他语言上了啊；
+
+你总不能说以后要多语言精修一遍吧这我是不信的 ...</blockquote>
+翻译一般是代理找人来干的。说起来的话，麻辣土豆的台服翻译也是一言难尽，虽然看起来像人话，但是很硬
+
+
+*****
+
+####  Huanghaozheng  
+##### 783#       发表于 2023-6-9 16:55
+
+我去这新卡；
+
+今年卑女大赛这么多冠军来着（
+
+含金量越看越低了属于是（
+
+琴乃又赢
+
