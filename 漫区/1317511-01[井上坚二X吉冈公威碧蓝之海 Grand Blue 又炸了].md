@@ -146,3 +146,56 @@
 
 —— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  zoomegg  
+##### 1278#       发表于 2023-6-9 15:08
+
+千纱也A出去啦！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 1279#       发表于 2023-6-9 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别处看到的我觉得说的挺对 估计是别人发给千纱消息让她误会北原过于饥渴变基佬了 所以才来了这一波发言 
+
+*****
+
+####  diectt  
+##### 1280#       发表于 2023-6-9 15:17
+
+感觉下一话又是老活，从千纱视角再说一遍万圣节
+
+
+*****
+
+####  KDConan  
+##### 1281#       发表于 2023-6-9 16:27
+
+原来如此，我说怎么那么突然<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  兔子大战ntr  
+##### 1282#       发表于 2023-6-9 18:05
+
+毒岛和伊织两人相处更有情侣的感觉，论塑造我觉得毒岛比千纱强多了加上这年头千纱这种类型不咋吃香了
+
+
+*****
+
+####  qixinno2  
+##### 1283#       发表于 2023-6-9 18:27
+
+反正个人觉得千纱做为一个表妹角色还行 但真论感情戏 爱菜的四个姬友都比千纱强
+
+
+*****
+
+####  玩玩而已别当真  
+##### 1284#       发表于 2023-6-9 18:40
+
+爱菜应该彻底支棱不起来了
+
