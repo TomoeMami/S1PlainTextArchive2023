@@ -886,3 +886,215 @@ TOKYO MX、BS11ほかにて放送予定！
 <img src="https://p.sda1.dev/10/d41ec21abe0d9bb1c1fdbb3d867fbfbf/CMP_20230312204311477.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/10/365f98584dfde8b461c6108e440866b5/CMP_20230312204916668.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 62#         楼主| 发表于 2023-3-25 19:08
+
+声优追加
+<img src="https://p.sda1.dev/10/83edef674854594e01c38fab0578d881/CMP_20230325190416239.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/a5951d557524569fd5a9f0a30dc9f0a9/CMP_20230325190416285.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/cd1c3558061f634f2ce97984b2b1a8de/CMP_20230325190416328.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/fc19329a7d035378248f099d243e7d63/CMP_20230325190416369.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/651b88ab72749f965172310c4de312cd/CMP_20230325190416407.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/99e6a5c203b456872448fc0a8814611e/CMP_20230325190419590.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/10/85c5b1960324a5c48980b2fb00ae166c/CMP_20230325190419636.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  穗乃果  
+##### 63#       发表于 2023-3-25 19:16
+
+既然是幻想异世界
+世界观故事可以随意很多
+要是把缪斯的9人加进来就好了
+
+*****
+
+####  ads147147  
+##### 64#       发表于 2023-3-25 19:35
+
+怎么梨子妈妈没有。。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  kria  
+##### 65#       发表于 2023-3-25 20:01
+
+ 本帖最后由 kria 于 2023-3-25 20:02 编辑 
+
+配角都当续报佩了
+
+*****
+
+####  Piano-Forest  
+##### 66#       发表于 2023-6-4 13:17
+
+PV2：[https://youtu.be/4H2N5qcBUuQ](https://youtu.be/4H2N5qcBUuQ)
+
+今晚9点公开
+
+
+*****
+
+####  太阳之光  
+##### 67#       发表于 2023-6-4 14:19
+
+夜羽妈的团子方向是不是反了？印象中应该是跟善子反过来的
+
+
+*****
+
+####  ads147147  
+##### 68#       发表于 2023-6-4 22:31
+
+看了pv2，居然不是中世纪而是现代时间点再加上魔幻要素啊，结合的很好。
+
+善子是城里被发配去沼津的啊，笑死，但是为啥说自己没有认识的人，和丸子的青梅竹马设定被砍掉了么，看丸子的台词不太像。
+
+pv看的挺乐的，突然有种，花田你可能连少女喝茶都写不过新人的感觉。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  离心  
+##### 69#       发表于 2023-6-4 22:51
+
+看pv也许有可能会认真讲点主线故事？毕竟也不用讲那老三样了，不用那么拘谨了。好好讲一个异世界少女番也是蛮不错的
+
+
+*****
+
+####  Piano-Forest  
+##### 70#       发表于 2023-6-4 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61113970&amp;ptid=2078039" target="_blank">Piano-Forest 发表于 2023-6-4 13:17</a>
+
+PV2：https://youtu.be/4H2N5qcBUuQ
+
+今晚9点公开</blockquote>
+6/25(日) 𝙰𝙱𝙴𝙼𝙰にて毎週日曜23時
+
+地上波1週間先行・最速配信決定✨
+
+
+*****
+
+####  阿姆罗二世  
+##### 71#       发表于 2023-6-5 00:09
+
+好像工期很紧的样子，能不延期就是成功了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Alicest  
+##### 72#       发表于 2023-6-5 13:20
+
+卡缪你干嘛呢
+<img src="https://p.sda1.dev/11/85306097a37b2a8aab53ad07783d5e63/IMG_CMP_100637631.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 73#       发表于 2023-6-5 15:05
+
+蛤蟆：果南，mari，s〇x！
+
+
+*****
+
+####  仟音一心  
+##### 74#         楼主| 发表于 2023-6-6 22:27
+
+文字对照表
+<img src="https://p.sda1.dev/11/725dac7c16363b3c83edf4ffa7b0c7a4/CMP_20230606222655664.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tuichu0425  
+##### 75#       发表于 2023-6-7 15:21
+
+我早就觉得缪斯直接解散是沙雕了，跳不动现场了完全可以设定为毕业后当了演员出没在日升各大动画片里。十年之后小日子终于想到了
+
+
+*****
+
+####  夏明翰  
+##### 76#       发表于 2023-6-7 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61171201&amp;ptid=2078039" target="_blank">tuichu0425 发表于 2023-6-7 15:21</a>
+我早就觉得缪斯直接解散是沙雕了，跳不动现场了完全可以设定为毕业后当了演员出没在日升各大动画片里。十年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">老害不退，怎么让新人上位？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  cat1230  
+##### 77#       发表于 2023-6-7 17:48
+
+缪当年问题比较多吧，水没那么多糟心事
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  super_uni  
+##### 78#       发表于 2023-6-7 18:21
+
+我一直觉得ll和爱马仕可以去拍个圣斗士之类的互殴一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  ads147147  
+##### 79#       发表于 2023-6-7 19:07
+
+今天的姐姐开局失误ww
+已经不是黑泽黛雅，只是黛雅啦。
+
+还有私服好美
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 80#         楼主| 发表于 2023-6-8 22:54
+
+<img src="https://p.sda1.dev/11/dc314cbff3e7127daa66ce1bf9695e22/CMP_20230608225204997.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/24a7962312ac2a83bb124f8f9e531898/CMP_20230608225205088.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/62c9da55d1dbfc97fce8d1ea10148101/CMP_20230608225205200.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/350b9b00298454681a57b765fa994dc8/CMP_20230608225205321.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/2696c1f2bef6b0666dffd2db2fdeb280/CMP_20230608225205430.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e4b0d7b33e21f6688c4715f82483ba83/CMP_20230608225217436.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ebcd9505eced6530de084e6322bc9719/CMP_20230608225217499.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f0f505e77c8cc21bd20713193d33a06d/CMP_20230608225217574.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b9235015d91bec25d1d65d55512f1876/CMP_20230608225217650.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/af9419ff85c55d7eb24ab8d952520dda/CMP_20230608225217726.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yturieowpq1  
+##### 81#       发表于 2023-6-9 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61171201&amp;ptid=2078039" target="_blank">tuichu0425 发表于 2023-6-7 15:21</a>
+
+我早就觉得缪斯直接解散是沙雕了，跳不动现场了完全可以设定为毕业后当了演员出没在日升各大动画片里。十年 ...</blockquote>
+ll企划赚钱的点都是线下，缪线下去不了直接去一条腿，跑不动的
+
