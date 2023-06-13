@@ -404,3 +404,44 @@ mc里也要看no miss通关<img src="https://static.saraba1st.com/image/smiley/f
 
 我活了！
 
+*****
+
+####  lightsuger  
+##### 9344#       发表于 2023-6-9 14:01
+
+<img src="https://img.saraba1st.com/forum/202306/09/135656nbfkzpkvb3q3qesf.png" referrerpolicy="no-referrer">
+
+<strong>排到大亏登陆者暴涨.png</strong> (40.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-9 13:56 上传
+
+[https://www.youtube.com/watch?v=qet8Nskd_Tg](https://www.youtube.com/watch?v=qet8Nskd_Tg)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dr.Wondering  
+##### 9345#       发表于 2023-6-9 14:28
+
+这输血输的有点多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9346#       发表于 2023-6-10 17:23
+
+虚假的耐久，炸鱼炸4小时就没了，今年再播几场派派行不行<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 9347#       发表于 2023-6-10 17:43
+
+没看够，建议单排上大师
+
