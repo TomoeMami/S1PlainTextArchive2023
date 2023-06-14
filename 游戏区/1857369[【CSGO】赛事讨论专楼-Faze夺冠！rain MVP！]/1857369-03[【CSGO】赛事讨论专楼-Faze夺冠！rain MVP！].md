@@ -5870,3 +5870,193 @@ ence faze打嗨了，这图三好看
 
 太阳神加时赛彻底疯了，太crazy了
 
+*****
+
+####  dev2ce  
+##### 3788#       发表于 2023-6-7 23:31
+
+休太久被宰🐷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  那由  
+##### 3789#       发表于 2023-6-8 00:15
+
+小蜜蜂这是提前备战cs2了是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  andychen  
+##### 3790#       发表于 2023-6-8 00:59
+
+zonic感觉最后有点生气了
+
+*****
+
+####  dev2ce  
+##### 3791#       发表于 2023-6-8 01:20
+
+想起不好的回忆了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，19年上半年a队拿完卡托之后狂休数个赛事，仅剩参加的几个赛事被打成傻子
+
+*****
+
+####  andychen  
+##### 3792#       发表于 2023-6-8 01:31
+
+这C9打G2真的抽象，太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 3793#       发表于 2023-6-8 02:04
+
+G2干翻了世一厦？
+
+*****
+
+####  曼陀罗肥  
+##### 3794#       发表于 2023-6-8 13:17
+
+小蜜蜂打完全队都臭一张脸在那里，真以为随便练几天就能暴纱人家老头队啊。
+
+*****
+
+####  dev2ce  
+##### 3795#       发表于 2023-6-8 16:59
+
+这次🐝真的菜的跟🐶一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3796#       发表于 2023-6-8 22:37
+
+6-0开局追平了，C9在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">休赛期要大变阵了？这阵容一眼没希望
+
+*****
+
+####  曼陀罗肥  
+##### 3797#       发表于 2023-6-8 22:39
+
+小蜜蜂还是典，回家度假咯
+
+
+*****
+
+####  Rainwedell  
+##### 3798#       发表于 2023-6-8 23:26
+
+不好说谁菜了，c9搞得出知道4架不拿任何图权的。。。
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dev2ce  
+##### 3799#       发表于 2023-6-9 00:39
+
+一局两个tk<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 3800#         楼主| 发表于 2023-6-9 00:39
+
+C9这俩TK太有节目效果了，再接上载物的aimbot5杀，节目效果拉满
+
+*****
+
+####  曼陀罗肥  
+##### 3801#       发表于 2023-6-9 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61193859&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-6-9 00:39</a>
+一局两个tk</blockquote>
+本以为昨天c9-g2已是癫疯对决，没想到今天vit-c9才是真的icu病房大乱斗
+
+
+*****
+
+####  andychen  
+##### 3802#       发表于 2023-6-9 01:05
+
+C9原霍八三个要踢掉两个，电和P来组个队估计能重回T0战队
+
+
+*****
+
+####  dev2ce  
+##### 3803#       发表于 2023-6-9 08:30
+
+主播天天早上被折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a队现在也太离谱了，真要等24年再换人吗
+
+
+*****
+
+####  三千珈蓝  
+##### 3804#       发表于 2023-6-9 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61194042&amp;ptid=1857369" target="_blank"> andychen 发表于 2023-6-9 01:05</a> C9原霍八三个要踢掉两个，电和P来组个队估计能重回T0战队 </blockquote>
+把原踢了不怕电子哥继续当指挥？来自: iPhone客户端
+
+
+*****
+
+####  heseran  
+##### 3805#       发表于 2023-6-11 09:35
+
+G2的nuke什么时候变得这么丑陋了？
+
+*****
+
+####  朔方原的星  
+##### 3806#         楼主| 发表于 2023-6-11 09:39
+
+马修赫伯特不杀人这决赛没法打啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3807#       发表于 2023-6-11 09:55
+
+G2夏休铁变阵了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马修图三这么不当人都赢不了
+
+
+*****
+
+####  DICE20  
+##### 3808#       发表于 2023-6-11 10:04
+
+马修亦博特给我笑惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这再不醒来明天点子哥就要冠军咯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  恶搞之王  
+##### 3809#       发表于 2023-6-11 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61226789&amp;ptid=1857369" target="_blank">DICE20 发表于 2023-6-11 10:04</a>
+
+马修亦博特给我笑惨了这再不醒来明天点子哥就要冠军咯
+
+—— 来自 S1Fun ...</blockquote>
+你不会以为X队不犯病吧
+
+打巴西老头手握8个赛点被打进加时差点翻车
+
+
+*****
+
+####  浊世臭臭泥  
+##### 3810#       发表于 2023-6-12 04:04
+
+马修你玩不玩
+
