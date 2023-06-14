@@ -470,3 +470,129 @@ tos竟然还没打折，还想折扣价重温一下来着
 
 新作还好，但旧作移植的开发规格降级这点，说实话有点让人担心
 
+*****
+
+####  RiesbyfeAtlasia  
+##### 6234#       发表于 2023-6-11 10:36
+
+今天会有新消息吗
+
+
+*****
+
+####  空洞骑士  
+##### 6235#       发表于 2023-6-11 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61227386&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2023-6-11 10:36</a>
+
+今天会有新消息吗</blockquote>
+已经进live环节了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指望富泽能整个好活的醒醒吧（是我啊那没事了）。我现在就在想黎明新程这个商标真的是传说的吗，万一是万代的新IP的商标然后steam后台QA只是在测简体中文更新就乐子大了。
+
+*****
+
+####  宛若青空  
+##### 6236#       发表于 2023-6-11 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61235856&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2023-6-11 19:30</a>
+已经进live环节了指望富泽能整个好活的醒醒吧（是我啊那没事了）。我现在就在想黎明新程这个商标 ...</blockquote>
+肯定是传说的，上面某国注册直接就是破晓传说黎明新程
+
+
+*****
+
+####  Rainwedell  
+##### 6237#       发表于 2023-6-11 19:35
+
+看软子发布会吧，传说不是老给微软站台吗？
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  byisme001  
+##### 6238#       发表于 2023-6-11 19:35
+
+nbgi真能憋啊，再憋到tgs?
+
+*****
+
+####  法拉  
+##### 6239#       发表于 2023-6-11 19:38
+
+所以传说祭没情报了？
+
+
+*****
+
+####  空洞骑士  
+##### 6240#       发表于 2023-6-11 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61235995&amp;ptid=1860328" target="_blank">法拉 发表于 2023-6-11 19:38</a>
+
+所以传说祭没情报了？</blockquote>
+看推特好像还在DEEN的live，昨天live结束貌似嘉宾发个言就结束了。
+
+
+*****
+
+####  laoz  
+##### 6241#       发表于 2023-6-11 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没了，看今晚微软有没有，傻逼富泽
+
+*****
+
+####  法拉  
+##### 6242#       发表于 2023-6-11 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61236200&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2023-6-11 19:50</a>
+
+看推特好像还在DEEN的live，昨天live结束貌似嘉宾发个言就结束了。</blockquote>
+看到了，还唱了夢であるように，这下必须看个回放了
+
+
+*****
+
+####  qiyu1234  
+##### 6243#       发表于 2023-6-11 20:14
+
+ 本帖最后由 qiyu1234 于 2023-6-11 20:15 编辑 
+
+正常，TalFes已经蛮长时间没公布过家用机新作内容了
+
+ARISE男女主CV只有DAY1来，DAY1没有就是真没有了
+
+
+*****
+
+####  司马千晶  
+##### 6244#       发表于 2023-6-11 22:08
+
+今天挺欢乐的，可惜一点都不像2023年的玩意。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 6245#       发表于 2023-6-12 02:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">软软还是没情报，富泽你这小逼宰治还能藏啊？
+
+
+*****
+
+####  医生狼多  
+##### 6246#       发表于 2023-6-12 02:33
+
+还能指望啥，tgs？
+
+
+*****
+
+####  Rainwedell  
+##### 6247#       发表于 2023-6-12 02:53
+
+应该只剩tgs了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
