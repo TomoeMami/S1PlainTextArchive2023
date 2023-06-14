@@ -6141,3 +6141,750 @@ New的话也就上面几个可以选下
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你们不说我都不知道能换
 
+*****
+
+####  gpx234mqx  
+##### 44400#       发表于 2023-5-30 18:45
+
+繁中开专属活动2023尼禄祭呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2023-05-30 184109.png
+(173.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-5-30 18:45 上传
+
+<img src="https://img.saraba1st.com/forum/202305/30/184510j1kfjh01if9jkfcd.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 44401#       发表于 2023-5-30 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61054696&amp;ptid=1712412" target="_blank">gpx234mqx 发表于 2023-5-30 18:45</a>
+
+繁中开专属活动2023尼禄祭呢</blockquote>
+而且还是有奥博龙、杀狐实装的尼禄祭，估计一大堆新的作业。还有最有可能达成2T的爷爷高难了。
+
+*****
+
+####  GuDaZi  
+##### 44402#       发表于 2023-5-31 21:03
+
+2.5.5通古斯我当年居然过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 44403#       发表于 2023-6-1 19:17
+
+其实只想要个二、三宝飞嫂，结果一单下去二宝夏露露二宝罗兰一宝飞嫂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44404#       发表于 2023-6-1 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20呼符一个克姐 溜了
+
+
+*****
+
+####  保罗赫伯特  
+##### 44405#       发表于 2023-6-1 20:03
+
+一发十连出了刑部姬，真是出人意料的展开啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 44406#       发表于 2023-6-1 20:10
+
+四十连两飞嫂一夏露露一罗兰，顺利收工
+
+
+*****
+
+####  Blackson  
+##### 44407#       发表于 2023-6-1 20:31
+
+四单两飞嫂四夏露露六罗兰，大出血
+
+
+*****
+
+####  khxooo  
+##### 44408#       发表于 2023-6-1 20:41
+
+大号17呼符飞嫂，小号17呼符罗兰。
+
+
+*****
+
+####  莉莉橙  
+##### 44409#       发表于 2023-6-2 08:06
+
+80抽all in，两查理曼两飞嫂，大满足
+
+
+*****
+
+####  hyhaha  
+##### 44410#       发表于 2023-6-2 09:54
+
+396抽1宝夏露露2宝罗兰2宝飞嫂1宝雪山布迪卡1宝切嗣
+
+没吃保底胜似保底，久别大概3年的千石1宝
+
+其实看到五星礼装扎堆出就应该跑的，有2个十连出三张五星礼装你敢信
+
+不过今年以来确实没啥热情了，一直想弃掉一个号减负（之前都是双号），干脆破罐子破摔了，正好有理由弃坑
+
+至少终于满足了7年来全5星男助战的心愿
+
+*****
+
+####  GuDaZi  
+##### 44411#       发表于 2023-6-2 10:00
+
+罗兰X4<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kyonkoism  
+##### 44412#       发表于 2023-6-2 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等着抽唐吉坷德了，虽然有extra情怀，但是对夏露露确实没什么心动的感觉，下一位！
+
+
+*****
+
+####  snakeling  
+##### 44413#       发表于 2023-6-2 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">安卓B服100101409483，求挂个飞嫂开图鉴，谢谢。
+
+
+*****
+
+####  莉莉橙  
+##### 44414#       发表于 2023-6-2 11:11
+
+http://m.dmzj.com/info/51281.html
+
+趁着查理曼卡池的风头安利DGO，可以直接从39话开看，怪胎御主和圣骑士帝把FZ变成阳光热血正能量故事的爽快同人
+
+
+*****
+
+####  kyonkoism  
+##### 44415#       发表于 2023-6-2 11:15
+
+DGO肯定要从头看啊！这么好的作品从中间看也太浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花星空  
+##### 44416#       发表于 2023-6-2 11:37
+
+十连一个查理曼……护符单抽一个查理曼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimotsuki14  
+##### 44417#       发表于 2023-6-2 15:12
+
+dgo建议从头看到尾
+常有大爆笑剧情和精妙段落
+
+
+*****
+
+####  khxooo  
+##### 44418#       发表于 2023-6-2 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61087153&amp;ptid=1712412" target="_blank">snakeling 发表于 2023-6-2 10:56</a>
+感觉池子好少人抽</blockquote>
+除了厨子谁抽，大部分都盯着公主和泳装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DET  
+##### 44419#       发表于 2023-6-2 18:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">细看君11的恋爱剧情真的笑出声，你月什么时候放弃这些尴尬到死的夫妻剧情啊
+
+
+*****
+
+####  饭太稀  
+##### 44420#       发表于 2023-6-2 19:12
+
+打算等小教授出了，两个池一起all in一波看看，怕夏露露抽过头没给小教授留石。这俩年底还能补宝，主号不抽公主，泳装只抽一宝水斯，水梅看情况，还算相对宽裕。再后面今年想抽的新卡剩千利休，日服今年能不能来个新拐让绿卡great again啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44421#       发表于 2023-6-3 00:35
+
+公主都想跳过了
+
+一宝公主是不是等于没有啊.....
+
+再也不犯妖兰的错误了
+
+
+*****
+
+####  両儀  
+##### 44422#       发表于 2023-6-3 11:47
+
+50抽没飞嫂<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kon-El  
+##### 44423#       发表于 2023-6-3 17:15
+
+石头有点不太充足，公主大概是要放弃了，不知道女梅林和RBA哪个优先度更高啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  霄度天  
+##### 44424#       发表于 2023-6-3 17:30
+
+3呼符夏露露
+
+
+*****
+
+####  sosgame67  
+##### 44425#       发表于 2023-6-3 17:51
+
+公主1宝基本是5加成换人绑定，打是能打，你干嘛不上更舒服的6加成队伍呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 44426#       发表于 2023-6-3 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61102961&amp;ptid=1712412" target="_blank">Kon-El 发表于 2023-6-3 17:15</a>
+ 石头有点不太充足，公主大概是要放弃了，不知道女梅林和RBA哪个优先度更高啊  论坛助手,iPhone ...</blockquote>
+RBA吧，女梅林不玩长线的话很少用。
+
+
+*****
+
+####  khxooo  
+##### 44427#       发表于 2023-6-3 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61102961&amp;ptid=1712412" target="_blank">Kon-El 发表于 2023-6-3 17:15</a>
+
+石头有点不太充足，公主大概是要放弃了，不知道女梅林和RBA哪个优先度更高啊
+
+论坛助手,iPhone ...</blockquote>
+RBA，这一年除了奥博龙，RBA的优先度是最高的。
+
+
+*****
+
+####  AbigailWilliams  
+##### 44428#       发表于 2023-6-3 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61102961&amp;ptid=1712412" target="_blank">Kon-El 发表于 2023-6-3 17:15</a>
+石头有点不太充足，公主大概是要放弃了，不知道女梅林和RBA哪个优先度更高啊
+
+论坛助手,iPhone ...</blockquote>
+国服这一年唯一无脑强度卡rba，也不是说有c呆奥伯龙那么夸张，但是不考虑满配打手只抽一张，就无脑选择rba吧
+
+*****
+
+####  AbigailWilliams  
+##### 44429#       发表于 2023-6-3 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61106070&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2023-6-3 21:36</a>
+国服这一年唯一无脑强度卡rba，也不是说有c呆奥伯龙那么夸张，但是不考虑满配打手只抽一张，就无脑选择rb ...</blockquote>
+单指新五星啊，你要缺那些旧卡另说
+
+
+*****
+
+####  待宵  
+##### 44430#       发表于 2023-6-3 22:08
+
+东出是不是对君士坦丁有仇？
+
+
+*****
+
+####  azccc52  
+##### 44431#       发表于 2023-6-4 13:57
+
+没有梅林是补女梅林合适还是rba啊
+
+顺便再问一下，目前到日服新年的除了雨神跟满破公主还有哪个ml啊
+
+*****
+
+####  azccc52  
+##### 44432#       发表于 2023-6-4 14:01
+
+问一下，没有梅林是补女梅林比较好还是补rba比较好
+
+顺便再问一下，国服目前到日服新年的ml除了雨神和满破公主还有谁吗
+
+草，刚没加载出来，以为被吞回复了，不好意思
+
+
+*****
+
+####  Huanghaozheng  
+##### 44433#       发表于 2023-6-4 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61114600&amp;ptid=1712412" target="_blank">azccc52 发表于 2023-6-4 14:01</a>
+
+问一下，没有梅林是补女梅林比较好还是补rba比较好</blockquote>
+两个梅林的强度放在现在基本都是一坨；
+
+纯看强度建议rba（
+
+
+*****
+
+####  gearbox  
+##### 44434#       发表于 2023-6-4 16:44
+
+梅林现在基本都是高难特化，抽了用的不多，不抽高难偶尔会难受一下，也就卑呆梅之类的苟队缺不了
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  whateveryou  
+##### 44435#       发表于 2023-6-4 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61114600&amp;ptid=1712412" target="_blank">azccc52 发表于 2023-6-4 14:01</a>
+
+问一下，没有梅林是补女梅林比较好还是补rba比较好</blockquote>
+呼延灼、布里托玛特、库库尔坎、兽尼禄、提妈
+
+
+*****
+
+####  苍蓝之枪  
+##### 44436#       发表于 2023-6-4 22:11
+
+RBA没什么好犹豫的，该犹豫的是强度美，一宝是否有价值.......
+
+
+*****
+
+####  youharugen  
+##### 44437#       发表于 2023-6-4 22:27
+
+dgo当初看了视频，结果就莫名其妙转去看了亚鲁夫攻略兰斯世界了。。。
+
+
+*****
+
+####  深渊骑士  
+##### 44438#       发表于 2023-6-5 07:17
+
+在冲泳装伽摩失败后到现在存了1千多石吧，加上之后送的，除了rba，就是希望水伊吹可以欧到2宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 44439#       发表于 2023-6-5 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61123707&amp;ptid=1712412" target="_blank">youharugen 发表于 2023-6-4 22:27</a>
+dgo当初看了视频，结果就莫名其妙转去看了亚鲁夫攻略兰斯世界了。。。</blockquote>
+视频太少，还没到有醍醐味的部分
+
+
+*****
+
+####  朝仓和美  
+##### 44440#       发表于 2023-6-5 07:50
+
+从开服玩到现在，宇宙棱镜硬是没满破……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  莉莉橙  
+##### 44441#       发表于 2023-6-5 09:19
+
+公主跳过，搏一下尺蒂二宝，周年奖励的石头，大部分还得留到三战卑弥呼……
+
+邪马台两次卑弥呼up都投了5单，这次真没余力课金了
+
+
+*****
+
+####  collincollin  
+##### 44442#       发表于 2023-6-5 14:29
+
+去年奥宝翻了，现在只能考虑rba要不要冲到底，其他全跳
+
+
+*****
+
+####  tttabc1  
+##### 44443#       发表于 2023-6-5 14:59
+
+公主和RBA池子有重合期么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UNISONIA  
+##### 44444#       发表于 2023-6-5 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61134765&amp;ptid=1712412" target="_blank">tttabc1 发表于 2023-6-5 14:59</a>
+
+公主和RBA池子有重合期么</blockquote>
+没有，公主池子日服还是个阉割版的11天卡池（8月10日结束），虽然BGO应该会补几天，但是大概率是跟去年一样提前开的套路
+
+RBA要8月17日才pick-up了
+
+
+*****
+
+####  艾尔特翔  
+##### 44445#       发表于 2023-6-5 15:38
+
+265打完，感觉卡多克+尺教授这对如果能组合蛮有看头的，可惜了
+
+
+*****
+
+####  Von  
+##### 44446#       发表于 2023-6-5 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61106479&amp;ptid=1712412" target="_blank">待宵 发表于 2023-6-3 22:08</a>
+
+东出是不是对君士坦丁有仇？</blockquote>
+没让**二世 登场我觉得非常仁慈<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 44447#       发表于 2023-6-5 20:34
+
+[https://nga.178.com/read.php?tid=36533356](https://nga.178.com/read.php?tid=36533356)
+
+NGA有人对专区的风格回过味儿来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SAGA0Arcueid  
+##### 44448#       发表于 2023-6-5 20:41
+
+那个老莫什么情况，怎么冒出来的
+
+还是其实全是小莫里亚蒂自己脑补的～
+
+
+*****
+
+####  whateveryou  
+##### 44449#       发表于 2023-6-5 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61140942&amp;ptid=1712412" target="_blank">荡寇将军张嶷 发表于 2023-6-5 20:34</a>
+https://nga.178.com/read.php?tid=36533356
+
+NGA有人对专区的风格回过味儿来了</blockquote>
+性别战争在每一个角落的体现罢了，是好事，摆在明面上总比虚假的田园牧歌强。
+
+
+*****
+
+####  荡寇将军张嶷  
+##### 44450#       发表于 2023-6-5 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61141307&amp;ptid=1712412" target="_blank">whateveryou 发表于 2023-6-5 21:01</a>
+
+性别战争在每一个角落的体现罢了，是好事，摆在明面上总比虚假的田园牧歌强。 ...</blockquote>
+男女两头吃甚至连LGBT也要照顾到的三头吃手游必然的结果<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sosgame67  
+##### 44451#       发表于 2023-6-5 22:06
+
+那栋楼里的宇宙之音我记得去年还发帖声称要体谅B站的自主和谐（看回复是真心实意的，也不知道有没有收钱），后续太过逆天也不知道是自删还是锁隐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 44452#       发表于 2023-6-6 00:32
+
+隔壁板块向来只会有两种运营结果，一种是天天有人带节奏、转进，然后吃流量不管混战的，一种是管理拉满直接清理干净私人论坛的“私人”看不爽的。不过互联网也不存在中间派的论坛就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44453#       发表于 2023-6-6 04:51
+
+我纯福袋玩家宇宙棱镜都两张满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44454#       发表于 2023-6-6 04:56
+
+有高宝宇宙凛和水武藏了还有必要抽水伊吹吗，强度再美也有点难以接受这卡面
+
+
+*****
+
+####  马桶3  
+##### 44455#       发表于 2023-6-6 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61145393&amp;ptid=1712412" target="_blank">大弹涂鱼潜伏 发表于 2023-6-6 04:56</a>
+
+有高宝宇宙凛和水武藏了还有必要抽水伊吹吗，强度再美也有点难以接受这卡面 ...</blockquote>
+没有，RBA和水梅优先度高，其中RBA更高
+
+
+*****
+
+####  待宵  
+##### 44456#       发表于 2023-6-6 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">强度美再强顶天也无非是狂阶打手，这游戏拐比打手重要多了啊
+
+
+*****
+
+####  Blackson  
+##### 44457#       发表于 2023-6-6 11:16
+
+毕竟打手轮流转，能用的拐就那几个
+
+
+*****
+
+####  言午許  
+##### 44458#       发表于 2023-6-6 11:31
+
+目前3宝仇凛12绊，预估了一下一年内也到不了15绊，日服经验1宝水伊吹用处不大，准备留100给rba，剩下的all in公主了
+
+
+*****
+
+####  AbigailWilliams  
+##### 44459#       发表于 2023-6-6 11:39
+
+新时代打手都是拉的越满越好，和1张就基本全功能的拐比还是差多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉莉橙  
+##### 44460#       发表于 2023-6-6 11:42
+
+这一年新出的五星泛用打手，强度都很有保证，但是相对于同定位的旧打手来说，强度提升得很克制，旧打手成型的话，抽新打手带来的体验提升很有限，换句话说性价比没那么高。尤其是现在相当多的人要练新换人服，组队非常灵活
+
+
+*****
+
+####  苍蓝之枪  
+##### 44461#       发表于 2023-6-7 00:24
+
+极地服我最近能到9级，10级估计还要很久
+
+明天free清完又没啥事了，最后剩的一个free居然是133的阴间本.....
+
+主线就对不起助战那关用了个复活石，其他毫无难度
+
+等效石头刚回到2500吧，去年下半年真的是非理性抽卡损失太多了....
+
+后面就一个RBA是最优先级，其他考虑一下梅莉，烟雾镜，库库尔坎这类，其实强度美也有一定的拐力.....再到后面提妈感觉也可以，如果这些全要，那都只能抽一宝，还得指望不非.....
+
+*****
+
+####  Ousia  
+##### 44462#       发表于 2023-6-7 01:31
+
+君士3抽出，夏露露8抽出，呼符都还没用完…
+
+我明明没有跑的打算这是在干什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44463#       发表于 2023-6-7 05:03
+
+ 本帖最后由 大弹涂鱼潜伏 于 2023-6-6 17:08 编辑 
+
+兽尼禄居然还是单体，这下不得不抽完rba就开始攒石等着了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+这飞嫂怎么被击破后娇成这样，你们狂阶就是牛
+
+
+*****
+
+####  shimotsuki14  
+##### 44464#       发表于 2023-6-8 21:33
+
+惊了。三十连出了俩小教授，溢出一个巴御前，歪了一个秦良玉一个芝诺比阿
+
+但没有我想要的堂吉诃德
+
+
+*****
+
+####  饭太稀  
+##### 44465#       发表于 2023-6-9 03:57
+
+510石+60符，夏露露小教授罗兰堂吉诃德各两宝，超出预期的win！小遗憾没有飞嫂，不过不能要求更高了，收手。小教授是连续的两张护符单抽出的，想起有一年白情护符抽礼装，结果连出老教授和老李，这就是我和教授的羁绊吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">计划是一宝就走的，剩下等年底跟水莉莉丝一起的池子再抽，但习惯了护符不抽满十张就亏了于是继续，想不到出彩圈大惊喜
+
+
+*****
+
+####  flyzzhj  
+##### 44466#       发表于 2023-6-9 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">20连想抽唐吉坷德，沉船走人
+
+
+*****
+
+####  麻花疼  
+##### 44467#       发表于 2023-6-9 14:47
+
+死想显现界域终于推完了。
+
+感觉有些平淡，也可能是太多男性角色出场的关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  麻花疼  
+##### 44468#       发表于 2023-6-9 14:52
+
+目前准备公主三宝，梅莉一宝，RBA一宝。
+
+之后感觉还能憋一年，反正练度全满了，还是抽对策卡更爽。
+
+
+*****
+
+####  AbigailWilliams  
+##### 44469#       发表于 2023-6-9 20:52
+
+公主建议极端抽卡，要么抽花瓶，要么干到满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marxel  
+##### 44470#       发表于 2023-6-10 08:16
+
+想抽飞嫂，20呼一个罗兰
+又想抽飞嫂，20呼一个夏露露
+想抽堂吉诃德，10呼一宝外加一个张角
+
+还挺好？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  snakeling  
+##### 44471#       发表于 2023-6-10 11:48
+
+张角现在进友情池了吗？
+
+
+*****
+
+####  一个陆仁贾  
+##### 44472#       发表于 2023-6-10 12:03
+
+没怎么看讨论，rba是强在cba的上位替代么，绿卡性能提升还附带红卡的强化，看着挺讽刺的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  待宵  
+##### 44473#       发表于 2023-6-10 15:54
+
+夏露露三宝飞嫂三宝裸兰二宝堂老头一宝
+
+然后我现在很缺各种基本材料甚至陷入了QP焦虑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  marxel  
+##### 44474#       发表于 2023-6-10 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61215088&amp;ptid=1712412" target="_blank">snakeling 发表于 2023-6-10 11:48</a>
+张角现在进友情池了吗？</blockquote>
+还没，要等这个池子关了的
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  少年游不游  
+##### 44475#       发表于 2023-6-11 10:21
+
+想抽飞嫂，10护符出了夏露露，然后nmd砸了60抽出了个罗兰
+
+
+*****
+
+####  莉莉橙  
+##### 44476#       发表于 2023-6-11 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61215276&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-6-10 12:03</a>
+没怎么看讨论，rba是强在cba的上位替代么，绿卡性能提升还附带红卡的强化，看着挺讽刺的
+
+—— 来自 ...</blockquote>
+红绿魔放红爆，有出星有赋予集星，本身宝具有特攻能作为光炮手炸一面低血量，在单体敌人百万HP的90++环境里是泛用度很高的通解之一
+
+
+*****
+
+####  GuDaZi  
+##### 44477#       发表于 2023-6-11 19:32
+
+痛苦，这么多年了，铜材料也不必一吃就要100起步吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 44478#       发表于 2023-6-11 20:19
+
+144/180是祖宗之法
+
