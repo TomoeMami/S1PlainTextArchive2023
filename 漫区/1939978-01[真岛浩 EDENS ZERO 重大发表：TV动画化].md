@@ -913,3 +913,10 @@ TVアニメ【EDENS ZERO】2期制作決定
 
 听说漫画销量对比妖尾一般，动画化这么稳的吗
 
+*****
+
+####  アルメリア  
+##### 77#       发表于 2023-6-12 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最终BOSS战斗依旧不好看 完全没有超能力互殴 突出一个大力出奇迹
+
