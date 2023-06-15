@@ -495,3 +495,19 @@ qq群：568981296
 不是，离别战记你们怎么还能加这种戏的？啊？哦凉哥演玛莉亚贝拉啊，那没 ...</blockquote>
 对比原来再演的剧情也改了
 
+*****
+
+####  kinemato  
+##### 754#       发表于 2023-6-12 18:09
+
+福州IMAX再演绝赞筹备中, 身在福建的长颈鹿有福了. 详情加qq群419644085
+<img src="https://i.vgy.me/ca51TJ.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nh_zzz  
+##### 755#       发表于 2023-6-12 19:52
+
+长沙6.17交响<img src="https://p.sda1.dev/11/6a7a702cb7bb67347238843bb897461e/CMP_20230612195130453.jpg" referrerpolicy="no-referrer">
+
