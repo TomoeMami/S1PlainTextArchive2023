@@ -1098,3 +1098,24 @@ pc端没游客选项吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">黑徐咋还能被ban的
 
+*****
+
+####  rgauss  
+##### 922#         楼主| 发表于 2023-6-13 14:29
+
+ 本帖最后由 rgauss 于 2023-6-13 14:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">新人类
+
+<img src="https://p.sda1.dev/11/c1f491ef6e4740fdf10e1923e23cbf99/CMP_20230613143357693.jpg" referrerpolicy="no-referrer">对皇子大幅度改观了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 923#       发表于 2023-6-13 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">连着3个保底觉醒了
+
