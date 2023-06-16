@@ -4955,3 +4955,39 @@ https://bethesda.net/en/article/61cmfd6FFIPk2J38XoJFTr/hi-fi-rush-update-3-patch
 
 生化4出来之前我也打了下极难一周目，感觉好像是我目前今年最喜欢的游戏，欢乐的剧情，愉快的战斗，找到了久违的纯粹的快乐，虽然明显还是感觉到经费不太足，最终boss卡尔其实还好吧，感觉招主要还是靠背节奏，You are The Perfect Drug~~~~The Perfect Drug~~~~~很带感，现在还在更新些没啥卵用的服装看来还打算维护一段时间，不知到续作会不会敲定，毕竟这工作室在B社那边感觉就是后妈生的
 
+*****
+
+####  陈词与芍药  
+##### 473#         楼主| 发表于 2023-6-8 03:13
+
+ 本帖最后由 陈词与芍药 于 2023-6-7 15:19 编辑 
+
+XGPU/Prime Gaming会员福利：限时领取《完美音浪》团队协作套装包 
+
+<img src="https://img.saraba1st.com/forum/202306/07/151945r5gonj8yg450l945.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2001.PNG</strong> (855.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-8 03:19 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陈词与芍药  
+##### 474#         楼主| 发表于 2023-6-14 01:34
+
+<img src="https://img.saraba1st.com/forum/202306/13/133407lzn4hyq6yygy6hz9.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2197.JPG</strong> (946.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-14 01:34 上传
+
+ Hi-Fi Rush Arcade Challenge于7月5日更新
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
