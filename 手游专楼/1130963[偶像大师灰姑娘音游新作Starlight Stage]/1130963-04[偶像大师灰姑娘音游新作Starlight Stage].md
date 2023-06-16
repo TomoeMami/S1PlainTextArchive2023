@@ -407,3 +407,22 @@ BD全卷特典有u149的衣服<img src="https://static.saraba1st.com/image/smile
 
 — from Xiaomi 2211133C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
 
+*****
+
+####  两个路人  
+##### 5391#       发表于 2023-6-13 22:28
+
+ 本帖最后由 两个路人 于 2023-6-13 22:31 编辑 
+
+久违的刷了刷AR摄影图，感叹人家玩得真溜
+
+<img src="https://p.inari.site/guest/23-06/13/64887c741520f.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887c749ccd9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887c9d015b7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887c9daca61.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887c9f90ebe.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887ca331102.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887d31d4a95.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887d3f2b1df.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64887d4b0b4ff.jpg" referrerpolicy="no-referrer">
+
