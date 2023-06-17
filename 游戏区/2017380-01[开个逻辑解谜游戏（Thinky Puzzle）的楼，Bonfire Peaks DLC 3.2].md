@@ -2120,3 +2120,27 @@ Draknek的作品好几个都上了手机，apple arcade里面也有怪兽远征�
 
 还有Euclidea之类的几何类游戏，不是很算传统解谜了。
 
+*****
+
+####  weiyun  
+##### 139#         楼主| 发表于 2023-6-12 10:12
+
+近期游戏
+[https://store.steampowered.com/app/2262930/Bombe/](https://store.steampowered.com/app/2262930/Bombe/)
+[https://bcat112a.itch.io/fractalfactory](https://bcat112a.itch.io/fractalfactory)
+
+
+*****
+
+####  otjuly  
+##### 140#       发表于 2023-6-15 04:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61245967&amp;ptid=2017380" target="_blank">weiyun 发表于 2023-6-12 10:12</a>
+
+近期游戏
+
+https://store.steampowered.com/app/2262930/Bombe/
+
+https://bcat112a.itch.io/fractalfactory ...</blockquote>
+fractalfactory如果能有个像opus magnum一样的进度条就好了，老有方块撞起来，又搞不清第几轮哪些装置控制的哪几个块撞了，调得要抓狂了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
