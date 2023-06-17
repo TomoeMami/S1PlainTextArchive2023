@@ -109,3 +109,43 @@ UFO FATE 脸画得难看感觉还是和武内脸的相性问题，想凑，没�
 刚开始做吗？这成品要到猴年马月</blockquote>
 以年记咯，一年都麻烦
 
+*****
+
+####  Nemo艇长  
+##### 1515#       发表于 2023-6-11 16:48
+
+ 动画《原神》获得2023中国影视之夜“新片推荐<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，所以这到底是怎么回事？
+
+
+*****
+
+####  小红飞翼  
+##### 1516#       发表于 2023-6-12 12:02
+
+说明过审了 
+
+
+*****
+
+####  三合一出现  
+##### 1517#       发表于 2023-6-14 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这玩意已经出了？
+
+
+*****
+
+####  lvseqiji  
+##### 1518#       发表于 2023-6-14 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">估计连PV都不会有的，就搬个奖，派个公司代表拍拍照，毕竟优秀出海企业，要鼓励扶持
+
+*****
+
+####  月夜凝雪  
+##### 1519#       发表于 2023-6-14 14:30
+
+能大赚特赚外汇的自然得顾着点
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
