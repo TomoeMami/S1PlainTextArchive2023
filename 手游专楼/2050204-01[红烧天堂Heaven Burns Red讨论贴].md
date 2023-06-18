@@ -4762,3 +4762,58 @@ CP方面，月歌 x yukki x 夏洛的互动能一直玩到关服。侦探x修女
 
 第四章终于最后一天了，心好累。不过剧情的确好。
 
+*****
+
+####  ardito  
+##### 1295#       发表于 2023-6-13 19:05
+
+95万的增幅芯片是不是就是最高级的了？
+
+
+*****
+
+####  pf67  
+##### 1296#       发表于 2023-6-15 09:45
+
+ 本帖最后由 pf67 于 2023-6-15 09:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61270956&amp;ptid=2050204" target="_blank">ardito 发表于 2023-6-13 19:05</a>
+
+95万的增幅芯片是不是就是最高级的了？</blockquote>
+那个阳炎？不能说最高级，那个是强化灵巧的，适合Breaker，但是Breaker本身就没啥地位...
+
+我感觉是懒得配芯片可以买这个
+
+
+*****
+
+####  ardito  
+##### 1297#       发表于 2023-6-15 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61291654&amp;ptid=2050204" target="_blank">pf67 发表于 2023-6-15 09:45</a>
+
+那个阳炎？不能说最高级，那个是强化灵巧的，适合Breaker，但是Breaker本身就没啥地位...
+
+我感觉是懒得配 ...</blockquote>
+忘了叫啥了，就好几个九十几万的，后面还有更强的吗
+
+
+*****
+
+####  Hemis  
+##### 1298#       发表于 2023-6-15 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61292104&amp;ptid=2050204" target="_blank">ardito 发表于 2023-6-15 10:15</a>
+
+忘了叫啥了，就好几个九十几万的，后面还有更强的吗</blockquote>
+暂时没有 现在一般都用九十几万的那几个
+
+*****
+
+####  ardito  
+##### 1299#       发表于 2023-6-15 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61292459&amp;ptid=2050204" target="_blank">Hemis 发表于 2023-6-15 10:35</a>
+
+暂时没有 现在一般都用九十几万的那几个</blockquote>
+哦，那就买了，二章打完后我都没更新这个
+
