@@ -1709,3 +1709,26 @@ ex淘汰赛翻车了，做好对策再进去
 
 不打这游戏的ex关卡，就是最轻松的游戏体验<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  startea15  
+##### 377#       发表于 2023-6-13 06:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是联动限定，这次是和docomo的联动，联动炎上子
+
+
+*****
+
+####  MEKA  
+##### 378#       发表于 2023-6-13 10:59
+
+关卡活动的ex因为继承血量和不锁角色，倒是可以用堆票的方法拿到2星和勋章。杯赛的ex锁角色就没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  羽出  
+##### 379#       发表于 2023-6-15 08:23
+
+别说联动的ex，我甚至连花嫁的ex都没有打，反正拿不到3星，就不浪费时间了，游戏体验瞬间上升
+
