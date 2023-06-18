@@ -1197,3 +1197,144 @@ https://prehyou2015.hatena ...</blockquote>
 反正演员公布下 剧情卖卖腐 自来有人会买单呗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
+*****
+
+####  粉儿alice  
+##### 122#       发表于 2023-6-15 08:35
+
+新的乐子 有人发现这玩意不让小朋友进去看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+变相说明了这玩意的受众和之前猜测
+反正寄希望于腐女和这些知名度不高2.5舞台剧演员粉 把基本盘小友家长给全部砸掉的 下场都不太好咯<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毒菇  
+##### 123#       发表于 2023-6-15 08:39
+
+看起来很粗糙
+
+
+*****
+
+####  披头破落户  
+##### 124#       发表于 2023-6-15 09:17
+
+指的是这个吧，也不算拒绝儿童入场<img src="https://p.sda1.dev/11/a0d1611d80f1e8b7826ab4619169e342/CMP_20230615091701939.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  王留美  
+##### 125#       发表于 2023-6-15 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61291266&amp;ptid=2131230" target="_blank">披头破落户 发表于 2023-6-15 09:17</a>
+ 指的是这个吧，也不算拒绝儿童入场  —— 来自 Xiaomi 22011211C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这还不算？直接说了没上学的不要来
+
+
+*****
+
+####  披头破落户  
+##### 126#       发表于 2023-6-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61293095&amp;ptid=2131230" target="_blank">王留美 发表于 2023-6-15 11:09</a>
+这还不算？直接说了没上学的不要来</blockquote>
+学龄前的小屁孩呗，反正对目标人群掌握的挺清，希望腐女狠狠爆金币吧
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  阿庆嫂  
+##### 127#       发表于 2023-6-15 11:43
+
+既不pretty也不cure的东西罢了
+
+
+*****
+
+####  毛头小希  
+##### 128#       发表于 2023-6-15 12:25
+
+禁学龄前儿童入场还算好理解吧，可能主要是怕现场难以管理
+
+实际上这个学龄前到底指的是上小学前还是幼儿园前我也不是很清楚，不管哪个其实范围都挺小的啊没什么吧
+
+
+*****
+
+####  王留美  
+##### 129#       发表于 2023-6-15 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61294390&amp;ptid=2131230" target="_blank">毛头小希 发表于 2023-6-15 12:25</a>
+ 禁学龄前儿童入场还算好理解吧，可能主要是怕现场难以管理 实际上这个学龄前到底指的是上小学前还是幼儿园 ...</blockquote>
+哪有什么难以管控的，东映可是从70年代就开始搞面向学龄前儿童的乐园皮套剧场了好吗？
+再说Q娃的主力目标群体不就是3岁到8岁，折算一下就是幼儿园到小学二年级，你大手一挥直接砍掉一半的对象那可还行
+
+直接承认男团Q不是面向主系列的目标用户又不是什么很搬不上台面的事情，难道555续集和魔法使续集是给幼女看的？一个道理嘛
+
+
+*****
+
+####  有钱多买小人  
+##### 130#       发表于 2023-6-15 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61294390&amp;ptid=2131230" target="_blank">毛头小希 发表于 2023-6-15 12:25</a>
+禁学龄前儿童入场还算好理解吧，可能主要是怕现场难以管理
+
+实际上这个学龄前到底指的是上小学前还是幼儿园 ...</blockquote>
+日本的未就学特指小学前，差不多6岁以下。
+
+
+*****
+
+####  毛头小希  
+##### 131#       发表于 2023-6-15 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61296203&amp;ptid=2131230" target="_blank">王留美 发表于 2023-6-15 14:41</a>
+
+哪有什么难以管控的，东映可是从70年代就开始搞面向学龄前儿童的乐园皮套剧场了好吗？
+
+再说Q娃的主力目标 ...</blockquote>
+也许是不同场馆的管理要求不一样也说不定，不过我既不了解大偶剧也不了解2.5次元舞台剧也不知道这两类表演常用的场馆有没有类型上的区别
+
+至于年龄层这块我搜了一下关键字，似乎是制作组的目标原本是7-9岁，实际上却成了3-8岁，随着年代也有所偏移，不过确实集中于低龄层
+
+主要信息来源：
+[https://m.jiemian.com/article/1113925.html](https://m.jiemian.com/article/1113925.html)
+[https://www.mittya.xyz/article/p ... taisyounennrei.html](https://www.mittya.xyz/article/purikyuanonennreisoutotaisyounennrei.html)
+
+嘛不过从<strong>全男团</strong>这个概念出来开始大家就知道肯定不是面向原客户群了，我单纯觉得再加个“不收学龄前儿童入场”没什么值得特别拿出来说的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最终还是要看市场反馈，我是不觉得真的能爆出很多大米，除非本身就成本低，上座率超过一定程度就有赚
+
+
+*****
+
+####  00Q  
+##### 132#       发表于 2023-6-15 16:36
+
+ 本帖最后由 00Q 于 2023-6-15 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60647203&amp;ptid=2131230" target="_blank">月夜凝雪 发表于 2023-4-28 12:55</a>
+
+然而你无法否认很多女的就吃这一套，而且她们是用金钱投票都愿意买票
+
+这对象应该是小时候看这个系列现在已 ...</blockquote>
+想赚这个钱的企划方大部分都是这么想的，然后直接寄，这回寄不寄目前存疑
+
+
+*****
+
+####  00Q  
+##### 133#       发表于 2023-6-15 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61053876&amp;ptid=2131230" target="_blank">花礫 发表于 2023-5-30 17:27</a>
+
+基本都没有，几个尝试过的基本都狗带了，最近上松不信邪还要搞歌之公主殿下，也在一脸暴死。
+
+不知道管人 ...</blockquote>
+管人？，某个男性向做的风生水起的公司搞的管人都寄了两次啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
