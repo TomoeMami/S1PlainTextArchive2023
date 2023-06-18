@@ -2786,3 +2786,399 @@ B站找了篇氪金指南，入坑的话可以参考下：
 感觉YJ又要被冲了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 最后那二连Boss很棒啊
 
+*****
+
+####  Yuzutea  
+##### 170#       发表于 2023-6-11 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">箱子哥真帅啊
+辛克莱那ego人格感觉是付费通行证60级奖励了
+
+
+*****
+
+####  Jamaisvu  
+##### 171#       发表于 2023-6-11 22:59
+
+<img src="https://img.saraba1st.com/forum/202306/11/225625xktqqb0wqiwq5x0b.jpg" referrerpolicy="no-referrer">
+
+<strong>6244EC56A104F33C46E719139BFEAA70.jpg</strong> (351.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-11 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202306/11/225625lqdqstt6q6mjpdak.jpg" referrerpolicy="no-referrer">
+
+<strong>CBAB262FC194FECA6FAF973C376A5DE4.jpg</strong> (98.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-11 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202306/11/225625mnh6hxyssijhxjak.jpg" referrerpolicy="no-referrer">
+
+<strong>7FB143410E61864D8E038970120601CA.jpg</strong> (124.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-11 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202306/11/225626i3rvzby5w73j5gv5.jpg" referrerpolicy="no-referrer">
+
+<strong>0AAF38AE71AB81C465427E3CB6F514ED.jpg</strong> (244.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-11 22:56 上传
+
+<img src="https://img.saraba1st.com/forum/202306/11/225626r0qmqr5q95mlji8i.jpg" referrerpolicy="no-referrer">
+
+<strong>A558CF2FB28757F61157DD13780F1C56.jpg</strong> (111.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-11 22:56 上传
+
+6.15新卡池，梅花箱和黏液玛。
+
+箱子哥根据解包貌似很强，不过这卡面，这眼神，这背景...颜值占模也得抽啊！！！
+
+*****
+
+####  Jamaisvu  
+##### 172#       发表于 2023-6-11 23:01
+
+<blockquote>Yuzutea 发表于 2023-6-11 22:12
+箱子哥真帅啊
+
+辛克莱那ego人格感觉是付费通行证60级奖励了</blockquote>
+通行证没送过人格吧...60级不是李箱的狐伞ego吗？
+
+第四章第三部分应该还有个最终BOSS，估计会再出一个套皮三星，然后符咒辛陪跑...
+
+
+*****
+
+####  Yuzutea  
+##### 173#       发表于 2023-6-11 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61240409&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-6-11 23:01</a>
+
+通行证没送过人格吧...60级不是李箱的狐伞ego吗？
+
+第四章第三部分应该还有个最终BOSS，估计会再出一个套 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">但是第一期通行证六十级我记得是EGO加卡戎的播音员，这期付费的两个播音员是20级和35级给了
+
+不过也有可能六十级付费栏会给ego和装饰名片那个
+
+YJ我记得之前有说过后续通行证会有人格和EGO吧
+
+如果第二赛季那PV里面所有东西都是这个月出的话感觉符咒辛有可能进通行证，这个月按之前那更新计划后面应该没第四个池子了
+
+
+*****
+
+####  Jamaisvu  
+##### 174#       发表于 2023-6-11 23:21
+
+<blockquote>Yuzutea 发表于 2023-6-11 23:07
+但是第一期通行证六十级我记得是EGO加卡戎的播音员，这期付费的两个播音员是20级和35级给了
+
+不过 ...</blockquote>
+这么一想也不是没有可能...不过N辛当初好像是开了3.5章地狱鸡活动后才实装的，搞不好这回符咒辛也会延后发送...
+
+感觉人格并不是那么轻易送出手的（除非是剑箱和厨虫那种强度），战令限定人格也有点逼氪的嫌疑...个人觉得还是名片边框的可能性大一些，现在送了一个K社风格的绿边框，要是再送一个檀香梅画风的就更好了...
+
+
+*****
+
+####  Jamaisvu  
+##### 175#       发表于 2023-6-13 19:33
+
+新角色技能预览：
+
+<img src="https://img.saraba1st.com/forum/202306/13/192253fowox06yf16jhwyh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230613_192125.jpg</strong> (312.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-13 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202306/13/192253cfr67s13aa1sl3t6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230613_192217.jpg</strong> (289.49 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-13 19:22 上传
+
+梅花箱的二技能在消耗振动层数的情况下可以变成AOE，配合自身被动可以增加伤害。
+
+（废墟图书馆第一张AOE卡我记得是憎恶女王的吧...看来箱子哥也是魔法少女233）
+
+三技能可以把敌人身上的沉沦debuff直接转化成精神伤害，超过-45的情况下还能造成生命伤害。鉴于三个技能都可以施加沉沦，输出估计很可观。
+
+三个技能都是三硬币，只要不再整1点数的烂活，应该是T1～T0的强角。
+
+反正单凭颜值对我来说就是必抽的...
+
+贝壳玛丽看着和工坊索有点像，纯打击振动机...
+
+
+*****
+
+####  冰原狼  
+##### 176#       发表于 2023-6-15 04:34
+
+萌新照着节奏榜刷了个初始，问问养成相关的问题
+box有N辛、兔子哥、豆豆帮主宝子哥、N社大槌，还有两张三星剑契
+现在主线进度3-6，看了看辛克莱的三星我好像集齐了就换了一波纺锤把N辛精三了，下一个练谁比较好呢？还有镜子迷宫打完之后是选8个随机箱好还是5个自选箱好？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  wwddrte  
+##### 177#         楼主| 发表于 2023-6-15 04:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61290218&amp;ptid=2120922" target="_blank">冰原狼 发表于 2023-6-15 04:34</a>
+
+萌新照着节奏榜刷了个初始，问问养成相关的问题
+
+box有N辛、兔子哥、豆豆帮主宝子哥、N社大槌，还有两张三星 ...</blockquote>
+先宝哥再兔子吧，大锤剑契都不咋强，箱子拿自选好点，能早点换到想要的角色
+
+
+*****
+
+####  Jamaisvu  
+##### 178#       发表于 2023-6-15 11:13
+
+<img src="https://img.saraba1st.com/forum/202306/15/111216hqgwbkcuagjgq44a.jpg" referrerpolicy="no-referrer">
+
+<strong>BEEE9571DE1CFC2390E4AD9E1C1AB3CA.jpg</strong> (83.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-15 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202306/15/111217g880mej033i3s0u3.jpg" referrerpolicy="no-referrer">
+
+<strong>65F6C263B1159FEE4A262F4141CCF68C.jpg</strong> (131.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-15 11:12 上传
+
+<img src="https://img.saraba1st.com/forum/202306/15/111217lw48bqlo4uqi94mo.jpg" referrerpolicy="no-referrer">
+
+<strong>E93EA5F0D33D09C200CB75767754775B.jpg</strong> (130.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-15 11:12 上传
+
+这硬币点数，这伤害数值，这盖世颜值...
+
+箱神降临！！！
+
+*****
+
+####  Jamaisvu  
+##### 179#       发表于 2023-6-15 11:22
+
+<blockquote>冰原狼 发表于 2023-6-15 04:34
+萌新照着节奏榜刷了个初始，问问养成相关的问题
+
+box有N辛、兔子哥、豆豆帮主宝子哥、N社大槌，还有两张三星 ...</blockquote>
+图鉴空缺多的话，我感觉还是随机箱好，雨露均沾嘛，说不定你想攒的人物会歪出来呢，也猜不到下次会有哪个角色出新卡。
+
+而且战令满级后升级都是给自选箱，攒碎片的话也够用了。随机箱多出来的碎片还能换纽，以后W和A级的ego升级消耗估计是大头...
+
+另外今后人物开第四阶段也要消耗碎片，所以我个人觉得越多越好...不过自己目标明确要换什么的话，拿自选也没啥问题...
+
+另外人物抽取是会重复的（概率3%），但ego获取后会从卡池中移除（概率1%），有条件氪金的话可以优先换想要的ego...毕竟活动奖励会给赛季三星十连券啥的，全人物图鉴也不算太难。
+
+（不过愿意肝的话，确实是拿自选箱更方便换卡。）
+
+
+*****
+
+####  Jamaisvu  
+##### 180#       发表于 2023-6-15 11:29
+
+<blockquote>冰原狼 发表于 2023-6-15 04:34
+萌新照着节奏榜刷了个初始，问问养成相关的问题
+
+box有N辛、兔子哥、豆豆帮主宝子哥、N社大槌，还有两张三星 ...</blockquote>
+帮主宝强在三技能正面30的大点数和斩杀再动，二技能伤害也不错。
+
+不过二星的黑云宝也非常强，二技能砍四刀毁天灭地，刷一号线的时候非常好用。而且是纯斩击角色，对付特殊敌人有奇效。
+
+（我打弱斩击boss习惯带W唐、厨亮、假日宝，但是这仨三技能经常摇不出来，一技能没伤害，二技能还都是穿刺...）
+
+兔夫目前是速刷镜牢最好用的角色之一（宝子兔子虫子御三家），而且貌似是希斯克利夫唯一能用的人格了...缺点是子弹消耗完就废了，长线乏力（但一号线基本还是必带的）。
+
+我比较希望开第四阶段的时候，能加一个新被动：充电5带头盔后，下一个技能不消耗子弹。（吃桃）
+
+
+*****
+
+####  Yuzutea  
+##### 181#       发表于 2023-6-15 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选随机箱还是自选箱也就这周了
+
+下星期镜牢改版之后每周加成那三次就只给赛季经验了
+
+
+*****
+
+####  冰原狼  
+##### 182#       发表于 2023-6-15 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61293448&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-6-15 11:29</a>
+帮主宝强在三技能正面30的大点数和斩杀再动，二技能伤害也不错。
+
+不过二星的黑云宝也非常强，二技能砍四 ...</blockquote>
+谢谢回复
+其实目前没有觉得兔子很强，可能是因为我整体练度不够所以老是拖到他没子弹开始刮痧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过这游戏不卡养成真是好文明，升阶系统简单干净，就是经验票吃的有点多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Jamaisvu  
+##### 183#       发表于 2023-6-15 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61295349&amp;ptid=2120922" target="_blank">冰原狼 发表于 2023-6-15 13:37</a>
+
+谢谢回复
+
+其实目前没有觉得兔子很强，可能是因为我整体练度不够所以老是拖到他没子弹开始刮痧
+
+不 ...</blockquote>
+我感觉这游戏最好的一点就是角色抽到就是完全体，不需要重复获取补充强度<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+兔子是纯突刺角色，爆发强点数高。不过主线第三章我记得除了最终BOSS都是弱打击，可能不太好用。但是镜牢这种短线本真的就没他不行了。
+
+小夫自带的裹尸袋ego资源要求不多，用完后下回合给自己加强壮和迅捷，而且ego被动是用一次后持续生效（裹尸袋是队友造成击杀后给小夫上buff）。兔子如果出了一技能的话可以换成裹尸袋，尽量把子弹留给三技能。
+
+
+*****
+
+####  Jamaisvu  
+##### 184#       发表于 2023-6-15 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61295349&amp;ptid=2120922" target="_blank">冰原狼 发表于 2023-6-15 13:37</a>
+
+谢谢回复
+
+其实目前没有觉得兔子很强，可能是因为我整体练度不够所以老是拖到他没子弹开始刮痧
+
+不 ...</blockquote>
+从贴吧找了个镜牢强度榜：
+
+<img src="https://img.saraba1st.com/forum/202306/15/161711p65msms6swwmjmts.jpg" referrerpolicy="no-referrer">
+
+<strong>8FE272731EA982098F907BC39B626599.jpg</strong> (141.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-15 16:17 上传
+
+可能有争议，不过前两行确实都挺好用的。可以参考一下，毕竟这游戏主要时间都是刷镜牢...
+
+而且镜牢好用的话说明其强度OK，将来开折射轨道也用得上。
+
+（话说你有这些角色真的很不错了，我开局抽空资源出的是剑罗剑辛黑云良<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  Yuzutea  
+##### 185#       发表于 2023-6-15 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">镜牢2怎么跳票了
+
+我体力要溢出了，难顶
+
+
+*****
+
+####  Jamaisvu  
+##### 186#       发表于 2023-6-15 20:21
+
+感觉新池子有些毒啊...丢了一百抽，出了剑契辛和黑云罗。
+
+有一个十连只出了一个金，羽毛图标黑屏一闪，以为终于出货了，没想到竟然是许愿石<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 187#       发表于 2023-6-15 20:31
+
+我比较关心4.5章会不会跳票，快把火腿嘭嘭的员工拉来车代码啊月计
+
+
+*****
+
+####  Jamaisvu  
+##### 188#       发表于 2023-6-15 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61300522&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2023-6-15 20:31</a>
+
+我比较关心4.5章会不会跳票，快把火腿嘭嘭的员工拉来车代码啊月计</blockquote>
+正在后厨捏糖三角和绿豆糕的汤吗丽：我特么来辣<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  momodog  
+##### 189#       发表于 2023-6-15 23:49
+
+之前丢了1W4狂气抽不到的玫瑰罗佳这次抽花箱出了……真是
+
+
+*****
+
+####  Yuzutea  
+##### 190#       发表于 2023-6-15 23:55
+
+ 本帖最后由 Yuzutea 于 2023-6-15 23:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是直接把玫瑰罗佳和花箱用箱子换了
+
+等4.5活动那池子再抽补二灯人格好了
+
+
+*****
+
+####  冰原狼  
+##### 191#       发表于 2023-6-16 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61297676&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-6-15 16:22</a>
+
+从贴吧找了个镜牢强度榜：</blockquote>
+毕竟是对着节奏榜刷的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你游刷初始也很方便，三分钟40连，极大缓解了我的抽卡瘾
+
+以及我之前一直都忘了ego的存在……怪不得打到第三章末尾已经开始觉得费劲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
