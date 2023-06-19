@@ -9579,3 +9579,21 @@ emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://
 你这号换得可真勤啊</blockquote>
 我也不想啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+*****
+
+####  須理出未来  
+##### 695#       发表于 2023-6-16 21:49
+
+真人剧30秒特别预告，使用了动画的OP
+[https://b23.tv/41SJGEM](https://b23.tv/41SJGEM)
+
+演员与声优的合照，从左往右分别是：匠的饰演者平澤宏々路 、小己的饰演者上村ひなの、小己的声优稲垣好、心的声优高橋花林
+
+<img src="https://img.saraba1st.com/forum/202306/16/214434sqbv0gpa28552olz.png" referrerpolicy="no-referrer">
+
+<strong>Fyu8gMTaYAE4hYu.png</strong> (54.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-16 21:44 上传
+
