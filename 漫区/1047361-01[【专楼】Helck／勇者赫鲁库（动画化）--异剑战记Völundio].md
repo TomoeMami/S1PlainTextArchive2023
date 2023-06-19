@@ -266,3 +266,21 @@ B漫已上架，暂时只有11话
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  飞雨啸寒  
+##### 1066#       发表于 2023-6-16 07:50
+
+赫鲁库要动画化了就重看了一遍，也开始看异剑战记了，七尾老师是对长发剪短有什么执着吗，还不能是一开始就短发，一定要先长后短，安妮这样异剑的女骑士也这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天下何人  
+##### 1067#       发表于 2023-6-16 08:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61304687&amp;ptid=1047361" target="_blank">飞雨啸寒 发表于 2023-6-16 07:50</a>
+
+赫鲁库要动画化了就重看了一遍，也开始看异剑战记了，七尾老师是对长发剪短有什么执着吗，还不能是一开始就 ...</blockquote>
+看来是ff9粉丝
+
