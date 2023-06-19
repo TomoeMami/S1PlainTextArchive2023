@@ -1266,3 +1266,55 @@ https://twitter.com/girlsbandcry/status/1664832455663300609
 
 3d虽然挺微妙的，但这片看起来挺严肃的，应该不至于犯些奇怪问题，至少得比宝石之国动起来好看吧（都多少年前的了）。
 
+*****
+
+####  米奥莉奈  
+##### 138#       发表于 2023-6-16 12:21
+
+mv3，有没有可能吉他才是落单的
+<img src="https://p.sda1.dev/11/71c721310cf57ab550ea6b369d3a69f5/Fyp8aaMaQAAp8F2.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  梅斯之围  
+##### 139#       发表于 2023-6-16 12:31
+
+仿佛在玩jrpg
+
+
+*****
+
+####  凡人  
+##### 140#       发表于 2023-6-16 12:39
+
+楼梯上这样卿卿我我，配上女主半身相有一种莫名的生草感
+
+
+*****
+
+####  higuchiguchi  
+##### 141#       发表于 2023-6-16 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61308082&amp;ptid=2050404" target="_blank">米奥莉奈 发表于 2023-6-16 12:21</a>
+
+mv3，有没有可能吉他才是落单的</blockquote>
+这不是mv3 是mv1的加长（完整？）版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  米奥莉奈  
+##### 142#       发表于 2023-6-16 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61308404&amp;ptid=2050404" target="_blank">higuchiguchi 发表于 2023-6-16 12:44</a>
+这不是mv3 是mv1的加长（完整？）版</blockquote>
+还有这种偷懒
+
+
+*****
+
+####  凡人  
+##### 143#       发表于 2023-6-16 13:10
+
+真有高浓度百合的话，一对CP加一对三角恋比较合适，否则单着那个挺尴尬的
+
