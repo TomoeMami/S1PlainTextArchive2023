@@ -844,3 +844,56 @@ _(:з」∠)_
 
 奸笑厂注资那动画制作公司应该是Sanzigen没跑了
 
+*****
+
+####  Piano-Forest  
+##### 76#         楼主| 发表于 2023-6-15 22:37
+
+／
+
+描きおろしコラボビジュアル公開🏎️
+
+＼
+
+SUPER FORMULA Rd.5の会場、 #スポーツランドSUGO を背にソフィア・B・時任（CV： #堀江由衣 ）と劉悠然（CV： #諏訪彩花 ）が並んで立つビジュアルを公開🏁
+<img src="https://p.sda1.dev/11/dedac2af3ee1604920fdf5c6856e4396/20230615_223527.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/7f059d65b83219bf3fd25707a2a611f8/20230615_223531.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三合一出现  
+##### 77#       发表于 2023-6-16 08:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文名妹子果然是冲国特攻人设
+
+*****
+
+####  Vacuolar  
+##### 78#       发表于 2023-6-16 08:13
+
+ai画的？
+
+
+*****
+
+####  fange  
+##### 79#       发表于 2023-6-16 08:16
+
+藤真拓哉的人设说不出的奇怪
+
+*****
+
+####  创始’’’天翔  
+##### 80#       发表于 2023-6-16 08:22
+
+机设谁负责的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dr.Wondering  
+##### 81#       发表于 2023-6-16 08:43
+
+赛车版小鸟之翼？
+

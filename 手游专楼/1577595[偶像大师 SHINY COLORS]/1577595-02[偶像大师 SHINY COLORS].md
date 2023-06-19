@@ -2519,3 +2519,45 @@ demo和正式版本系统上多少会有区别，不上图了。
 
 我胸居然不小
 
+*****
+
+####  两个路人  
+##### 2846#       发表于 2023-6-13 21:26
+
+看隔壁灰灰摄影时候，顺便看到的闪耀贴纸。有点意思，就贴一贴好了
+
+<img src="https://p.inari.site/guest/23-06/13/64886e05b7410.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64886e20ba883.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64886e217be61.jpg" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-06/13/64886e22a83bd.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 2847#       发表于 2023-6-14 22:54
+
+习惯性在活动结束前一天赶任务的我看着忽悠S卡任务一脸懵逼，你咋马上就结束了呢？
+
+
+*****
+
+####  shadowof  
+##### 2848#         楼主| 发表于 2023-6-16 08:55
+
+关系不是特别大的话题，
+
+今年芥川賞提名作品##NAME##的作者児玉雨子
+
+给ランティス写过不少歌词，
+
+チョコデート・サンデー  （智代子）
+
+プラスチック・アンブレラ　（三峰）
+
+隔壁还有
+
+スペードのQ　
+
+スポットライト・ミラーランド　（杏奈）
+
