@@ -1496,3 +1496,13 @@ P.S.每次轮到火属性就感觉本格火方现在真不是人玩的
 
 我倒是希望光机神能是一个艾蕾可以爽刷的本，说不定能成农沙漏的一个新选，现在老7和水机神（野蛮限定）都很rbq，飞哥老王方阵也能刷，就是无限得水铳围猎比较不方便，暗机神查无此人
 
+*****
+
+####  Sylpheed  
+##### 17378#       发表于 2023-6-17 07:45
+
+加了点限制但不多，也挺好
+不然真被艾蕾2t给扬了小福面子上也挂不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
