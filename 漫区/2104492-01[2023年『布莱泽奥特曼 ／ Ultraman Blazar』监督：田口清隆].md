@@ -2127,3 +2127,496 @@ ED「BLACK STAR」MindaRyn
 
 作曲・編曲:小山 寿
 
+*****
+
+####  仟音一心  
+##### 192#       发表于 2023-6-8 12:03
+
+<img src="https://p.sda1.dev/11/494576ebbe95fb263ba67314b0f82175/CMP_20230608120302768.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/818087ecb74ec35694e7c31896cc4684/CMP_20230608120302834.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8701b1ee84cbe21591d7bc4ff63b062d/CMP_20230608120302930.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/10d4978df4f2c8dad73d834d628797e0/CMP_20230608120303017.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Sliurus  
+##### 193#       发表于 2023-6-8 12:05
+
+这后背有种哥斯拉的感觉
+
+*****
+
+####  Piano-Forest  
+##### 194#         楼主| 发表于 2023-6-8 12:35
+
+<img src="https://p.sda1.dev/11/b1549ab0ee8ebf34f08f00111396f0cb/20230608_123014.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/75c95ec5aa7c671aa7444b2e9837616a/20230608_123020.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/11a68621798ffb42213e275f9e35f41d/20230608_123021.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6c962636845bb85c7f1cd82ca8162469/20230608_104625.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/6e18c9242db7ed62f5bed8b10505fb73/20230608_100524.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/dceaea545ec1cc72aaffbe895eb70f5e/20230608_093047.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 195#         楼主| 发表于 2023-6-8 12:36
+
+<img src="https://p.sda1.dev/11/87c1810013e751f69f98f36302dc52db/20230608_105113.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/4931807e8622bae17fcac9a7e7efdd42/20230608_093133.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/13df6f5349267aa3d7d8ae3ed9f09788/20230608_104616.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/596541f109afab4bfd1b05b82209fe98/20230608_104649.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/e05e48a2b67dcbe6166dacfead531c1c/20230608_104618.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/bca350a6bc80a531f8faf119fdbd0c12/20230608_104644.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/a4a4aa68f5604f072fb6549b3f9997f0/20230608_093140.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/44ac2a06814f41d85594147e2ff28f74/20230608_104647.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b0ce379211b15665cddc66ad8090ce34/20230608_104652.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  喷火飞龙  
+##### 196#       发表于 2023-6-8 23:26
+
+偷色偷出新高度……
+
+*****
+
+####  黄泉川此方  
+##### 197#       发表于 2023-6-8 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪兽软胶能出不错了，就是怎么个个都脸上长了几把啊...
+
+
+*****
+
+####  king520kyo  
+##### 198#       发表于 2023-6-9 07:40
+
+笑死 以前软胶都是背面偷色 这次是直接弃疗了 
+
+
+*****
+
+####  Piano-Forest  
+##### 199#         楼主| 发表于 2023-6-9 16:10
+
+＼\ 7/8(土)あさ9時放送開始 /／
+
+\X\#ウルトラマンブレーザー/X/
+
+全監督・全脚本家を発表💥
+
+物語を彩る劇伴音楽作家も決定💫
+
+导演、编剧、伴奏音乐家公开
+
+总导演:田口清隆 
+
+总编剧:小柳启伍
+
+这两位创作者拟定的故事框架是一个宏大故事的种子，它贯穿了电视剧的所有剧集，他们所负责的每个章节都以其各自的感性，极大地丰富了故事的多样性，使每一集都开花结果。
+
+除了上周公布的由北谷弘演唱的OP和由MindaRyn演唱的ED外，原声带将由TECHNOBOYS PULCRAFT GREEN-FUND负责。这个音乐组合自1994年成立以来，一直活跃在各种音乐类型中，近年来主要参与演奏流行动画作品的主题曲和伴奏音乐。
+
+导演
+
+■田口清隆／1980年 北海道
+
+■辻本贵则／1971年 大阪府
+
+■中川和博／1986年 奈良县
+
+■越知靖／1984年 长野县
+
+■武居正能／1978年 山口县
+
+■宫崎龙太／1987年 福冈县
+
+编剧
+
+■小柳启伍／1983年 富山县
+
+■继田淳／1974年 秋田县
+
+■山崎太基／1985年 熊本县
+
+■植竹须美男／1968年 栃木县
+
+■足木淳一郎／1982年 静冈县
+
+■中野贵雄／1962年 大阪府
+
+■根元岁三／1974年 新潟县
+
+剧中伴奏（原声带）：
+
+TECHNOBOYS PULCRAFT GREEN-FUND
+
+成员：石川智久、FUJIMURA TOWORU、松井洋平
+
+
+*****
+
+####  Yason  
+##### 200#       发表于 2023-6-11 00:35
+
+6.12一堆游戏发布会，才看到你小子那一天也有份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
+
+QQ图片20230611003448.jpg
+(165.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-11 00:35 上传
+
+<img src="https://img.saraba1st.com/forum/202306/11/003513lsrrs7tev3e1ek5a.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Hello🫥  
+##### 201#       发表于 2023-6-12 19:06
+
+【中字【布莱泽奥特曼】最新PV2！，2023年新奥-哔哩哔哩】 [https://b23.tv/LlC3yB0](https://b23.tv/LlC3yB0)
+
+pv2翻译出来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 202#       发表于 2023-6-12 19:34
+
+田口桑，请指导我们！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  柳柳昭陵  
+##### 203#       发表于 2023-6-12 19:50
+
+试映会放第二集，这第一集到底有多劲爆需要这么藏的
+
+
+*****
+
+####  rsugz  
+##### 204#       发表于 2023-6-12 20:08
+
+快端上来罢！
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  喷火飞龙  
+##### 205#       发表于 2023-6-12 20:36
+
+所以大陆能不能同步播出哇？
+
+
+*****
+
+####  Hello🫥  
+##### 206#       发表于 2023-6-12 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61256090&amp;ptid=2104492" target="_blank">喷火飞龙 发表于 2023-6-12 20:36</a>
+
+所以大陆能不能同步播出哇？</blockquote>
+[https://tieba.baidu.com/p/845816 ... p;cid=#147832935718](https://tieba.baidu.com/p/8458165816?pid=147832935718&amp;cid=#147832935718)
+
+全篇都杀青了，大陆应该能同步播出的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeroblast  
+##### 207#       发表于 2023-6-12 21:06
+
+不知道是不是现场版录音质量的原因，片头曲感觉不太好听啊。
+
+
+*****
+
+####  布莱士·西伯利  
+##### 208#       发表于 2023-6-12 21:16
+
+田口桑，拯救业界吧！
+
+
+*****
+
+####  泡吧201  
+##### 209#       发表于 2023-6-12 21:27
+
+我要吹爆田口哥哥，布雷泽绝对不会翻车<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喷火飞龙  
+##### 210#       发表于 2023-6-12 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61256414&amp;ptid=2104492" target="_blank">Hello🫥 发表于 2023-6-12 20:59</a>
+
+https://tieba.baidu.com/p/8458165816?pid=147832935718&amp;cid=#147832935718
+
+全篇都杀青了，大陆应该能同 ...</blockquote>
+好的好的，期待！
+
+
+*****
+
+####  RStocking  
+##### 211#       发表于 2023-6-12 23:03
+
+性感疯了，敲桌子敲碗等着看
+
+
+*****
+
+####  巴莱-银河漂流  
+##### 212#       发表于 2023-6-13 07:57
+
+<img src="https://img.saraba1st.com/forum/202306/13/075634l341rr7r2o1r2z2e.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230613075538.jpg</strong> (354.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-13 07:56 上传
+
+<img src="https://img.saraba1st.com/forum/202306/13/075728yd5t85hrlf7wwz7x.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230613075545.jpg</strong> (187.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-13 07:57 上传
+
+
+*****
+
+####  米奥莉奈  
+##### 213#       发表于 2023-6-13 08:03
+
+期待
+
+
+*****
+
+####  洛克萨斯  
+##### 214#       发表于 2023-6-13 09:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圆谷怪兽皮套半年番这么浪？骑士片场现在怪人皮套都少了
+
+
+*****
+
+####  Blackson  
+##### 215#       发表于 2023-6-13 10:22
+
+目测数了下，应该有八九只新规怪，三只翻新（宇宙恶霸、迪玛伽，还有初代那只）
+
+
+*****
+
+####  Sokukei  
+##### 216#       发表于 2023-6-13 10:33
+
+田口导演我相信您口牙！放我到七月看布莱泽吧
+
+
+*****
+
+####  Cloudslin  
+##### 217#       发表于 2023-6-13 14:14
+
+背鳍有点涩，新生代少有的正片之前就对皮套真香了，期待田口监督的发挥
+
+
+*****
+
+####  Yason  
+##### 218#       发表于 2023-6-13 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好帅
+
+
+*****
+
+####  dozen  
+##### 219#       发表于 2023-6-13 14:46
+
+虽然都事到如今了
+但这新生代纪念作一点纪念要素都没有、甚至还挺硬派的，在企划上是怎么干掉新盖亚的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acejoe  
+##### 220#       发表于 2023-6-13 15:15
+
+特利迦够烂新三部曲不就被推翻了么。
+
+*****
+
+####  黑上シグマ  
+##### 221#       发表于 2023-6-13 15:16
+
+怎么感觉这基地看着有点简陋，就像个厂房……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Piano-Forest  
+##### 222#         楼主| 发表于 2023-6-16 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61000234&amp;ptid=2104492" target="_blank">Piano-Forest 发表于 2023-5-26 16:10</a>
+
+\X\#ウルトラマンブレーザー/X/
+
+💫プレミア発表会へご招待💫</blockquote>
+发表会录像：[https://www.youtube.com/live/odNbFW5gVCc](https://www.youtube.com/live/odNbFW5gVCc)
+
+*****
+
+####  Piano-Forest  
+##### 223#         楼主| 发表于 2023-6-16 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61183582&amp;ptid=2104492" target="_blank">Piano-Forest 发表于 2023-6-8 12:35</a></blockquote>
+<img src="https://p.sda1.dev/11/dbeccb70eb79aecc296e7de9567595b5/20230616_002823.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/765f80fcc6f57b89a8ae78aac8def463/20230616_002829.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/76d6a85427ab4f8bfeadb8a0891d48ae/20230616_002830.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 224#         楼主| 发表于 2023-6-16 00:46
+
+<img src="https://p.sda1.dev/11/6a65e1e10227ddc136bfc1a3d5bf8432/20230616_002956.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/afbb9f61b3757c615d81ae153ba3a901/20230613182520.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b374eef46550d0c04419e2521de7c0f1/20230612205621_20230612205633.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/82f7d6a540c6660dc580bc8baee1f56b/20230612205123_20230612205133_1.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ab4f95f4a42b37f63d5e63e65ed0ce36/20230612205209.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/ce138173c69558f7237a5de076cc042f/20230612205621.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/969930dfc88545cfad3ca2d872a2f225/20230612205740.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/11/309e04ee662cb9bca3bdad88b15d4f9f/20230612205414_20230612205442.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/dda3037ebb3d96e4766f026663f1fef0/20230612205415.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/11/f869ce47353f1caabd56bc8dece6160d/20230616_003351.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/b8e0535d5b418c84efdac383b3d19146/20230612205933.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/1b05d8faeeb5b80dd9c591e88839002b/20230612205839_20230612205856.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/7adf0d3970ee034aac38ee927ca6e9a8/20230612205839_20230612205855.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 225#         楼主| 发表于 2023-6-16 00:49
+
+PV2：[https://youtu.be/EF0H6sCUCWE](https://youtu.be/EF0H6sCUCWE)
+
+<img src="https://p.sda1.dev/11/c9f044ef032d3f2c252069158f436a43/20230616_003933.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  人形灾害  
+##### 226#       发表于 2023-6-16 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61303583&amp;ptid=2104492" target="_blank">Piano-Forest 发表于 2023-6-16 00:29</a></blockquote>
+确实性感
+
+
+*****
+
+####  DARKGRAY  
+##### 227#       发表于 2023-6-16 11:19
+
+才发现剧里的石头背后是平的，这下未来出UR看你要怎么还原<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TOYSTORY  
+##### 228#       发表于 2023-6-16 21:12
+
+ 本帖最后由 TOYSTORY 于 2023-6-16 21:13 编辑 
+
+<img src="https://img.saraba1st.com/forum/202306/16/211333ab86k66mik7b4j7r.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (1001.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-16 21:13 上传
+
+アースガロンの開発に携わっていたヤスノブを一員として迎え、ついに全員が集結した特殊怪獣対応分遣隊SKaRD（スカード）の作戦、特戦獣アースガロンの初出撃を描く第3話。
+
+研究の末に開発された画期的な新エネルギー「液化ティーテリウム」の貯蔵タンクが一夜にして空になるという怪現象が、世界各国で発生。原因は怪獣だと踏んだSKaRDは、エミを「ティーテリウムエネルギー融合研究所」へ潜入させ、調査を開始します。
+
+この研究に参加している大川を関智一さんが演じます。実は、公開済みのスペシャルムービーにもこっそりと映し出されていました。改めてご覧ください！
+
+[https://www.youtube.com/embed/EF0H6sCUCWE](https://www.youtube.com/embed/EF0H6sCUCWE)
+
+関智一さんコメント
+
+この度『ウルトラマンブレーザー』に出演させて頂く運びとなりました、関智一です！
+
+今回は声だけでは無く、お芝居させて頂いております。撮影では今まで経験したことのない、ウルトラマンならではの撮影も経験する事が出来ました。僕はウルトラマンの大ファンでもあるので、感無量でした！
+
+現在公開中の最新PVにシレッと映り込んでますので是非探してみて下さい。そして、その役が物語にどんな関わり方をするのか、是非お楽しみにご覧下さい！！
+
+
+*****
+
+####  我特么吹爆  
+##### 229#       发表于 2023-6-17 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61303583&amp;ptid=2104492" target="_blank">Piano-Forest 发表于 2023-6-16 00:29</a></blockquote>
+太性感了我要死了
+
+
+*****
+
+####  恶意之刃  
+##### 230#       发表于 2023-6-17 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61307177&amp;ptid=2104492" target="_blank">DARKGRAY 发表于 2023-6-16 11:19</a>
+才发现剧里的石头背后是平的，这下未来出UR看你要怎么还原</blockquote>
+nfc呗
+
+
+*****
+
+####  hulaoda007  
+##### 231#       发表于 2023-6-17 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">性感的不行...
+
+
+*****
+
+####  DARKGRAY  
+##### 232#       发表于 2023-6-17 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61317703&amp;ptid=2104492" target="_blank">恶意之刃 发表于 2023-6-17 08:50</a>
+
+nfc呗</blockquote>
+得把玩具重新全出一遍，不是卡可没那么好出<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  巴莱-银河漂流  
+##### 233#       发表于 2023-6-17 15:58
+
+微妙，小关这个角色明明就是个客串
+居然不是优先介绍男主老婆吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
