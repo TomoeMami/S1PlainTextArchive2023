@@ -114,3 +114,12 @@ SE策略RPG《三角战略》1.1.0版本大型更新现已上线，这次新增�
 
 居然还有剧情更新，敬你是条汉子。去看一下。
 
+*****
+
+####  zayrq  
+##### 1348#       发表于 2023-6-18 01:28
+
+怎么酒吧还可以疯狂刷钱和材料的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
