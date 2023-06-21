@@ -3663,3 +3663,518 @@ AN小鸟要出肥姑妈了……
 
 真实装了怕不是绿帽子又得ptsd发作(
 
+*****
+
+####  不灭的旋律  
+##### 463#       发表于 2023-6-8 19:26
+
+你游终于可以自由换强化零件+手脚开第二个槽了，原来越没难度了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冰风血羽  
+##### 464#       发表于 2023-6-8 19:48
+
+我的天，送了一堆501贝壳啥情况，仅有的莉涅开出了已经有的茶壶，看来勋章换的武器还是不亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 465#       发表于 2023-6-8 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">卡尔斯兰卡池歪了两个四星，太美丽了家人们这是王红花
+
+
+*****
+
+####  外骨骼  
+##### 466#       发表于 2023-6-9 08:30
+
+<img src="https://img.saraba1st.com/forum/202306/09/083021nwsjiiiods5qssxw.gif" referrerpolicy="no-referrer">
+
+<strong>合成 1.gif</strong> (999.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-9 08:30 上传
+
+[@希望之花](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=506678)  你要的王红花
+
+
+*****
+
+####  madcow  
+##### 467#       发表于 2023-6-9 15:47
+
+十六票两个米O鼠入手，最近的抽卡运有点吓人（？
+
+
+*****
+
+####  拍不到脑袋  
+##### 468#       发表于 2023-6-9 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61189888&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-6-8 19:26</a>
+
+你游终于可以自由换强化零件+手脚开第二个槽了，原来越没难度了</blockquote>
+有这功能了吗，我怎么没找到
+
+*****
+
+####  regular  
+##### 469#       发表于 2023-6-9 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61204354&amp;ptid=2104259" target="_blank">拍不到脑袋 发表于 2023-6-9 17:33</a>
+
+有这功能了吗，我怎么没找到</blockquote>
+新功能下周更新，6月13。
+
+
+*****
+
+####  外骨骼  
+##### 470#       发表于 2023-6-9 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61202527&amp;ptid=2104259" target="_blank">madcow 发表于 2023-6-9 15:47</a>
+十六票两个米O鼠入手，最近的抽卡运有点吓人（？</blockquote>
+我三十票三个鲁基妮
+
+
+*****
+
+####  alialex  
+##### 471#       发表于 2023-6-10 22:25
+
+卢基尼的技能组一眼强，但夏莉是咋回事，腿居然是原地射击？？手技能是个啥设计啊，谁玩懂了的来说明一下？
+
+
+*****
+
+####  江戸前ルナ  
+##### 472#         楼主| 发表于 2023-6-10 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61222640&amp;ptid=2104259" target="_blank">alialex 发表于 2023-6-10 22:25</a>
+
+卢基尼的技能组一眼强，但夏莉是咋回事，腿居然是原地射击？？手技能是个啥设计啊，谁玩懂了的来说明一下？ ...</blockquote>
+卢基尼就是70%哈特曼的水准。夏莉手是个BUFF，火属BUFF+速度，一定时间后可以终结放几发高伤弹。
+
+=================================
+
+话说请问下各位文嘉的胶剑派生有没啥动作提示时机之类的心得练目押的吗，虽然判定不算严格但是完全看不出时机好难练熟手感啊……
+
+
+*****
+
+####  不灭的旋律  
+##### 473#       发表于 2023-6-11 18:06
+
+月底的池是不是TV女主啊，是的话我就全力抽卤鸡泥了
+
+
+*****
+
+####  madcow  
+##### 474#       发表于 2023-6-12 12:09
+
+不如说接下来这个池子是啥，AN老板娘吗（
+
+
+*****
+
+####  冰风血羽  
+##### 475#       发表于 2023-6-12 15:07
+
+大魔王getdaze✔这下至少一个池子清了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  lxh00770077  
+##### 476#       发表于 2023-6-12 23:15
+
+"队长，长闲被拐走了，我们该怎么办，在线等，急"
+
+“不急，你们去救一下就好了，责任我来承担，速度快点，别耽误我明天抽an老板娘”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 477#         楼主| 发表于 2023-6-12 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61258382&amp;ptid=2104259" target="_blank">lxh00770077 发表于 2023-6-12 23:15</a>
+
+"队长，长闲被拐走了，我们该怎么办，在线等，急"
+
+“不急，你们去救一下就好了，责任我来承担，速度快点， ...</blockquote>
+就怕月底阿金直接打算要让队长钱包大破把长闲抽，啊不对，“救”回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Picavian  
+##### 478#       发表于 2023-6-13 13:59
+
+长闲，已是队长要救你的时候，我们便来抽吧
+
+
+*****
+
+####  孫光龍  
+##### 479#       发表于 2023-6-13 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">救谁？主线没见过的人，不熟啊
+
+
+*****
+
+####  江戸前ルナ  
+##### 480#         楼主| 发表于 2023-6-13 15:09
+
+这AN老板娘的战斗服太敷衍了，岛田柳濑虾川还是金字塔不知道哪个这么摸，搞得连去抽个LV2都没动力，不如去抽个常用的文嘉+1<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+重装新强化就这？而且疑似开孔商店出BUG了一堆人没看到绿票商店有卖，阿金行不行啊
+
+
+*****
+
+####  Rincewind  
+##### 481#       发表于 2023-6-13 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61267153&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-6-13 15:09</a>
+这AN老板娘的战斗服太敷衍了，岛田柳濑虾川还是金字塔不知道哪个这么摸，搞得连去抽个LV2都没动力，不如去 ...</blockquote>
+酒保人设负责人应该是柳濑吧？记不清了
+就记得奈奈是虾川
+
+*****
+
+####  孫光龍  
+##### 482#       发表于 2023-6-13 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这个全色包臀裙评价是不如3星常服...
+
+
+*****
+
+####  孫光龍  
+##### 483#       发表于 2023-6-13 17:36
+
+话说这个指挥官票只能等这发么.....眼瞅着又有活动了，不够了呀
+
+
+*****
+
+####  Rincewind  
+##### 484#       发表于 2023-6-13 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61269608&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-6-13 17:36</a>
+话说这个指挥官票只能等这发么.....眼瞅着又有活动了，不够了呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你就不能手打几关吗
+
+
+*****
+
+####  madcow  
+##### 485#       发表于 2023-6-13 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">AN衣服是不行（
+
+还有就是感觉要是出胶的话感觉会很贵（
+
+
+*****
+
+####  孫光龍  
+##### 486#       发表于 2023-6-13 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61271279&amp;ptid=2104259" target="_blank">Rincewind 发表于 2023-6-13 19:35</a>
+你就不能手打几关吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一旦习惯了auto就越来越不想手动了...
+
+
+*****
+
+####  Rincewind  
+##### 487#       发表于 2023-6-13 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61271821&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-6-13 20:17</a>
+一旦习惯了auto就越来越不想手动了...</blockquote>
+每天那点配额就刚刚够做每日
+活动调查的红黄点都不让你用
+还是老老实实手打吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 488#       发表于 2023-6-14 19:10
+
+礼品店可以换文嘉的剑，这剑值得换吗？
+
+
+*****
+
+####  江戸前ルナ  
+##### 489#         楼主| 发表于 2023-6-14 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61285690&amp;ptid=2104259" target="_blank">regular 发表于 2023-6-14 19:10</a>
+
+礼品店可以换文嘉的剑，这剑值得换吗？</blockquote>
+值得。虽然不如两把剑炮，但也能**提高文嘉的近战输出能力。
+
+*****
+
+####  Rincewind  
+##### 490#       发表于 2023-6-14 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61285690&amp;ptid=2104259" target="_blank">regular 发表于 2023-6-14 19:10</a>
+礼品店可以换文嘉的剑，这剑值得换吗？</blockquote>
+在高难和联机上文文的话应该可以换
+虽然我挺喜欢文文的，但基本不怎么带她进本，琢磨了下感觉还是换衣服。
+
+
+*****
+
+####  regular  
+##### 491#       发表于 2023-6-14 19:37
+
+好的，正好装备都没升级呢，可以搞一搞。
+
+
+*****
+
+####  不灭的旋律  
+##### 492#       发表于 2023-6-14 22:36
+
+周更的开孔最后一个要800，严选AN装备的话里程都快不够用了。B级证有两千多个根本不想动。金字塔就不能开个一口气消耗掉的系统吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 493#         楼主| 发表于 2023-6-14 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61288111&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-6-14 22:36</a>
+
+周更的开孔最后一个要800，严选AN装备的话里程都快不够用了。B级证有两千多个根本不想动。金字塔就不能开个 ...</blockquote>
+800这级别太坑了，我宁愿等多个星期……
+
+
+*****
+
+####  不灭的旋律  
+##### 494#       发表于 2023-6-15 13:39
+
+DMM活动又来了登录送福袋
+[https://games.dmm.com/cp/festival/summer/](https://games.dmm.com/cp/festival/summer/)
+
+上次因为新冠躺了感觉亏死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AFY1537  
+##### 495#       发表于 2023-6-15 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该咲敬阿金了
+
+
+*****
+
+####  孫光龍  
+##### 496#       发表于 2023-6-16 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">主线卡演出过不去了，有人打完了么...
+
+
+*****
+
+####  Picavian  
+##### 497#       发表于 2023-6-16 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61312618&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-6-16 18:27</a>
+
+主线卡演出过不去了，有人打完了么...</blockquote>
+在演出前直接skip。
+
+*****
+
+####  孫光龍  
+##### 498#       发表于 2023-6-16 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61312687&amp;ptid=2104259" target="_blank">Picavian 发表于 2023-6-16 18:34</a>
+在演出前直接skip。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好主意，但是那段演出之后未罗咋样了...skip了还能知道吗...
+
+
+*****
+
+####  江戸前ルナ  
+##### 499#         楼主| 发表于 2023-6-16 19:21
+
+剧情竟然接回开头了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+预告挖得坑太大了，说是8月上肯定只是像现在那样一节节地来，要做完乐观点2年内吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+以下剧透但不包含预告：
+夜露和未罗听到NAGI的呼唤，俩红眼的都想突入把人就救出来的想法；
+
+利维坦级大量出现，绝体绝命中；
+
+未罗发动啥能力，控制了一个利维坦级，给夜露开路（现在有BUG看不到控制的过程）；
+
+夜露冲到过去跟NAGI单挑，NAGI引诱夜露学她跟VICE合体变成不老不死全知全能，夜露有点心动时枫忽然出现，回到游戏最开头红白女王对峙那一幕；
+
+夜露半“醒”过来后听到东京船团坏灭的消息；
+
+真醒过来后取回通信，船团没出事但情况也差不多了：利维坦级大量向东京船团冲去，挡不住杀不死。AEGIS和企业联盟发布公告，要求还存活的女演员放弃东京船团优先撤退，为将来的大战留火种；
+
+夜露发飙，红眼，战吼，VICE忽然停止，撤退。
+
+下一章飞翔篇。就是预告的量大管饱的饼了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 500#       发表于 2023-6-16 19:25
+
+话说安卓觉醒了alice后怎么没后续了，预告里的饼都没这茬
+
+*****
+
+####  江戸前ルナ  
+##### 501#         楼主| 发表于 2023-6-16 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61313182&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-6-16 19:25</a>
+
+话说安卓觉醒了alice后怎么没后续了，预告里的饼都没这茬</blockquote>
+未罗和夜露能玩这么大，很有可能就是ALICE插手的。
+
+
+*****
+
+####  孫光龍  
+##### 502#       发表于 2023-6-16 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说夜露果不其然是投降派
+时至今日感觉和异形生物互相理解的套路已经不是主流了，不知道阿金会往哪个方向发展
+个人来讲也只想把vice锤爆，不想和它们理解
+nagi假如一直做带路党执迷不悟的话搞不好要be了（
+
+
+*****
+
+####  江戸前ルナ  
+##### 503#         楼主| 发表于 2023-6-16 19:48
+
+ 本帖最后由 江戸前ルナ 于 2023-6-16 19:49 编辑 
+
+BUG修了。阿金竟然做了一小段3D影片<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+但是，未罗好惨啊，要狠狠地刀独尊组了………………<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 504#       发表于 2023-6-16 22:28
+
+别在标题严重剧透啊，玩家等这一刻可是等了五年啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+可以确定根源设定之一是爱丽丝梦游仙境了。
+
+这一话出现的全能人工智能Jabberwock（VICE的老大？）目的是让人类全部机械飞升（和VICE融合），而Jabberwock是爱丽丝梦游仙境中登场的怪物（未直接在故事中登场）。
+
+全知全能的人工智能ALICE自然就是爱丽丝梦游仙境的主角爱丽丝。
+
+红色女王=红桃心女王，仔细考据大概能推出很多内容。
+
+Jabberwock=混沌，想要让人进化，VICE+人类=VERSUS（完全体）。ALICE=秩序，想把人类关在Shard保护，爱丽丝装甲+人类=actress（不完全体）应该没错了。
+
+但混沌未必就是恶，装甲骑兵主角激励哥就是混沌的化身。凪也说了ALICE在撒谎。
+
+
+*****
+
+####  lxh00770077  
+##### 505#       发表于 2023-6-16 23:27
+
+现在就看你游接下来会走什么路线了
+
+是蛋蛋那种“在互相争斗中慢慢互相理解”
+
+还是小裤裤那种“理解个P，我就是要鲨你全家”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oidoid  
+##### 506#       发表于 2023-6-17 01:30
+
+<img src="https://img.saraba1st.com/forum/202306/17/013032d3f63om05rh3q3hm.jpg" referrerpolicy="no-referrer">
+
+<strong>无标题.jpg</strong> (10.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-17 01:30 上传
+
+我现在就只觉得nagi的下场大概是这个展开
+
+
+*****
+
+####  不灭的旋律  
+##### 507#       发表于 2023-6-17 09:12
+
+上面那个是R-TYPE的著名END吗？
+
+最后估计就是和机战30里骡子说的一样，人类终有一天要迎来进化，但不是现在。所以你游就是高达NT，正好也有一个菲尼克斯（加纯凤）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+东京Shard前后两个传送门，但正面战场在前方，背后传送门基本上就是马鞭草在硬顶着，赶去救她们的救援部队也疲于应对敌人，真是难为中学生了了。
+
+
+*****
+
+####  孫光龍  
+##### 508#       发表于 2023-6-17 09:39
+
+话说nagi还提了一句融合以后还能去地球
+也就是说地球还是完好无损的状态只是被vice占领了而已？
+搞不好后面能反攻大陆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Picavian  
+##### 509#       发表于 2023-6-17 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61316044&amp;ptid=2104259" target="_blank">lxh00770077 发表于 2023-6-16 23:27</a>
+
+现在就看你游接下来会走什么路线了
+
+是蛋蛋那种“在互相争斗中慢慢互相理解”
+
+还是小裤裤那种“理解个P，我 ...</blockquote>
+考虑到女演员本身就是使用vice材料，让脑子接入高维网络的拟似vice，真正意义上的杀对面全家除非完全放弃女演员这一系统是做不到的，估计各国也不愿意做。
+
+打点不恰当的比方，阿嘎的作战其实类似送女孩子去敌人那里投简历的流程，能当上中层（比如这次未罗取得操纵利维坦的权限）就能赢得一场战役，要取得破局的方式是成为敌人的高管（红女王或者白女王）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LEOKO~  
+##### 510#       发表于 2023-6-18 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61315394&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-6-16 22:28</a>
+
+别在标题严重剧透啊，玩家等这一刻可是等了五年啊
+
+可以确定根源设定之一是爱丽丝梦游仙境了。
+
+这一 ...</blockquote>
+我觉得枫是站VICE一边，毕竟就大义而言爱丽斯就是妨碍人类进化的邪恶
+
