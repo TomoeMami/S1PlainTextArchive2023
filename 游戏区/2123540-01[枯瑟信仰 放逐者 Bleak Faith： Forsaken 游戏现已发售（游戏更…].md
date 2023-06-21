@@ -2318,3 +2318,48 @@ mark<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referr
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  那我也没办法  
+##### 196#       发表于 2023-6-18 08:28
+
+要出多人模式了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+https://youtu.be/h8vKXJavZk8
+简介部分：
+This update is mainly focused on preparing the landscape for
+multiplayer support and will initially exist on the experimental
+branch while we iron out the details and make sure we're in
+the best shape possible to go through with adding all kinds of
+multiplayer modes(including the entire campaign and much
+more).
+
+—— 来自 Google Pixel 6 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  violettor  
+##### 197#       发表于 2023-6-18 12:47
+
+这游戏大更之后所有的ce和修改器都不管用了，想进游戏看风景回顾下都心惊胆战的。。
+
+
+*****
+
+####  qappip  
+##### 198#         楼主| 发表于 2023-6-18 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61330299&amp;ptid=2123540" target="_blank">violettor 发表于 2023-6-18 12:47</a>
+
+这游戏大更之后所有的ce和修改器都不管用了，想进游戏看风景回顾下都心惊胆战的。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">pvp我倒是没兴趣，战役可以召唤好基友那才是顶啊， 就是不清楚活动范围怎么算。
+
+*****
+
+####  qappip  
+##### 199#         楼主| 发表于 2023-6-18 13:41
+
+[https://www.youtube.com/watch?v=85wvX3geDQE](https://www.youtube.com/watch?v=85wvX3geDQE)
+
+这个是枯涩信仰 开发者边玩边聊的视频
+
