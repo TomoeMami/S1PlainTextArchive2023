@@ -1110,3 +1110,71 @@ BC秋季完结
 
 最近打铃音个人曲，OM模式打了20多遍还得上回血，得亏百万难度都没这么高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7160#       发表于 2023-6-16 14:22
+
+我人麻了，苦等杏奈shs，上上个可奈池把钻用光了，今天出杏奈婚纱，然后歪了亚利沙<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+只能安慰自己，杏奈这婚纱一般不对我胃口<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 7161#       发表于 2023-6-16 14:29
+
+杏奈游戏图标看板可爱捏。
+下个shs限定估计要等半年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  皮卡丘跑快快  
+##### 7162#       发表于 2023-6-16 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61309625&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-6-16 14:22</a>
+
+我人麻了，苦等杏奈shs，上上个可奈池把钻用光了，今天出杏奈婚纱，然后歪了亚利沙
+
+只能安慰自己， ...</blockquote>
+也不对我胃口。没想到最好看的还是最初的fes,一直没兔子的好看的衣服想着等婚纱，结果失望了。
+
+
+*****
+
+####  louriga  
+##### 7163#       发表于 2023-6-16 16:13
+
+只能希望月末的fes有好看的服装了
+
+
+*****
+
+####  花开安菲路  
+##### 7164#       发表于 2023-6-17 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61310034&amp;ptid=1484979" target="_blank">皮卡丘跑快快 发表于 2023-6-16 14:53</a>
+也不对我胃口。没想到最好看的还是最初的fes,一直没兔子的好看的衣服想着等婚纱，结果失望了。 ...</blockquote>
+其实也还好，卡面很好看，主要是上半身中间花纹我不喜欢，不如直接纯色不设计<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+杏奈衣服我喜欢这个pst异色服
+<img src="https://p.sda1.dev/11/75a73629b1e33e440481d25a0c81143b/CMP_20230617154429582.jpg" referrerpolicy="no-referrer">
+祭典ssr三种颜色我都很喜欢
+<img src="https://p.sda1.dev/11/096fe7e1dfd69cdc76b3f0f6fad865e8/CMP_20230617154517666.jpg" referrerpolicy="no-referrer">
+还有女仆装ssr衣服也不错
+
+
+*****
+
+####  ジュード  
+##### 7165#       发表于 2023-6-19 10:39
+
+<img src="https://img.saraba1st.com/forum/202306/19/103919hgh1k66k38th6e8h.jpg" referrerpolicy="no-referrer">
+
+<strong>tXT9n2M5.jpg</strong> (732.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-19 10:39 上传
+
+又到了一年一度战斗的日子了吗
+
