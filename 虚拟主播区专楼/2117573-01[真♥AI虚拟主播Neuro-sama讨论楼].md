@@ -1240,3 +1240,10 @@ emo</blockquote>
 
 今晚凌晨2点新皮直播捏，捞一下
 
+*****
+
+####  ltycomputer  
+##### 104#       发表于 2023-6-19 17:29
+
+vedal好强，不过给的编程建议和简中程序员差不多。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
