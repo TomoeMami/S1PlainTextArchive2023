@@ -149,3 +149,23 @@ UFO FATE 脸画得难看感觉还是和武内脸的相性问题，想凑，没�
 
 —— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  Re.Troy  
+##### 1520#       发表于 2023-6-19 17:40
+
+<img src="https://s2.loli.net/2023/06/19/H4SNYlaoqXKkC1r.jpg" referrerpolicy="no-referrer">
+
+这位的消息靠谱吗
+
+
+*****
+
+####  lvseqiji  
+##### 1521#       发表于 2023-6-19 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61346518&amp;ptid=2094448" target="_blank">Re.Troy 发表于 2023-6-19 17:40</a>
+
+这位的消息靠谱吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不都是幽浮桌吗。日本动画就不要信英语舅舅了，中文圈都没消息
+
