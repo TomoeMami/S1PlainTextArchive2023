@@ -1687,3 +1687,242 @@ nbl各位影响不大
 
 卡姐哑的声线有丶别致
 
+*****
+
+####  ladiesman802  
+##### 3181#       发表于 2023-6-12 20:14
+
+叶子这倒霉蛋…祝早日康复吧
+
+
+*****
+
+####  喜闻乐见  
+##### 3182#         楼主| 发表于 2023-6-13 21:08
+
+<img src="https://pic1.58cdn.com.cn/nowater/webim/big/n_v2c25e5ede16ee49a69400b127fd0aeaa6.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水松涛木  
+##### 3183#       发表于 2023-6-14 12:27
+
+好看啊
+
+*****
+
+####  水松涛木  
+##### 3184#       发表于 2023-6-14 12:27
+
+好看啊
+
+
+*****
+
+####  喜闻乐见  
+##### 3185#         楼主| 发表于 2023-6-14 12:35
+
+这套团服确实不错，
+另外saku也接ba了，传统白毛红瞳
+
+
+*****
+
+####  佛皇  
+##### 3186#       发表于 2023-6-14 13:49
+
+星律动最后的波纹了
+
+
+*****
+
+####  喜闻乐见  
+##### 3187#         楼主| 发表于 2023-6-15 19:02
+
+xdm 开哭！
+
+
+*****
+
+####  ladiesman802  
+##### 3188#       发表于 2023-6-15 19:45
+
+话说这个3d虽然有量产的迹象，但是叶子的脸好看多了
+
+
+*****
+
+####  喜闻乐见  
+##### 3189#         楼主| 发表于 2023-6-15 20:03
+
+<img src="https://pic9.58cdn.com.cn/nowater/webim/big/n_v232ba91cbfe5d467abfdc6a82e4e1724f.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛皇  
+##### 3190#       发表于 2023-6-15 20:09
+
+意难平啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+好想再听战歌响起啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+“好想唱歌给大家听！”，歌姬再起终究幻梦一场<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喜闻乐见  
+##### 3191#         楼主| 发表于 2023-6-15 20:28
+
+hcl真的<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超可爱的芥子  
+##### 3192#       发表于 2023-6-15 20:31
+
+还是意难平啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  喜闻乐见  
+##### 3193#         楼主| 发表于 2023-6-15 21:14
+
+<img src="https://pic8.58cdn.com.cn/nowater/webim/big/n_v29067421f37bd4a908d45dee601065ee3.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  林宏  
+##### 3194#       发表于 2023-6-15 21:38
+
+厂里的新人竟然还报名了歌姬重启的计划，还是第一个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  喜闻乐见  
+##### 3195#         楼主| 发表于 2023-6-15 21:46
+
+虚拟里的真实比现实更加的真
+
+
+*****
+
+####  ladiesman802  
+##### 3196#       发表于 2023-6-15 22:14
+
+纸哥ttk
+
+劣币淘汰良币，唉
+
+*****
+
+####  比比巴巴波  
+##### 3197#       发表于 2023-6-15 22:21
+
+量不量产的，首先得好看，要是一开始就是这个建模，也不至于……尤其是k九……
+
+
+*****
+
+####  喜闻乐见  
+##### 3198#         楼主| 发表于 2023-6-15 22:57
+
+<img src="https://pic3.58cdn.com.cn/nowater/webim/big/n_v2488659654d8e4738a4da6f73e7c9f028.png" referrerpolicy="no-referrer">
+<img src="https://pic6.58cdn.com.cn/nowater/webim/big/n_v21dff0eee7f434b7e94c676f7e0412cd3.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佛皇  
+##### 3199#       发表于 2023-6-15 23:41
+
+幻梦一场，希望将来有那么一天舞台的聚光灯再次照亮<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+歌姬.jpg
+(551.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-15 23:40 上传
+
+<img src="https://img.saraba1st.com/forum/202306/15/234011ycee7c777e575el6.jpg" referrerpolicy="no-referrer">
+
+123.jpg
+(410.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-15 23:40 上传
+
+<img src="https://img.saraba1st.com/forum/202306/15/234029hj83djdoof5ajre3.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一叶丈育  
+##### 3200#       发表于 2023-6-16 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我知道你肯定不甘心就这么抛弃努力的结果
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  水松涛木  
+##### 3201#       发表于 2023-6-16 01:00
+
+唉
+
+
+*****
+
+####  喜闻乐见  
+##### 3202#         楼主| 发表于 2023-6-16 13:35
+
+bw出没
+
+
+*****
+
+####  Niyah  
+##### 3203#       发表于 2023-6-17 13:43
+
+把给鸭自动续了一年的舰长关了，以后应该也不会给管人上舰了
+
+
+*****
+
+####  喜闻乐见  
+##### 3204#         楼主| 发表于 2023-6-17 20:22
+
+saku也开始在意年龄了hhh
+
+
+*****
+
+####  ladiesman802  
+##### 3205#       发表于 2023-6-19 00:00
+
+saku好像才23还是24岁
+
+未来发展的机会还是很多的，虽然现在看起来纸哥当v的收入最高
+
+
+*****
+
+####  喜闻乐见  
+##### 3206#         楼主| 发表于 2023-6-20 20:44
+
+卡姐联动 ，开局自我介绍，我是来自........
+
+星律动的卡缇娅
+
