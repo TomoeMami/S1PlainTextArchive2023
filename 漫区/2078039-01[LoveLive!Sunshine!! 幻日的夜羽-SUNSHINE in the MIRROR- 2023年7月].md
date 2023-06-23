@@ -1098,3 +1098,23 @@ PV2：https://youtu.be/4H2N5qcBUuQ
 我早就觉得缪斯直接解散是沙雕了，跳不动现场了完全可以设定为毕业后当了演员出没在日升各大动画片里。十年 ...</blockquote>
 ll企划赚钱的点都是线下，缪线下去不了直接去一条腿，跑不动的
 
+*****
+
+####  kria  
+##### 82#       发表于 2023-6-18 08:19
+
+Tanuki Bingus
+
+@SugoiBingus
+
+Love Live! Sunshine!! Spin-Off TV Anime "Genjitsu no Yohane -SUNSHINE in the MIRROR-" has total 13 episodes.
+
+
+*****
+
+####  仟音一心  
+##### 83#         楼主| 发表于 2023-6-20 21:54
+
+这个……
+<img src="https://p.sda1.dev/12/3d3d52c10b08ef48d658195354badb54/CMP_20230620215422684.jpg" referrerpolicy="no-referrer">
+
