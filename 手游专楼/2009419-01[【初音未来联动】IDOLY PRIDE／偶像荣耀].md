@@ -282,3 +282,24 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 <img src="https://p.inari.site/guest/23-06/13/6488646597529.png" referrerpolicy="no-referrer">
 <img src="https://p.inari.site/guest/23-06/13/6488647654b17.png" referrerpolicy="no-referrer">
 
+*****
+
+####  super_uni  
+##### 785#       发表于 2023-6-20 18:27
+
+国际服有初音了，哈人，没钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/da2d568d52bb78e072df5244a87a85d7/CMP_20230620182719814.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/014c4bb2176ab70fbff990847c9a06e5/CMP_20230620182719897.jpg" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  super_uni  
+##### 786#       发表于 2023-6-20 18:30
+
+擦 怎么还是她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/b114f9420edeb36160b96dedfa8f5a8c/CMP_20230620183019289.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
