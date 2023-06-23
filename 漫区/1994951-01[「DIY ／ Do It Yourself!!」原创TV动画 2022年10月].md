@@ -9597,3 +9597,13 @@ emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://
 
 2023-6-16 21:44 上传
 
+*****
+
+####  Lollipopstar  
+##### 696#       发表于 2023-6-21 06:24
+
+根据松尾透露，山田尚子有作为原画参与diy第六集，结果让她画的是……海参<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/718858992f732114c4400102754808d7/CMP_20230621061529785.jpg" referrerpolicy="no-referrer">
+
+日本作豚还有booru的kvin觉得表记里这个"花ひなこ"，应该是她的马甲。<img src="https://p.sda1.dev/12/954e6cb97e7f1b180d7f28ba5590b35a/CMP_20230621061529705.jpg" referrerpolicy="no-referrer">
+
