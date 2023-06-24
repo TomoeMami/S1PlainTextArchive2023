@@ -212,3 +212,24 @@ HZS的双辅成长太恐怖了，从一开始的明显短板，到现在独当�
 
 算是终于有个冠军了。🥳
 
+*****
+
+####  Beaverfan01  
+##### 504#       发表于 2023-6-21 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60053185&amp;ptid=1831060" target="_blank">Beaverfan01 发表于 2023-3-11 23:53</a>
+联赛商城的新队服上架只有十九款
+看看什么时候会发正式公告了</blockquote>
+正式宣布没咯
+
+
+*****
+
+####  yxj0312  
+##### 505#       发表于 2023-6-21 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61307147&amp;ptid=1831060" target="_blank">chatamo 发表于 2023-6-16 04:17</a>
+
+HZS的双辅成长太恐怖了，从一开始的明显短板，到现在独当一面的carry点</blockquote>
+赞同。可惜呆在东部赛区上升空间实在有限。今年东部和西部的差距实在太大了。集中赛就能体现出来，网友一直诟病的后排其实没那么脆，反而是在东部无敌的前三到了世界赛杀不掉人了。在东部赛区根本碰不到像君临，崛起这样的后排。杭州目前这套如果前三杀不掉人更多的回来接的话就非常的被动。具体可以看看jimmy有一次分析广州打杭州綠洲城，原话是东东啥都没做错就用shift抽了次奖然后一秒被带走了。同样的场景在和君临打得时候就不能重现。不知道接下来几个月还能练到什么程度，世界杯的话目前看来挑战韩国的霸主地位基本没什么可能，打其他国家也有翻车的可能。
+
