@@ -3677,3 +3677,1080 @@ ps4咋了，战神5都能上ps4凭啥一个二次元游戏不能上
 
 <img src="https://file1.a9vg.com/data/attachment/forum/202306/15/235316awydi6kno6eadoeb.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  anikom  
+##### 384#       发表于 2023-6-19 19:17
+
+有中文，很好
+
+<img src="https://img.saraba1st.com/forum/202306/19/071703r3zh5ii2fi0e0q2g.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-06-19-16-14-02-955_com.sina.weibo.jpg</strong> (856.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-19 19:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  walfeds  
+##### 385#       发表于 2023-6-19 19:29
+
+有简中还行，segay挺上心的嘛
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黄泉川此方  
+##### 386#       发表于 2023-6-19 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一良心的点，SH2时候开始简中字幕同步访谈，P3P和P5R重置的史诗级更新也是简中
+
+
+*****
+
+####  heseran  
+##### 387#       发表于 2023-6-19 19:36
+
+这上心程度，看来这次能同步中文了？
+
+*****
+
+####  rainsheep  
+##### 388#       发表于 2023-6-19 19:37
+
+发售时中文应该也能同步吧
+
+
+*****
+
+####  爱丽丝梦游我家  
+##### 389#       发表于 2023-6-19 19:44
+
+必然同步
+
+*****
+
+####  topia  
+##### 390#       发表于 2023-6-19 19:44
+
+还行，希望保持
+
+
+*****
+
+####  ouyang菌  
+##### 391#       发表于 2023-6-20 20:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/20/204932cc6m0lc8l81z25ml.png" referrerpolicy="no-referrer">
+
+<strong>1P$ZHE)T8VIBUCXYSA(}YBM.png</strong> (110.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202306/20/204940l0mqtn8wnz0m00fq.png" referrerpolicy="no-referrer">
+
+<strong>`3[K6HWX~HAPI8ZY68J[K09.png</strong> (120.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 20:49 上传
+
+<img src="https://img.saraba1st.com/forum/202306/20/205001rvkz7pfc32kh7cka.png" referrerpolicy="no-referrer">
+
+<strong>(PW[8Q79G$ZT96RPTG17A5O.png</strong> (106.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 20:50 上传
+
+*****
+
+####  duraa  
+##### 392#       发表于 2023-6-20 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准备看a社丢人
+
+
+*****
+
+####  DET  
+##### 393#       发表于 2023-6-20 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这回该看看究竟是骡子还是马了，爱信等好吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  SuNR1sE364  
+##### 394#       发表于 2023-6-20 20:56
+
+相信桥野哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AeonsTorn  
+##### 395#       发表于 2023-6-20 20:58
+
+ 本帖最后由 AeonsTorn 于 2023-6-20 21:00 编辑 
+
+等待大的
+
+<img src="https://img.saraba1st.com/forum/202306/20/205959ft0h7aa0d07269h7.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2023-06-20_20-59-17.png</strong> (54.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 20:59 上传
+
+*****
+
+####  heseran  
+##### 396#       发表于 2023-6-20 20:59
+
+世嘉B站直播间在干什么。。。。一直缓冲
+
+*****
+
+####  heseran  
+##### 397#       发表于 2023-6-20 21:02
+
+油罐PV都放完了B站还是黑屏哈哈哈
+
+
+*****
+
+####  AeonsTorn  
+##### 398#       发表于 2023-6-20 21:06
+
+笑了，阿b这什么草台
+
+*****
+
+####  duraa  
+##### 399#       发表于 2023-6-20 21:09
+
+怎么又放一遍PV，你是卡普空吗，繁中可以看sega亚洲频道<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=KUTXoRV1BIY](https://www.youtube.com/watch?v=KUTXoRV1BIY)
+
+
+*****
+
+####  hkguty  
+##### 400#       发表于 2023-6-20 21:14
+
+感觉没啥料，横尾怎么又来客串发神经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AeonsTorn  
+##### 401#       发表于 2023-6-20 21:15
+
+不会就这样干聊吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 402#       发表于 2023-6-20 21:18
+
+其实还是聊了很多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Philister  
+##### 403#       发表于 2023-6-20 21:18
+
+开着选举车去各个地区拉票的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lynn冰翎  
+##### 404#       发表于 2023-6-20 21:20
+
+连Archetype能力都要“比人格面具更高一级”吗，差不多得了呀
+
+*****
+
+####  飞雨啸寒  
+##### 405#       发表于 2023-6-20 21:21
+
+就冲着那么一个放过的pv干聊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 406#       发表于 2023-6-20 21:22
+
+批站直播黑屏可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  AeonsTorn  
+##### 407#       发表于 2023-6-20 21:23
+
+真不如找fami通之类的发篇采访来的信息量多
+
+*****
+
+####  纱布光环  
+##### 408#       发表于 2023-6-20 21:23
+
+能不能来点实机游玩画面啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  duraa  
+##### 409#       发表于 2023-6-20 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是等10点看看任天堂那边有不有地球规模的大哦
+
+*****
+
+####  SuNR1sE364  
+##### 410#       发表于 2023-6-20 21:24
+
+真就对着pv干聊是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 411#       发表于 2023-6-20 21:24
+
+看了看转播，哇，真就干聊呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Lynn冰翎  
+##### 412#       发表于 2023-6-20 21:25
+
+欸，好像真的是对着一个预告数毛的节目，那有什么好看的，他们聊的信息量还不如自己逐帧多看几遍
+
+*****
+
+####  sdh45e6  
+##### 413#       发表于 2023-6-20 21:25
+
+没啥料
+
+*****
+
+####  walfeds  
+##### 414#       发表于 2023-6-20 21:26
+
+确实信息量还卜如自己看pv挖的那些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DET  
+##### 415#       发表于 2023-6-20 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没东西，溜了溜了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  duraa  
+##### 416#       发表于 2023-6-20 21:30
+
+讲3句就要扯一下persona有点绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 417#       发表于 2023-6-20 21:32
+
+那怎么办，不谈p谈超执刀吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  clover293  
+##### 418#       发表于 2023-6-20 21:32
+
+谁说的，不是公布了平台嘛，笑死
+
+
+*****
+
+####  SuNR1sE364  
+##### 419#       发表于 2023-6-20 21:33
+
+拍到了一秒钟实机！有新内容了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 420#       发表于 2023-6-20 21:34
+
+哦，开发画面一闪而过，升级系统？还是换p版曼斗罗？
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  walfeds  
+##### 421#       发表于 2023-6-20 21:34
+
+ 本帖最后由 walfeds 于 2023-6-20 21:37 编辑 
+
+风怒
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alviaze  
+##### 422#       发表于 2023-6-20 21:35
+
+<img src="https://img.saraba1st.com/forum/202306/20/213422dht24c2ccxopcxot.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230620213408.jpg</strong> (71.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 21:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET  
+##### 423#       发表于 2023-6-20 21:35
+
+这是升技能点？
+
+*****
+
+####  heseran  
+##### 424#       发表于 2023-6-20 21:35
+
+“制作初期是中世纪、西洋奇幻，但是这样太传统了！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么理由
+
+*****
+
+####  Lynn冰翎  
+##### 425#       发表于 2023-6-20 21:36
+
+草，今晚要对着背景屏幕上糊成一团的实机数毛了吗，好难受啊
+
+*****
+
+####  抽烟的猴  
+##### 426#       发表于 2023-6-20 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61361570&amp;ptid=2139558" target="_blank">heseran 发表于 2023-6-20 21:35</a>
+
+“制作初期是中世纪、西洋奇幻，但是这样太传统了！”这什么理由</blockquote>
+低情商：我们做不出革新划时代的rpg，对不起诸位，16年的牛皮吹破了
+
+高情商：中世纪西洋奇幻太传统<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 427#       发表于 2023-6-20 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61361560&amp;ptid=2139558" target="_blank">alviaze 发表于 2023-6-20 21:35</a></blockquote>
+[@鸣上悠](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=198985) 左边这人像不像你
+
+*****
+
+####  adretyu67  
+##### 428#       发表于 2023-6-20 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61361560&amp;ptid=2139558" target="_blank">alviaze 发表于 2023-6-20 21:35</a></blockquote>
+这界面一股dds的曼斗罗的即视感
+
+*****
+
+####  cowgp01  
+##### 429#       发表于 2023-6-20 21:39
+
+什么太传统，贵社就没做过中世纪奇幻吧
+
+*****
+
+####  DET  
+##### 430#       发表于 2023-6-20 21:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">战车，国王，是国际象棋？
+
+*****
+
+####  walfeds  
+##### 431#       发表于 2023-6-20 21:40
+
+妇岛妮不搞点现代服装设计浑身难受🐴
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  walfeds  
+##### 432#       发表于 2023-6-20 21:44
+
+目黑还是值得信赖的
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AeonsTorn  
+##### 433#       发表于 2023-6-20 21:45
+
+这个bgm那段念经确实挺有意思的
+
+*****
+
+####  黑上シグマ  
+##### 434#       发表于 2023-6-20 21:46
+
+PV音乐里那像念经一样的真的是找的住持来念经……
+
+*****
+
+####  鳴上悠  
+##### 435#       发表于 2023-6-20 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61361620&amp;ptid=2139558" target="_blank">heseran 发表于 2023-6-20 21:38</a>
+
+@鸣上悠 左边这人像不像你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">ちょっと何言ってるかわからない
+
+*****
+
+####  DET  
+##### 436#       发表于 2023-6-20 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">现在看来还是目黑哥哥最值得信任了
+
+*****
+
+####  walfeds  
+##### 437#       发表于 2023-6-20 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61361771&amp;ptid=2139558" target="_blank">鳴上悠 发表于 2023-6-20 21:49</a>
+ちょっと何言ってるかわ&amp;#x ...</blockquote>
+加班不开心吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  纱布光环  
+##### 438#       发表于 2023-6-20 21:53
+
+就这？没了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  heseran  
+##### 439#       发表于 2023-6-20 21:53
+
+ 本帖最后由 heseran 于 2023-6-20 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61361771&amp;ptid=2139558" target="_blank">鳴上悠 发表于 2023-6-20 21:49</a>
+
+ちょっと何言ってるかわ&amp;#x ...</blockquote>
+我觉得挺像的吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 440#       发表于 2023-6-20 21:54
+
+拉了就是拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AeonsTorn  
+##### 441#       发表于 2023-6-20 21:54
+
+说一点新货都没有也不对，但真的只有一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  duraa  
+##### 442#       发表于 2023-6-20 21:54
+
+太会聊了，太喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SuNR1sE364  
+##### 443#       发表于 2023-6-20 21:55
+
+勉强算是有新内容吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leomai  
+##### 444#       发表于 2023-6-20 21:55
+
+目黑：宗教音乐融入王道RPG
+
+最后得出的答案竟然是西洋风佛教念经
+
+*****
+
+####  星野航  
+##### 445#       发表于 2023-6-20 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这也太糊弄事儿了
+
+*****
+
+####  黑上シグマ  
+##### 446#       发表于 2023-6-20 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们对跟踪狂俱乐部是有什么不切实际的期待？当年P5的时候出了十几二十期也没啥新情报啊
+
+*****
+
+####  ouyang菌  
+##### 447#       发表于 2023-6-20 21:57
+
+看完的感想
+
+<img src="https://img.saraba1st.com/forum/202306/20/215743yaiz3kcv97pk7ezk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 21:57 上传
+
+*****
+
+####  lazycat233  
+##### 448#       发表于 2023-6-20 21:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么都2023了还有对日厂的发布会有幻想，百分之95时长都是吹逼的
+
+*****
+
+####  anikom  
+##### 449#       发表于 2023-6-20 21:58
+
+好吧，期待下场。
+至少旧p组铁三角出来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67  
+##### 450#       发表于 2023-6-20 21:59
+
+现在这讳莫如深的态度，不如开盘24年会不会跳比较现实
+
+
+*****
+
+####  医生狼多  
+##### 451#         楼主| 发表于 2023-6-20 23:13
+
+ATLUS奇幻RPG新作《暗喻幻想 ReFantazio》直播节目中带来对导演桥野桂、角色设计副岛成记、作曲目黑将司的采访，包含标题、游戏主题、开发背景、主要角色、音乐创作等内容的介绍。其中提到游戏主题为“面对不安”。
+
+本作将于2024年内推出，登陆PS5、PS4、XSX|S、PC（Steam/Win商城），支持中文。http://t.cn/A6plVs8c ​​​
+
+*****
+
+####  ultraseven  
+##### 452#       发表于 2023-6-20 23:17
+
+登陆Win商城，估计也是XPA
+
+
+*****
+
+####  Lynn冰翎  
+##### 453#       发表于 2023-6-21 01:12
+
+展示的实机内容还是有一些的，拼起来差不多三分钟吧？只不过都在制作人访谈背后那一小块投影上，可能他们还不想放出来。
+
+内容有：主角在天鹅绒房间获得新的原型、原型技能树演示、五场较短的实机战斗（击中弱点、使用Synthesis指令、使用技能）、完整的战斗结算画面、提升羁绊获得奖励、玩家在城镇内探索、玩家提升五维、一些新的剧情对话、展示世界地图。
+
+演示了在天鹅绒房间获得新的“狂战士”原型，原型确实是和职阶绑定的，和小女孩玛丽亚的支线关系也会奖励“医者”原型。（对，就是桥野眉毛上发红的那块东西）
+
+<img src="https://img.saraba1st.com/forum/202306/21/004306g859r58f1klhl59a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/004236hrb591n41lxrcr7g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:42 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/005338ku3ou8zy83fyyq88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (6.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:53 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/004510mndicupdwv2ioe4d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:45 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/004548pbn1punppaapb4u1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:45 上传
+
+PV里的这个画面，就是主角获得新原型的过场动画
+
+<img src="https://img.saraba1st.com/forum/202306/21/004408mi5izx8jiqx433d3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (203.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:44 上传
+
+还有那个应该都注意到的维特鲁威人技能树，上面有许多的空置凹槽，用于安放不同的原型。
+
+<img src="https://img.saraba1st.com/forum/202306/21/003249jca0omwqpp0209bc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (56.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:32 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/003313kdtptwgtl2kh1haw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:33 上传
+
+左边这三个人应该都是会加入队伍的角色。
+
+我的猜想是，玩家搭配Archetype来组成场上队伍成员的技能池，在战斗中使用Synthesis这个指令以一定代价，让当前角色调用池子里其他人的技能。
+
+战斗系统使用了press turn，直观展示了出来。（但似乎不完全是？）
+
+<img src="https://img.saraba1st.com/forum/202306/21/003719k2xg1jyfzyltc2pg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:37 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/003746c4jj2tzyjyxnc5nx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:37 上传
+
+关于主角的身份，主角确实不是“人类”，是“エルダ族”，倒不如说在游戏里主要的敌人可能就是“人类”，这一点有人在第一个片的时候就看出来了。
+
+<img src="https://img.saraba1st.com/forum/202306/21/003146vx3ked8hk3hds2xx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:31 上传
+
+初建的主角团在沙漠中意外遇到了强大boss，此时领航员称其为“人类”
+
+<img src="https://img.saraba1st.com/forum/202306/21/004007l19s9qfpdh575dk5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:40 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/003927amn02abmzz2nkyin.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:39 上传
+
+“眼睛”显然在这个游戏里是个重要的要素，PV里的人，额头上有浮动的黄色眼睛，主角团在进入战斗状态，主角获得新原型时也是黄色眼睛，战斗结算时的红色眼睛能把人变回正常状态
+
+<img src="https://img.saraba1st.com/forum/202306/21/004920ulwjnbsublu89u8n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:49 上传
+
+那么，有红有黄，总不能没有蓝，恰好主角是蓝黄异瞳，不愧是主角相，虽然我觉得这个设定不是很帅。最后甚至展现了黄—蓝—红的变色过程。
+
+<img src="https://img.saraba1st.com/forum/202306/21/005050l5z9s6zb57xb7f6r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:50 上传
+
+好的，主角不是人，是旅行者，搭乘着空艇和伙伴探索整块大陆，在羁绊中获得内心的力量，与“人类”的投影对决。还是等PV2吧，就算加上今晚的内容，剧情也没什么可猜的。
+
+<img src="https://img.saraba1st.com/forum/202306/21/005658ab696k1knvqh9hvc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (290.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:56 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/005753ak0j0oeks50jsseo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:57 上传
+
+不过确实看出游戏还在一个没怎么做完的地步，因为演示里有很多明显处于测试阶段的东西，比如随手输入的战斗结算经验值，哥布林假人，没改完的技能名。
+
+<img src="https://img.saraba1st.com/forum/202306/21/005220l4lpg75itnoi5mpf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:52 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/010013sj9xs989axnx0u8f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 01:00 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/004143tecczq155cc3y7lx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 00:41 上传
+
+应该是明年下半年发售了。
+
+有一点我很在意，就是战斗的“宝具动画”演出时间太长了，而且我没看到跳过按钮，总不能真是宝具动画罢。
+
+<img src="https://img.saraba1st.com/forum/202306/21/010239j42m2qkqjh277akv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 01:02 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/010334ic3w0fg69brfgh33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 01:03 上传
+
+从选中技能到陨石砸下来出白屏，没回到玩家的操作回合，甚至伤害数字都没跳，就已经过去了十秒钟？
+
+<img src="https://img.saraba1st.com/forum/202306/21/010544xlow73h37osvvh33.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (250.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 01:05 上传
+
+PV里这玩意也是宝具动画，就是那个长得像番长的人，总而言之技能演出时间非常的长，很奇怪。
+
+
+*****
+
+####  cowgp01  
+##### 454#       发表于 2023-6-21 02:22
+
+我知道了是印象空间的妖精森住民在和人类欲望产生的SHADOW战斗
+
+
+*****
+
+####  walfeds  
+##### 455#       发表于 2023-6-21 09:53
+
+ 本帖最后由 walfeds 于 2023-6-21 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61364266&amp;ptid=2139558" target="_blank">Lynn冰翎 发表于 2023-6-21 01:12</a>
+展示的实机内容还是有一些的，拼起来差不多三分钟吧？只不过都在制作人访谈背后那一小块投影上，可能他们还 ...</blockquote>
+系统应该不是press turn，顶上那些不可名状的星星应该是放必杀/synthesis用的能量点，看必杀页面除了mp消耗还标着能量点消耗，不使用必杀的行动会增加一点能量？
+就是这个mp消耗相对于mp上限过于低了，怀疑恢复手段会受限
+还有原型技能和必杀技之间的关系有些微妙，这些必杀技看起来来自不同原型，但是顶上还是标着装备的原型？
+
+曼斗罗alter现在看图应该有14路线40个原型的样子，不好说按你a惯例会不会有隐藏的，比如心脏的位置
+昨天没细看今天抽空再捋一捋
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  walfeds  
+##### 456#       发表于 2023-6-21 10:17
+
+我大概理解了，应该是类似勇气默示录那种用一个主职业但是可以把修得职业支援技能挂载起来的系统，但是挂载的是必杀也没有副职业
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  慕容断月  
+##### 457#       发表于 2023-6-21 13:52
+
+这不还是atlus祖传那一套，atlus还是死了算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  duraa  
+##### 458#       发表于 2023-6-21 14:26
+
+ac6要喷瞎改没味，a社这边又要喷永远老一套，还都是游戏没完整展示的当下，我们喜欢喷这喷那的人真是太厉害啦<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星野航  
+##### 459#       发表于 2023-6-21 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61370046&amp;ptid=2139558" target="_blank">duraa 发表于 2023-6-21 15:26</a>
+
+ac6要喷瞎改没味，a社这边又要喷永远老一套，还都是游戏没完整展示的当下，我们喜欢喷这喷那的人真是太厉害 ...</blockquote>
+要不游戏区的永恒是“青黑无脑只有一战”呢
+
+这是延续传统
+
+
+*****
+
+####  GuardHei  
+##### 460#       发表于 2023-6-21 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61370046&amp;ptid=2139558" target="_blank">duraa 发表于 2023-6-21 14:26</a>
+ac6要喷瞎改没味，a社这边又要喷永远老一套，还都是游戏没完整展示的当下，我们喜欢喷这喷那的人真是太厉害 ...</blockquote>
+没看懂你这个逻辑是什么，不是atlus自己说要变革要重新定义jrpg吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  duraa  
+##### 461#       发表于 2023-6-21 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61370944&amp;ptid=2139558" target="_blank">GuardHei 发表于 2023-6-21 15:29</a>
+
+没看懂你这个逻辑是什么，不是atlus自己说要变革要重新定义jrpg吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我也不懂你的逻辑，你说的这个和我说的有啥关系
+
+
+*****
+
+####  zzy516232108  
+##### 462#       发表于 2023-6-21 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是
+
+阿特拉斯说要重新定义JRPG，注册域名rpg.jp
+
+说要做中世纪幻想RPG
+
+桥野拉着一批人独立了一个studio 0
+
+大家都以为要弄个惊天地泣鬼神的作品，重新定义JRPG，作品地位堪比xxxx，他们自己把用户的期待拉的无限高
+
+结果目前看下来
+
+背景不是中世纪奇幻RPG
+
+甚至好像还是阿特拉斯老一套三板斧，现在展示的东西感觉好像和女神异闻录区别不是很大
+
+就这还难产7年，抽走P组骨干做studio0
+
+是不是让人大跌眼镜嘛
+
+阿特拉斯来点新东西啊，现在展示了半天还是三板斧
+
+*****
+
+####  404489039  
+##### 463#       发表于 2023-6-21 15:47
+
+没创新算一般垃圾
+女角色难看超级垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hsyg  
+##### 464#       发表于 2023-6-21 16:01
+
+不说系统，要创新起码敌人要酷炫潮流吧，潮男打抽象丑八怪不就是a社老一套。
+
+*****
+
+####  MinamiTsukasa  
+##### 465#       发表于 2023-6-21 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61371138&amp;ptid=2139558" target="_blank">zzy516232108 发表于 2023-6-21 15:43</a>
+
+不是
+
+阿特拉斯说要重新定义JRPG，注册域名rpg.jp
+
+说要做中世纪幻想RPG</blockquote>
+同意这个观点，早期得宣发真的是以为能够做出一部创新拉满的中世纪王道RPG。
+
+结果拉出来的还是A社味重的东西，不能说失望，但是确实少了惊喜
+
+
+*****
+
+####  病態極端  
+##### 466#       发表于 2023-6-21 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61370046&amp;ptid=2139558" target="_blank">duraa 发表于 2023-6-21 14:26</a>
+
+ac6要喷瞎改没味，a社这边又要喷永远老一套，还都是游戏没完整展示的当下，我们喜欢喷这喷那的人真是太厉害 ...</blockquote>
+有的遊戲帶著舊IP的名字，有的遊戲沒帶舊IP的名字
+
+*****
+
+####  AeonsTorn  
+##### 467#       发表于 2023-6-21 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61371138&amp;ptid=2139558" target="_blank">zzy516232108 发表于 2023-6-21 15:43</a>
+不是
+
+阿特拉斯说要重新定义JRPG，注册域名rpg.jp
+
+说要做中世纪幻想RPG</blockquote>
+合理怀疑是原本就是按照吹的那套做的结果发现实在做不出来，只好按照能保底那套重头再来了
+
+
+*****
+
+####  duraa  
+##### 468#       发表于 2023-6-21 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61371435&amp;ptid=2139558" target="_blank">病態極端 发表于 2023-6-21 16:04</a>
+有的遊戲帶著舊IP的名字，有 ...</blockquote>
+我觉得老ip改祖宗之法和新ip墨守成规不是贷款吃屎的理由，真屎了再喷也不迟
+当然a社牛批吹炸了那是另一回事
+
+
+*****
+
+####  walfeds  
+##### 469#       发表于 2023-6-21 17:12
+
+妮可以说他不够中世纪（虽然宣传上出了偏差），但现在就下定论是否王道是不是太早了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然你就要说这就是换皮pa社味祖传三板斧那你说得对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  anikom  
+##### 470#       发表于 2023-6-21 23:51
+
+ 本帖最后由 anikom 于 2023-6-21 11:52 编辑 
+
+<img src="https://img.saraba1st.com/forum/202306/21/115246hy5j4h4457qcqc5g.jpg" referrerpolicy="no-referrer">
+
+<strong>20230618_134803.jpg</strong> (435.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 23:52 上传
+
+推上看到的，笑cry
+
+
+*****
+
+####  星野航  
+##### 471#       发表于 2023-6-21 23:54
+
+说实话，桥野桂憋了几年外加你a最近搔操作这么多，可以说本来就完全不看好这东西
+
+端出来这么一个老元素缝合怪甚至是太正常不过
+
+开发到一半觉得搞不下去，又要卖钱，索性熟悉一套怼起来，感觉逻辑都通畅了
+
+
+*****
+
+####  walfeds  
+##### 472#       发表于 2023-6-22 00:28
+
+是技术性调整，卜要慌
+
+至少战斗现在能嚼出点不一样的味，现在就看桥野能不能把设定换皮变成系统套壳了
+
+希望日期、羁绊、五维之类的系统能在旅行主题下打破对原来定点体验生活的固有认识翻出新花样吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">梦里什么都有
+
