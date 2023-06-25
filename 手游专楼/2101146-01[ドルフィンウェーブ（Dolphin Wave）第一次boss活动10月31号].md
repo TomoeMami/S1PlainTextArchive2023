@@ -1732,3 +1732,119 @@ ex淘汰赛翻车了，做好对策再进去
 
 别说联动的ex，我甚至连花嫁的ex都没有打，反正拿不到3星，就不浪费时间了，游戏体验瞬间上升
 
+*****
+
+####  Achlys  
+##### 380#       发表于 2023-6-19 19:09
+
+入坑想请教该练哪一些？要不要为了能升85 90级补井把当期up换出来？
+
+（这游戏好容易歪）
+
+
+*****
+
+####  羽出  
+##### 381#       发表于 2023-6-19 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61347424&amp;ptid=2101146" target="_blank">Achlys 发表于 2023-6-19 19:09</a>
+
+入坑想请教该练哪一些？要不要为了能升85 90级补井把当期up换出来？
+
+（这游戏好容易歪） ...</blockquote>
+一般来说不需要补，一两位满级角色并不能提升你的游戏体验
+
+只要正常玩，一个月内能把所有常驻内容的EX关卡打通
+
+至于练什么，可以看看这里
+[https://dolphinwave.boom-app.wiki/entry/chara-ranking](https://dolphinwave.boom-app.wiki/entry/chara-ranking)
+
+
+*****
+
+####  Achlys  
+##### 382#       发表于 2023-6-20 18:08
+
+到2w8战力了，别说ex，打推荐1w6战力的boss还是感到困难，是自己的输出手法有问题吗？多血条boss打掉一条血条就扣玩家队伍的血是为什么？
+章鱼似的boss战，分怎么打高啊？
+
+感到养成钱非常不够
+要不要抽新池子，rider的技能免疫浸食厉害吗？
+
+
+*****
+
+####  羽出  
+##### 383#       发表于 2023-6-20 20:22
+
+现在的活动难度相对高的，不需要勉强自己打ex，你看看楼上帖子大家得出的结论
+
+
+*****
+
+####  MEKA  
+##### 384#       发表于 2023-6-21 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61359584&amp;ptid=2101146" target="_blank">Achlys 发表于 2023-6-20 18:08</a>
+到2w8战力了，别说ex，打推荐1w6战力的boss还是感到困难，是自己的输出手法有问题吗？多血条boss打掉一条血 ...</blockquote>
+回合结束掉血是对方给你上了个浸食debuff，点自己队伍的人的头像可以看到buff或者debuff的详细信息。
+
+这游戏的攻击力up可以叠加5次，防御降低的debuff可以叠加5次(其他奇奇怪怪的buff基本叠不到5次就不说了…)。打boss基本就是对面没破盾时给自己和对面上buff攒sp，对面bk时用输出型sp技能一波打爆。
+
+另外游戏有个抬卡的机制叫弱点武器，进关卡前可以看到boss的弱点武器类型，你的武器类型在你要出的卡的左下角。对的上boss弱点的卡破盾效率是3，对不上是1。因为破盾能增加伤害和打断对手一回合，有时候合适的sr/ssr要比ur要好用。
+
+抽卡的话看xp吧…这游戏不卷pvp随便打，角色评价可以看看楼上提供的wiki网。顺便这次桐利卡池(抽卡界面第三个池子)是联动池，官方是说不会出现在后面卡池，可以考虑抽一个<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  心之光  
+##### 385#       发表于 2023-6-21 09:43
+
+<img src="https://img.saraba1st.com/forum/202306/21/094135svrwkv2q2bbqwqw7.png" referrerpolicy="no-referrer">
+
+<strong>20230621093940.png</strong> (32.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 09:41 上传
+
+上一期诗绘婚纱拿到手，满足了
+
+
+*****
+
+####  Achlys  
+##### 386#       发表于 2023-6-21 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61366119&amp;ptid=2101146" target="_blank">MEKA 发表于 2023-6-21 09:42</a>
+
+回合结束掉血是对方给你上了个浸食debuff，点自己队伍的人的头像可以看到buff或者debuff的详细信息。
+
+这 ...</blockquote>
+明白叠攻击/降防以后打过常驻2w5的本，就差ex了，感谢。（就是打柱子的时候不知道怎么额外增高输出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+sofmap桐利抽到了，还歪出来veena，现在是桐利水入华+sr tomo veena，一组水一组风混搭在用。
+
+桐利输出高是高就是sp获取好低，平时不怎么见得到开大。
+
+因为自己rider的ur比较多，gunner就只有一个桐利，三号位更是没有ur。就想着要不要抽护士池子组个纯水队？我看女仆装的那组三四号位也很厉害，会复刻up吗？
+
+
+*****
+
+####  MEKA  
+##### 387#       发表于 2023-6-22 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61373313&amp;ptid=2101146" target="_blank">Achlys 发表于 2023-6-21 17:56</a>
+
+明白叠攻击/降防以后打过常驻2w5的本，就差ex了，感谢。（就是打柱子的时候不知道怎么额外增高输出了[f:0 ...</blockquote>
+柱子是机器人BOSS吗？243楼楼主有介绍高分的要点。
+
+基本就是（难度分）+叠满BUFF等MAX BK后开1号位SP打最高伤害的（伤害分)+通过防御3,4号位的SP技能BK对面增加自己的行动回合数的(行动回合数分和BK次数分）。
+
+一般能打个100+万的最高伤害大部分有用的报酬都可以拿到，至于排名随缘啦<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+池子的话我个人觉得喜欢卡面或者角色的话抽，没爱跳，不用看强度。整体出卡还是往越来越强的方向走的，为了强度抽卡不值得。没角色的话可以用SSR或者SR，里面挺多BUFF机和破盾手的用来打活动也够。
+
+不过自己玩的开心就好啦，看自己吧
+
