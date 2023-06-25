@@ -1291,3 +1291,174 @@ ps3上那个hd合集一直没上ps4么
 
 ●恐怕不会包含「猿蛇合战」的内容。
 
+*****
+
+####  Piano-Forest  
+##### 129#         楼主| 发表于 2023-6-21 22:22
+
+<img src="https://p.sda1.dev/12/048454cb6e235bf1dc3d7e1e270a631c/e7cbae74gy1hf67goctebj21hc0u0qi3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  h122h  
+##### 130#       发表于 2023-6-21 22:28
+
+这冷饭合集售价也太贵了吧
+
+
+*****
+
+####  巴巴耶罗  
+##### 131#       发表于 2023-6-21 22:46
+
+合集会有中文么
+
+—— 来自 samsung SM-F7210, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  巴巴耶罗  
+##### 132#       发表于 2023-6-21 22:46
+
+合集会有中文么
+
+—— 来自 samsung SM-F7210, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  h122h  
+##### 133#       发表于 2023-6-21 22:51
+
+ 本帖最后由 h122h 于 2023-6-21 22:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61377001&amp;ptid=2135452" target="_blank">巴巴耶罗 发表于 2023-6-21 22:46</a>
+
+合集会有中文么
+
+—— 来自 samsung SM-F7210, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+感觉不会有。官网网页的语言选项是ASIA/ENGLISH。虽然不是实际游戏语言，但他都这样设置了，感觉不会差多少。
+
+
+*****
+
+####  kos_mos  
+##### 134#       发表于 2023-6-21 23:09
+
+合集收录内容还挺丰富，虽说动态漫画是另收费DLC。
+
+
+*****
+
+####  葛葉景明  
+##### 135#       发表于 2023-6-21 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61377502&amp;ptid=2135452" target="_blank">kos_mos 发表于 2023-6-21 23:09</a>
+
+合集收录内容还挺丰富，虽说动态漫画是另收费DLC。</blockquote>
+不写的bonus么？
+
+*****
+
+####  edenpenn  
+##### 136#       发表于 2023-6-21 23:21
+
+估计又要锁国区<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kos_mos  
+##### 137#       发表于 2023-6-21 23:33
+
+又看了下官网，动态漫画是写的DLC不过似乎也没写另收费。
+
+bouns内容合集版才有，123单买没有。
+
+
+*****
+
+####  roxassix  
+##### 138#       发表于 2023-6-21 23:35
+
+漫画都有没想到。。话说四代能不能安排上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Abba-il-Aeons  
+##### 139#       发表于 2023-6-22 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61377012&amp;ptid=2135452" target="_blank">巴巴耶罗 发表于 2023-6-21 22:46</a>
+
+合集会有中文么
+
+—— 来自 samsung SM-F7210, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+真有中文会直接写出来的吧。。。
+
+换个角度想，按科乐美的德性，多半也不会花钱给这种（文本量其实不算小的）游戏做汉化。。。
+
+QQ截图20230622000642.jpg
+(18.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-22 00:06 上传
+
+<img src="https://img.saraba1st.com/forum/202306/22/000659b0zo03t03sfs3z0f.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  利维坦与霍布斯  
+##### 140#       发表于 2023-6-22 01:28
+
+不知道vol2里面会不会包括GBC上的幽灵的通天塔
+
+
+*****
+
+####  shimotsuki14  
+##### 141#       发表于 2023-6-22 08:56
+
+以FK的作风早料到不给汉化了
+
+唉，买还是要买的
+
+
+*****
+
+####  霖岚_  
+##### 142#       发表于 2023-6-22 09:09
+
+昨晚任天堂直面会看到会上MGS合集一下就醒了
+
+在ns上买一份吧，就当补电影票了，fuck konami
+
+
+*****
+
+####  h122h  
+##### 143#       发表于 2023-6-22 09:39
+
+官网更新了，实体版好像PS5版是直接所有内容在光盘里，NS版是需要卡带之后额外再下载。
+
+ゲームプレイに関する重要なお知らせ（Nintendo Switch™版）
+
+すべての内容をお楽しみいただくにはゲームデータ(無料)のダウンロードが必要です。
+
+・ インターネットの接続環境
+
+・ 27.9GB ( ＋ 映像特典 30GB ) ※以上の空き容量もしくはmicroSDカード（別売）
+
+※この配信総容量と必要な空き容量は予定であり、2023年9月ごろに確定いたします。
+
+※映像特典は、METAL GEAR SOLID BANDE DESSINÉE (映像作品) / METAL GEAR SOLID 2 BANDE DESSINÉE (映像作品) の2作品となります。
+
+*****
+
+####  棺材叔叔  
+##### 144#       发表于 2023-6-22 09:43
+
+忘了具体剧情了，就算真有东大偷苏联核弹情报也没啥吧，又不算刻意辱华
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
