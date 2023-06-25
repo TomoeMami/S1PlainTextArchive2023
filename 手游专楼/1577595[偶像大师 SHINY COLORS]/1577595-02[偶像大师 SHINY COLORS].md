@@ -2561,3 +2561,120 @@ demo和正式版本系统上多少会有区别，不上图了。
 
 スポットライト・ミラーランド　（杏奈）
 
+*****
+
+####  Ask_10A  
+##### 2849#       发表于 2023-6-20 11:48
+
+我们是冠军！花组荣耀！
+
+13c87dd384a6a7ad300c001f8dd690d9_720.jpg
+(156.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 11:48 上传
+
+<img src="https://img.saraba1st.com/forum/202306/20/114800vgtd57t3x42lvocn.jpg" referrerpolicy="no-referrer">
+
+eca640ba4304035390f9fe56f670c921_720.jpg
+(153.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 11:48 上传
+
+<img src="https://img.saraba1st.com/forum/202306/20/114801cjsjjjqqjs1qeesj.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格雷殿下  
+##### 2850#       发表于 2023-6-20 12:05
+
+这次冠军是谁
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 2851#       发表于 2023-6-20 12:06
+
+啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  88is88  
+##### 2852#       发表于 2023-6-20 14:25
+
+花组荣耀没问题，但投票不是甘耐赢了吗
+
+
+*****
+
+####  蓮華  
+##### 2853#       发表于 2023-6-20 14:43
+
+<img src="https://img.saraba1st.com/forum/202306/20/144308mg9p9u77eg77xd9q.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230620144237.png</strong> (104.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 14:43 上传
+
+娶一个还搭一个，没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无证madam  
+##### 2854#       发表于 2023-6-20 15:37
+
+我美琴呢
+
+
+*****
+
+####  七草にちか  
+##### 2855#       发表于 2023-6-20 15:52
+
+为什么<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">为什么不是美琴
+
+
+*****
+
+####  冰风血羽  
+##### 2856#       发表于 2023-6-21 01:19
+
+让我看看花组还有谁没婚纱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  退行  
+##### 2857#       发表于 2023-6-21 09:02
+
+甜花的这张给我的观感是看过的里最差的，太水太突兀了
+
+
+*****
+
+####  NZ-333  
+##### 2858#       发表于 2023-6-22 23:32
+
+刚刚看了盗日者，出人意料的有趣。
+
+盗日者里有三次死亡。第一次，猫；第二次，女广播员；第三次，警探。
+
+猫是野猫，比起饲养不如说是共生。死因是吃掉了盒子里打磨下来的的钚。
+
+女广播员是年轻人。她是主角的邻居，互相之间是好奇。死因是车祸。
+
+警探是守护了东京三十年的老警探。他曾经和主角有一面之缘，共同拿下了劫校车的日本老兵。死于和主角搏斗后的跳楼。
+
+炸弹最后只有爆炸的声音。
+
+现在还抓不住，我需要把浅仓透的剧情过一遍。
+
