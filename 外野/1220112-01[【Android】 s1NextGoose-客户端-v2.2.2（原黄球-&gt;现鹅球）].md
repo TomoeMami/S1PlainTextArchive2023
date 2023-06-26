@@ -168,3 +168,10 @@ Play 版在高版本安卓上的专属 bug，换普通版就行了
 在鹅球内点开链接会自动跳转小米浏览器，但是我系统已经设置了edge为默认浏览器，其他APP也都可以自动跳转edge，怎么解决？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 手机是红米k50，MIUI14
 
+*****
+
+####  Cirn09  
+##### 1430#       发表于 2023-6-24 01:42
+
+github 上没 push 2.5.4 的代码吗，我看GitHub上的代码还是 2.5.3，想给鹅球加个自动夜间模式
+
