@@ -1720,3 +1720,33 @@ comg榜虽然越来越药丸，但也是一个重要的参考指标，不是说�
 
 —— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  川川子  
+##### 178#       发表于 2023-6-24 02:28
+
+清算时间到，所以se准备这次多久上pc<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  烽火  
+##### 179#       发表于 2023-6-24 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61403654&amp;ptid=2138209" target="_blank">川川子 发表于 2023-6-24 02:28</a>
+
+清算时间到，所以se准备这次多久上pc</blockquote>
+立本主妇的电脑带的动吗
+
+
+*****
+
+####  phlyingpig  
+##### 180#       发表于 2023-6-24 15:03
+
+15什么屎，当初信了se，那不是他们自己最后搞砸了吗？
+
+7r也没预购，但是最后还是入了的，其实我要求也不高
+
+哪怕抛开15/13这些不谈，你14的6.0什么屎心里没点逼数？真以为自己口碑多好呢
+
