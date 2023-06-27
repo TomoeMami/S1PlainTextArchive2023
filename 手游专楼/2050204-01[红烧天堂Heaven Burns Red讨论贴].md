@@ -4817,3 +4817,391 @@ CP方面，月歌 x yukki x 夏洛的互动能一直玩到关服。侦探x修女
 暂时没有 现在一般都用九十几万的那几个</blockquote>
 哦，那就买了，二章打完后我都没更新这个
 
+*****
+
+####  光影mk2  
+##### 1300#       发表于 2023-6-21 09:41
+
+请问下，昨天我用ipad登录还好好的，今天早上进入游戏loading界面出现了一瞬间就开始黑屏，有人遇到过同意同样情况吗？
+
+*****
+
+####  Hemis  
+##### 1301#       发表于 2023-6-21 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61366112&amp;ptid=2050204" target="_blank">光影mk2 发表于 2023-6-21 09:41</a>
+
+请问下，昨天我用ipad登录还好好的，今天早上进入游戏loading界面出现了一瞬间就开始黑屏，有人遇到过同意 ...</blockquote>
+每次这种情况开始界面点全部下载大概就能解决
+
+
+*****
+
+####  光影mk2  
+##### 1302#       发表于 2023-6-21 10:19
+
+<blockquote>Hemis 发表于 2023-6-21 09:47
+每次这种情况开始界面点全部下载大概就能解决</blockquote>
+好的，谢谢，马上去试试看
+
+
+*****
+
+####  KASUKASU111  
+##### 1303#       发表于 2023-6-21 22:22
+
+看这剪影是不是又要联动了？
+
+
+*****
+
+####  歪镜  
+##### 1304#       发表于 2023-6-21 23:04
+
+大的来了吗，说不定会送必出10连（
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1305#       发表于 2023-6-22 23:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大的来了——平平无奇两婚纱，这你剪个p影啊，怕不是精力都花在开发那个什么恒星扫荡模式上了
+
+
+*****
+
+####  Marro  
+##### 1306#       发表于 2023-6-22 23:56
+
+这贴吧都炸了，太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  歪镜  
+##### 1307#       发表于 2023-6-23 00:00
+
+本来以为是怜司花嫁，现在该说幸好不是怜司花嫁吗。。
+
+
+*****
+
+####  Marro  
+##### 1308#       发表于 2023-6-23 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61390196&amp;ptid=2050204" target="_blank">歪镜 发表于 2023-6-23 00:00</a>
+
+本来以为是怜司花嫁，现在该说幸好不是怜司花嫁吗。。</blockquote>
+我只能说别把国内的烂约定俗成当成理所当然。
+
+
+*****
+
+####  歪镜  
+##### 1309#       发表于 2023-6-23 00:54
+
+ 本帖最后由 歪镜 于 2023-6-23 00:57 编辑 
+
+没啥所谓约定俗成，高调宣传抬高期待结果就这，让人期待落空感到失望，台词过于割裂人设讨好lpd没把握好度，结果引起剧情党和百合厨的反感，都是有因有果，自找的罢了
+
+
+*****
+
+####  poor  
+##### 1310#       发表于 2023-6-23 01:32
+
+是不是发现泳司人气这么高，估摸着看看老婆党们能暴多少金币<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  道双晨曦  
+##### 1311#       发表于 2023-6-23 02:00
+
+本来就没国服，炸就炸呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KASUKASU111  
+##### 1312#       发表于 2023-6-23 02:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本体角色老婆营业，联动直女半年无售后，是不是过于地狱了？
+
+
+*****
+
+####  Hemis  
+##### 1313#       发表于 2023-6-23 02:19
+
+司人气高呗（然后出完泳装放置到现在） 不过这游戏我一开始就当成跟Deep One 虚無と夢幻のフラグメント这样角色定死无限换皮的游戏所以也没啥高期待的
+
+
+*****
+
+####  不应  
+##### 1314#       发表于 2023-6-23 03:23
+
+你游换皮就是纯粹换皮，厂家爱怎么玩都是自由，纠结起来基本上所有卡的台词都突出一个意义不明。要讨好xp党，就我来说泳装比婚纱要好多的，漏的多就是好。主要是不明白老板娘凭什么这个频率出卡，强度和人气投票前五都没她吧
+
+
+*****
+
+####  Marro  
+##### 1315#       发表于 2023-6-23 12:38
+
+<blockquote>歪镜 发表于 2023-6-23 00:54
+没啥所谓约定俗成，高调宣传抬高期待结果就这，让人期待落空感到失望，台词过于割裂人设讨好lpd没把握好度 ...</blockquote>
+你就看看贴吧，那都快把我逗笑了，我是知道何为百合豚了，这游戏换皮割裂人设从一开始就是了，只要按剧情来整，很多换皮就不应该出。
+
+
+*****
+
+####  killng  
+##### 1316#       发表于 2023-6-23 14:00
+
+官方喊老婆只是小乐
+流水再登顶才是大乐
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  z-hunter  
+##### 1317#       发表于 2023-6-23 14:17
+
+日本本身就有6月新娘一说，所以这个时间出花嫁皮本来就不意外，少女与战车手游每个6月都有花嫁卡
+
+个人角度觉得不好的只是这次卡面画得不好看，特别是玛丽，完全没有忍者装的惊艳
+
+（不过还不出泳装，我这7万多石都用不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽不了卡只能继续摆烂
+
+现在的百合厨为啥都没有我以前的那种广纳百川，一点互动都能磕的态度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抓住一点能磕的糖，有些东西需要无视。
+
+况且玛丽和大岛家本来就有联系（被老爸委托造移动商店，还没看具体剧情就那么容易发癫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来还是我要求太低
+
+
+*****
+
+####  Marro  
+##### 1318#       发表于 2023-6-23 18:32
+
+<blockquote>z-hunter 发表于 2023-6-23 14:17
+日本本身就有6月新娘一说，所以这个时间出花嫁皮本来就不意外，少女与战车手游每个6月都有花嫁卡
+
+个人角度 ...</blockquote>
+是国内的百合厨太魔怔，你现在在推上能很容易的分辨国人。
+
+
+*****
+
+####  一里ぼっち  
+##### 1319#       发表于 2023-6-23 19:19
+
+你游角色出ss频率感觉比起看人气更像是看主线出场镜头多少，主角队的最多，然后31b31c30g比较常出场的一批，然后剩下的就随机抽抽到谁是谁
+
+
+*****
+
+####  歪镜  
+##### 1320#       发表于 2023-6-23 20:49
+
+<blockquote>Marro 发表于 2023-6-23 12:38
+你就看看贴吧，那都快把我逗笑了，我是知道何为百合豚了，这游戏换皮割裂人设从一开始就是了，只要按剧情 ...</blockquote>
+你先把你对百合厨的恶意收起来再讨论吧。。哪有换皮卖卡必须要割裂人设一说，麻里的台词也媚lpd怎么就没人说她割裂人设？
+
+之前的大岛家就是六姐妹铁板一块，活动也串联过去现在讲“大岛家”这个名号对六姐妹的重要性，结果现在为了流水“大岛家”就成了垫子，还让大姐这个最重视妹妹的来说，搞得好像在大姐眼里“大岛家”真就只是个姓而已，你让重视剧情人设的人对这些全盘接受？
+
+换皮可以与剧情脱离，就像aoi女仆卡，随便出，但脱离剧情的换皮和割裂人设的换皮完全两码事。
+
+
+*****
+
+####  Marro  
+##### 1321#       发表于 2023-6-23 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61400188&amp;ptid=2050204" target="_blank">歪镜 发表于 2023-6-23 20:49</a>
+
+你先把你对百合厨的恶意收起来再讨论吧。。哪有换皮卖卡必须要割裂人设一说，麻里的台词也媚lpd怎么就没 ...</blockquote>
+这就两码事了？还对百合厨的恶意了？你自己都说大岛家很重要，为啥用这个出婚纱呢？不就是向屏幕前的玩家要钱吗。很难理解吗？这割裂人设吗？一点不倒不如说相当符合？官方很懂设定。国内的百合豚和绿帽癖宅男基本上就是一个群体，还脱离脱离剧情的换皮和割裂人设的换皮完全两码事。官方既没有脱离剧情也没有割裂人设，靠的就是用剧情和人设向屏幕前的玩家对话和要钱。也就国内白河豚魔怔人罢了，他们就觉得不能有一点和他们设想的不同，不然就是背叛。
+
+
+*****
+
+####  歪镜  
+##### 1322#       发表于 2023-6-23 21:03
+
+<blockquote>不应 发表于 2023-6-23 03:23
+你游换皮就是纯粹换皮，厂家爱怎么玩都是自由，纠结起来基本上所有卡的台词都突出一个意义不明。要讨好xp党 ...</blockquote>
+等泳装可怜ing，其实更希望出常态软妹可怜的SS，不知道以后会不会有
+
+
+*****
+
+####  歪镜  
+##### 1323#       发表于 2023-6-23 21:17
+
+<blockquote>Marro 发表于 2023-6-23 20:57
+这就两码事了？还对百合厨的恶意了？你自己都说大岛家很重要，为啥用这个出婚纱呢？不就是向屏幕前的玩家 ...</blockquote>
+“这游戏换皮割裂人设从一开始就是了”
+
+“官方既没有脱离剧情也没有割裂人设”
+
+你跟人卞的时候能不能别忘了自己之前说过啥？
+
+还搁这白河豚=绿帽癖，收收你的味儿
+
+*****
+
+####  Marro  
+##### 1324#       发表于 2023-6-23 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61400669&amp;ptid=2050204" target="_blank">歪镜 发表于 2023-6-23 21:17</a>
+
+“这游戏换皮割裂人设从一开始就是了”
+
+“官方既没有脱离剧情也没有割裂人设”
+
+你跟人卞的时候能不能别忘 ...</blockquote>
+很冲突吗？指的是这一次吗？这次没有很意外吗？听不懂话？还收收味？收收你的味吧，二极管思维真重。
+
+
+*****
+
+####  歪镜  
+##### 1325#       发表于 2023-6-23 22:03
+
+上来就炮轰百合厨，觉得飞机社冰清玉洁的人说别人二极管<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Skyline_R  
+##### 1326#       发表于 2023-6-24 01:05
+
+行了行了，百合手游有几个没出过节奏，以前甚至有动画百合、手游后宫的情况都被选择性忽视了（那动画到今天依然广受期待）。OOC≈活动烂活还有得说；两头恰这种没啥稀有度的伪概念争议过三五天都当无事发生了
+
+不如来整点活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/24/010554pg3wgh4bkvbel3kz.png" referrerpolicy="no-referrer">
+
+<strong>ScreenShot_20230624_020515.png</strong> (303.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 01:05 上传
+
+
+*****
+
+####  歪镜  
+##### 1327#       发表于 2023-6-24 12:45
+
+麻里一千子新剧情笑死了，突出一个逆天
+
+
+*****
+
+####  Marro  
+##### 1328#       发表于 2023-6-24 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61401373&amp;ptid=2050204" target="_blank">歪镜 发表于 2023-6-23 22:03</a>
+
+上来就炮轰百合厨，觉得飞机社冰清玉洁的人说别人二极管</blockquote>
+说国内的魔怔白河豚某些人对号入座了不是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  歪镜  
+##### 1329#       发表于 2023-6-24 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61408101&amp;ptid=2050204" target="_blank">Marro 发表于 2023-6-24 14:42</a>
+
+说国内的魔怔白河豚某些人对号入座了不是？看来理解能力确实有问题 ...</blockquote>
+不管跟你讨论啥你都能一拐“全是白河豚的错”，张口就是“白河豚”“魔怔人”“绿帽癖”“二极管”“对号入座”，还一会儿说人设割裂一会儿又没有割裂人设，说话前言不搭后语的，不会真觉得自己说的话逻辑缜密有说服力，别人就是理解能力不够吧？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Marro  
+##### 1330#       发表于 2023-6-24 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61409582&amp;ptid=2050204" target="_blank">歪镜 发表于 2023-6-24 16:43</a>
+
+不管跟你讨论啥你都能一拐“全是白河豚的错”，张口就是“白河豚”“魔怔人”“绿帽癖”“二极管”“对号 ...</blockquote>
+但你理解确实不行啊，我话说死了吗？你连我话都读不全呢，还在这里谈，觉得被冒犯了那还真是对不起呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1331#       发表于 2023-6-24 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“今天起你就是大岛家的一员了”，绷不住了
+
+
+*****
+
+####  poor  
+##### 1332#       发表于 2023-6-24 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61409791&amp;ptid=2050204" target="_blank">薛定谔的小猫 发表于 2023-6-24 16:58</a>
+“今天起你就是大岛家的一员了”，绷不住了
+
+省一楼，这新模式的设定也太恶劣了吧。</blockquote>
+绝对强度还是恒星高的，你觉得超肯定是因为你那两个行星的没上主力，萌新能用的人又少，所以才有这种感觉。右边那个我一个浴衣yuki（不过2凸）+原皮星罗+500减一层防都打剩血皮了，恒星我月哥主C雷队还得打两套
+
+
+*****
+
+####  范坚强  
+##### 1333#       发表于 2023-6-24 22:13
+
+<blockquote>薛定谔的小猫 发表于 2023-6-24 16:58
+“今天起你就是大岛家的一员了”，绷不住了
+
+省一楼，这新模式的设定也太恶劣了吧。</blockquote>
+这模式公开前就说了是给有一定育成程度的玩家的了
+
+而且是锁皮不是锁人啊 限a皮和限s皮这俩我甚至觉得比另外那俩容易 过了拿了防御和od甚至不用拿那两个sp就能通x了 boss可以用属性饰品打出弱点来就很简单了
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1334#       发表于 2023-6-24 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61414084&amp;ptid=2050204" target="_blank">范坚强 发表于 2023-6-24 22:13</a>
+
+这模式公开前就说了是给有一定育成程度的玩家的了
+
+而且是锁皮不是锁人啊 限a皮和限s皮这俩我甚至觉得比另 ...</blockquote>
+已经和解了，就这样吧，希望飞机社继续努力
+
+
+*****
+
+####  巴麻耒  
+##### 1335#       发表于 2023-6-25 00:27
+
+洛丽塔秒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/18a428c8ba6503f6278f53fcc86fe826/CMP_20230625002622771.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sin.yugi  
+##### 1336#       发表于 2023-6-25 02:46
+
+这模式超简单的吧，只是限定不能相同的皮，孔明四妹 A和S都能带大加攻，拐队友闭眼杀那些杂兵
+
+7A13PE@4_FQT55R7U)8NMKM_tmb.jpg
+(173.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 02:45 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/134535hhhn0hvufxwuff3h.jpg" referrerpolicy="no-referrer">
+
