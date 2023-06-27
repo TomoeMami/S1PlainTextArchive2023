@@ -6060,3 +6060,83 @@ G2夏休铁变阵了吧<img src="https://static.saraba1st.com/image/smiley/face2
 
 马修你玩不玩
 
+*****
+
+####  zpl123  
+##### 3811#       发表于 2023-6-19 17:55
+
+C9好像要签P元帅+电子哥? 小蜜蜂阿杜好像要换flamez了
+
+*****
+
+####  dev2ce  
+##### 3812#       发表于 2023-6-20 06:04
+
+两冠一亚要变阵实属没搞懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3813#       发表于 2023-6-20 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61351017&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-6-20 06:04</a>
+两冠一亚要变阵实属没搞懂但Navi要走国际阵容，液体踢🐔哥，看来是没有不可能 ...</blockquote>
+液体放🐔哥是不是na人不够了，rmr打不了美洲区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不打美洲区来鲨鱼塘欧洲区吗
+
+
+*****
+
+####  混子走天下  
+##### 3814#       发表于 2023-6-22 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">A队把gla1ve下放了
+不过应该能卖个天价吧
+
+—— 来自 Xiaomi M2007J17C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dev2ce  
+##### 3815#       发表于 2023-6-23 13:19
+
+翻天覆地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是不看好flamez来小蜜蜂前几个赛事的，没有即插即用，堪称csgo史上最佳转会的魔男去a队都磨合了好几个赛事
+至于阿杜、x9、格雷武一线赛场基本看不到了，老头乐比兄弟CS更没前途
+
+
+*****
+
+####  Rainwedell  
+##### 3816#       发表于 2023-6-23 14:03
+
+ 本帖最后由 Rainwedell 于 2023-6-23 14:04 编辑 
+
+只能说蜜蜂不打兄弟CS吧，魔男加zonic加两个冠军都保不住。。。合理是合理，火仔大家也都知道强，但没啥人情味。这次转会期各俱乐部动作都很大
+
+
+*****
+
+####  zpl123  
+##### 3817#       发表于 2023-6-23 15:28
+
+COL要签鸡哥了
+
+
+*****
+
+####  DICE20  
+##### 3818#       发表于 2023-6-23 16:02
+
+阿杜要走倒是早有心理准备的 现在哪怕现在不换过半年也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Niyah  
+##### 3819#       发表于 2023-6-24 11:17
+
+想要一个全息点子，打折之后抽了155个胶囊，一个金都没有，全息也只出了4、5个，人麻了
+
