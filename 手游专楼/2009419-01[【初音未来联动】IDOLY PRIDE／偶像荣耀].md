@@ -303,3 +303,136 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 OPPO PEGM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  最强惠酱  
+##### 787#       发表于 2023-6-23 22:55
+
+你游每次都很有仪式感，这次主页谁都不在了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  raimouse  
+##### 788#       发表于 2023-6-24 08:14
+
+整活还是一流的，就是这限定连发和各种fes前骗课遭不住啊
+
+
+*****
+
+####  krowbullet  
+##### 789#       发表于 2023-6-24 11:00
+
+又刀我，又刀我
+
+
+*****
+
+####  伊布桑  
+##### 790#         楼主| 发表于 2023-6-24 14:36
+
+最后这个麻奈混剪实属顶级，就是有点刀了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  liyropen  
+##### 791#       发表于 2023-6-24 19:09
+
+<img src="https://img.saraba1st.com/forum/202306/24/190926a1mrhzvwl2z5k3zb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-06-24-19-07-06-881_game.qualiarts.idolypride.jpg</strong> (756.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 19:09 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Destiny4073  
+##### 792#       发表于 2023-6-24 20:37
+
+<img src="https://img.saraba1st.com/forum/202306/24/203612m00483lrovq8lz34.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (307.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203632zkcakkymcljlixa5.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (349.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203635mgqppv119ygi54rl.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (398.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203638l4q8rpqkrzzq7yzp.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (410.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203641vujtc84e298n74w8.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (361.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203648w9uhzz53rqp3u3hu.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (299.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203703bglqtz632silgsre.jpg" referrerpolicy="no-referrer">
+
+<strong>idolypride-1672525559602245632-img1.jpg</strong> (486.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:37 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/203705i8a7ohfgcrdadfod.jpg" referrerpolicy="no-referrer">
+
+<strong>idolypride-1672549944958545921-img1.jpg</strong> (299.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 20:37 上传
+
+
+*****
+
+####  两个路人  
+##### 793#       发表于 2023-6-25 21:14
+
+ 本帖最后由 两个路人 于 2023-6-25 21:20 编辑 
+
+两周年免费抽，三个五星保底，没有new。看看蓝鸟上40抽出5个，70抽出8个的（啧
+
