@@ -3182,3 +3182,236 @@ box有N辛、兔子哥、豆豆帮主宝子哥、N社大槌，还有两张三星
 
 以及我之前一直都忘了ego的存在……怪不得打到第三章末尾已经开始觉得费劲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 192#       发表于 2023-6-23 15:39
+
+新卡池来啦：
+
+<img src="https://img.saraba1st.com/forum/202306/23/153225ll4gqdogw14acib1.png" referrerpolicy="no-referrer">
+
+<strong>258116875054562.png</strong> (366.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 15:32 上传
+
+<img src="https://img.saraba1st.com/forum/202306/23/153226v8vz141l8csesgt5.jpg" referrerpolicy="no-referrer">
+
+<strong>9378FDA8E5F6A1B8FD08BF8234C133F3.jpg</strong> (89.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 15:32 上传
+
+<img src="https://img.saraba1st.com/forum/202306/23/153226mhn18kdkwkxhbxy1.jpg" referrerpolicy="no-referrer">
+
+<strong>033A281D3306BF8E959DC197ABD7A52E.jpg</strong> (84.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 15:32 上传
+
+<img src="https://img.saraba1st.com/forum/202306/23/153226hzvh89j4vngpvi0n.jpg" referrerpolicy="no-referrer">
+
+<strong>2174EC848F5F9B1B24550F9A437F5B27.jpg</strong> (81.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 15:32 上传
+
+<img src="https://img.saraba1st.com/forum/202306/23/153227tx8iin8sg6d8xii6.jpg" referrerpolicy="no-referrer">
+
+<strong>9E6CEB5A2E95638CF25281186EB3BA4E.jpg</strong> (65.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 15:32 上传
+
+三星K宝，二星符咒辛。
+
+看着都很帅，不过这两位都已经有很好用的人格了，估计抽了也不一定上场...
+
+而且7月会迎来4.5章的夏活，到时候会出限定，大概率是泳装（也有可能是潜水服...）。
+
+（和大海有关的罪人是以实玛利，不过第五章是她的主场，4.5章估计不会出相关人格...奥提斯也许可以出个船长人格？实在不行就继续八大主厨鲨鱼人格好了...）
+
+总之如果不是强度爆炸的话，我姑且准备跳过了...反正第二赛季的三星十连券还没用，大不了2号轨道开启的时候赌一把...
+
+
+*****
+
+####  ヒトニナル  
+##### 193#       发表于 2023-6-23 15:55
+
+4.5章到底是不是泳装活还不好说，看它那个活动介绍重点貌似在改造宝宝巴士而不是去海边啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过泳装肯定是大家都喜欢的，没有人能拒绝.jpg
+
+
+*****
+
+####  久井路路  
+##### 194#       发表于 2023-6-23 17:03
+
+以巴士那个平均肩宽和肌肉量，我觉得还是穿多点好看（
+
+格叔和小唐开服后还没出过新的三星人格，考虑到格叔刚出玫瑰工坊人格没多久，奶一个活动人格小唐（
+
+*****
+
+####  Jamaisvu  
+##### 195#       发表于 2023-6-23 17:09
+
+ 本帖最后由 Jamaisvu 于 2023-6-23 17:10 编辑 
+<blockquote>ヒトニナル 发表于 2023-6-23 15:55
+4.5章到底是不是泳装活还不好说，看它那个活动介绍重点貌似在改造宝宝巴士而不是去海边啊
+
+不过泳装 ...</blockquote>
+“能否前往大海就看此刻！水上巴士大作战！”
+
+听名字还真是改造成水陆两用巴士，那么4.5就好像渔帆暗涌的靠岸研究修整阶段，第五章才是正经地出海打鱼...
+
+搞不好会出工坊修理工或者海事局协会之类的角色...或者像3.5从图书馆找几个熟面孔当限定也能接受...
+
+估计到第五章会有能代替驯鹿的玛丽人格吧，毕竟严格来说以实玛利也确实没有好用的（能auto战斗的）三星人格...
+
+
+*****
+
+####  Jamaisvu  
+##### 196#       发表于 2023-6-23 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61397320&amp;ptid=2120922" target="_blank">久井路路 发表于 2023-6-23 17:03</a>
+
+以巴士那个平均肩宽和肌肉量，我觉得还是穿多点好看（
+
+格叔和小唐开服后还没出过新的三星人格，考虑到格叔 ...</blockquote>
+浮士德也好久没出新人格了，3.5限定人格是小唐和浮宝的可能性应该挺大的...
+
+希望三星是小唐，W社的充能系统快用烦了。
+
+
+*****
+
+####  Yuzutea  
+##### 197#       发表于 2023-6-23 18:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道镜牢2困难和4.5开的时间会怎么搞
+
+
+*****
+
+####  Jamaisvu  
+##### 198#       发表于 2023-6-23 19:21
+
+<img src="https://img.saraba1st.com/forum/202306/23/192012bk7ssrr7eakzbfs3.png" referrerpolicy="no-referrer">
+
+<strong>227916875192042.png</strong> (361.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 19:20 上传
+
+惊了，乍一看还以为是堇紫泪滴人格，结果你告诉我一个EGO给一个人出两遍？
+
+突然对日后的卡池深度充满了绝望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太能出了吧（贬义）
+
+（期待十二罪人以后人手一个失乐园ego）
+
+
+*****
+
+####  Jamaisvu  
+##### 199#       发表于 2023-6-23 19:27
+
+开眼赤瞳良秀真是帅爆了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202306/23/192825bh11l0sx0l7ix98a.png" referrerpolicy="no-referrer">
+
+<strong>3976516875196912.png</strong> (219.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 19:28 上传
+
+
+*****
+
+####  久井路路  
+##### 200#       发表于 2023-6-23 20:50
+
+不过这个倒是相当有意思，原本是TETH异想体TETH的ego，却能够以这种“觉醒”一样的形式出HE级的升阶版。
+
+也许现在已经拥有的EGO、还有罪人们的初始EGO也会有这样的进阶形态啊，能出的新卡一下子无限多了。
+
+
+*****
+
+####  Yuzutea  
+##### 201#       发表于 2023-6-23 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二号线的数值真的不会出问题吗
+不会到时候又光速滑跪吧
+
+*****
+
+####  久井路路  
+##### 202#       发表于 2023-6-23 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61397469&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-6-23 17:16</a>
+浮士德也好久没出新人格了，3.5限定人格是小唐和浮宝的可能性应该挺大的...
+
+希望三星是小唐，W社的充能系 ...</blockquote>
+直觉告诉我应该仍然是一男一女（炸鸡活动卡池里是良秀和辛克莱，白送的是格叔和小唐）
+
+巴士的男人只剩下格叔还没有第二个三星人格，那我奶一下卡池格叔人格和浮士德TETH级ego，白送未定（
+
+
+*****
+
+####  Jamaisvu  
+##### 203#       发表于 2023-6-26 18:21
+
+新卡池前瞻：
+
+<img src="https://img.saraba1st.com/forum/202306/26/181311ubwnlgdpldldbg88.jpg" referrerpolicy="no-referrer">
+
+<strong>83019FCBC0D9370F79C2C35ACC12AF7D.jpg</strong> (102.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/181314qmm8l1rl3lm1fmfq.jpg" referrerpolicy="no-referrer">
+
+<strong>0B2806FF13EFF71C5647609C0CCC997A.jpg</strong> (399.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/181315uvkxxg5q2qqqq3vk.jpg" referrerpolicy="no-referrer">
+
+<strong>FDF2397568FA2FB6AEA33B325B97F3BA.jpg</strong> (105.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/181319o75p2ciqzoq7lava.jpg" referrerpolicy="no-referrer">
+
+<strong>0F90E075EAE60545DA63644B91BF5C23.jpg</strong> (482.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 18:13 上传
+
+K宝二技能带吸血，防御和被动是给自己打药，三技能伤害和体力以及药量有关，另外药打多了会致死...
+
+（某个潜水健将是不知道自家战斗员的装备机制吗）
+
+符辛则会给对面挂符，可以赋予破裂debuff，并且符咒叠到一定层数会全部消耗造成一次伤害。
+
+良秀的两个ego算是配套的，T级的给对面单体挂束缚和斩击脆弱，H级的则是束缚特攻AOE，速度高和回复体力的情况下也能增伤。
+
