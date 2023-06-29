@@ -7947,3 +7947,301 @@ PS：现在STEAM版本是个商业化重制版，原版只有旧篇，新章就�
 
 当看到豆瓣小组的时候，第一反应就是回避了。
 
+
+*****
+
+####  IRIS虹  
+##### 3675#       发表于 2023-4-17 07:38
+
+这第三章的黑与白的关底boss该咋打，前两章感觉难度曲线还比较平滑，装备能做的做了正常打都能过，到了第三章明显吃力了，还在用火山素材的大锤，打boss根本不掉血，那个boss a我一下三分之一血没了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  食粪者  
+##### 3676#       发表于 2023-4-17 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60486253&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2023-4-17 07:38</a>
+这第三章的黑与白的关底boss该咋打，前两章感觉难度曲线还比较平滑，装备能做的做了正常打都能过，到了第三 ...</blockquote>
+大眼球吗？用雷魔法杖
+
+
+*****
+
+####  瓦米里奥  
+##### 3677#       发表于 2023-4-17 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60486253&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2023-4-17 07:38</a>
+这第三章的黑与白的关底boss该咋打，前两章感觉难度曲线还比较平滑，装备能做的做了正常打都能过，到了第三 ...</blockquote>
+大眼球机制是火焰正常环绕时是防护盾，输出低外圈打它不掉血，等它火焰开始追着你烧时防护盾解除，直接跳到内圈本体处和它肉搏，本体无接触判定，等防护盾开始恢复时跳出来，反复几次就行
+
+
+*****
+
+####  Renkonsai  
+##### 3678#       发表于 2023-4-17 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60428880&amp;ptid=2098044" target="_blank">LClover21 发表于 2023-4-12 17:27</a>
+
+今天搜一个资料，结果百度里看到一条《神之天平》避雷：没买的快跑，能退的快退，没法退的别玩！ 的豆瓣， ...</blockquote>
+不慎点进帖子笑到我了，赔钱...
+
+
+*****
+
+####  IRIS虹  
+##### 3679#       发表于 2023-4-17 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60428880&amp;ptid=2098044" target="_blank">LClover21 发表于 2023-4-12 17:27</a>
+今天搜一个资料，结果百度里看到一条《神之天平》避雷：没买的快跑，能退的快退，没法退的别玩！ 的豆瓣， ...</blockquote>
+蚌埠住了，很久没用过豆瓣了，游戏区还是一如既往的恶臭
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  火的意志  
+##### 3680#       发表于 2023-4-17 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60428880&amp;ptid=2098044" target="_blank">LClover21 发表于 2023-4-12 17:27</a>
+今天搜一个资料，结果百度里看到一条《神之天平》避雷：没买的快跑，能退的快退，没法退的别玩！ 的豆瓣， ...</blockquote>
+豆瓣那個女性啥啥小组全是这个味，荒野之息老头环p5全给她们批判过一次，还号召大家玩二手玩盗版来让厂商亏本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+所以现在坚决不站什么女权
+
+
+*****
+
+####  IRIS虹  
+##### 3681#       发表于 2023-4-20 15:16
+
+ 本帖最后由 IRIS虹 于 2023-4-20 15:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202304/20/151626wdnwort8u18mwc8c.jpg" referrerpolicy="no-referrer">
+
+<strong>20230420151243_1.jpg</strong> (340.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-20 15:16 上传
+
+这个血条是中啥诅咒了吗，为什么被怪a到就死
+
+
+*****
+
+####  doymylove  
+##### 3682#       发表于 2023-4-20 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60534225&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2023-4-20 15:16</a>
+
+这个血条是中啥诅咒了吗，为什么被怪a到就死</blockquote>
+应该是装备了那个三倍攻击一摸就死的技能了，好像叫狂暴
+
+
+*****
+
+####  IRIS虹  
+##### 3683#       发表于 2023-4-20 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60534496&amp;ptid=2098044" target="_blank">doymylove 发表于 2023-4-20 15:35</a>
+
+应该是装备了那个三倍攻击一摸就死的技能了，好像叫狂暴</blockquote>
+嗷嗷嗷，感谢
+
+
+*****
+
+####  椎名mahuyo  
+##### 3684#       发表于 2023-4-22 23:18
+
+初入新章 有点迷茫 强化该强化啥？强化自己顺眼的？
+
+听说后面宝石能改变嘉隆技能和凭依技能 是不是留着素材强化他们比较好？
+
+感觉新章伤害开始不够了，怎么暴力提升啊，本传基本就靠冷弹或者火龙来触发吸血刷的
+
+
+*****
+
+####  食粪者  
+##### 3685#       发表于 2023-4-22 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60568176&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-4-22 23:18</a>
+初入新章 有点迷茫 强化该强化啥？强化自己顺眼的？
+
+听说后面宝石能改变嘉隆技能和凭依技能 是不是留着素材 ...</blockquote>
+去都市那张图刷个指令拳
+
+
+*****
+
+####  牙狼GARO  
+##### 3686#       发表于 2023-4-23 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60568176&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-4-22 23:18</a>
+初入新章 有点迷茫 强化该强化啥？强化自己顺眼的？
+
+听说后面宝石能改变嘉隆技能和凭依技能 是不是留着素材 ...</blockquote>
+带个拳套，装上增加指令盘掉落的斗技场徽章，刷出拳套指令盘，安装，这是第一步
+然后刷到有指令拳的指令盘（防具，饰品都有可能出），装上，魔力拉满，攻速拉满，见面就贴身锤，荒谬以下难度都不用动脑，带个凭依技能中挨打回血就可以站撸到新章最终boss了
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  adw667  
+##### 3687#       发表于 2023-4-23 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60568176&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-4-22 23:18</a>
+
+初入新章 有点迷茫 强化该强化啥？强化自己顺眼的？
+
+听说后面宝石能改变嘉隆技能和凭依技能 是不是留着素材 ...</blockquote>
+直接强化宝石，新章武器是看攻速和范围或者被动来选的，属性不重要，攻速和范围影响手感，被动选个占位多的省点石头，防具同理，只看被动或者外观。
+
+
+*****
+
+####  IRIS虹  
+##### 3688#       发表于 2023-4-23 23:06
+
+求教第六章卡第一个遗迹兵那里了，完全搞不懂这游戏后期难度曲线上升太快了。看了攻略才知道最好把每件武器的技能刷出来，然而我现在已经卡到这里了，也没商店可以让我升级装备。打遗迹兵就跟刮痧一样，他打我一下三分之一血。
+
+*****
+
+####  yuwe0714  
+##### 3689#       发表于 2023-4-23 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60584501&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2023-4-23 23:06</a>
+求教第六章卡第一个遗迹兵那里了，完全搞不懂这游戏后期难度曲线上升太快了。看了攻略才知道最好把每件武器 ...</blockquote>
+点那个放技能的时候被攻击回血的被动，然后带几个耗精低的技能，好了你再继续打吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IRIS虹  
+##### 3690#       发表于 2023-4-23 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60584568&amp;ptid=2098044" target="_blank">yuwe0714 发表于 2023-4-23 23:10</a>
+
+点那个放技能的时候被攻击回血的被动，然后带几个耗精低的技能，好了你再继续打吧 ...</blockquote>
+那个被动是那个武器的技能，我前期没有刷武器技能，所以没有解锁这个被动<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tansapple  
+##### 3691#       发表于 2023-4-23 23:27
+
+新章按照个人喜好去玩就好，不要一上来就玩指令拳，这样只会变的毫无游戏体验<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuwe0714  
+##### 3692#       发表于 2023-4-23 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60584656&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2023-4-23 23:17</a>
+那个被动是那个武器的技能，我前期没有刷武器技能，所以没有解锁这个被动 ...</blockquote>
+回头慢慢刷杂兵吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  quanlix  
+##### 3693#       发表于 2023-4-25 22:11
+
+<img src="https://img.saraba1st.com/forum/202304/25/220919vhz4btpmnsoqwzhr.gif" referrerpolicy="no-referrer">
+
+<strong>GIF.gif</strong> (627.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-4-25 22:09 上传
+
+逛推看シガタケ发了个外传主人公的新旧对比图，不知道dlc啥时候能做完
+
+
+*****
+
+####  otakun  
+##### 3694#       发表于 2023-4-25 23:05
+
+旧版看着好壮…果然是能打的
+
+
+*****
+
+####  椎名mahuyo  
+##### 3695#       发表于 2023-4-26 08:09
+
+也掉了不少装备盘了，这装备盘上的配置是都随机的？还是总有些固定属性？比如说断钢圣剑就固定有无限开箱？另外掉落有没有倾向，比如你魔力高法杖打怪就容易掉魔法饰品和法杖的装备盘？
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adw667  
+##### 3696#       发表于 2023-4-26 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60615504&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-4-26 08:09</a>
+
+也掉了不少装备盘了，这装备盘上的配置是都随机的？还是总有些固定属性？比如说断钢圣剑就固定有无限开箱？ ...</blockquote>
+体感是全随机的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bobsaint  
+##### 3697#       发表于 2023-4-26 08:39
+
+前几天通了  剧情很好  只不过堆怪比较严重
+
+
+*****
+
+####  tansapple  
+##### 3698#       发表于 2023-4-26 09:50
+
+新版的面包房姑娘抖的好厉害<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  praetorian  
+##### 3699#       发表于 2023-4-28 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60615504&amp;ptid=2098044" target="_blank">椎名mahuyo 发表于 2023-4-26 08:09</a>
+
+也掉了不少装备盘了，这装备盘上的配置是都随机的？还是总有些固定属性？比如说断钢圣剑就固定有无限开箱？ ...</blockquote>
+应该和装备的基础属性有关系，武器出攻击力重量相关的属性概率高，盾牌出防御格挡重量相关的概率高，衣服出防御体力精力魔导相关的概率高，属性相关的应该算是能力元件，其他的算是特殊元件。特殊元件这个没看出规律来，饰品也是出本身基础属性相关的概率高，那几个勋章只加幸运就基本都是出加幸运的装备盘。
+
+
+*****
+
+####  王一唯不傲娇  
+##### 3700#       发表于 2023-6-25 01:10
+
+个人感觉第四章最好，第六章最烂，六七八体感最差，除了第八章结局还行，新章其实还凑合，其实填了之前很多世界观的坑
+
+就是有一点我无法理解
+
+按照神话那本书里的说法，诸神大部分离开了，这些神去哪了？如果原版还能当背景故事的话，新章追加了这个誓戒猎神的新设定。。。
+
+虽然这填了一些坑，但是造了另外一个大坑——女神一开始说是最后站在人类身边的神，但是誓戒毁灭的首先就是神自己啊？俄日额其他神都在等死吗
+
+*****
+
+####  王一唯不傲娇  
+##### 3701#       发表于 2023-6-25 01:14
+
+ 本帖最后由 王一唯不傲娇 于 2023-6-25 01:15 编辑 
+
+原版叙事上最大的问题我个人感觉是，经过6-8章阿努莉丝一套弱智操作，玩家百分之一千会对这个女主角有很大的不满，尤其是中间第七章还必须选女主放弃嘉隆才能走剧情，这段反过来看会显得主角很恋爱脑，我相信大部分玩家如果阿努莉丝和嘉隆二选一的话肯定是会选嘉隆的
+
+甚至第八章小鬼也有高光，我感觉阿努利斯在原版结局可能还不如小鬼的塑造强
+

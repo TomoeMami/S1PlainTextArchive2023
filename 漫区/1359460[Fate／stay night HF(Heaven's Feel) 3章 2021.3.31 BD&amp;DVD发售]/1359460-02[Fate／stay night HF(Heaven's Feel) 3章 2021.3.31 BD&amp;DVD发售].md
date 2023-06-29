@@ -12203,3 +12203,78 @@ BD已经发行了啊。
 
 魔术师工房的迷失之蝶和春之歌还出吗？
 
+
+*****
+
+####  smallstep  
+##### 2663#       发表于 2023-6-21 17:47
+
+叔叔家上了
+
+
+*****
+
+####  TheSorrows  
+##### 2664#       发表于 2023-6-21 19:00
+
+上B站了，而且似乎目前还没删减
+
+
+*****
+
+####  smallstep  
+##### 2665#       发表于 2023-6-21 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61373969&amp;ptid=1359460" target="_blank">TheSorrows 发表于 2023-6-21 19:00</a>
+上B站了，而且似乎目前还没删减</blockquote>
+第三章本来也没啥可删减的吧
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 2666#       发表于 2023-6-21 22:59
+
+这两年开始加大严控十字教的力度，本来有点怕会不会把言峰的一些剧情画面切得七零八落，不过现在来看这方面的应该完全没改动。
+
+
+*****
+
+####  s0534146  
+##### 2667#       发表于 2023-6-22 03:01
+
+什么时候出个bdbox考虑收藏一波
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  幽远ghofar  
+##### 2668#       发表于 2023-6-22 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61377328&amp;ptid=1359460" target="_blank">茴香蚪的马甲 发表于 2023-6-21 22:59</a>
+
+这两年开始加大严控十字教的力度，本来有点怕会不会把言峰的一些剧情画面切得七零八落，不过现在来看这方面 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内对十字教其实没怎么管的，毕竟在国内实在不成气候，你会产生严控十字教的错觉也就只有DNF想走邪道被故意针对了。而且麻婆这个十字教的是个纯纯反派，更没有管的理由了。JOJO的普奇神父也是同理。
+
+
+*****
+
+####  Icskari  
+##### 2669#       发表于 2023-6-22 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61379658&amp;ptid=1359460" target="_blank">幽远ghofar 发表于 2023-6-22 03:26</a>
+国内对十字教其实没怎么&amp;#x ...</blockquote>
+religion sinicization了解一下
+
+
+*****
+
+####  影伴光生  
+##### 2670#       发表于 2023-6-22 19:29
+
+枪版的时候看了一遍，BD出的时候独自看了一遍，去基友家又一块看了一遍，现在阿b上了又是一遍——每遍都有新感受，要从玩过原作的角度来说是仍然有点遗憾的，但是已经很好了
+
+—— 来自 vivo V2154A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
