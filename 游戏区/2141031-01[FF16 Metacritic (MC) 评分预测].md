@@ -808,3 +808,17 @@ se这破厂确实不如卡普空远矣
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭准确率还可以啊
 
+*****
+
+####  blackll7  
+##### 92#       发表于 2023-6-27 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看起来现在不是黑人的问题了。
+
+*****
+
+####  hallowilliam  
+##### 93#       发表于 2023-6-27 16:22
+
+85~89区间太大了，这准确率没啥好说的。。。
+
