@@ -880,3 +880,35 @@ ABEMA・ニコニコ生放送
 
 做不出就别接啊，不要又延期到年底
 
+*****
+
+####  Piano-Forest  
+##### 86#         楼主| 发表于 2023-6-27 19:36
+
+角色PV1：[https://youtu.be/MBsNWF3wQDs](https://youtu.be/MBsNWF3wQDs)
+
+
+*****
+
+####  普通路过村民  
+##### 87#       发表于 2023-6-27 20:55
+
+怎么顶上来了 原来漫区有楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leliel  
+##### 88#       发表于 2023-6-27 20:57
+
+这动画是只有一集？
+
+*****
+
+####  普通路过村民  
+##### 89#       发表于 2023-6-27 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61457235&amp;ptid=2086574" target="_blank">Leliel 发表于 2023-6-27 20:57</a>
+
+这动画是只有一集？</blockquote>
+约55分钟的特别篇 不知道放完后会不会宣布tv<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
