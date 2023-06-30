@@ -426,3 +426,10 @@ BD全卷特典有u149的衣服<img src="https://static.saraba1st.com/image/smile
 <img src="https://p.inari.site/guest/23-06/13/64887d3f2b1df.jpg" referrerpolicy="no-referrer">
 <img src="https://p.inari.site/guest/23-06/13/64887d4b0b4ff.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  kobushi  
+##### 5392#       发表于 2023-6-27 16:46
+
+A组1月，B组6月底，CD组的活动能赶在今年内出完吗
+
