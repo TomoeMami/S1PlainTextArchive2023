@@ -2826,3 +2826,1322 @@ ROG 玩家国度宣布将在 6 月 13 日 20:00 举办 ROG 新品发布会，发
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  KosHaruhi  
+##### 271#       发表于 2023-6-13 12:32
+
+因为之前买幻X的时候就正好买了套装版带XGmobile3080版，现在正好对这玩意有点心动，但是有点纠结续航问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dududa  
+##### 272#       发表于 2023-6-13 12:44
+
+我也是，当时为幻13买了个xgmobile3080，现在不咋用还卖不出去，就寻思rog ally看能不能用上
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  crosz1985  
+##### 273#       发表于 2023-6-13 20:27
+
+国行价格出了4999
+[https://item.jd.com/100058658133.html](https://item.jd.com/100058658133.html)
+
+*****
+
+####  lighttt  
+##### 274#       发表于 2023-6-13 20:32
+
+4999，还可以啊
+
+
+*****
+
+####  shirolin  
+##### 275#       发表于 2023-6-13 20:35
+
+<img src="https://img.saraba1st.com/forum/202306/13/203516o3y6zan0p01ggdag.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2023061320_2758_7700.jpg</strong> (101.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-13 20:35 上传
+
+*****
+
+####  大江户战士  
+##### 276#       发表于 2023-6-13 20:35
+
+这价格必然耍猴了，不加价肯定买不到
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  crosz1985  
+##### 277#       发表于 2023-6-13 20:41
+
+这玩意儿能接显示器吗
+
+
+*****
+
+####  医生狼多  
+##### 278#         楼主| 发表于 2023-6-13 20:45
+
+4999爆杀其他win掌机了
+买得到的话
+
+*****
+
+####  医生狼多  
+##### 279#         楼主| 发表于 2023-6-13 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61272136&amp;ptid=2127262" target="_blank">crosz1985 发表于 2023-6-13 20:41</a>
+这玩意儿能接显示器吗</blockquote>
+自己接个拓展坞随便弄，本质一台pc
+
+
+*****
+
+####  onezer0618  
+##### 280#       发表于 2023-6-13 20:54
+
+百分之耍猴了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  tillnight  
+##### 281#       发表于 2023-6-13 20:54
+
+这价别国产掌机了，sd也被秒了。
+
+*****
+
+####  fantuanxiaoyi  
+##### 282#       发表于 2023-6-13 20:57
+
+又要耍猴了。。。
+
+
+*****
+
+####  bobsaint  
+##### 283#       发表于 2023-6-13 21:12
+
+这价格比想象中的低啊
+
+
+*****
+
+####  伊克路西安  
+##### 284#       发表于 2023-6-13 21:14
+
+能关核了吗
+
+*****
+
+####  脚本水平  
+##### 285#       发表于 2023-6-13 21:14
+
+估计无限耍猴了 价格太低了
+
+*****
+
+####  脚本水平  
+##### 286#       发表于 2023-6-13 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61272543&amp;ptid=2127262" target="_blank">伊克路西安 发表于 2023-6-13 21:14</a>
+
+能关核了吗</blockquote>
+可以了
+
+*****
+
+####  4ckc  
+##### 287#       发表于 2023-6-13 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61272184&amp;ptid=2127262" target="_blank">医生狼多 发表于 2023-6-13 20:45</a>
+4999爆杀其他win掌机了
+买得到的话</blockquote>
+sd不谈，起码我眼里爆杀不了gpdwinmax2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+需求赛道不一样
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yamato gun  
+##### 288#       发表于 2023-6-13 21:19
+
+耍猴预定
+
+
+*****
+
+####  requiem116  
+##### 289#       发表于 2023-6-13 21:29
+
+神差鬼使点了个预约<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BallanceHZ  
+##### 290#       发表于 2023-6-13 22:01
+
+好🐒
+
+*****
+
+####  伊克路西安  
+##### 291#       发表于 2023-6-13 22:01
+
+秒无
+
+—— 来自 motorola moto g(100), Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lighttt  
+##### 292#       发表于 2023-6-13 22:01
+
+没货咯
+
+*****
+
+####  医生狼多  
+##### 293#         楼主| 发表于 2023-6-13 22:01
+
+0.05秒没货<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 294#       发表于 2023-6-13 22:02
+
+纯纯的耍猴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 295#       发表于 2023-6-13 22:02
+
+果然耍猴
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  leavan  
+##### 296#       发表于 2023-6-13 22:02
+
+耍猴
+
+
+*****
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 297#       发表于 2023-6-13 22:03
+
+这种大概要多久可以原价随便买？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BallanceHZ  
+##### 298#       发表于 2023-6-13 22:05
+
+每次这种耍猴的时候就想起cook的好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  汝者  
+##### 299#       发表于 2023-6-13 22:05
+
+真恶心 这种玩意也耍猴 
+
+*****
+
+####  fantuanxiaoyi  
+##### 300#       发表于 2023-6-13 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61273224&amp;ptid=2127262" target="_blank">龘䶛䨻䎱㸞蚮䡶 发表于 2023-6-13 22:03</a>
+
+这种大概要多久可以原价随便买？
+
+—— 来自 S1Fun</blockquote>
+这掌机缺点明显，就是续航尿崩。
+
+等第一波尝鲜完就差不多了。
+
+
+*****
+
+####  dududa  
+##### 301#       发表于 2023-6-13 22:06
+
+哈哈，我买着了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  恋妖壶  
+##### 302#       发表于 2023-6-13 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61273269&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-13 22:06</a>
+
+哈哈，我买着了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+牛啊，竟然还真能有买着的
+
+*****
+
+####  广东侠  
+##### 303#       发表于 2023-6-13 22:10
+
+今年华硕终极耍猴，不过这个东西确实是厉害，本身便携性足够，性能足够，甚至连接显示器当个nuc也是很好的，4999神价了
+
+*****
+
+####  医生狼多  
+##### 304#         楼主| 发表于 2023-6-13 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61273269&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-13 22:06</a>
+哈哈，我买着了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+天选啊，慕了
+
+
+*****
+
+####  lighttt  
+##### 305#       发表于 2023-6-13 22:48
+
+10点半很多没付款的放了不少货。。<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Midnight.Coup  
+##### 306#       发表于 2023-6-13 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61272280&amp;ptid=2127262" target="_blank">tillnight 发表于 2023-6-13 20:54</a>
+这价别国产掌机了，sd也被秒了。</blockquote>
+Steamdeck核心是SteamOS，其他家要用只能用仿品
+二者，ROG 这个 U 其实不太行，按极客湾的测试用 Z1 应该更好，性能最后没比 Deck 提升太多，价格倒是高了一截
+拿来做有电池的 NUC 可能更适合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unbalanced  
+##### 307#       发表于 2023-6-14 03:53
+
+已经入手了，明显比牛子轻，但握把比牛子小，还是g胖的牛子握着舒服。不插电没法开机，只能等下班了
+
+
+*****
+
+####  ultraseven  
+##### 308#       发表于 2023-6-14 06:59
+
+屏幕对比Steam Deck有种Switch升级OLED的感觉，很多评测也提过了，风扇声非常小。
+
+
+*****
+
+####  Mchaos  
+##### 309#       发表于 2023-6-14 07:08
+
+考虑买回来把幻13换掉，主要就玩黄油，偶尔接电脑办个公啥的<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  九味小吃  
+##### 310#       发表于 2023-6-14 07:29
+
+估计Win掌机没那么大需求，说不定新鲜度过去后会有不少出二手的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  九味小吃  
+##### 311#       发表于 2023-6-14 07:29
+
+风怒
+
+
+*****
+
+####  Re.Troy  
+##### 312#       发表于 2023-6-14 08:27
+
+到货了，这屏幕，感觉世界都清晰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blueelf  
+##### 313#       发表于 2023-6-14 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61273956&amp;ptid=2127262" target="_blank">Midnight.Coup 发表于 2023-6-13 22:53</a>
+
+Steamdeck核心是SteamOS，其他家要用只能用仿品
+
+二者，ROG 这个 U 其实不太行，按极客湾的测试用 Z1 应该 ...</blockquote>
+你对SteamOS是不是有什么不切实际的幻想？
+
+
+*****
+
+####  caicaicai  
+##### 314#       发表于 2023-6-14 09:25
+
+<blockquote>Re.Troy 发表于 2023-6-14 08:27
+到货了，这屏幕，感觉世界都清晰了</blockquote>
+能试试接显示器办公怎么样，可以的话我就把笔记本出了。
+
+
+*****
+
+####  Fuero  
+##### 315#       发表于 2023-6-14 09:36
+
+玩暗黑4续航比牛子还短一小时…但有快充，整体有点尴尬
+
+*****
+
+####  bypass  
+##### 316#       发表于 2023-6-14 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277193&amp;ptid=2127262" target="_blank">blueelf 发表于 2023-6-14 09:22</a>
+
+你对SteamOS是不是有什么不切实际的幻想？</blockquote>
+我<strong>个人</strong>倒是挺认同他的看法了，SteamOS 不能说是所有或者最大，但也是卖点之一，兼容性是一个问题，但是易用性又找回了一些，Windows 配合大屏幕模式也做不到 SteamOS 这么舒服。
+
+
+*****
+
+####  Yason  
+##### 317#       发表于 2023-6-14 09:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真有人抢到了啊
+
+*****
+
+####  bypass  
+##### 318#       发表于 2023-6-14 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277593&amp;ptid=2127262" target="_blank">Yason 发表于 2023-6-14 09:46</a>
+
+真有人抢到了啊</blockquote>
+
+我呀 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 没抢，当时朋友提了一嘴，我就去京东看了一下，刚好有货……
+
+<img src="https://img.saraba1st.com/forum/202306/14/094946dlc4orxrzx4r4b26.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-14 09:49 上传
+
+
+*****
+
+####  泰坦失足  
+##### 319#       发表于 2023-6-14 09:53
+
+看了几个视频, SteamDeck屏幕真是惊人的烂. 
+
+*****
+
+####  泰坦失足  
+##### 320#       发表于 2023-6-14 09:53
+
+看了几个视频, 一对比下来 SteamDeck屏幕真是惊人的烂. 
+
+*****
+
+####  Yason  
+##### 321#       发表于 2023-6-14 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277657&amp;ptid=2127262" target="_blank">bypass 发表于 2023-6-14 09:50</a>
+我呀  没抢，当时朋友提了一嘴，我就去京东看了一下，刚好有货……</blockquote>
+慕了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blueelf  
+##### 322#       发表于 2023-6-14 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277456&amp;ptid=2127262" target="_blank">bypass 发表于 2023-6-14 09:39</a>
+
+我个人倒是挺认同他的看法了，SteamOS 不能说是所有或者最大，但也是卖点之一，兼容性是一个问题，但是易 ...</blockquote>
+最大的好处就是社区的按键修改方案，其他的跟WIN比也没易用到哪里
+
+
+*****
+
+####  Midnight.Coup  
+##### 323#       发表于 2023-6-14 10:06
+
+ 本帖最后由 Midnight.Coup 于 2023-6-14 10:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277193&amp;ptid=2127262" target="_blank">blueelf 发表于 2023-6-14 09:22</a>
+
+你对SteamOS是不是有什么不切实际的幻想？</blockquote>SteamOS 比 Win 在掌机这小屏幕上管理/打游戏上好用，自定义设置多样且方便，wine+proton 的方案在老游戏的兼容性甚至性能上比 Win11 优秀，DX11 游戏表现肯定还是 Win11 好，DX12/Vulkan 的相对接近
+
+另外就是 SteamDeck 依然是 SteamOS 3 唯一适配的硬件，所以不要有能刷基于 archlinux 加上 SteamOS 3 里的组件的系统就能完美取代 SteamDeck 的想法
+
+这机子当成 5000 买一台扁平 NUC 大小的 7840U 笔电还是性价比不错的，然而没货耍猴呢。Type-C 一线接显示器，显示器要是带 USB 口还能省个拓展坞。
+
+*****
+
+####  Re.Troy  
+##### 324#       发表于 2023-6-14 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277225&amp;ptid=2127262" target="_blank">caicaicai 发表于 2023-6-14 09:25</a>
+能试试接显示器办公怎么样，可以的话我就把笔记本出了。</blockquote>
+外接显示器办公肯定没问题的，甚至预装了office三件套<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blueelf  
+##### 325#       发表于 2023-6-14 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61277932&amp;ptid=2127262" target="_blank">Midnight.Coup 发表于 2023-6-14 10:06</a>
+
+SteamOS 比 Win 在掌机这小屏幕上管理/打游戏上好用，自定义设置多样且方便，wine+proton 的方案在老游戏 ...</blockquote>
+RM游戏的音源问题到现在都没解决吧，兼容性真的不咋样，比兼容，无论如何都比WIN差
+
+我的SD上也装了WIN，现在开WIN的时间不比用steamos的时间少了
+
+刚才说了steamos最大的优点也就是社区的手柄布局方案，一键改布局确实方便
+
+
+*****
+
+####  看了十分感动  
+##### 326#       发表于 2023-6-14 10:57
+
+ 本帖最后由 看了十分感动 于 2023-6-14 10:58 编辑 
+
+重复了，无视
+
+*****
+
+####  看了十分感动  
+##### 327#       发表于 2023-6-14 10:57
+
+10点抢购失败，11点45左右刷了出来买到了，估计是别人没付款退出来的，不知道能不能16号按时发货<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Re.Troy  
+##### 328#       发表于 2023-6-14 11:40
+
+玩了一下午，感觉软件问题还是比较大，现在比较突出的一个是没有实体xbox键，设置了映射也没有反应
+
+*****
+
+####  rak1  
+##### 329#       发表于 2023-6-14 11:43
+
+又开新预约了，明晚8点开抢，有货不放搁这耍猴
+
+
+*****
+
+####  bypass  
+##### 330#       发表于 2023-6-14 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61279553&amp;ptid=2127262" target="_blank">Re.Troy 发表于 2023-6-14 11:40</a>
+
+玩了一下午，感觉软件问题还是比较大，现在比较突出的一个是没有实体xbox键，设置了映射也没有反应 ...</blockquote>
+我之前用 Aya 也有类似的问题，没有 Xbox 大概是因为授权的缘故吧，但是不给映射就…很难受。
+
+
+*****
+
+####  酷乐  
+##### 331#       发表于 2023-6-14 11:57
+
+ 本帖最后由 酷乐 于 2023-6-14 12:02 编辑 
+
+4895，可以用PLUS的1200减50券，支付时有1000减5的农行信用卡券，同时京粉还有1%的返利。
+
+
+*****
+
+####  Midnight.Coup  
+##### 332#       发表于 2023-6-14 12:19
+
+ 本帖最后由 Midnight.Coup 于 2023-6-14 12:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61278698&amp;ptid=2127262" target="_blank">blueelf 发表于 2023-6-14 10:50</a>
+
+RM游戏的音源问题到现在都没解决吧，兼容性真的不咋样，比兼容，无论如何都比WIN差
+
+我的SD上也装了WIN，现 ...</blockquote>
+RM游戏的音源问题具体指什么，搜下了wine论坛，RPG Maker MV 没有声音这个？
+
+老游戏的兼容性上 wine 相当于直接给游戏一个 xp 甚至 98 的 api 环境，不少要去 win11/10 上跑还要额外补丁还不如 wine 里面跑的舒服，不存在“无论如何都比WIN差”
+
+SteamOS 3 的 UI 界面也比 Win 上用 Steam 大屏模式舒服啊，不然微软内部的 Hack 活动上也不会有人设计一个类 Xbox 的游戏模式 UI
+
+
+*****
+
+####  大江户战士  
+##### 333#       发表于 2023-6-14 14:07
+
+我天天用sd玩黄油，只有少部分会有兼容性问题
+
+
+*****
+
+####  关二爷  
+##### 334#       发表于 2023-6-14 14:20
+
+性能模式一小时？
+
+
+*****
+
+####  那由  
+##### 335#       发表于 2023-6-14 16:21
+
+<img src="https://img.saraba1st.com/forum/202306/14/162054izsoq08szbub3oqu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>57b91b5e7141fd74d5d3b03e2ace3983.jpeg</strong> (81.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-14 16:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unbalanced  
+##### 336#       发表于 2023-6-14 17:03
+
+<img src="https://img.saraba1st.com/forum/202306/14/170104qa4iuccuizu2la55.jpg" referrerpolicy="no-referrer">
+
+<strong>-1d7f5f4169ef18fa.jpg</strong> (526 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-6-14 17:01 上传
+
+屏幕相对牛子简直降维打击。
+
+d4 1080p中画质fsr质量档 25瓦模式有70帧，性能不错，15w都有60帧，但有蜜汁卡顿。10w模式没法玩
+
+
+*****
+
+####  Mchaos  
+##### 337#       发表于 2023-6-14 22:34
+
+屏幕比sd强很多啊，看着<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  breezeohoh  
+##### 338#       发表于 2023-6-15 04:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61284192&amp;ptid=2127262" target="_blank">unbalanced 发表于 2023-6-14 18:03</a>
+屏幕相对牛子简直降维打击。
+
+d4 1080p中画质fsr质量档 25瓦模式有70帧，性能不错，15w都有60帧，但有蜜汁卡 ...</blockquote>
+简直吊打<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大江户战士  
+##### 339#       发表于 2023-6-15 05:45
+
+ 本帖最后由 大江户战士 于 2023-6-15 05:51 编辑 
+
+可惜没有触控板，用过win掌机和sd之后我觉得哪怕只有一个触控板也是质的飞跃
+
+大概是为了重量砍了吧，但是触控板我觉得必须得有，等下一代看看吧
+
+
+*****
+
+####  mjzs07  
+##### 340#       发表于 2023-6-15 07:57
+
+这玩意是lcd？
+
+
+*****
+
+####  Mchaos  
+##### 341#       发表于 2023-6-15 20:04
+
+一秒无<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  酷乐  
+##### 342#       发表于 2023-6-15 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61290554&amp;ptid=2127262" target="_blank">mjzs07 发表于 2023-6-15 07:57</a>
+
+这玩意是lcd？</blockquote>
+
+记错了
+
+
+*****
+
+####  bypass  
+##### 343#       发表于 2023-6-18 10:37
+
+不要升级最新的 BIOS：
+ <blockquote>A new BIOS update, specifically version 319, has been getting reports of actually decreasing performance of games being played on the ASUS ROG Ally. Brought to our attention by Fan the Deck, who also tested and confirmed this, the new BIOS update seems to cut performance in games up to 33% on higher clock speeds (Turbo Mode).
+
+319 版本的 BIOS，据称会降低游戏性能。博主 Fan the Deck 同样证实了新的 BIOS 更新在高时钟频率（Turbo 模式）下最多会削弱 33% 的游戏性能 。</blockquote>
+
+
+*****
+
+####  dududa  
+##### 344#       发表于 2023-6-18 14:53
+
+我分别用sd和rog ally玩刺客信条，sd锁40帧，有时降到35帧我就能很明显地感受到卡顿，rog ally不锁帧，在50到35帧之间波动，但却不太能感受到卡顿，很丝滑的感觉，这是rog宣传的那个freesync的作用吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  liaojings1  
+##### 345#       发表于 2023-6-18 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61331226&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-18 14:53</a>
+
+我分别用sd和rog ally玩刺客信条，sd锁40帧，有时降到35帧我就能很明显地感受到卡顿，rog ally不锁帧，在50 ...</blockquote>
+SD有帧延迟曲线监控，你看看是不是爆了，可以尝试降低GPU频率，叫CPU吃点功耗提高频率。
+
+反而我rog ally打日式一个游戏50-60fps，感觉帧率跳帧波动，不稳定 不丝滑，还专门去amd控制台看了，sync模式是优化。
+
+
+*****
+
+####  dududa  
+##### 346#       发表于 2023-6-18 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61331386&amp;ptid=2127262" target="_blank">liaojings1 发表于 2023-06-18 15:10:55</a>
+SD有帧延迟曲线监控，你看看是不是爆了，可以尝试降低GPU频率，叫CPU吃点功耗提高频率。
+
+反而我rog ally ...</blockquote>好像更新后关核选项就没了，应该是关核还没调试好吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  xzzfft  
+##### 347#       发表于 2023-6-18 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61331226&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-18 14:53</a>
+
+我分别用sd和rog ally玩刺客信条，sd锁40帧，有时降到35帧我就能很明显地感受到卡顿，rog ally不锁帧，在50 ...</blockquote>
+当帧率低于显示器的最小刷新率时，低帧率补偿 (LFC) 将启动 FreeSync（游戏智能显示）技术。 当帧率降到显示器的最小刷新率以下时，会复制并多次显示帧，以便可以达到显示器刷新率范围。 例如，如果显示器的刷新率是 60 – 144Hz，对于以 40 FPS 运行的游戏，能够通过以两倍的帧率同步，从而以 80 Hz 的频率显示。 带 LFC 的显示器可有效消除最小刷新率限制。 FreeSync Premium 和 FreeSync Premium Pro 级别的所有显示器均已通过认证，符合 LFC 强制性要求。
+
+
+*****
+
+####  dududa  
+##### 348#       发表于 2023-6-20 01:52
+
+我拿rog掌机玩地平线4根本进不去，每次到加载页面就会闪退，有和我一样情况的吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Re.Troy  
+##### 349#       发表于 2023-6-22 04:39
+
+已经退了，别的什么都好，开机都得重试好几次甚至得插电才能开机，等成熟点再说吧，真是舍不得这块屏幕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unbalanced  
+##### 350#       发表于 2023-6-22 05:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61379814&amp;ptid=2127262" target="_blank">Re.Troy 发表于 2023-6-22 04:39</a>
+
+已经退了，别的什么都好，开机都得重试好几次甚至得插电才能开机，等成熟点再说吧，真是舍不得这块屏幕[f:0 ...</blockquote>
+你这是品控问题吧,我开机好好的
+
+
+*****
+
+####  Re.Troy  
+##### 351#       发表于 2023-6-22 06:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61379870&amp;ptid=2127262" target="_blank">unbalanced 发表于 2023-6-22 05:16</a>
+你这是品控问题吧,我开机好好的</blockquote>
+应该是，本来想换的，reddit上看别人同样也是换货解决，但是想想也不是刚需就退了，反正现在好像也不缺货要再买就是了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  falloutfan  
+##### 352#       发表于 2023-6-22 19:24
+
+请教下，这可以拿来玩ns和ps2的模拟器吗
+
+
+*****
+
+####  unbalanced  
+##### 353#       发表于 2023-6-23 05:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61379962&amp;ptid=2127262" target="_blank">Re.Troy 发表于 2023-6-22 06:15</a>
+
+应该是，本来想换的，reddit上看别人同样也是换货解决，但是想想也不是刚需就退了，反正现在好像也不缺货 ...</blockquote>
+也是,等黑五了bug修得差不多了买更好. 那块屏跟dick比起来是好太多,但和电脑显示屏比比感觉也就那样
+
+
+*****
+
+####  navarra  
+##### 354#       发表于 2023-6-23 07:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61386291&amp;ptid=2127262" target="_blank">falloutfan 发表于 2023-6-22 19:24</a>
+
+请教下，这可以拿来玩ns和ps2的模拟器吗</blockquote>
+连steamdeck都可以......这个当然不在话下了
+
+
+*****
+
+####  lubu  
+##### 355#       发表于 2023-6-23 08:06
+
+退了，我这台一开机就有轻微的电流声，玩的我闹心。并且我看别人1080p中画质60fps，我这台怎么设置都是卡的要命，25w低画质720p都不稳60，玩的很闹心，换回sd一切舒服多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">退的时候店员还同我聊这台机子最近很多人都在退，看样子很快就能等到打折。。。
+
+*****
+
+####  rak1  
+##### 356#       发表于 2023-6-23 08:10
+
+尝鲜的人大概率一上手玩几分钟就退烧，操作门槛直接劝退很大一部分人。
+
+
+*****
+
+####  Mchaos  
+##### 357#       发表于 2023-6-23 20:55
+
+看楼友这说法感觉价格崩盘等不了多久了，感觉我可以不急着抢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  83913536  
+##### 358#       发表于 2023-6-24 16:28
+
+到货了，试了几款游戏，只能说作为掌机，和steam deck的差距比较大
+
+
+*****
+
+####  02031f84  
+##### 359#       发表于 2023-6-24 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61409429&amp;ptid=2127262" target="_blank">83913536 发表于 2023-6-24 16:28</a>
+到货了，试了几款游戏，只能说作为掌机，和steam deck的差距比较大</blockquote>
+请细说，是比sd强还是弱？
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  83913536  
+##### 360#       发表于 2023-6-25 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61409600&amp;ptid=2127262" target="_blank">02031f84 发表于 2023-6-24 16:44</a>
+
+请细说，是比sd强还是弱？
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+SD和Win掌机（包括ROG）的区别几个：
+
+1、Win掌机只能锁功耗，锁帧几乎影响不了功耗
+
+2、Win掌机没法稳定休眠唤醒，即使是ROG今天我醒来一看不知道为啥唤醒了，屏幕热得很
+
+3、SD有触摸板和4个背键，可以玩一些只支持键鼠的游戏（比如最近我在玩博德之门3）
+
+ROG优点在于散热好、风扇噪音相对低、插电性能强、周边功耗低，但是作为掌机，可惜依然解决不了低功耗和休眠的问题。
+
+
+*****
+
+####  dududa  
+##### 361#       发表于 2023-6-25 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61409600&amp;ptid=2127262" target="_blank">02031f84 发表于 2023-06-24 16:44:36</a>
+请细说，是比sd强还是弱？
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的  v2.5.2-play ...</blockquote>别听他扯淡，win掌机是可以通过锁帧调节功耗的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Mchaos  
+##### 362#       发表于 2023-6-25 15:10
+
+明天又放货了，还是打算再冲一波。虽然我只买来打黄油，但是感觉这个屏幕素质这个重量好像也没有其他选择了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  土豆麻辣人  
+##### 363#       发表于 2023-6-25 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61423319&amp;ptid=2127262" target="_blank">Mchaos 发表于 2023-6-25 01:10</a>
+ 明天又放货了，还是打算再冲一波。虽然我只买来打黄油，但是感觉这个屏幕素质这个重量好像也没有其他选择了 ...</blockquote>
+其实deck也能打不少黄油。但对民间汉化和播片比较多的兼容性不太好。
+rog打黄油感觉操作不行，没有触摸板模拟鼠标。
+
+
+*****
+
+####  navarra  
+##### 364#       发表于 2023-6-25 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61423900&amp;ptid=2127262" target="_blank">土豆麻辣人 发表于 2023-6-25 15:39</a>
+
+其实deck也能打不少黄油。但对民间汉化和播片比较多的兼容性不太好。
+
+rog打黄油感觉操作不行，没有触摸板 ...</blockquote>
+其实这么多win掌机最知道win掌机需要什么的除了sd外也就剩gpd了...虽然gpd宣发一坨x
+
+
+*****
+
+####  Mchaos  
+##### 365#       发表于 2023-6-25 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61422833&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-25 14:39</a>
+别听他扯淡，win掌机是可以通过锁帧调节功耗的
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+sd要是没有那个大灰屏我就冲了，确实见不得那个<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dududa  
+##### 366#       发表于 2023-6-25 16:35
+
+我用rog掌机一个多星期了，大致总结一下优缺点。
+rog最大优点就是硬件上的优秀，不光是性能，而是屏幕、扬声器、重量、散热等全方位的优秀。尤其是屏幕，我感触太深了，我玩sd超过半小时就会感到眼睛酸涩，而用rog玩就能好不少。作为大厂的体现，rog掌机的周边功耗也低到令人惊奇的地步，别说跟寨厂win掌机比了，甚至比sd的周边还要低，经测试12w的rog掌机耗电量和10w的sd差不多。目前来说我对rog掌机硬件唯二的抱怨一是电池太小，二是tf卡槽位置，但转念一想增大电池也意味着重量增加，可能也是取舍。
+
+与之相对，rog最大的缺点就是软件了。Windows系统不用说了，兼容性和上手难度看你怎么选了。而奥创SE得分两部分讲，一个是游戏运行时实时改变功耗、锁帧等功能的侧边小窗，还有一个是集游戏管理、系统配置等于一体的奥创SE本体。目前来说rog的侧边小窗用着还行，与sd有差距但也还算好用，但奥创SE本体用着就太次了，有卡顿、操作延迟等一大堆bug，单论游戏管理，我的评价是不如playnite，更别说steamos了。总结一下就是，在游戏过程中体验是没问题的，调功耗啥的都挺好用；但在你退出游戏后体验就会开始糟心了。只能说看rog后续会不会继续更新奥创SE吧。
+
+还有一些我个人认为无所谓，但部分人可能会很在意的缺点。一是rog掌机没有触摸板（用触摸板打游戏？）；二是win系统休眠唤醒有bug，但这个不是所有人都有，最起码我没有。
+
+至于低功耗表现，sd在5w到10w这个区间目前还是很能打，而rog的话可能要等关核功能正式上线才能在这个区间和sd打打擂台了（不一定打得过），而从11w开始大部分的游戏rog就开始反超sd了。
+
+有一点忘提了，就是驱动问题，z1e和7840u目前的驱动都很不成熟，甚至有的游戏出现6800u倒挂7840u的奇景。而sd的驱动v社更新的很勤快，小部分v社专门为其优化的游戏如卧龙啥的在sd上表现就很接近rog掌机了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  暗示我7酱  
+##### 367#       发表于 2023-6-25 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61423319&amp;ptid=2127262" target="_blank">Mchaos 发表于 2023-6-25 15:10</a>
+
+明天又放货了，还是打算再冲一波。虽然我只买来打黄油，但是感觉这个屏幕素质这个重量好像也没有其他选择了 ...</blockquote>
+讲真 gal 还是用win板， 掌机也就图一手感好
+
+
+*****
+
+####  Mchaos  
+##### 368#       发表于 2023-6-25 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61428480&amp;ptid=2127262" target="_blank">暗示我7酱 发表于 2023-6-25 19:31</a>
+讲真 gal 还是用win板， 掌机也就图一手感好</blockquote>
+我用过一段时间平板串流，一直点玻璃感觉很难受，一只手拿不住也不好操作，侧躺的时候玩屏幕大了视线很别扭，料想win板用着也差不多。所以我就是要手感好、实体键操作、屏幕别太大、一只手方便玩，另外方便携带。
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  暗示我7酱  
+##### 369#       发表于 2023-6-25 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61428806&amp;ptid=2127262" target="_blank">Mchaos 发表于 2023-6-25 19:54</a>
+
+我用过一段时间平板串流，一直点玻璃感觉很难受，一只手拿不住也不好操作，侧躺的时候玩屏幕大了视线很别 ...</blockquote>
+7寸的win还是太重了，我玩性能要求没那么高的gal直接小米平板2了，300多克。。但是SD玩的时候确实握起来舒服，就是重。实体按键确实爽，但是其实实体按键久了你就发现有点累手了，我sd后来都是用触摸板映射按键的，和触屏也没区别了
+
+
+*****
+
+####  Cielflame  
+##### 370#       发表于 2023-6-26 10:06
+
+狗东一秒没<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这玩意这么多人抢吗？还是放的货太少。。
+
+*****
+
+####  那由  
+##### 371#       发表于 2023-6-26 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61435525&amp;ptid=2127262" target="_blank">Cielflame 发表于 2023-6-26 10:06</a>
+
+狗东一秒没，这玩意这么多人抢吗？还是放的货太少。。</blockquote>
+狗东早上是1000台
+
+
+*****
+
+####  Mchaos  
+##### 372#       发表于 2023-6-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61435623&amp;ptid=2127262" target="_blank">那由 发表于 2023-6-26 10:11</a>
+狗东早上是1000台</blockquote>
+1000台一秒没，这玩意有这么多受众吗？还是说黄牛就是这么死妈
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  恋妖壶  
+##### 373#       发表于 2023-6-26 10:43
+
+进到下单页面没货，然后不退出页面一直刷，刷了半个小时刷到下架不给刷，也没捡到漏，我只有一句FXXK ROG！
+
+*****
+
+####  Mchaos  
+##### 374#       发表于 2023-6-26 10:49
+
+有本事全款预定排期发货，尼玛比隔几天耍次猴，真正想要的玩家拿不到原价货，养活一大堆加钱卖的黄牛和渠道商。一个玩具而已大不了不买，反正加钱是不可能加钱的<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  恋妖壶  
+##### 375#       发表于 2023-6-26 10:58
+
+现在抢购一结束闲鱼上就是各种散装大学生黄牛，抢一单就赚这500，就差这500是吧？跟这么多黄牛抢怎么抢得到
+
+他妈早点定价5999没这破事了，宁可5999买也不5500买黄牛
+
+
+*****
+
+####  Mchaos  
+##### 376#       发表于 2023-6-26 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61436472&amp;ptid=2127262" target="_blank">恋妖壶 发表于 2023-6-26 10:58</a>
+现在抢购一结束闲鱼上就是各种散装大学生黄牛，抢一单就赚这500，就差这500是吧？跟这么多黄牛抢怎么抢得到 ...</blockquote>
+让司马黄牛挣钱你不如杀了我，这辈子不可能让倒爷挣我一分钱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  walfeds  
+##### 377#       发表于 2023-6-26 11:31
+
+耍猴加黄牛，真恶心啊
+让司马黄牛挣钱你不如杀了我+1
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  xinfly  
+##### 378#       发表于 2023-6-26 11:55
+
+陀螺仪功能能用了么
+
+
+*****
+
+####  快乐好难123  
+##### 379#       发表于 2023-6-26 14:57
+
+rog那个4090游戏本也是这样耍猴的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  83913536  
+##### 380#       发表于 2023-6-26 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61422833&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-25 14:39</a>
+
+别听他扯淡，win掌机是可以通过锁帧调节功耗的
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+你可以自己试试或者看DF的评测，后面有一大段说锁帧了功耗无法降低
+
+*****
+
+####  rak1  
+##### 381#       发表于 2023-6-26 17:31
+
+之前看到b站那个帮优化其他win掌机的野蛮助手出ally版了，自称整机3.5w续航大增，自动关核什么的，可惜没抢到机器没办法试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  快乐鸟  
+##### 382#       发表于 2023-6-26 17:33
+
+真有人能抢到？一看预约27.1w人，我抢都不想抢了
+
+*****
+
+####  大江户战士  
+##### 383#       发表于 2023-6-26 17:39
+
+建议暂缓入手，现在系统问题很多，做工也一般，等后续质量稳定的第二代再入手吧
+
+*****
+
+####  Mchaos  
+##### 384#       发表于 2023-6-26 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61441968&amp;ptid=2127262" target="_blank">大江户战士 发表于 2023-6-26 17:39</a>
+建议暂缓入手，现在系统问题很多，做工也一般，等后续质量稳定的第二代再入手吧 ...</blockquote>
+那么现在有跟ally差不多屏幕素质和价格的成熟替代方案吗，性能都无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dududa  
+##### 385#       发表于 2023-6-26 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61441774&amp;ptid=2127262" target="_blank">83913536 发表于 2023-06-26 17:24:47</a>
+你可以自己试试或者看DF的评测，后面有一大段说锁帧了功耗无法降低</blockquote>我真的很怀疑你到底用没用过win掌机。功耗不变只是rog自己的策略，是可以通过第三方软件解锁动态功耗的，更不用说其他win掌机了，动态功耗基本属于厂家自带的。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  83913536  
+##### 386#       发表于 2023-6-26 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61442601&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-26 18:32</a>
+
+我真的很怀疑你到底用没用过win掌机。功耗不变只是rog自己的策略，是可以通过第三方软件解锁动态功耗的，更 ...</blockquote>
+有SD之后就用得不多了，以前用过的Onexplayer1、Max1锁帧就没什么效果，加上这次ROG也这样我还以为是通病呢。
+
+拿手头当笔记本用的Max2试了下，确实可以效果很明显，是我无知了。
+
+<img src="https://img.saraba1st.com/forum/202306/26/195728rt7qutjjq7c27p32.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230626185707.png</strong> (38.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/195736ajduzijs3dqo42aq.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230626185651.png</strong> (29.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 19:57 上传
+
+
+*****
+
+####  棺材叔叔  
+##### 387#       发表于 2023-6-27 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">放货一千台是个啥意思。。粗粮都没这么耍过猴
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  lucky95  
+##### 388#       发表于 2023-6-27 01:13
+
+https://bbs.saraba1st.com/2b/thread-2141801-0-1.html
+
+我刚在PC 区发的，这机子小毛病是真多，买来就是帮打人硕付费公测<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哥哥不要  
+##### 389#       发表于 2023-6-27 06:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61423900&amp;ptid=2127262" target="_blank">土豆麻辣人 发表于 2023-6-25 15:39</a>
+其实deck也能打不少黄油。但对民间汉化和播片比较多的兼容性不太好。
+rog打黄油感觉操作不行，没有触摸板 ...</blockquote>
+装win也会有兼容性问题吗
+
+
+*****
+
+####  luffyzhou  
+##### 390#       发表于 2023-6-27 08:00
+
+昨天又是秒没，手里有sd有6800u的国产机，对rog感兴趣主要是笔记本有幻16翻转和幻13，如果再有ally以后等4090的显卡坞白菜些就能通用，结果不亏是祖传耍猴硕
+
+—— 来自 samsung SM-F9360, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  大江户战士  
+##### 391#       发表于 2023-6-27 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61447363&amp;ptid=2127262" target="_blank">哥哥不要 发表于 2023-6-27 06:37</a>
+
+装win也会有兼容性问题吗</blockquote>
+没有问题，但我还是倾向于用steamos+proton兼容层的搭配，大部分gal都能适配了
+
+
+*****
+
+####  83913536  
+##### 392#       发表于 2023-6-27 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61447567&amp;ptid=2127262" target="_blank">luffyzhou 发表于 2023-6-27 08:00</a>
+
+昨天又是秒没，手里有sd有6800u的国产机，对rog感兴趣主要是笔记本有幻16翻转和幻13，如果再有ally以后等40 ...</blockquote>
+但是那显卡坞线那么短，就只是桌面用的话，不太适合掌机吧，接电视用？
+
+
+*****
+
+####  luffyzhou  
+##### 393#       发表于 2023-6-27 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61451806&amp;ptid=2127262" target="_blank">83913536 发表于 2023-6-27 13:40</a>
+但是那显卡坞线那么短，就只是桌面用的话，不太适合掌机吧，接电视用？ ...</blockquote>
+现在看就是就电视用，不过真的卖得好的话，能有商家做延长线吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+说起来对ally我也没那么迫切想要的原因也是手里的幻13 2023版配上手柄，除了不能拿在手里玩，别的其实也差不多。掌机需求的话还有sd和上一代6800u的国产机。
+对了，sd用起来挺方便的一点就是分游戏能选调整好的配置方案，ally的这块做的咋样？rog那个ac在幻13上的游戏配置调整是没啥用，掌机版的se能好些？看了一些评测视频好像没有说这个的。个人也用了一些win掌机，调整配置挺烦人的，尤其掌机不同功耗下差别挺大。
+
+—— 来自 samsung SM-F9360, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  83913536  
+##### 394#       发表于 2023-6-27 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61451926&amp;ptid=2127262" target="_blank">luffyzhou 发表于 2023-6-27 13:54</a>
+
+现在看就是就电视用，不过真的卖得好的话，能有商家做延长线吧
+
+说起来对ally我也没那么迫切想要的 ...</blockquote>
+奥创有根据游戏切换配置的功能，每个游戏还能设置插电和不插电的配置，理论上比SD更方便。
+
+但不知为何经常切换不工作...
+
+
+*****
+
+####  暗示我7酱  
+##### 395#       发表于 2023-6-27 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61442601&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-26 18:32</a>
+我真的很怀疑你到底用没用过win掌机。功耗不变只是rog自己的策略，是可以通过第三方软件解锁动态功耗的，更 ...</blockquote>
+有软件推荐吗？intel也有适配的软件吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  暗示我7酱  
+##### 396#       发表于 2023-6-27 19:12
+
+aya家那个 1215u的air plus怎么样？有买了的吗？主要是很喜欢那个模具大小。但是听说散热垃圾+小摇杆不太行。
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dududa  
+##### 397#       发表于 2023-6-27 19:16
+
+目前除了各家自己的前端，最常用的第三方应该就是体感助手了，intel适不适配就不清楚了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  暗示我7酱  
+##### 398#       发表于 2023-6-28 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61456000&amp;ptid=2127262" target="_blank">dududa 发表于 2023-6-27 19:16</a>
+目前除了各家自己的前端，最常用的第三方应该就是体感助手了，intel适不适配就不清楚了
+
+  -- 来自 能手机 ...</blockquote>
+找了个b站 大小核调度的，intel大小核默认策略真的一坨
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
