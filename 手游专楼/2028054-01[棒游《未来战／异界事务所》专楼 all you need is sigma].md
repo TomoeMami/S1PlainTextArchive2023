@@ -1119,3 +1119,12 @@ pc端没游客选项吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">连着3个保底觉醒了
 
+*****
+
+####  rgauss  
+##### 924#         楼主| 发表于 2023-6-28 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">海边的说唱歌手
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
