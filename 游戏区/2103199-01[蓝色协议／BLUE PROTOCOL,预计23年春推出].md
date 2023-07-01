@@ -8354,3 +8354,10 @@ KONAMI steam还是锁国区
 
 这游戏手柄体验不如o啊，尤其是按option以弹出的那个界面，ff14他不会学的？
 
+*****
+
+####  杂灰  
+##### 868#       发表于 2023-6-28 21:46
+
+？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
