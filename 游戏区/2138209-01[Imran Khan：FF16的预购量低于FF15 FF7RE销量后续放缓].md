@@ -1750,3 +1750,38 @@ comg榜虽然越来越药丸，但也是一个重要的参考指标，不是说�
 
 哪怕抛开15/13这些不谈，你14的6.0什么屎心里没点逼数？真以为自己口碑多好呢
 
+*****
+
+####  被击坠王  
+##### 181#       发表于 2023-6-28 22:01
+
+ 本帖最后由 被击坠王 于 2023-6-28 22:10 编辑 
+
+照这么说，FF15和离社的小甜甜要对大家进行清算，还有对FF7re和北濑、野村进行清算
+
+而FF16目前的口碑，未来依然“黑暗”，说不定后续会被反清算
+
+
+*****
+
+####  夜留歌  
+##### 182#       发表于 2023-6-28 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61407415&amp;ptid=2138209" target="_blank">烽火 发表于 2023-6-24 13:35</a>
+立本主妇的电脑带的动吗</blockquote>
+主妇玩ps4吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  烽火  
+##### 183#       发表于 2023-6-28 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61471082&amp;ptid=2138209" target="_blank">夜留歌 发表于 2023-6-28 22:51</a>
+主妇玩ps4吧
+
+—— 来自 S1Fun</blockquote>
+我还以为是要吸引打ff14的主妇
+
