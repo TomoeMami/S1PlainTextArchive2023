@@ -897,3 +897,32 @@ ai画的？
 
 赛车版小鸟之翼？
 
+*****
+
+####  Piano-Forest  
+##### 82#         楼主| 发表于 2023-6-30 17:18
+
+／
+
+新キャラクター
+
+プリマステラが追加された
+
+新ビジュアル公開🏎️
+
+＼
+
+新たに描かれた
+
+バーチャルアイドル・プリマステラの
+
+キャストも解禁⚡️
+
+光莉(ひかり)を #船戸ゆり絵 さん
+
+明莉(あかり)を #内田秀 さん
+
+に演じていただきます！
+<img src="https://p.sda1.dev/12/d683b576bd205abcb696b7b36deede81/visual6_news.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/02a9603d15ba23d113faf55d84c7f139/20230630_171627.jpg" referrerpolicy="no-referrer">
+
