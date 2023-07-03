@@ -6140,3 +6140,37 @@ COL要签鸡哥了
 
 想要一个全息点子，打折之后抽了155个胶囊，一个金都没有，全息也只出了4、5个，人麻了
 
+*****
+
+####  zpl123  
+##### 3820#       发表于 2023-6-30 23:31
+
+NAVI官宣Aleksib⁠、iM、jL加盟，并转型国际纵队。这意味着属于NAVI与电子哥共同的时代已经结束，俄罗斯步枪手为NAVI效力长达2060天，排名NAVI.CSGO分部历史第三位。s1mple与electroNic长达五年半的双爹组合成为历史。这可能是继2017年guardiaN转投FAZE之后乌克兰豪门最震撼的人员变动。NAVI的新阵容将在7月8日与Vitality的表演赛中首次亮相。
+
+*****
+
+####  Rainwedell  
+##### 3821#       发表于 2023-6-30 23:33
+
+c9那边是不是还在因为原友搞投票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，阿电过去的条件是踢原友是真绷不住了，这么想玩那指挥吗？
+
+*****
+
+####  heseran  
+##### 3822#       发表于 2023-6-30 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61498947&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2023-6-30 23:33</a>
+c9那边是不是还在因为原友搞投票，阿电过去的条件是踢原友是真绷不住了，这么想玩那指挥吗？ ...</blockquote>
+还有传言说电觉得自己在navi被教练限制指挥得不爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3823#       发表于 2023-7-1 00:06
+
+ 本帖最后由 Rainwedell 于 2023-7-1 00:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61499020&amp;ptid=1857369" target="_blank">heseran 发表于 2023-6-30 23:39</a>
+还有传言说电觉得自己在navi被教练限制指挥得不爽的</blockquote>
+虽然我觉得blade搞足球体系那套确实不合理，但是电式指挥这半年下来不就是把把被各路丹麦指挥在开局40s左右时间的中期指令环节爆掉，这也不涉及体系问题，和原友便秘也就不分伯仲。步枪手指挥转明白的其实也就豆豆一个人，楼里还老黑。
+
