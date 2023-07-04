@@ -720,3 +720,172 @@ control那边派来接头的飞艇都被王国劫持了，实在想不出control
 
 怎么停在这个地方<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">没有第四章好急
 
+*****
+
+####  shinna  
+##### 71#       发表于 2023-6-28 11:25
+
+这章过后不太可能会有和诺曼底或者理查德合作的可能性了吧。
+
+剩下三章不知道三年能不能做完，急死了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  forgetit  
+##### 72#       发表于 2023-6-28 11:34
+
+做到天荒地老
+
+*****
+
+####  hagiwara  
+##### 73#       发表于 2023-6-28 11:39
+
+下一章怎么看都是要公主进一步成长去破局了吧，但是公主现在这个心态和能力我还是有点怀疑她能不能破局的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 74#       发表于 2023-6-28 11:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">公主演到现在也是十几岁一小屁孩，手上什么都没有，她三哥好歹还有点兵呢
+
+
+*****
+
+####  Toby_dak  
+##### 75#       发表于 2023-6-28 15:17
+
+新大陆总督+王族，有点私人武装力量很正常吧。快进到新大陆军民兵火烧白金汉宫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  阿姆罗二世  
+##### 76#       发表于 2023-6-28 15:21
+
+不需要啥啊，公主现在就是最佳继承人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吉姆哈克型的人物，好控制脑子也不蠢，政治能力一般但是也不是完全不懂，和叔父做个政治交易很容易就上位了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aptx8285144  
+##### 77#       发表于 2023-6-28 15:23
+
+从权谋看，诺曼底应该比三王子靠谱，是交易的合适对象（
+
+
+*****
+
+####  ardito  
+##### 78#       发表于 2023-6-28 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">玛丽又没润成功，顺位和好控制都不如她妹，现在只能等亲戚赏饭吃了
+
+
+*****
+
+####  ardito  
+##### 79#       发表于 2023-6-28 15:53
+
+说起来皇叔第一部下棋的时候感觉到啥了吧，比起公主该去找安洁了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  妄想中毒  
+##### 80#       发表于 2023-6-28 17:24
+
+诺曼底要公主当双面间谍不合理啊，全队都被抓了然后又给平安无事放回来的话，共和国再蠢也不至于完全不怀疑继续让她们执行间谍任务吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  嘲哳的声音  
+##### 81#       发表于 2023-6-29 12:53
+
+想不出这还怎么继续做间谍<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星降る森  
+##### 82#       发表于 2023-6-29 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61467241&amp;ptid=2140549" target="_blank">妄想中毒 发表于 2023-6-28 17:24</a>
+
+诺曼底要公主当双面间谍不合理啊，全队都被抓了然后又给平安无事放回来的话，共和国再蠢也不至于完全不怀疑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实动画最后公主大腿挨枪子+失踪润到卡萨布兰卡+女王会场被袭击，最后还能无事回归我也想不出一个合理的解释
+
+
+*****
+
+####  星降る森  
+##### 83#       发表于 2023-6-29 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61477120&amp;ptid=2140549" target="_blank">嘲哳的声音 发表于 2023-6-29 12:53</a>
+
+想不出这还怎么继续做间谍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毙了诺曼底公就行，现在带英就剩3个继承人，一个通/共，一个润人萝莉，一个反骨仔，诺曼底公又没法自己上位，也只能3选1。公主通外是丑闻，可能只有极小一部分人知道。红毛王子估计是自己苦肉计进去挑拨起国内的矛盾，下一章可能就借着革命重新上位了，只要红毛王子把诺曼底公一支给排清，公主又可以趁乱把白鸽队放出来，反正红毛王子又不知道公主是间谍
+
+
+*****
+
+####  Toby_dak  
+##### 84#       发表于 2023-6-29 16:44
+
+我是搞不清理查德的政治主张<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+对于诺曼底来说，理查德是动摇国本的存在。而公主最多是开明专制或者君主立宪制，大英的里子还在。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  zayrq  
+##### 85#       发表于 2023-6-29 16:49
+
+理查德的动机我就没搞懂，不清楚是想上位的野心家还是单纯想报复社会的乐子人。感觉后者的可能性大一点
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  阿姆罗二世  
+##### 86#       发表于 2023-6-29 16:50
+
+理查德明显说一套做一套<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明显是拿着进步主义当牌坊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zayrq  
+##### 87#       发表于 2023-6-29 16:51
+
+所以我觉得真心想推墙的公主说不定能跟老墨聊到一块
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  aptx8285144  
+##### 88#       发表于 2023-6-29 17:01
+
+诺曼底看上去像保守派，但怎么看都感觉对自己部下们<strong>撒谎</strong>的理查德更危险<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Chw6951  
+##### 89#       发表于 2023-7-1 12:54
+
+补完了。带玛丽出逃怎么看都是危险的选择，白鸽队就几个美少女怎么突破王国的防卫，共和国那群人也不像是可以信赖的人，而且安洁自己都说了成功逃亡后公主就是王国首要的怀疑对象，很难想象心思缜密的安洁会支持玛丽逃亡，还不如暂时顺从三王子，反正三王子还被诺曼底公牵制，公主苟下去的话也没人想搞她。
+
+最后公主还能做间谍应该算主角光环了吧，共和国方面不可能没有察觉到公主已经被控制了
+
