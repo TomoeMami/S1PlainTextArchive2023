@@ -98,3 +98,36 @@
 看了各方评论，放弃动画看漫画，但是只看第一部，这样就不会掉沟里了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话第二部可以直接看的，第二部根本没有第一部这种多方勾心斗角的剧情，可以不用动脑子
 
+*****
+
+####  与天争锋_LZ  
+##### 746#       发表于 2023-7-1 22:27
+
+漫画这最近的走向我不是很能看懂？反派boss初心是毁灭组织，现在都当上老大了，是经典变恶龙吗？
+
+（在mangadex能看）
+
+
+*****
+
+####  雪城穗乃香  
+##### 747#       发表于 2023-7-1 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61509168&amp;ptid=1564883" target="_blank">与天争锋_LZ 发表于 2023-7-1 22:27</a>
+
+漫画这最近的走向我不是很能看懂？反派boss初心是毁灭组织，现在都当上老大了，是经典变恶龙吗？
+
+（在mang ...</blockquote>
+本质就是告诉你现在要追加一个新BOSS，现在给你讲一下这BOSS的来历，顺便水几集凑卷数（
+
+
+*****
+
+####  朝仓和美  
+##### 748#       发表于 2023-7-1 23:38
+
+剧情走向太弱智了。
+这种套路用在新作不是比现在生搬硬套好一万倍？
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
