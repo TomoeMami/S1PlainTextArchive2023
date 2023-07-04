@@ -2370,3 +2370,51 @@ more).
 
 今天玩了下，这个动作设计也太离谱了，比魂2还僵硬，虽然造景确实很宏大但感觉玩不下去了……
 
+*****
+
+####  qappip  
+##### 201#         楼主| 发表于 2023-7-1 10:14
+
+游戏来了一波大更新，顶一下。游戏折扣25%
+90+人民币
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  彩虹肥宅  
+##### 202#       发表于 2023-7-1 11:48
+
+更新了啥
+
+—— 来自 OPPO PGJM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  qappip  
+##### 203#         楼主| 发表于 2023-7-1 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61502450&amp;ptid=2123540" target="_blank">彩虹肥宅 发表于 2023-7-1 11:48</a>
+
+更新了啥
+
+—— 来自 OPPO PGJM10, Android 12上的 S1Next-鹅版 v2.5.2-play</blockquote>
+看我主楼，有写一部分，还有一些细节的比较多比如可以手动跳过超长电梯这类就没写了。
+
+
+*****
+
+####  futamn  
+##### 204#       发表于 2023-7-1 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">地图是很好，但战斗实在是不习惯，第一个boss打两次就萎了
+
+*****
+
+####  kinemato  
+##### 205#       发表于 2023-7-1 12:06
+
+测试版似乎已经可以联机了, 有人尝试一下吗
+
