@@ -795,3 +795,88 @@ https://zerlarnystyle.com/post-23194/
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+*****
+
+####  铁火辉夜  
+##### 75#       发表于 2023-6-29 01:20
+
+<img src="https://img.saraba1st.com/forum/202306/29/011935q2al0qnp5xn0aee2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230629011907.png</strong> (370.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-29 01:19 上传
+
+<img src="https://img.saraba1st.com/forum/202306/29/011935ma2kfs8h07ka80wm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230629011913.png</strong> (346.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-29 01:19 上传
+
+日服过3-60了，冰龙我滴超人<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+4.28入坑日服到今天正好俩月<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  幸运的灵犀  
+##### 76#       发表于 2023-6-29 01:48
+
+这游戏也有专楼啊，皮肤全是奶牛就卸了，话说这有专楼，少女回战是不是也可以有。
+
+
+*****
+
+####  captoon  
+##### 77#       发表于 2023-6-29 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61472490&amp;ptid=2078383" target="_blank">幸运的灵犀 发表于 2023-6-29 01:48</a>
+
+这游戏也有专楼啊，皮肤全是奶牛就卸了，话说这有专楼，少女回战是不是也可以有。 ...</blockquote>
+可以开专楼啊，不用在别的游戏专楼里阴阳怪气
+
+
+*****
+
+####  红白二色霉豆腐  
+##### 78#       发表于 2023-6-29 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61472357&amp;ptid=2078383" target="_blank">铁火辉夜 发表于 2023-6-29 01:20</a>
+
+日服过3-60了，冰龙我滴超人
+
+4.28入坑日服到今天正好俩月</blockquote>
+恭喜恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+......
+
+狗托洗内<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  铁火辉夜  
+##### 79#       发表于 2023-6-30 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61483675&amp;ptid=2078383" target="_blank">红白二色霉豆腐 发表于 2023-6-29 21:02</a>
+
+恭喜恭喜
+
+......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">开箱子都沉船好几次了，猛禽浴巾皮还重复了
+
+
+*****
+
+####  红白二色霉豆腐  
+##### 80#       发表于 2023-7-1 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61496030&amp;ptid=2078383" target="_blank">铁火辉夜 发表于 2023-6-30 19:14</a>
+
+开箱子都沉船好几次了，猛禽浴巾皮还重复了</blockquote>
+啊抱歉忘了是日服的课金赌狗箱，还以为是韩服的任务赌狗箱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
