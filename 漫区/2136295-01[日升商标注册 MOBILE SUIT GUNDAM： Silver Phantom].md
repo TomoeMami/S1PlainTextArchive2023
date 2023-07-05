@@ -620,3 +620,21 @@ SEED看财报的意思是财年内就上映了，只不过财团B还没开始宣
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不知道会有闪哈二的消息吗，感觉沉寂很久了
 
+*****
+
+####  Piano-Forest  
+##### 70#         楼主| 发表于 2023-7-2 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61167609&amp;ptid=2136295" target="_blank">Piano-Forest 发表于 2023-6-7 11:39</a></blockquote>
+公开了另一个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  starcraft3  
+##### 71#       发表于 2023-7-2 12:09
+
+又是狗比鸡瘟 吐了
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
