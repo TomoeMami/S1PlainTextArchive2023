@@ -3496,3 +3496,638 @@ Mahou Shoujo Magical Destroyers - 09 [1080p] .ass
 
 原来w嘴假面都是人啊，我还以为是机器人。
 
+*****
+
+####  爱丁堡official  
+##### 311#       发表于 2023-6-7 22:19
+
+下一集又要大战了吗？
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 312#       发表于 2023-6-7 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61177013&amp;ptid=2004067" target="_blank">爱丁堡official 发表于 2023-6-7 22:19</a>
+
+下一集又要大战了吗？</blockquote>
+不是集集都在大战吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱丁堡official  
+##### 313#       发表于 2023-6-7 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61177620&amp;ptid=2004067" target="_blank">Mc凉月奏酱 发表于 2023-6-7 23:07</a>
+
+不是集集都在大战吗</blockquote>
+这个slayer看起来就和前面的“四天王”不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wanwanjun  
+##### 314#       发表于 2023-6-8 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61177013&amp;ptid=2004067" target="_blank">爱丁堡official 发表于 2023-6-7 22:19</a>
+下一集又要大战了吗？</blockquote>
+前面不都小打小闹，这个肯定是大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony NW-A100Series, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  free  
+##### 315#       发表于 2023-6-10 15:42
+
+这一话可以啊，超展开了，这是楚门的世界吗
+
+
+*****
+
+####  Alicest  
+##### 316#       发表于 2023-6-10 16:37
+
+请随意取用
+
+好土 太土了 完全猜到了magnet:?xt=urn:btih:BI3WEFDWWACRAPMSPGYSMDQEMIDHC7RU复制代码
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+Mahou Shoujo Magical Destroyers - 10 [1080p] .ass
+(29.47 KB, 下载次数: 0)
+
+2023-6-10 16:37 上传
+
+点击文件名下载附件
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/torrent.gif" referrerpolicy="no-referrer">
+
+[Alicest個人漢化]魔法少女毀滅者 Mahou Shoujo Magical Destroyers - 10 [1080p][内.torrent
+(42.4 KB, 下载次数: 0)
+
+2023-6-10 16:37 上传
+
+点击文件名下载附件
+
+*****
+
+####  Alicest  
+##### 317#       发表于 2023-6-10 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61217856&amp;ptid=2004067" target="_blank">free 发表于 2023-6-10 15:42</a>
+
+这一话可以啊，超展开了，这是楚门的世界吗</blockquote>
+与其说是楚门的世界不如说是FSN红a战士郎
+
+
+*****
+
+####  Ichthy  
+##### 318#       发表于 2023-6-10 22:39
+
+太过贫穷以至于一卡一卡的，boss是画分镜的作者到是意料中，应该不会打破第四堵墙吧
+
+
+*****
+
+####  wolf1997  
+##### 319#       发表于 2023-6-10 23:15
+
+结局可能是世界重启吧
+
+
+*****
+
+####  wanwanjun  
+##### 320#       发表于 2023-6-10 23:48
+
+怎么越来越穷了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这集便宜打戏真的不好看
+有点土
+
+—— 来自 Sony NW-A100Series, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 321#       发表于 2023-6-11 05:54
+
+往好的方面想 这集的崩是在为下集蓄力
+
+
+*****
+
+####  幻肢痛  
+##### 322#       发表于 2023-6-12 15:04
+
+ 本帖最后由 幻肢痛 于 2023-6-12 15:05 编辑 
+
+这时候加新角色，就是明摆着不打算好好把故事讲完吧怀疑整个企划就是为了冲国会议事堂这点醋包的饺子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  发财就收  
+##### 323#       发表于 2023-6-13 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61250716&amp;ptid=2004067" target="_blank">幻肢痛 发表于 2023-6-12 15:04</a>
+
+这时候加新角色，就是明摆着不打算好好把故事讲完吧怀疑整个企划就是为了冲国会议事堂这点醋包的饺子[f:001 ...</blockquote>
+既然敌方那个紫色魔法少女那么像主角方的红色，那其余两个有对应的存在也是能预料的到
+
+
+*****
+
+####  亚瑟邓特  
+##### 324#       发表于 2023-6-14 13:34
+
+下集预告和观感很像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  只因你太美  
+##### 325#       发表于 2023-6-17 11:03
+
+讨论度越来越低了
+
+
+*****
+
+####  wolf1997  
+##### 326#       发表于 2023-6-17 15:44
+
+11集确实挺猛的，原来是这么个魔法毁灭者，3个魔法少女的声优很卖力。比起电池少女和秋叶原之旅，这片子不受待见是应该的，因为跟其他赞颂宅文化的作品相比，这片子的基调表面光鲜活泼实则灰暗消极，表现粗暴狠辣，不禁让人对主创们想表达的爱表示迟疑，这倒是很符合“毁灭者”这个标题，也映出后现代解构下的安那种混乱暴力表达自己的表皮。
+
+
+*****
+
+####  沼蝇  
+##### 327#       发表于 2023-6-18 10:35
+
+你们都在哪里看的11集啊，我怎么一点也下不动
+
+
+*****
+
+####  NZ-333  
+##### 328#       发表于 2023-6-18 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61329155&amp;ptid=2004067" target="_blank">沼蝇 发表于 2023-6-18 10:35</a>
+
+你们都在哪里看的11集啊，我怎么一点也下不动</blockquote>
+看了一眼发现还是只有我翻的版本
+
+现在下应该可以了
+
+magnet:?xt=urn:btih:KJPL4TDKXBSGY5PWOASL6P5OLVDNJ4YX
+
+<img src="https://img.saraba1st.com/forum/202306/18/104321rohjyjwpgwpyr89y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (43.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-18 10:43 上传
+
+
+*****
+
+####  アルメリア  
+##### 329#       发表于 2023-6-18 13:41
+
+比起魔法少女更像摇滚少女
+
+
+*****
+
+####  wanwanjun  
+##### 330#       发表于 2023-6-18 16:29
+
+这片子到底想表达什么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+如果最开始是对摧毁自己所爱之物者的反抗
+那现在黑化了代表什么？
+
+—— 来自 Xiaomi 2206123SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Ichthy  
+##### 331#       发表于 2023-6-19 01:46
+
+这集制作质量又回来了
+
+
+*****
+
+####  三尖酸努努  
+##### 332#       发表于 2023-6-19 14:02
+
+这集有点意思
+
+
+*****
+
+####  m98626  
+##### 333#       发表于 2023-6-20 04:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这故事结构还能更烂一点
+
+
+*****
+
+####  梶原ひかり  
+##### 334#       发表于 2023-6-20 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有点意思..开始点题了？有点期待后面两集 不会烂尾吧 不会最后嘴炮结束吧
+
+
+*****
+
+####  Acla  
+##### 335#       发表于 2023-6-21 22:25
+
+什么粪游戏<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  天剑流星  
+##### 336#       发表于 2023-6-22 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61357255&amp;ptid=2004067" target="_blank">梶原ひかり 发表于 2023-6-20 15:24</a>
+有点意思..开始点题了？有点期待后面两集 不会烂尾吧 不会最后嘴炮结束吧 ...</blockquote>
+别想了，就一集了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天剑流星  
+##### 337#       发表于 2023-6-22 10:32
+
+说实话我倒是不反感用逆天皮讲王道故事，但是这种对于自己不懂的领域随意描写的懂哥味真的跟逆转世界的电池少女如出一辙，甚至魔毁还要更过分一点
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  水莲寺流歌  
+##### 338#       发表于 2023-6-24 01:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想说的太失礼，请问这片儿的大纲是用脚想出来的吗
+
+*****
+
+####  库德里尔  
+##### 339#       发表于 2023-6-24 01:29
+
+这啥
+
+
+*****
+
+####  帕露帕拉  
+##### 340#       发表于 2023-6-24 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">最rnm退钱的一集
+
+
+*****
+
+####  NZ-333  
+##### 341#       发表于 2023-6-24 11:00
+
+不翻译了，爱谁看谁看
+
+傻卵玩意，浪费我时间
+
+
+*****
+
+####  wolf1997  
+##### 342#       发表于 2023-6-24 13:47
+
+安可能一时与宅同行，但也可能与宅相背，不过最后无论爱还是抗争，甚至作者自己都不过是给上面看的滑稽剧罢了。整这一出原来是连着制作组一起给那件潮牌上的安那其酱助兴来着。别的宅动画阳光积极，就这里充满了灰暗和消极，毁灭地像行为艺术。
+
+
+*****
+
+####  zxc4563982  
+##### 343#       发表于 2023-6-24 14:52
+
+垃圾动漫嗼
+
+
+*****
+
+####  wanwanjun  
+##### 344#       发表于 2023-6-24 14:53
+
+发生啥事了，哪里有熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 QUALCOMM OWW212, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  北野苍术  
+##### 345#       发表于 2023-6-24 14:58
+
+ 本帖最后由 北野苍术 于 2023-6-24 15:02 编辑 
+
+神他妈最后还打出一个继续热爱你所热爱的
+
+是不是意思就是反派从最开始做自己的粪作游戏其实就是没爱的从头到尾突出一个该被喷的滑稽形象，就因为恶心到了有真爱的死宅是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  库德里尔  
+##### 346#       发表于 2023-6-24 15:29
+
+北宇治会做完的。我猜离谱sub也会。
+
+机翻熟在age可以看了。
+
+
+*****
+
+####  梶原ひかり  
+##### 347#       发表于 2023-6-24 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就传递着宅魂不灭？前仆后继？...即便是你要创造的世界？
+
+这动画完全是随性编故事？还是我没看明白...其中的内涵？狗头蛇尾啊...ORIGIN目的是什么也不知道..
+
+*****
+
+####  库德里尔  
+##### 348#       发表于 2023-6-24 17:36
+
+因为没弄过，我现在一等大佬发投票楼，二等字幕组最终烤熟。
+我要亲自看完最后一话，然后再也不见，**东西
+
+
+*****
+
+####  アルメリア  
+##### 349#       发表于 2023-6-24 22:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没了？ 什么烂片
+
+
+*****
+
+####  li570587  
+##### 350#       发表于 2023-6-24 23:34
+
+毕竟还要出手游，这结局非常的合理
+
+
+*****
+
+####  Renes  
+##### 351#       发表于 2023-6-25 01:36
+
+什么玩意，白瞎了3个魔法少女
+
+
+*****
+
+####   匿名
+##### 352#        匿名   发表于 2023-6-25 01:51
+
+动画播出完了，你对这部作品打几分呢，欢迎到鉴赏区参加投票。
+[https://bbs.saraba1st.com/2b/thread-2141494-1-1.html](https://bbs.saraba1st.com/2b/thread-2141494-1-1.html)
+
+[2023.04][TV.12]魔法少女毁灭者/魔法少女マジカルデストロイヤーズ/Magical Destroyers
+
+
+*****
+
+####  tide777  
+##### 353#       发表于 2023-6-25 02:50
+
+除了oped一无是处的狗屎
+
+
+*****
+
+####  青龙圣者  
+##### 354#       发表于 2023-6-25 13:40
+
+<img src="https://img.saraba1st.com/forum/202306/25/133948alqjefeuadqj51au.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>_cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;amp;MsgID=5844532384043472123&amp;amp;skey=@crypt_6134.jpeg</strong> (58.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 13:39 上传
+
+<img src="https://img.saraba1st.com/forum/202306/25/133948tfaa1wewf01qq1qy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>_cgi-bin_mmwebwx-bin_webwxgetmsgimg__&amp;amp;MsgID=352988725119215077&amp;amp;skey=@crypt_6134e.jpeg</strong> (75.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 13:39 上传
+
+说实话看三集的时候就知道是粪作了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oneoutsider  
+##### 355#       发表于 2023-6-25 18:11
+
+自我满足自我感动的粪作
+
+
+*****
+
+####  wanwanjun  
+##### 356#       发表于 2023-6-25 23:00
+
+这是还要出什么续作么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+太傻逼了
+
+—— 来自 Sony NW-A100Series, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 357#       发表于 2023-6-25 23:32
+
+楼U们别急
+
+keep and loving<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fuochai  
+##### 358#       发表于 2023-6-25 23:35
+
+<img src="https://pic.imgdb.cn/item/64985e3b1ddac507ccd53250.jpg" referrerpolicy="no-referrer">
+
+这是neta的阿卡林吗 官方能不能出这件的周边啊
+
+
+*****
+
+####  Ichthys  
+##### 359#       发表于 2023-6-25 23:46
+
+烂尾啊
+
+*****
+
+####  海底铁锚  
+##### 360#       发表于 2023-6-25 23:52
+
+电池少女起码能看，这片纯嗑药嗑坏脑子了。
+基本能断定是为了后三集包的垃圾饺子。
+
+
+*****
+
+####  萨文科夫  
+##### 361#       发表于 2023-6-26 00:05
+
+前半集是监督拉屎，后半集是资方要求
+
+—— 来自 OPPO PEEM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  库德里尔  
+##### 362#       发表于 2023-6-26 00:31
+
+开了个直播和群友看完1112话。
+越看越说不出话。直到看到ed卡。
+为了这个动画努力的音乐制作、声优，以及从一原二原到中割仕上甚至有可能包了一点作画监督的活的外包公司，才是真正的御宅英雄。带着对御宅族的偏见描绘剧情，塑造刻板印象，让笔下的角色做着毫无逻辑的事情只为了一个自我满足，这帮人连SHOBON都不如。
+
+
+*****
+
+####  Antidote丶  
+##### 363#       发表于 2023-6-26 00:52
+
+这最后一集是什么玩意
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cat1230  
+##### 364#       发表于 2023-6-26 01:00
+
+最后一集没明白到底想表达什么。
+
+
+*****
+
+####  爱丁堡official  
+##### 365#       发表于 2023-6-26 01:04
+
+好久没看到拉稀得彻底的原创动画了。
+
+
+*****
+
+####  RJRJ  
+##### 366#       发表于 2023-6-26 09:04
+
+垃圾醋加垃圾饺子
+
+
+*****
+
+####  Wildfire  
+##### 367#       发表于 2023-6-26 10:51
+
+还真不如电池少女
+
+
+*****
+
+####  幻肢痛  
+##### 368#       发表于 2023-6-26 19:54
+
+最后怎一转手游广告了，说好的tamashi呢，11话拉回来的好感度一下子没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二夜祭  
+##### 369#       发表于 2023-6-26 20:51
+
+呜哇……有够垃圾……
+
+看完真是浪费人生……
+
+
+*****
+
+####  hjy122456  
+##### 370#       发表于 2023-6-29 13:01
+
+不管怎么说，ed挺好听...
+
+
+*****
+
+####  冰原狼  
+##### 371#       发表于 2023-6-30 09:48
+
+写个otaku都能写歪来，不管战犯是谁最好滚出业界算了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  酷乐  
+##### 372#       发表于 2023-6-30 19:30
+
+ 本帖最后由 酷乐 于 2023-6-30 19:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61443508&amp;ptid=2004067" target="_blank">幻肢痛 发表于 2023-6-26 19:54</a>
+
+最后怎一转手游广告了，说好的tamashi呢，11话拉回来的好感度一下子没了 ...</blockquote>
+
+手游今天宣布8月31日关服了，只活了145天。
+
+话说这玩意是Asobimo制作的啊，当年玩他家的《噬神者online》就被坑了上千块，也是不到一年就关服。
+
+
+*****
+
+####  亚瑟邓特  
+##### 373#       发表于 2023-7-2 23:02
+
+smjb<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，白瞎这音乐和美术
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  火焰的攻击  
+##### 374#       发表于 2023-7-3 01:01
+
+不知道该不该说潮哥滚出二次元，但这 OPED 和片中部分张力确实也算是潮哥跨界带来的奇珍。如果换个题材，比如写安娜其棒球，写潮牌赛博朋克，可能会更有说服力一点。
+
+保守的电池少女也一股土味，让消费宅激动的意象从来不是喜欢这些东西的消费宅宅本身。
+
