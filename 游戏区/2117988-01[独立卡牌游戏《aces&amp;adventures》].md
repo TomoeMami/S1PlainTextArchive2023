@@ -941,3 +941,15 @@ ui就是一坨， 甚至还不给你看牌堆有什么牌，算是为了所谓�
 
 为啥不支持手柄呢。卡牌游戏支持手柄是最简单了吧。。
 
+*****
+
+####  伊布桑  
+##### 97#       发表于 2023-7-2 23:29
+
+ 本帖最后由 伊布桑 于 2023-7-2 23:30 编辑 
+
+不久之前打折入的这游戏，看了一下好像现在环境和之前不太一样了？（猎人无限没了吧）想问下有什么比较好用的卡组推荐？
+我自己是进门直接玩魔女的同花流，这个打完别的都不会玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+

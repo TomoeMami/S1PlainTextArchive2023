@@ -595,3 +595,140 @@ mc里也要看no miss通关<img src="https://static.saraba1st.com/image/smiley/f
 
 402分钟。下次拿起就玩速通了。
 
+*****
+
+####  andeloz  
+##### 9366#       发表于 2023-6-26 17:18
+
+ 本帖最后由 andeloz 于 2023-6-26 18:43 编辑 
+
+唉 STA
+
+唉 なかよし
+
+
+*****
+
+####  lightsuger  
+##### 9367#       发表于 2023-6-28 16:37
+
+本月直播次数为10次，过去一年最多（之前为9次）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9368#       发表于 2023-6-30 22:13
+
+是熟悉的速通转耐久直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫南北  
+##### 9369#       发表于 2023-6-30 23:30
+
+30分钟到龙那，然后乘龙练了40分钟没上去。
+
+
+*****
+
+####  andeloz  
+##### 9370#       发表于 2023-7-1 04:05
+
+什么b作息
+
+
+*****
+
+####  Dr.Wondering  
+##### 9371#       发表于 2023-7-2 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9372#       发表于 2023-7-2 16:42
+
+你懂了个什么啊...
+
+
+*****
+
+####  zpy393  
+##### 9373#       发表于 2023-7-2 17:33
+
+这才是究极折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9374#       发表于 2023-7-2 17:34
+
+不是登上去了吗 还好这把几次失败都没掉回去
+
+寄！
+
+
+*****
+
+####  旧时代的扎比  
+##### 9375#       发表于 2023-7-2 18:37
+
+终于
+
+*****
+
+####  saraba7th  
+##### 9376#       发表于 2023-7-2 18:39
+
+刚好看到过关这次<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 9377#       发表于 2023-7-2 18:42
+
+这么执着骑龙还以为想玩翅膀飞天，结果就是搭车啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9378#       发表于 2023-7-2 18:48
+
+播爆但是继续OnlyUp 给我熬昏迷了要
+
+*****
+
+####  越动天下  
+##### 9379#       发表于 2023-7-2 18:49
+
+怎么一进来就看到大脸 今天播愣长时间呀 玩fifa23玩入迷了
+
+
+*****
+
+####  猫南北  
+##### 9380#       发表于 2023-7-2 22:18
+
+已经37分钟完成了。。
+
+*****
+
+####  星の守  
+##### 9381#       发表于 2023-7-2 22:22
+
+停不下来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9382#       发表于 2023-7-2 23:03
+
+又到了熬crew环节，10个小时了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
