@@ -977,3 +977,14 @@ wiiu的遗产也就TP和TWW还有XBX了，干脆移植得了 ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能用卷吗。。。。
 
+*****
+
+####  医生狼多  
+##### 107#       发表于 2023-7-2 14:49
+
+【《拔天海拓史 Ⅰ・Ⅱ HD Remaster》最新宣传片公开 9月14日发售】在今日的万代南梦宫展示会上，公开了《#拔天海拓史# Ⅰ・Ⅱ HD Remaster》的最新宣传片。该作将于9月14日发售，登陆NS平台，支持简体中文。
+
+《拔天海拓史》是《异度神剑》系列团队Monolith Soft 制作、万代南梦宫发行，2003 年12 月在Nintendo GameCube 平台问世的角色扮演游戏，描写不同时代的两名少年在名为「Baten Kaitos（名称来自鲸鱼座恒星天仓四，阿拉伯语“海怪之腹” 的意思）」的浮游大陆舞台所展开的冒险。
+
+本次预定推出的《拔天海拓史I・II HD Remaster》将完整收录《拔天海拓史：永恒之翼与失落之海》以及续作《拔天海拓史2：创始之翼与诸神之子》两款作品的内容，画面配合Nintendo Switch 翻新为高解析度，追加游戏速度变更、取消遇敌、自动战斗、自动存档、协助功能、NEW GAME+/- 等便利游玩的功能。 http://t.cn/A6prQ8Ga
+

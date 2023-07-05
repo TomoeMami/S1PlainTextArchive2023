@@ -2211,3 +2211,119 @@ Berserker（CV 佐仓绫音）　
 
 还是感觉人设不怎么好看
 
+*****
+
+####  gpx234mqx  
+##### 207#       发表于 2023-7-1 12:21
+
+<blockquote>Booorunestud 发表于 2023-6-28 01:48
+还是感觉人设不怎么好看</blockquote>
+1.53漫画人设
+
+
+*****
+
+####  不垃圾屌丝  
+##### 208#       发表于 2023-7-2 11:27
+
+【【FSR】（实机试玩Boss战）高速动作连击！FateSamurai Remnant相关介绍-哔哩哔哩】 https://b23.tv/XjMZWFZ
+
+看着像刀男人无双
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  不垃圾屌丝  
+##### 209#       发表于 2023-7-2 11:49
+
+【【Fate/Samurai Remnant】游戏新作试玩-漫展实况-哔哩哔哩】 https://b23.tv/lWQH4dl
+
+BOSS战还是破盾那套
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gary76  
+##### 210#       发表于 2023-7-2 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61442717&amp;ptid=2112855" target="_blank">gpx234mqx 发表于 2023-6-26 18:41</a>
+对了，推上说这位总督女儿莫非是FakeS里那个6变身死徒杰斯塔的本相（名一样，女性魔术师）</blockquote>
+但這個女魔術師，是國姓爺打台灣時的台灣總督的女兒啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  被子十三  
+##### 211#       发表于 2023-7-2 12:21
+
+这gameplay，基本可以确定是雷了。时代背景我也不喜欢，看在黑贞份上等骨折入一个
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  zakki  
+##### 212#       发表于 2023-7-2 12:45
+
+看起来还不错，你月终于也算是有一个跟得上时代的游戏了
+
+
+*****
+
+####  uponutopia  
+##### 213#       发表于 2023-7-2 13:13
+
+看起来好缝，无双X方+空中受身+仁王垫步 高速节奏又有点像伊苏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 题材是我喜欢的类型，等发售先看看风评吧
+
+
+*****
+
+####  gpx234mqx  
+##### 214#       发表于 2023-7-2 13:51
+
+贴吧在吹saber是日本武尊
+
+但是这帮人不看武器吗？日本武尊所在神话本子专家说大概在4世纪，4世纪里哪里有唐刀
+
+Yamato_Takeru(bronze_statue,Osaka)01.jpg
+(301.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 13:51 上传
+
+<img src="https://img.saraba1st.com/forum/202307/02/135101prweibikcndisidj.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  先手必胜  
+##### 215#       发表于 2023-7-2 14:39
+
+<blockquote>gpx234mqx 发表于 2023-7-2 13:51
+贴吧在吹saber是日本武尊
+
+但是这帮人不看武器吗？日本武尊所在神话本子专家说大概在4世纪，4世纪里哪里有 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/02/143852zyzefyr5166ly3nc.jpg" referrerpolicy="no-referrer">
+
+<strong>-d9aa9b3b4e0cf86.jpg</strong> (227.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 14:38 上传
+
+
+*****
+
+####  gpx234mqx  
+##### 216#       发表于 2023-7-2 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61514660&amp;ptid=2112855" target="_blank">先手必胜 发表于 2023-7-2 14:39</a></blockquote>
+你看这是三神器之一啊
+
