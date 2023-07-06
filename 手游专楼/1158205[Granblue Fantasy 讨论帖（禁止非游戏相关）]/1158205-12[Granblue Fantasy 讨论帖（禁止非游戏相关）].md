@@ -1506,3 +1506,135 @@ P.S.每次轮到火属性就感觉本格火方现在真不是人玩的
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  poor  
+##### 17379#       发表于 2023-7-3 12:40
+
+现在没有银、三阶U、满凸裸男有什么办法农7吗？NGA那个黑猫的存方阵10前只能打个100多W，最好一次也就打了200多W，大和那个解不掉第一次7777，两个配置基本都只差个3阶U。有两斧一剑但是不想砸钢
+
+*****
+
+####  Ky·Kiske  
+##### 17380#       发表于 2023-7-3 12:49
+
+找共斗5人斧X400万停手车，多少能让黑猫磨到300多万
+
+
+*****
+
+####  phoenixxj  
+##### 17381#       发表于 2023-7-3 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61529316&amp;ptid=1158205" target="_blank">poor 发表于 2023-7-3 12:40</a>
+
+现在没有银、三阶U、满凸裸男有什么办法农7吗？NGA那个黑猫的存方阵10前只能打个100多W，最好一次也就打了2 ...</blockquote>
+如果是我的话
+
+每天自发放置
+
+不知道现在河道什么环境
+
+老7这个本的速度非常快的。不是什么黑猫能打的。
+
+这套本质是找一群黑猫的开荒套路。
+
+而且由于蓝箱的掉率远低与自发。所以萌新最高的方法就是 自发放置吃红箱。
+
+
+*****
+
+####  poor  
+##### 17382#       发表于 2023-7-3 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61529453&amp;ptid=1158205" target="_blank">Ky·Kiske 发表于 2023-7-3 12:49</a>
+找共斗5人斧X400万停手车，多少能让黑猫磨到300多万</blockquote>
+不喜欢打共斗……实在不行再说吧……
+
+*****
+
+####  poor  
+##### 17383#       发表于 2023-7-3 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61529846&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-7-3 13:19</a>
+如果是我的话
+
+每天自发放置
+
+不知道现在河道什么环境</blockquote>
+主要是想顺便农农沙漏，要不然咸鱼其实现在也够用了就是难受点
+
+
+*****
+
+####  phoenixxj  
+##### 17384#       发表于 2023-7-3 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61530613&amp;ptid=1158205" target="_blank">poor 发表于 2023-7-3 14:22</a>
+
+主要是想顺便农农沙漏，要不然咸鱼其实现在也够用了就是难受点</blockquote>
+那要不想想极巴就业？看看手里的金月武有什么能发挥下
+
+还能混个3阶u。
+
+
+*****
+
+####  Ky·Kiske  
+##### 17385#       发表于 2023-7-3 16:00
+
+鬼故事，我老七打满5把七剑还有剩
+
+沙漏 0
+
+
+*****
+
+####  poor  
+##### 17386#       发表于 2023-7-3 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61530921&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-7-3 14:42</a>
+那要不想想极巴就业？看看手里的金月武有什么能发挥下
+
+还能混个3阶u。</blockquote>
+JB比较复杂，总之是准备这次泳装月中下个一两井再砸光老王，然后再说，现在属于想先随便找点东西打打的状态，实在不行……就随便打打吧，也不是完全出不了蓝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  phoenixxj  
+##### 17387#       发表于 2023-7-3 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61532313&amp;ptid=1158205" target="_blank">Ky·Kiske 发表于 2023-7-3 16:00</a>
+
+鬼故事，我老七打满5把七剑还有剩
+
+沙漏 0</blockquote>
+如果每天自发的确是鬼故事
+
+狩猎的话 恐怕是遇到鬼了不是故事。
+
+
+*****
+
+####  Ky·Kiske  
+##### 17388#       发表于 2023-7-3 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61532748&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-7-3 16:23</a>
+
+如果每天自发的确是鬼故事
+
+狩猎的话 恐怕是遇到鬼了不是故事。</blockquote>
+每天打满一车蓝箱加混主放共斗，到现在为止，不够一次终突的很多，不出一次沙漏的只剩我了
+
+
+*****
+
+####  phoenixxj  
+##### 17389#       发表于 2023-7-3 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61533035&amp;ptid=1158205" target="_blank">Ky·Kiske 发表于 2023-7-3 16:36</a>
+
+每天打满一车蓝箱加混主放共斗，到现在为止，不够一次终突的很多，不出一次沙漏的只剩我了 ...</blockquote>
+这高难被你打成六龙概率
+
