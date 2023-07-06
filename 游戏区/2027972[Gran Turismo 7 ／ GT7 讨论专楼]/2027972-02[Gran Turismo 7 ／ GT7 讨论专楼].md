@@ -377,3 +377,10 @@ gr2级别的都能刷，推荐gt500和新出的奥迪dtm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">史诗级更新，现在改造用的引擎以及终极零件可以直接买了，光靠抽奖不知道猴年马月
 
+*****
+
+####  byisme001  
+##### 1758#       发表于 2023-7-3 22:42
+
+邀请函只能每日抽奖吗，咖啡厅就差个威龙了
+
