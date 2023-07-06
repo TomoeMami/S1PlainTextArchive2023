@@ -1470,3 +1470,64 @@ bsyl，话说ljl真的上了个女选手，绫总能不能再带兄弟们冲一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">挺棒的<img src="https://p.sda1.dev/12/b23685aa8f58300f54d39a7f5799e9dd/CMP_20230622104248690.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  一仙  
+##### 14641#       发表于 2023-6-25 20:04
+
+突然开始玩影之诗
+
+*****
+
+####  FCCHua  
+##### 14642#       发表于 2023-6-30 08:39
+
+绫总凌晨的时候在看beni的valo直播，还发了不少弹幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏小筱ss  
+##### 14643#       发表于 2023-6-30 22:07
+
+又有新翻唱了
+
+*****
+
+####  stedckk  
+##### 14644#       发表于 2023-7-2 21:06
+
+播了，封面好瑟。
+
+*****
+
+####  一仙  
+##### 14645#       发表于 2023-7-2 22:35
+
+ 本帖最后由 一仙 于 2023-7-2 22:43 编辑 
+
+今天也是米收爆的一天
+
+syl，新翻唱数据好猛
+
+*****
+
+####  stedckk  
+##### 14646#       发表于 2023-7-3 19:32
+
+两连播！这是月头就要把这个月的kpi立马做完是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fami水  
+##### 14647#       发表于 2023-7-3 19:34
+
+透支整个月的直播量
+
+
+*****
+
+####  因为你不会  
+##### 14648#       发表于 2023-7-3 23:55
+
+严重怀疑绫总按季度算的
+
