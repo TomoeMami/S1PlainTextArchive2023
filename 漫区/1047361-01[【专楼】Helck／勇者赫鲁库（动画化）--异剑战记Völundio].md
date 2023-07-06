@@ -284,3 +284,42 @@ B漫已上架，暂时只有11话
 赫鲁库要动画化了就重看了一遍，也开始看异剑战记了，七尾老师是对长发剪短有什么执着吗，还不能是一开始就 ...</blockquote>
 看来是ff9粉丝
 
+*****
+
+####  azbhg1  
+##### 1068#       发表于 2023-7-1 21:49
+
+ 本帖最后由 azbhg1 于 2023-7-1 21:52 编辑 
+
+<img src="https://p.sda1.dev/12/6d9966c404deda60a762d501f915fdb5/Fz1NVLRagAASvay.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jockeyjoestar  
+##### 1069#       发表于 2023-7-2 23:14
+
+ 本帖最后由 jockeyjoestar 于 2023-7-2 23:20 编辑 
+
+这剧情jrpg味也太冲了  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   看到第五卷有点撑不下去了
+
+有大纲但没细节  注水的台词  情节想一出是一出 日本人幼稚的和平观。。etc 
+
+
+*****
+
+####  小黑鱼  
+##### 1070#       发表于 2023-7-3 11:23
+
+贴吧终于有人接手36之后汉化了，看能不能更完
+
+
+*****
+
+####  azbhg1  
+##### 1071#       发表于 2023-7-3 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61528008&amp;ptid=1047361" target="_blank">小黑鱼 发表于 2023-7-3 11:23</a>
+贴吧终于有人接手36之后汉化了，看能不能更完</blockquote>
+这哥们效率好高，赞<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
