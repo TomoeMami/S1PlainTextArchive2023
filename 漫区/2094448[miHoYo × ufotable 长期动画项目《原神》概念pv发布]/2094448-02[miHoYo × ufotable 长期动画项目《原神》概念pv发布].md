@@ -169,3 +169,10 @@ UFO FATE 脸画得难看感觉还是和武内脸的相性问题，想凑，没�
 这位的消息靠谱吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">不都是幽浮桌吗。日本动画就不要信英语舅舅了，中文圈都没消息
 
+*****
+
+####  海鸟封  
+##### 1522#       发表于 2023-7-3 13:53
+
+看日本动画片听到普通话还真别扭啊
+
