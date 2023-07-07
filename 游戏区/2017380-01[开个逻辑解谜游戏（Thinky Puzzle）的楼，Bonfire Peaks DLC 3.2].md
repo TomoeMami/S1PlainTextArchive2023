@@ -2144,3 +2144,13 @@ https://store.steampowered.com/app/2262930/Bombe/
 https://bcat112a.itch.io/fractalfactory ...</blockquote>
 fractalfactory如果能有个像opus magnum一样的进度条就好了，老有方块撞起来，又搞不清第几轮哪些装置控制的哪几个块撞了，调得要抓狂了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kara2000  
+##### 141#       发表于 2023-7-5 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60141044&amp;ptid=2017380" target="_blank">infinitesimal7 发表于 2023-3-19 10:35</a>
+
+New Adventures总共一百六十多关，其中只有六关是3D。从任何角度来看都不能说是“很多”。 ...</blockquote>
+连续玩到好几个，体感感觉很多吧，当时就有点烦躁了。
+
