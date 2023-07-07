@@ -267,3 +267,166 @@
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  chaucerling  
+##### 458#       发表于 2023-7-3 21:06
+
+[https://m.weibo.cn/detail/4919513525785645](https://m.weibo.cn/detail/4919513525785645)
+
+开始招募序章的测试了
+
+
+*****
+
+####  厄斯沃穆  
+##### 459#         楼主| 发表于 2023-7-4 08:45
+
+<img src="https://p.sda1.dev/12/d9b840fec5447b1027c29b3822bc3bfc/CMP_20230704084440421.jpg" referrerpolicy="no-referrer">微博已开启内测招募
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cot495  
+##### 460#       发表于 2023-7-4 08:48
+
+新版的立绘和美宣画师是谁？好喜欢这个画风
+
+*****
+
+####  Evomenon  
+##### 461#       发表于 2023-7-4 08:52
+
+好好好，啥时候上架<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厄斯沃穆  
+##### 462#         楼主| 发表于 2023-7-4 08:55
+
+仔细一看是位于广州的限量线下测试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+有兴趣的坛友量力而行吧
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 463#       发表于 2023-7-4 08:56
+
+看来年内能上架了，不错
+
+
+*****
+
+####  秘银mithril  
+##### 464#       发表于 2023-7-4 09:03
+
+动了
+
+期待个评测
+
+*****
+
+####  宛若青空  
+##### 465#       发表于 2023-7-4 09:05
+
+<blockquote>#废都物语重制版##废都物语QAQ#
+
+【Day71 ？？？】
+
+在4月1日这个大日子，菜菜决定做件大事，伪装一番后偷偷前往游戏开发组进行探班！
+
+在完成了一系列人不知呱不觉的impossible mission后，终于冒死为大家带回了以下第一手前线消息！
+
+1、项目文件夹新建于2022年3月1日。
+
+（正好刚过一个月，那就代为感谢大家上个月的生日祝福了！）
+
+2、战斗系统已经可以顺利运行，但是时常有灵异事件发生。开发人员为其所苦，心智混乱、频受冲击、趋于发狂，却意外的免疫了睡眠。
+
+（这么好的属性提升灵异事件，我也想体验一下？）
+
+3、技能平衡性仍需调整，帕里斯喜提当前版本二刀牛挂。
+
+（帕里斯翻身做大哥了呀）
+
+4、某策划罹患失心疯，每天用鹤嘴锄挖掘泷之洞窟的小山，据说挖够99ⁿ次能够触发愚公移山的神迹。
+
+（菜菜尝试挖掘99次，嗯？什么都没发生？是看错次数了吗？）
+
+5、开发组全员戒糖戒油戒可乐、戒烟戒酒戒烧烤。万事诸戒，却唯独没有戒面。
+
+（连单押都没有，差评）
+
+6、求到了来自老师的热情投喂，但仍需等待蒸煮煎炸等等加工过程，才能上桌。
+
+（嘶哈嘶哈流口水ing）
+
+7、当菜菜正要以完美的身法结束探班时，却不慎被发现，遂惨遭绑架。现已被**，并赋予了版本测试的新身份。挂满测试单据的我，开始了单身生活。
+
+（汪汪汪？？？？？？？？？？？）
+
+8、鉴于触发了事件7，4月份的QAQ大概可能也许说不定要咕咕咕鸽了。如果我能觅得机会，脱离魔掌发出讯息，请大家务必仔细揣摩，大概率是我在求*@#*&amp;￥…%）（%￥……</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/04/090351lfwivxbdfzxowv1r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3725.jpeg</strong> (189.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-4 09:03 上传
+
+ <blockquote>#废都物语重制版##废都物语QAQ#
+
+【Day74 儿童节】 
+
+祝所有的冒险者们儿童节快乐！拥有一颗探险之心的玩家们都是宝宝！
+
+（为祝此节，菜菜冒死摆脱监控1分钟，偷出了绝密资料给大家当礼物[快乐糖]） </blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/04/090439mubmiakc1bmaa1mk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3726.jpeg</strong> (93.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-4 09:04 上传
+
+ <blockquote>#废都物语重制版##废都物语QAQ#
+
+【Day75 端午节】 
+
+祝所有的冒险者们端午安康……？
+
+<img src="https://img.saraba1st.com/forum/202307/04/090440hcxxsnrxxonxn7mo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_3727.jpeg</strong> (247.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-4 09:04 上传
+
+送上可以起死回生的粽子[粽意你] </blockquote>
+
+
+*****
+
+####  tansapple  
+##### 466#       发表于 2023-7-4 11:29
+
+草，女仆做的粽子怕不是能砸死夜种王<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗示我7酱  
+##### 467#       发表于 2023-7-4 11:40
+
+<img src="https://p.sda1.dev/12/99be752f1cba6583f0f1fdceaef35dc9/CMP_20230704113930765.jpg" referrerpolicy="no-referrer">
+期待！
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
