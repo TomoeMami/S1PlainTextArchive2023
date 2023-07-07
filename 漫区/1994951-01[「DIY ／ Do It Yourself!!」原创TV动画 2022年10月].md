@@ -9607,3 +9607,15 @@ emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://
 
 日本作豚还有booru的kvin觉得表记里这个"花ひなこ"，应该是她的马甲。<img src="https://p.sda1.dev/12/954e6cb97e7f1b180d7f28ba5590b35a/CMP_20230621061529705.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 697#         楼主| 发表于 2023-7-4 22:11
+
+松尾祐辅
+<img src="https://p.sda1.dev/12/651735d57bd8fa4d4fa7a66515598459/5071915e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/3e436d5c780c79bdeb529ed45c66a17e/36f59139.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4b5b53da544dad1b9ff898045914ea0f/f97ba5c3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/63fbb15e419c1a15184ab8cde1dbf382/bedd6bd1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9856289cccebe82b8e92c2dceba8508a/e0348130.jpg" referrerpolicy="no-referrer">
+
