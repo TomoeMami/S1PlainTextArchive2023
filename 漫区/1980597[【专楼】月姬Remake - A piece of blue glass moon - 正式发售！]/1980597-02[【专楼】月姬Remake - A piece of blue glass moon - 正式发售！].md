@@ -475,3 +475,159 @@ type earth先不说看到后面直死魔眼就该认出来了吧
 
 2023-5-27 12:22 上传
 
+*****
+
+####  Piano-Forest  
+##### 1561#       发表于 2023-7-3 21:42
+
+<img src="https://p.sda1.dev/12/a203d27cbf571950dc79202edb13487d/IMG_20230703_214048.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蓮華  
+##### 1562#       发表于 2023-7-3 21:49
+
+如果是真的话意外的还挺快<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 1563#       发表于 2023-7-3 21:55
+
+mb赶紧加新角色
+
+
+*****
+
+####  Evomenon  
+##### 1564#       发表于 2023-7-3 22:50
+
+我太想看新秋叶线了，还有五月线<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千叶铁矢  
+##### 1565#       发表于 2023-7-4 10:03
+
+就靠里线吊着呢
+
+*****
+
+####  thez  
+##### 1566#       发表于 2023-7-4 10:08
+
+怎么还没出中文版啊
+
+*****
+
+####  千叶铁矢  
+##### 1567#       发表于 2023-7-4 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61541829&amp;ptid=1980597" target="_blank">thez 发表于 2023-7-4 10:08</a>
+怎么还没出中文版啊</blockquote>
+打汉化吧
+
+
+*****
+
+####  oi99o  
+##### 1568#       发表于 2023-7-4 10:15
+
+真就一届奥运出一作吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParadiseMartyr  
+##### 1569#       发表于 2023-7-4 10:24
+
+里线会带表线吗…不会真要拆成两份卖吧
+没有整合版吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  黑上シグマ  
+##### 1570#       发表于 2023-7-4 10:39
+
+<blockquote>引用第1568楼ParadiseMartyr于2023-07-04 10:24发表的  :
+
+里线会带表线吗…不会真要拆成两份卖吧没有整合版吗—— 来自 S1Fun</blockquote>
+当然拆两份啊，里线带表线那买了表线的都是冤大头咯
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  ParadiseMartyr  
+##### 1571#       发表于 2023-7-4 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61542281&amp;ptid=1980597" target="_blank">黑上シグマ 发表于 2023-7-4 10:39</a>
+当然拆两份啊，里线带表线那买了表线的都是冤大头咯
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+出个完全版呗，合买稍微便宜一点，然后分开买也一样贵或者贵一点这种
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  xvi黑翼公  
+##### 1572#       发表于 2023-7-4 11:31
+
+<blockquote>ParadiseMartyr 发表于 2023-7-4 11:16
+出个完全版呗，合买稍微便宜一点，然后分开买也一样贵或者贵一点这种
+
+—— 来自 S1Fun ...</blockquote>
+怪猎崛起/破晓那种DLC整合也行，主要是不想以后要回味的时候被迫两个游戏来回切换，想看看回想/音乐/道场还得换盘
+
+
+*****
+
+####  吴怀在  
+##### 1573#       发表于 2023-7-4 11:51
+
+里线+表线就是完全版了吧？
+估计肯定会再合起来卖一次
+
+
+*****
+
+####  八木沼了一  
+##### 1574#       发表于 2023-7-4 12:06
+
+肯定得给个公主TE<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  明日依旧香  
+##### 1575#       发表于 2023-7-4 12:57
+
+官中还有机会吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Nonasenet  
+##### 1576#       发表于 2023-7-4 14:58
+
+好好好，五月线久等了，官中GKD
+
+
+*****
+
+####  zakki  
+##### 1577#       发表于 2023-7-4 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61544066&amp;ptid=1980597" target="_blank">明日依旧香 发表于 2023-7-4 12:57</a>
+
+官中还有机会吗</blockquote>
+明年初出英文版的话，估计官中也是同期吧，要出肯定一块出
+
