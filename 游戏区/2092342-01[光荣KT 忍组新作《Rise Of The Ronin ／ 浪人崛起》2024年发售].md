@@ -2672,3 +2672,206 @@ AAAタイトルを同時並行で作れるよう今の倍くらいスタッフ�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这500W千呼万唤的
 
+*****
+
+####  BadYanL  
+##### 288#       发表于 2023-7-3 19:22
+
+Rise of the Ronin Leak:
+
+-Game is a mix of Assassin’s Creed, Ghost of Tsushima, and Dark Souls
+
+-Many item descriptions are used to make the lore bigger and better (E.G: "(...)It was produced in the craftsmanship style associated with a renowned blacksmith named Okisato Nagasone, who lived in Musashi during the 17th century and was also known as Kotetsu.(...)")
+
+-Numerous side-quests that are more like Ubisoft side-quest designs
+
+-Difficulty options
+
+-Skill and technique trees
+
+-Performance and quality modes (trying to improve fidelity before launch)
+
+-Planned romance options
+
+-Planned Q1 2024
+
+<img src="https://img.saraba1st.com/forum/202307/03/192204gqwyvj2bnlqjel9t.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (89.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202307/03/192203cy73ctsrp8rtq8rs.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (43.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 19:22 上传
+
+
+*****
+
+####  emmerMK2  
+##### 289#       发表于 2023-7-3 19:35
+
+海量的育碧式支线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 290#         楼主| 发表于 2023-7-3 20:02
+
+Rise of the Ronin Leak:
+
+- all credits to SoldierDelta
+
+-Game is a mix of Assassin’s Creed, Ghost of Tsushima, and Dark Souls
+
+-Many item descriptions are used to make the lore bigger and better (E.G: "(...)It was produced in the craftsmanship style associated with a renowned blacksmith named Okisato Nagasone, who lived in Musashi during the 17th century and was also known as Kotetsu.(...)")
+
+-Numerous side-quests that are more like Ubisoft side-quest designs
+
+-Difficulty options
+
+-Skill and technique trees
+
+-Performance and quality modes (trying to improve fidelity before launch)
+
+-Planned romance options
+
+-Planned Q1 2024
+<img src="https://p.sda1.dev/12/6f0875ffb18e06650b44939d48c9e1d7/201cc93c-7f00-4979-8211-e5c66d62ff49.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/f60de33fa00b3a71c7fbbe68c70efc02/e9b8d692-3e03-4cfd-99ea-ac77192956c3.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d6074b346674073a70016b82402965da/12ab559f-8955-49d6-b686-a99953b14af1.png" referrerpolicy="no-referrer">
+
+[https://weibo.com/1622008051/4919502464615909](https://weibo.com/1622008051/4919502464615909)
+
+【传闻：《浪人崛起》预计在24年Q1发售】
+
+爆料命中率极高的业内舅舅The Snitch今日在自己的Discord服务器上分享了一些关于《浪人崛起》的细节情报与图片，具体如下：
+
+· 本作像是《刺客信条》《对马岛之魂》《黑暗之魂》的结合体
+
+· 很多道具描述将用于拓展世界观（例如长曾祢虎彻的背景故事）
+
+· 存在很多“育碧式”支线任务
+
+· 可以选择游戏难度
+
+· 存在技能树系统
+
+· 会有分辨率模式与帧数模式，在发售前将进一步打磨画面精细程度
+
+· 包含浪漫选项（与NPC交往）
+
+· 预计在2024年第一季度发售，登陆PS5
+
+
+*****
+
+####  bm7号  
+##### 291#       发表于 2023-7-3 20:14
+
+只是地图迷雾比较显得比较暗，地图颜色和358还比较相似，希望打光也和无双组一致，卧龙的捏脸简直是照骗。
+
+
+*****
+
+####  病態極端  
+##### 292#       发表于 2023-7-3 20:40
+
+有浪漫劇情…幕末第一百合遊戲<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈玉礼  
+##### 293#       发表于 2023-7-3 20:41
+
+这泄露颇有大革命之遗风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真蓝眼红Z  
+##### 294#       发表于 2023-7-3 21:32
+
+帧数模式能给我稳住1080就可以，FF16那个太瞎眼了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ckseng  
+##### 295#       发表于 2023-7-3 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535570&amp;ptid=2092342" target="_blank">emmerMK2 发表于 2023-7-3 19:35</a>
+
+海量的育碧式支线</blockquote>
+这个在论坛调侃也就算了，育碧用ac的市场证明了玩家就好内味
+
+
+*****
+
+####  12351sscca  
+##### 296#       发表于 2023-7-3 22:43
+
+来个自捏主角吧，求你了暗耻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 297#       发表于 2023-7-3 23:06
+
+只要战斗系统别搞个肾虚体力槽，地图别搞即死高低差，凭忍组的人物美术<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">清问号就清问号吧
+
+*****
+
+####  医生狼多  
+##### 298#       发表于 2023-7-3 23:07
+
+我就一个要求，地图美术能不能搞好点……要么黑，要么白，要么高饱和度火红……多来个根据地那样的图不好吗
+
+
+*****
+
+####  被雨困住的城市  
+##### 299#       发表于 2023-7-4 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535948&amp;ptid=2092342" target="_blank">Piano-Forest 发表于 2023-7-3 20:02</a>
+Rise of the Ronin Leak:
+
+- all credits to SoldierDelta</blockquote>
+这第二张图让我想到了356
+
+
+*****
+
+####  Booorunestud  
+##### 300#       发表于 2023-7-4 09:48
+
+pv里主角那张脸就挺暗荣预设脸的，应该能捏
+
+
+*****
+
+####  布拉德莱恩  
+##### 301#       发表于 2023-7-4 10:01
+
+会不会是换皮卧龙？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  廖化  
+##### 302#       发表于 2023-7-4 11:01
+
+要是只能捏男的不能捏妹子，浪漫因素是搞众道，宅宅们还买吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
