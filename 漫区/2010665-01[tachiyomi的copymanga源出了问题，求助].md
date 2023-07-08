@@ -2464,3 +2464,80 @@ github的pr说是网站已关闭，然而并没有
 
 问下各位tachiyomi的哪个插件可以完整看柯南啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+*****
+
+####  cmalkd  
+##### 248#       发表于 2023-7-4 16:50
+
+tachiyomi的漫画人源更新后看不了了，有人有类似的问题吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  akiji  
+##### 249#       发表于 2023-7-4 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61546768&amp;ptid=2010665" target="_blank">cmalkd 发表于 2023-7-4 16:50</a>
+
+tachiyomi的漫画人源更新后看不了了，有人有类似的问题吗？
+
+—— 来自 S1Fun</blockquote>
+同，好几天了
+
+
+*****
+
+####  DasLebewohl  
+##### 250#       发表于 2023-7-4 22:47
+
+tachiyomi看汉化漫画现在哪几个插件比较全啊
+
+
+*****
+
+####  WitherSkeleton  
+##### 251#       发表于 2023-7-4 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61550774&amp;ptid=2010665" target="_blank">DasLebewohl 发表于 2023-7-4 22:47</a>
+tachiyomi看汉化漫画现在哪几个插件比较全啊</blockquote>
+现在用无限动漫
+
+
+*****
+
+####  DasLebewohl  
+##### 252#       发表于 2023-7-4 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61551268&amp;ptid=2010665" target="_blank">WitherSkeleton 发表于 2023-7-4 23:39</a>
+
+现在用无限动漫</blockquote>
+我下来试试 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmalkd  
+##### 253#       发表于 2023-7-5 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61550774&amp;ptid=2010665" target="_blank">DasLebewohl 发表于 2023-7-4 22:47</a>
+tachiyomi看汉化漫画现在哪几个插件比较全啊</blockquote>
+https://github.com/stevenyomi/copymanga
+我是用的这个拷贝漫画源
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  DasLebewohl  
+##### 254#       发表于 2023-7-5 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61558470&amp;ptid=2010665" target="_blank">cmalkd 发表于 2023-7-5 15:33</a>
+
+https://github.com/stevenyomi/copymanga
+
+我是用的这个拷贝漫画源</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我还以为已经没有拷贝源了 谢谢老哥
+
