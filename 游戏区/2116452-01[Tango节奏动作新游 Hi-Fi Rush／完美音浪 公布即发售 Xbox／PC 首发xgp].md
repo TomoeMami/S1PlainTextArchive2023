@@ -5000,3 +5000,20 @@ XGPU/Prime Gaming会员福利：限时领取《完美音浪》团队协作套装
 
 希望能有续作，不论是模式还是画风都戳中好球区
 
+*****
+
+####  陈词与芍药  
+##### 476#         楼主| 发表于 2023-7-6 03:49
+
+街机挑战模式已经更新，追加一套新的服装
+
+<img src="https://img.saraba1st.com/forum/202307/05/154939qro8d1i18y84p99o.jpg" referrerpolicy="no-referrer">
+
+<strong>5CD52234-0260-488C-9D1C-C5C34096717B.jpg</strong> (545.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-6 03:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
