@@ -5955,3 +5955,1145 @@ nice boat最后警告</blockquote>
 由手机上传
 2023-6-7 16:43 上传
 
+*****
+
+####  斯莱塔墨丘利  
+##### 7278#       发表于 2023-6-15 14:23
+
+<img src="https://p.sda1.dev/11/2eb3845a53f5d4c3ecd3695c4d4fc93f/CMP_20230615142331460.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7279#       发表于 2023-6-18 13:56
+
+璃奈板商品化决定
+
+<img src="https://p.sda1.dev/11/dbb846f87b517d4bcd9141190faa4e6d/26iws5j45yl1ys5ipr710t8c1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/02e97fedeead840520001e5267da362f/CMP_20230618135634238.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7280#       发表于 2023-6-18 14:55
+
+代哥这东西倒是很早就做出来了，结果我记得现在切米也不怎么戴了，现在才卖有点意思。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7281#       发表于 2023-6-18 20:01
+
+<img src="https://p.sda1.dev/11/b87ca511df82504e43fff72afcc07fca/CMP_20230618195934549.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/35beb9d0bc175b56d453e99658543a1f/CMP_20230618195934631.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/4ad1e005e2554f17c02b6c5afa7c3b9b/79aljy8ss0c3ecwgu2eapcfkd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/43a7e5d81e241771d8c9736700744ce9/12488754801687063189975.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f2bf7d91efe3811b6b9785cf663ed411/21200223241687063193088.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/825063b898351e3fafc7070760a738da/2290857111687063198999.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/4b8f1dc8567de421ebe8f0ac3a865f98/13982266361687063206418.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/94e32025de51844651baaaf80129c955/1jjvzu4uqifxpwkv23ky1t74.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f8d47dce53f7771d78770af7bbb1eb7b/rdh5drr5glznn6o0ba70bsi9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8aa8c0d1888d5087a6e3b52bac7f375d/54yol1wfbyfo132ftnhk1oms.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/575caa726d343d7904a2838c12e75725/CMP_20230618195803196.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/bb609cdd534cb4a8d272985a5035c9e3/CMP_20230618195803260.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/bd5b3473aaac0736e460190ee27f5b69/CMP_20230618195803310.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f4c7a9cfe47da50a5d5f772737056728/CMP_20230618195803366.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f807bb8e1f6638675d772cc2b1551d22/CMP_20230618195803440.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/59553558c4a50363abd0b6cd4bc8b7f7/CMP_20230618195810441.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/8a59936aa986e00a72df6ae67327701e/CMP_20230618195810508.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/dadbff62aad171f1ab88c66de14e74ea/CMP_20230618195810564.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/f1affb4405aef6b684e7d54d34cae8ea/CMP_20230618195810629.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/1ec7deef2146a58e8c9d478d79cfd462/CMP_20230618195810684.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/46def15bd607f45745cf9879dbdaff7e/712e567d5da28987.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/009633d4bd68dc55e1dc5a9fa501090b/CMP_20230618200044864.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7282#       发表于 2023-6-21 19:06
+
+【【中字·官方PV】Sugar Sugar Yummy Yummy Parfait-虹咲学园学园偶像同好会-哔哩哔哩】 [https://b23.tv/EfaYvm1](https://b23.tv/EfaYvm1)
+
+
+*****
+
+####  ads147147  
+##### 7283#       发表于 2023-6-23 11:59
+
+看目前的情况，ova至少有3个吧。～
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7284#       发表于 2023-6-23 13:21
+
+ 本帖最后由 仟音一心 于 2023-6-23 13:22 编辑 
+
+R3小组曲补上了
+
+【【中字 / 全曲】「Feel Alive」R3BIRTH 虹学会OVA插入曲-哔哩哔哩】 [https://b23.tv/HYHm3bY](https://b23.tv/HYHm3bY)
+<img src="https://p.sda1.dev/12/4d86b6fed52624d9e68ec49695e2c943/CMP_20230623132017376.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/422b9dbb809c0f61b7ceb9d529985bd8/CMP_20230623132017497.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/6a5919cb8edadb2e5ea8e78bc0fbb226/CMP_20230623132017630.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/a36a3d1ca4180a3457df594318a55ad1/CMP_20230623132017789.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  微尘众  
+##### 7285#       发表于 2023-6-23 15:17
+
+何意啊这是
+
+<img src="https://img.saraba1st.com/forum/202306/23/151712gjuypxqazjz76h2q.jpg" referrerpolicy="no-referrer">
+
+<strong>f3503dab38d813d.jpg</strong> (124.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 15:17 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ads147147  
+##### 7286#       发表于 2023-6-23 17:13
+
+假面骑士欲望大奖赛
+学园偶像XX大奖赛
+
+摆脱了lovelive那个黑箱是好事，但是我是有点担心GPX变成另一个黑箱赛。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  米奥莉奈  
+##### 7287#       发表于 2023-6-23 17:16
+
+GPX怎么听上去像什么电竞奖杯🏆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####   匿名
+##### 7288#        匿名   发表于 2023-6-23 17:52
+
+动画播出完了，你对这部作品打几分呢，欢迎到鉴赏区参加投票。
+[https://bbs.saraba1st.com/2b/thread-2141305-1-1.html](https://bbs.saraba1st.com/2b/thread-2141305-1-1.html)
+
+[2023.06][OVA.1]Love Live! 虹咲学园学园偶像同好会 NEXT SKY/ラブライブ！虹ヶ咲学園スクールアイドル同好会 NEXT SKY/Love Live! Nijigasaki High School Idol Club Next Sky
+
+
+*****
+
+####  川陀  
+##### 7289#       发表于 2023-6-23 19:09
+
+GPX？应该是Grand Prix？
+快进到超级亚玖璃
+
+<img src="https://img.saraba1st.com/forum/202306/23/190918hqdjzmqq5o5zcmzv.png" referrerpolicy="no-referrer">
+
+<strong>f8bbc17f1798a302.png</strong> (311.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 19:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ads147147  
+##### 7290#       发表于 2023-6-23 19:25
+
+还有三个ova，真是独角兽ova系列力～
+
+感觉是中乐，不过也是好事，ova可以无限制出下去呀～
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7291#       发表于 2023-6-23 19:27
+
+OVA剧场版三部
+<img src="https://p.sda1.dev/12/ca2229a4d950e367d22896f36ccff1d1/CMP_20230623192647981.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  米奥莉奈  
+##### 7292#       发表于 2023-6-23 19:30
+
+目指四章改七章<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+再出个虹咲版一角驴（
+
+*****
+
+####  仟音一心  
+##### 7293#       发表于 2023-6-23 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61398868&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-6-23 19:25</a>
+还有三个ova，真是独角兽ova系列力～</blockquote>
+不过还是比TV略逊一筹，毕竟太慢了。
+
+
+*****
+
+####  川陀  
+##### 7294#       发表于 2023-6-23 19:33
+
+三个ova应该是就相当于剧场版了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  GGnob  
+##### 7295#       发表于 2023-6-23 19:38
+
+过年了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7296#       发表于 2023-6-23 19:39
+
+再续3年！<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  HGenDs  
+##### 7297#       发表于 2023-6-23 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+一醒来看到这么劲爆的
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  ads147147  
+##### 7298#       发表于 2023-6-23 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61398958&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-6-23 19:30</a>
+不过还是比TV略逊一筹，毕竟太慢了。</blockquote>
+折腾幻日和星3已经把2组折腾吐了吧，能挤出时间搞ova已经算不错，就是时长还是30分钟的话就不太好了，怎么着也得长一点。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  JustW_5  
+##### 7299#       发表于 2023-6-23 19:50
+
+揭棺而起
+
+
+*****
+
+####  笋狐  
+##### 7300#       发表于 2023-6-23 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好！猛续一大口！
+
+
+*****
+
+####  仟音一心  
+##### 7301#       发表于 2023-6-23 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61399252&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-6-23 19:49</a>
+折腾幻日和星3已经把2组折腾吐了吧，能挤出时间搞ova已经算不错，就是时长还是30分钟的话就不太好了，怎 ...</blockquote>
+关键还是幻日要是能成功，那接下来续三期就更有路子了。
+
+*****
+
+####  仟音一心  
+##### 7302#       发表于 2023-6-23 20:03
+
+<img src="https://p.sda1.dev/12/e4a9169d9e4578866a0b541da4a965ea/CMP_20230623200316382.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/73bec53f42eb1d00cd39adc1c95c9a97/CMP_20230623200316459.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/1ccac8c4ec292390ed02f7376f562dc3/CMP_20230623200316550.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  灼眼的夏娜酱  
+##### 7303#       发表于 2023-6-23 20:06
+
+单集能有四十分钟以上就好了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  damian-wade  
+##### 7304#       发表于 2023-6-23 20:10
+
+我虹苟住了，还行吧，现在四团，资源就那么多，TV确实排不上
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  pjwnav  
+##### 7305#       发表于 2023-6-23 20:38
+
+好好好。有新作就行<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7306#       发表于 2023-6-23 20:59
+
+公布会现场：妃兔鼓
+<img src="https://p.sda1.dev/12/a6a6f05d8b41c887e2208895a57d440c/CMP_20230623205735651.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/3fc14f49c6c6acc63ed93373c593b60a/CMP_20230623205735686.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/8c2aa2dad0cf682d11ccb38aa01e5ff2/CMP_20230623205735715.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/8eadf9063ee9389abcf0fe87804ec8dc/CMP_20230623205807398.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/6fc77692f7be79ef34c21174c3a3c1fa/CMP_20230623205807452.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/fab54b688efac342c3a0b5bd15700129/CMP_20230623205807508.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/11f21bbf6978587a70a70f39f8673743/CMP_20230623205807552.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NZ-333  
+##### 7307#       发表于 2023-6-23 21:01
+
+我去 前两张aym脸大的看成是ksm了
+
+
+*****
+
+####  仟音一心  
+##### 7308#       发表于 2023-6-23 22:02
+
+<img src="https://p.sda1.dev/12/912038bd2c84dfcad26038ff14a3a7d9/CMP_20230623220208957.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnrealApartheid  
+##### 7309#       发表于 2023-6-23 22:09
+
+ 本帖最后由 UnrealApartheid 于 2023-6-23 22:10 编辑 
+
+如果有高达乱入，你们认为会是什么情况？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+5f136550a52a9dfb.jpg
+(166.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 22:10 上传
+
+<img src="https://img.saraba1st.com/forum/202306/23/221025kqlq32zy99yju9iz.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Destiny4073  
+##### 7310#       发表于 2023-6-23 22:09
+
+【中字动画】
+[https://www.aliyundrive.com/s/nhhpHwaG2EF](https://www.aliyundrive.com/s/nhhpHwaG2EF)
+点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+
+
+*****
+
+####  Blackson  
+##### 7311#       发表于 2023-6-23 22:20
+
+GPX一出来还以为是欲望大奖赛
+
+离个题，现在就看幻日能不能带来好的收益，这样的话LL系列各种番外也能上来了
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 7312#       发表于 2023-6-23 22:58
+
+<img src="https://img.saraba1st.com/forum/202306/23/225802j7vavg4str0zt8sp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 22:58 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7313#       发表于 2023-6-23 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61401434&amp;ptid=1959558" target="_blank">UnrealApartheid 发表于 2023-6-23 22:09</a>
+如果有高达乱入，你们认为会是什么情况？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://p.sda1.dev/12/6a27cbe0d06fcc49bbbcbaabec9bde1d/CMP_20230623230622023.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Huanghaozheng  
+##### 7314#       发表于 2023-6-23 23:20
+
+高咲司令！请下命令罢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NZ-333  
+##### 7315#       发表于 2023-6-23 23:22
+
+现在看到emotion还是想笑<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/23/232216zsq8rmkjyakxal7v.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (229.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:22 上传
+
+
+*****
+
+####  待宵  
+##### 7316#       发表于 2023-6-23 23:24
+
+这一排里面从小屑屑到米娅这几个都有种下一秒要冲下去开始战斗的味道
+
+
+*****
+
+####  NZ-333  
+##### 7317#       发表于 2023-6-23 23:35
+
+步梦不在家，静子称大王
+
+<img src="https://img.saraba1st.com/forum/202306/23/233535b8kb0hbbhabkyhkv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:35 上传
+
+*****
+
+####  仟音一心  
+##### 7318#       发表于 2023-6-23 23:39
+
+新公式照13人
+<img src="https://p.sda1.dev/12/2a5bdd15ab52f2a61f67455a4f5b4d59/CMP_20230623233928448.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  NZ-333  
+##### 7319#       发表于 2023-6-23 23:40
+
+拿手把戏
+
+<img src="https://img.saraba1st.com/forum/202306/23/234011fghwwbwglsiww1lr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:40 上传
+
+
+*****
+
+####  NZ-333  
+##### 7320#       发表于 2023-6-23 23:43
+
+听出不是雪菜了，男孩子气出来了
+
+<img src="https://img.saraba1st.com/forum/202306/23/234316tra34ka656pk8k8k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (134.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:43 上传
+
+
+*****
+
+####  Skyline_R  
+##### 7321#       发表于 2023-6-23 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/23/235207jhxc4hsfzf1dx850.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:52 上传
+
+<img src="https://img.saraba1st.com/forum/202306/23/235132s0bpqe70d8jdzgud.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:51 上传
+
+*****
+
+####  NZ-333  
+##### 7322#       发表于 2023-6-23 23:55
+
+独角兽草 怎么还有块牌子的
+
+<img src="https://img.saraba1st.com/forum/202306/23/235504cfy1bm808ob0r6p6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (281.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:55 上传
+
+*****
+
+####  NZ-333  
+##### 7323#       发表于 2023-6-23 23:56
+
+你会发出怪兽般的啸叫吗
+
+<img src="https://img.saraba1st.com/forum/202306/23/235609a1lh345j8jh5hicj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (116.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:56 上传
+
+*****
+
+####  NZ-333  
+##### 7324#       发表于 2023-6-23 23:58
+
+我绝对在步梦脸上看到过百分百相似度的
+
+<img src="https://img.saraba1st.com/forum/202306/23/235855kygygb65eh4d4ma8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (128.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:58 上传
+
+*****
+
+####  NZ-333  
+##### 7325#       发表于 2023-6-23 23:59
+
+I like beautiful people
+
+<img src="https://img.saraba1st.com/forum/202306/23/235955l7jnjjffffqwxq3j.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (160.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-23 23:59 上传
+
+*****
+
+####  NZ-333  
+##### 7326#       发表于 2023-6-24 00:02
+
+小静子你真的会闪现吧
+
+<img src="https://img.saraba1st.com/forum/202306/24/000201uziniqecilonfond.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (252.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 00:02 上传
+
+
+*****
+
+####  ads147147  
+##### 7327#       发表于 2023-6-24 00:03
+
+azuna三个人都有挺好颜了。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  NZ-333  
+##### 7328#       发表于 2023-6-24 00:04
+
+我去 单马尾
+
+<img src="https://img.saraba1st.com/forum/202306/24/000424c2e25pqi88o25wzc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 00:04 上传
+
+*****
+
+####  NZ-333  
+##### 7329#       发表于 2023-6-24 00:06
+
+令人感动的熟悉画风<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/24/000648e2ihhpphljm2eggj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 00:06 上传
+
+*****
+
+####  NZ-333  
+##### 7330#       发表于 2023-6-24 00:09
+
+同好会两代领导ren在湖边亲切合影
+
+<img src="https://img.saraba1st.com/forum/202306/24/000907kpzpqnplg1ajap8a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (286.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 00:09 上传
+
+
+*****
+
+####  NZ-333  
+##### 7331#       发表于 2023-6-24 00:14
+
+中二病三銃士
+
+<img src="https://img.saraba1st.com/forum/202306/24/001457hxkezucu0puzlxmf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (98.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 00:14 上传
+
+*****
+
+####  斯莱塔墨丘利  
+##### 7332#       发表于 2023-6-24 00:19
+
+mebachi的风格就是棒
+
+希望以后能单出个虹咲的画集
+
+
+*****
+
+####  先日日  
+##### 7333#       发表于 2023-6-24 02:04
+
+柴柴子你说的真的是中文？我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+捕获.PNG
+(201.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 02:04 上传
+
+<img src="https://img.saraba1st.com/forum/202306/24/020426fcjjq2e3thh1yru8.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先日日  
+##### 7334#       发表于 2023-6-24 02:08
+
+侑你怎么穿得和其他人不在一个季节
+
+<img src="https://img.saraba1st.com/forum/202306/24/020810iev9nrwpl0bpulc9.png" referrerpolicy="no-referrer">
+
+<strong>2023-06-24 020730.png</strong> (381.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 02:08 上传
+
+
+*****
+
+####  Piano-Forest  
+##### 7335#       发表于 2023-6-24 07:52
+
+「ラブライブ！虹ヶ咲 学園スクールアイドル同好会 
+
+NEXT SKY」
+
+Blu-ray ジャケットイラスト公開🎉
+<img src="https://p.sda1.dev/12/35e7cdd453a0fe07755766072ba6c9c3/20230624_074927.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d7846f918c3b0cfd6bbeccfffdbf612e/20230624_074928.jpg" referrerpolicy="no-referrer">
+
+「ラブライブ！#虹ヶ咲 学園スクールアイドル同好会 
+
+NEXT SKY」
+
+挿入歌シングル「Feel Alive / Go Our Way！」
+
+CDジャケット公開🎉
+<img src="https://p.sda1.dev/12/d0a98d5b52dc801953b6bef776e9f177/20230624_074931.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/2b7b657e85315e2e33bf4f2853bfc953/20230624_074933.jpg" referrerpolicy="no-referrer">
+
+「ラブライブ！#虹ヶ咲 学園スクールアイドル同好会 
+
+NEXT SKY」
+
+エンディング主題歌＆エンドロールテーマシングル「SINGING, DREAMING, NOW!」
+
+CDジャケット公開🎉
+<img src="https://p.sda1.dev/12/8ce836b537b4d10ba2b71341125cc176/20230624_074935.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 7336#       发表于 2023-6-24 07:55
+
+剧场3部作 制作决定 第一章 2024年公开 ​​​
+
+🌈#虹ヶ咲🌈
+
+『ラブライブ！虹ヶ咲学園スクールアイドル同好会』
+
+🎊劇場上映シリーズ3部作、制作決定🎊
+
+第1章は2024年公開予定！
+
+これからもニジガクメンバーと一緒に
+
+いままた夢を、追いかけていきましょう✨
+
+[https://youtu.be/J53K1Ti8Qmo](https://youtu.be/J53K1Ti8Qmo)
+
+<img src="https://p.sda1.dev/12/4211b87456d8244e5b2283768f8939d0/xYp386FteEOSUSN9.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/c317a32bee6c3fd928449f3253aab686/clear.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  西部鸭卡农  
+##### 7337#       发表于 2023-6-24 08:03
+
+ 本帖最后由 西部鸭卡农 于 2023-6-24 08:06 编辑 
+
+去秋叶原那段好多缪水彩蛋。虹在情怀这块做得又好又适度
+
+
+*****
+
+####  西部鸭卡农  
+##### 7338#       发表于 2023-6-24 08:17
+
+虹咲这个OVA通过虹团帮助一个喜欢学园偶像文化却因为生活环境没有办法当学园偶像的少女，再次让人觉得，学园偶像就是一种希望，一种态度，一种向往。我觉得这才是lovelive精神的核心，传播希望，积极向上，向往美好。
+
+*****
+
+####  502307501  
+##### 7339#       发表于 2023-6-24 08:22
+
+<img src="https://img.saraba1st.com/forum/202306/24/082208f0oo1fiwee1wimw0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-24 08:22 上传
+
+细节发饰
+
+
+*****
+
+####  ads147147  
+##### 7340#       发表于 2023-6-24 08:56
+
+bd封面，岚珠完美的泽塔位（谢谢前辈居然把中间的位置让给我jpg）（然后就少一节w
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  ddy2811  
+##### 7341#       发表于 2023-6-24 09:23
+
+情怀拉满的OVA啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7342#       发表于 2023-6-24 09:46
+
+Go Our Way！
+<img src="https://p.sda1.dev/12/c3220d6714e6e013f66f5242ebc979fd/CMP_20230624094614478.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7343#       发表于 2023-6-24 19:10
+
+<img src="https://p.sda1.dev/12/c5b149ce213d3a2da8717ccdb3dece8d/CMP_20230624191008800.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/323e3f07cdefc3bbb25e258df453240b/CMP_20230624191008852.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/eda82483b55e1a49d2557cb4bed84496/CMP_20230624191008909.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d50657f89a72c272c1efefa565ab4086/CMP_20230624191008969.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7344#       发表于 2023-6-24 19:14
+
+边上也有盘子啊，那么是和谁一起去捏。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  kos_mos  
+##### 7345#       发表于 2023-6-24 19:45
+
+中二病米娅已成今日流行话题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  damian-wade  
+##### 7346#       发表于 2023-6-25 00:09
+
+之前OVA的宣传图非常欺诈啊，整一个大步老师的构图，结果是盐子的主场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我想看步梦的伦敦游记
+白毛叫佩涅罗佩实在太出戏，而且你的戏份也很少<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+新ED质量一如既往地高，这个风格真好
+最后粉丝来信那里，中国粉丝被选上的好多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cybernetics31  
+##### 7347#       发表于 2023-6-25 00:14
+
+照片很瘦，视频很圆………………菜宝这穿的了ova那身衣服吗………………10组发的那个视频感觉她脸都圆成球了
+
+
+*****
+
+####  liyropen  
+##### 7348#       发表于 2023-6-25 06:18
+
+<img src="https://img.saraba1st.com/forum/202306/25/061752uabxa88oanawzmaf.png" referrerpolicy="no-referrer">
+
+<strong>FzWqp2maUAAhepM.png</strong> (90.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 06:17 上传
+
+[かせ](https://twitter.com/ks_lys/status/1672430516866543616)
+
+
+*****
+
+####  ads147147  
+##### 7349#       发表于 2023-6-25 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61415662&amp;ptid=1959558" target="_blank">cybernetics31 发表于 2023-6-25 00:14</a>
+照片很瘦，视频很圆………………菜宝这穿的了ova那身衣服吗………………10组发的那个视频感觉她脸都圆成球 ...</blockquote>
+有发型的原因，也有拍摄角度的原因，也有菜宝自欺欺人ps的原因w。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  stygian  
+##### 7350#       发表于 2023-6-25 08:34
+
+上衣稍微做长点遮住肚子就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7351#       发表于 2023-6-25 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61411494&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-6-24 19:14</a>
+边上也有盘子啊，那么是和谁一起去捏。
+
+—— 来自 OPPO PGU110, Android 13上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+奈圆
+<img src="https://p.sda1.dev/12/28fa67426999b6a43c5932d563089f66/CMP_20230625092121912.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/ac3e191ab5da477db2f7132503fd1b87/CMP_20230625092122000.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/25f3c23ca763feff17fc9b805c6a4071/CMP_20230625092244574.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  00Q  
+##### 7352#       发表于 2023-6-25 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61398868&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-6-23 19:25</a>
+
+还有三个ova，真是独角兽ova系列力～</blockquote>
+致敬独角兽，成为独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  斯莱塔墨丘利  
+##### 7353#       发表于 2023-6-25 10:18
+
+有一部同时有unicorn刚大木和佩涅罗佩登场的日升制作的动画<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  00Q  
+##### 7354#       发表于 2023-6-25 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61419478&amp;ptid=1959558" target="_blank">斯莱塔墨丘利 发表于 2023-6-25 10:18</a>
+
+有一部同时有unicorn刚大木和佩涅罗佩登场的日升制作的动画</blockquote>
+这下高达正统了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  斯莱塔墨丘利  
+##### 7355#       发表于 2023-6-25 10:38
+
+ 本帖最后由 斯莱塔墨丘利 于 2023-6-25 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61419672&amp;ptid=1959558" target="_blank">00Q 发表于 2023-6-25 10:32</a>
+
+这下高达正统了</blockquote>
+还有setsuna
+
+184503dy1qir1oyqwyxp6o.png
+(60.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 10:41 上传
+
+<img src="https://img.saraba1st.com/forum/202306/25/104112el3g2qswwawjq31g.png" referrerpolicy="no-referrer">
+
+E99o6uHUcAsQ8vT.jpg
+(232.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 10:41 上传
+
+<img src="https://img.saraba1st.com/forum/202306/25/104116m8vfyf9g2dgd49vs.jpg" referrerpolicy="no-referrer">
+
+185435e5h97ofhdmpz9wsf.png
+(59.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-25 10:41 上传
+
+<img src="https://img.saraba1st.com/forum/202306/25/104119cpattt611t88yzk6.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7356#       发表于 2023-6-25 18:34
+
+五专封面服装投票结果，10/4发售
+<img src="https://p.sda1.dev/12/ecf48a23f4637e1aa7ffc6244bcde32c/CMP_20230625183250042.jpg" referrerpolicy="no-referrer">
+
+上原步梦1/7比例手办2024年春发售
+<img src="https://p.sda1.dev/12/4d4579c99052306bf1f577d50ac54919/CMP_20230625183306333.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  00Q  
+##### 7357#       发表于 2023-6-26 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61419747&amp;ptid=1959558" target="_blank">斯莱塔墨丘利 发表于 2023-6-25 10:38</a>
+
+还有setsuna</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BlueDrii  
+##### 7358#       发表于 2023-6-27 03:16
+
+才看了OVA，这go our way也太难听了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又土又单薄，作曲和编曲真是在折磨声优和观众
+等等这是giga写的，他不至于这么拉吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我还挺喜欢他写的歌啊
+
+—— 来自 HUAWEI TAS-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  一个陆仁贾  
+##### 7359#       发表于 2023-6-27 18:13
+
+mv结束后独角兽还变觉醒绿了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dozen  
+##### 7360#       发表于 2023-6-28 21:23
+
+刚看完，
+感觉像对s2的反思作，又没完全反思(
+
+
+*****
+
+####  Piano-Forest  
+##### 7361#       发表于 2023-6-29 17:20
+
+[https://twitter.com/ohkowai/status/1674344178980122625](https://twitter.com/ohkowai/status/1674344178980122625)
+
+💞💞💞🫶果林先輩誕生日おめでとう🎉💞💞💞💞
+
+#朝香果林生誕祭2021
+
+#朝香果林誕生祭2021
+
+ #朝香果林
+
+ #虹ヶ咲
+<img src="https://p.sda1.dev/12/7298ad5f9588f3497d46246ff57480d5/20230629_172009.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7362#       发表于 2023-6-30 05:42
+
+<img src="https://p.sda1.dev/12/45f2e53e98b1237771249198e9a8fb80/CMP_20230630054156634.jpg" referrerpolicy="no-referrer">
+虹之咲字幕组汉化：
+ “好—热啊！汗流个不停呢。栞子膝盖感觉重吗？”
+ “没事的。请好好休息休息，补充水分。”
+ Shioriko‘s episode
+ 我坐在长椅上，望着飞动在网球场两端的黄色小球。
+ 就在刚不久，我与侑同学还在体验活动的赛场上奔跑着追逐着这球。奇迹般长的这场相持战，最终结束于我的一记扣杀。
+ “真是、手脚感觉都累到肿起来了呢！但是活动活动身体真的很舒服呢。”
+ 刚平定下气息的侑同学正躺在我的膝上微笑着。我一边用毛巾擦着她头上流出的汗，一边微微点头还她以笑容。
+ 侑与同好会成员的两人出行企划本月来到侑与栞子的网球场之行！她们是不是放松了身心呢～
+ 次回将由米娅陪伴侑出行！两人将会前往某个能令人放松的地方♪
+ 详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
+<img src="https://p.sda1.dev/12/78b02f22f8f43cc9b5cfbd1745013989/6w62yqt357nv2jbtfnvcg9k97.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/417e72fd1e5f6122469ea98b07333a9d/6zdijuk1t5ud2t4ip5cnkjquo.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/b8c069d863b49e488b928b34733861e3/1u8geqkkl78z3seduec7yn3ew.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/1da7d4192ab0ab385920f27854ed79e1/CMP_20230630054156759.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7363#       发表于 2023-6-30 17:58
+
+群里给明后天大阪fmt的花篮
+
+<img src="https://p.sda1.dev/12/db0fde8b6d459ad1440d3a5358905b45/CMP_20230630175754067.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4c2b5e78ce60d4009cc8ec9edf435aba/CMP_20230630175754129.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7364#       发表于 2023-6-30 18:58
+
+感觉昨晚生放送把挺多商品消息都说了，fmt应该有更多有趣的活动吧。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7365#       发表于 2023-7-2 13:45
+
+久违的虹色passions！打歌服
+<img src="https://p.sda1.dev/12/ba9052c4a76d9e3218de36a3418cd1c4/CMP_20230702134422225.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/dcfa21284276aa4660aae153a0a595f7/-7494121701688276422939.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/327c9aa323b2f3dc99d257df50bc82f1/14b44f69dd4e4fab.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  csolfans  
+##### 7366#       发表于 2023-7-3 13:00
+
+.jpg
+
+8f8b88b54ae53b.jpg
+(133.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 13:00 上传
+
+<img src="https://img.saraba1st.com/forum/202307/03/130023yphvp1qvr1pvs0vr.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7367#       发表于 2023-7-5 18:10
+
+声优Grand Prix8月号 封面特典 全员
+<img src="https://p.sda1.dev/12/d5bdcc27b6298345f9acac079db6fc34/CMP_20230705181011521.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/381cdd827896d750c3ead179b7c8d5a0/2m5q0r1mk2gqda8e1v0l904z0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/eeb3ee8524bc6848d1478fbd544fe814/1ec6c1mc6tp2tuu33crt93b0s.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/48a0f65e3fc54ca82fdd0632f8d89b42/39v2ujq2q2oyes90imworw1mv.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e3098936ebd4a85e597349eaa4979e72/46uif32z01r7sl25bsr6kuyl7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/50a0ce2e39afca0bc876385f76112e6b/CMP_20230705180915538.jpg" referrerpolicy="no-referrer">
+
