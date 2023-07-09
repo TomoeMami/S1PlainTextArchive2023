@@ -1118,3 +1118,1127 @@ Love Live! Sunshine!! Spin-Off TV Anime "Genjitsu no Yohane -SUNSHINE in the MIR
 这个……
 <img src="https://p.sda1.dev/12/3d3d52c10b08ef48d658195354badb54/CMP_20230620215422684.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  ads147147  
+##### 100#       发表于 2023-6-26 08:01
+
+循环far far away，突然想到自己第一次听爱香的歌就是零度战姬的ed，那时候她才17岁，那曲子全部都是电音（虽然也能听出唱的很好，电音是freezing的风格就是了），现在真的唱功炉火纯青了，过去这么多年，还真有点丸子那种：夜羽你从小唱歌就是好听的感慨。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  tjshibc21  
+##### 101#       发表于 2023-6-26 08:04
+
+第一集质量挺高
+
+
+*****
+
+####  dozen  
+##### 102#       发表于 2023-6-26 10:02
+
+动画人设是第一话看下来最舒服的地方，不过live时怎么显得有点太幼(
+
+
+*****
+
+####  仟音一心  
+##### 103#         楼主| 发表于 2023-6-26 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61433747&amp;ptid=2078039" target="_blank">550616 发表于 2023-6-26 06:34</a>
+
+面包店那个，声优怎么嘴里含着东西。。</blockquote>
+没有啊，就是有口音而已
+
+
+*****
+
+####  仟音一心  
+##### 104#         楼主| 发表于 2023-6-26 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61431808&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-6-25 23:11</a>
+
+开live却没提aqours名义，怪哦，你们一季肯定都集结了怎么还变成solo偶像了吗。
+
+说起来夜羽和步梦 ...</blockquote>
+主线目前看来是拯救沼津，反正总得废点什么。
+
+*****
+
+####  仟音一心  
+##### 105#         楼主| 发表于 2023-6-26 10:30
+
+ 本帖最后由 仟音一心 于 2023-6-26 10:32 编辑 
+
+live已经安排上了 武藏野2023年12月15-17日
+<img src="https://p.sda1.dev/12/9cd89e24cfc92977dcf7f0cddeb7356b/CMP_20230626102859172.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/f5a23586db1b95781139ddc7c0f3c9f3/CMP_20230626102859269.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/c17517d174e44032c7f720459bd5d254/CMP_20230626102859359.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9307ed40ca5fb42f14fe5f2531ef0d95/CMP_20230626102859450.jpg" referrerpolicy="no-referrer">
+
+BD第一卷封面
+<img src="https://p.sda1.dev/12/7de03a8a7aff8999ebf4ffee6314fb33/CMP_20230626103043656.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/30c2d18c3181c7ae4cbf56a88528e771/CMP_20230626103043721.jpg" referrerpolicy="no-referrer">
+
+第一话插曲far far away CD封面
+<img src="https://p.sda1.dev/12/a054593f369ccd072cabe029986e5cee/CMP_20230626103043893.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/69d60709e57f83c7413dd0772c451666/CMP_20230626103043943.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 106#       发表于 2023-6-26 10:54
+
+7卷13集，那么到底谁是拉拉系列的另类捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+目前来看这个封面也挺像是虹虹s1的bd做法，接下来一卷两个个人回，封面正反面两个人，然后10,11就可以搞事情了。不过有一说一，当年水11也挺搞事情的，虹只是继承了水的传统。
+
+说起来如果真的是镜中世界的话，让我想起了龙骑。
+
+
+*****
+
+####  川陀  
+##### 107#       发表于 2023-6-26 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61436408&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-6-26 10:54</a>
+7卷13集，那么到底谁是拉拉系列的另类捏
+
+目前来看这个封面也挺像是虹虹s1的bd做法，接下来一卷两个 ...</blockquote>
+如果说是镜中世界的话，Unpolarized Reflexion和SUNSHINE in the MIRROR这两个副标题挺值得回味的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 108#       发表于 2023-6-26 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61436587&amp;ptid=2078039" target="_blank">川陀 发表于 2023-6-26 11:04</a>
+
+如果说是镜中世界的话，Unpolarized Reflexion和SUNSHINE in the MIRROR这两个副标题挺值得回味的。
+
+— ...</blockquote>
+幻日本身也是一种大气折射的现象，总觉得确实会往镜像，反射之类的方向走展开。
+
+（其实已经有一个被毁灭的沼津在镜像世界这种黑深残展开什么的）
+
+
+*****
+
+####  stygian  
+##### 109#       发表于 2023-6-26 11:16
+
+幻日音同现实，这个文字游戏还是颇有趣的
+
+
+*****
+
+####  550616  
+##### 110#       发表于 2023-6-26 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61435549&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-6-26 10:06</a>
+
+没有啊，就是有口音而已</blockquote>
+是么，像口齿不清一样。。。
+
+
+*****
+
+####  仟音一心  
+##### 111#         楼主| 发表于 2023-6-26 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61437543&amp;ptid=2078039" target="_blank">550616 发表于 2023-6-26 12:00</a>
+
+是么，像口齿不清一样。。。</blockquote>
+设定上口音很重
+
+
+*****
+
+####  NZ-333  
+##### 112#       发表于 2023-6-26 12:56
+
+【學園偶像慾望大賽！！】 [https://www.bilibili.com/video/BV1Jh4y1g75E](https://www.bilibili.com/video/BV1Jh4y1g75E)
+
+
+*****
+
+####  skdom  
+##### 113#       发表于 2023-6-26 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61433741&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-6-26 06:26</a>
+
+动画基本上是原创剧情</blockquote>
+这回漫画脚本和动画编剧是一个人，大野敏哉
+
+
+*****
+
+####  仟音一心  
+##### 114#         楼主| 发表于 2023-6-26 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61439762&amp;ptid=2078039" target="_blank">skdom 发表于 2023-6-26 14:59</a>
+
+这回漫画脚本和动画编剧是一个人，大野敏哉</blockquote>
+但是区别已经很大了，漫画里夜羽职业是占卜师，会魔法。
+
+不过9人的职业设定看op确实和漫画一模一样。
+
+
+*****
+
+####  風駿  
+##### 115#       发表于 2023-6-26 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61436795&amp;ptid=2078039" target="_blank">stygian 发表于 2023-6-26 11:16</a>
+
+幻日音同现实，这个文字游戏还是颇有趣的</blockquote>
+下生肉才注意到原来这个幻日发音Genjitsu，实在有趣
+
+*****
+
+####  西部鸭卡农  
+##### 116#       发表于 2023-6-26 15:50
+
+ 本帖最后由 西部鸭卡农 于 2023-6-26 15:56 编辑 
+
+希望有惊喜。
+
+*****
+
+####  川陀  
+##### 117#       发表于 2023-6-26 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61440056&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-6-26 15:18</a>
+但是区别已经很大了，漫画里夜羽职业是占卜师，会魔法。
+
+不过9人的职业设定看op确实和漫画一模一样。 ...</blockquote>
+目前感觉动画是漫画的前传，不知道在动画这里，九人是一开始都认识，还是别的关系。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nh_zzz  
+##### 118#       发表于 2023-6-26 16:30
+
+夜羽妈碎碎念总觉得会冒一句“演员都是任性的生物”出来
+
+*****
+
+####  没有爱就看不见  
+##### 119#       发表于 2023-6-26 16:37
+
+不负责任随便瞎奶几口
+
+梦结局
+
+最后夜羽会无法听懂狗狗说话
+
+*****
+
+####  wsdbyh  
+##### 120#       发表于 2023-6-26 20:25
+
+今年愚人节那个2D动作游戏也成真的了
+
+
+*****
+
+####  蜜梨柑  
+##### 121#       发表于 2023-6-26 20:27
+
+还挺快的，我还以为明年才会真的官宣，代哥这是有备而来啊
+
+*****
+
+####  gundammarkⅡ  
+##### 122#       发表于 2023-6-26 20:59
+
+水团两季度里善子妈妈有出场吗？也是丸子头？
+
+*****
+
+####  wsdbyh  
+##### 123#       发表于 2023-6-26 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61444292&amp;ptid=2078039" target="_blank">gundammarkⅡ 发表于 2023-6-26 20:59</a>
+
+水团两季度里善子妈妈有出场吗？也是丸子头？</blockquote>
+有
+
+*****
+
+####  ads147147  
+##### 124#       发表于 2023-6-26 21:09
+
+看来拉拉的愚人节基本都是企划预案，有空就给你实现一下。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  仟音一心  
+##### 125#         楼主| 发表于 2023-6-26 21:15
+
+《LoveLive! Sunshine!》衍生作品《幻日夜羽》将推出2D动作游戏《幻日夜羽 湛海耀光》，由擅长此类游戏的INTI CREATES发行。游戏将于2023年11月16日登陆PS5、PS4、XSX|S、Xbox One、Switch、PC。
+
+玩家要化身主角“夜羽”，与搭档“莱拉普斯”一起探索怪物横行的神秘海底地城，以救出失踪的同伴为目标前进。夜羽能够将地城内取得的素材道具加以组合，藉此制作装备，并借用救出的同伴的力量，逐步拓展探索的范围。地城内的部分地点会随机变换构造，能够享受百玩不厌的劈砍游戏体验。 
+<img src="https://p.sda1.dev/12/d50bfee83269af35b08bf63560377a5e/CMP_20230626211250013.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/6f4d284a7c55a317f7142c727ef22f3a/5mrnfuweabx62zcnjsbfztfho.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/88fc3d6b38a96cc062cb86c08b2aa232/5gp441c8h4rs7zp2hvz4j2inc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/56d36740551fda98606cb6e967554198/6nelwcmjl544pfpj6sntzg8qo.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/a83ac476fdc4856a0df8261fd06f9ca6/26b1echsdqyiw1cgqqow7wv7l.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9c4e8b8805b60291f1dbb8bfea13c755/1q58r4r2xt3bajr65v9izmje7.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/65304d6d39c8bf5d16d88a3ef3fccbd3/6emcf16j8101i1mhuazs0hnjx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/b49ed04f1148fdd83ce814976e68950e/4tn2rdysqclt4904ykhp6if90.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/b9690bd241ca2d727c2df35cdfc96f0b/32qkmvi7bhyl7i1b7uzzll5zh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4df8d22a31761a5aad4d74502cf51029/2puwqfdkozj0v6potgubvx9ib.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 126#         楼主| 发表于 2023-6-26 21:17
+
+推上考据是另外三个团的校服也出现了
+<img src="https://p.sda1.dev/12/a32819ffa33127e2ca709dce30ae5924/CMP_20230626211711540.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/0d91e20621e357379beee99be78ff5a4/CMP_20230626211711637.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/ef53a017c367b388ea32223394789359/CMP_20230626211711693.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/c3514c837c851b03653f1d7214cb03d6/CMP_20230626211711742.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e68ff3953cf084279d8ce3c92fbf9d5b/CMP_20230626211711805.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wsdbyh  
+##### 127#       发表于 2023-6-26 21:22
+
+官网只说了部分场景随机生成，也不知道这个部分是多大
+
+而且地图随机生成意味地图本身没啥好玩的地形机关或是奇观了
+
+*****
+
+####  银色天空  
+##### 128#       发表于 2023-6-26 22:02
+
+INTI的话可以期待一下。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还以为as和sif2整烂活之后就彻底告别ll游戏了
+
+*****
+
+####  1096beam  
+##### 129#       发表于 2023-6-26 22:04
+
+拉拉需要意识到自己不围绕着拉拉大赛讲故事才会好看的事实
+
+*****
+
+####  cmyk1234  
+##### 130#       发表于 2023-6-26 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61444561&amp;ptid=2078039" target="_blank">wsdbyh 发表于 2023-6-26 21:22</a>
+官网只说了部分场景随机生成，也不知道这个部分是多大
+
+而且地图随机生成意味地图本身没啥好玩的地形机关或 ...</blockquote>
+以Inti Creates制作的《超惑星战记zero3》为例，VRV系统所生成的随机里层地图具备所属大地图的相关性质。
+A区：表层头朝上，里层头朝下。B区：表层走玻璃，玻璃消失，里层走空洞，生成玻璃。C区：表层走货柜变暗，里层走货柜变亮。D区：表层传送门从左到右，里层传送门从右到左。E区：表层很多杂兵，里层没有杂兵。F区：不明确。隐藏区域表里层无区别。
+参考视频（约3小时）
+【【超惑星战记zero3】中文剧情100%全收集攻略（完结）-哔哩哔哩】 [视频链接](https://b23.tv/8IUfUK1)
+
+另外，官网截图显示幻日的夜羽像素横版右上角有房间路径图，可能有银河城的要素。
+
+
+*****
+
+####  cmyk1234  
+##### 131#       发表于 2023-6-26 22:18
+
+不过，我很讨厌Inti Creates设计超高强度的boss战。
+[玩家听着一直支援的妖精的合唱，看着妖精强化玩家控制的另一个主角打自机，而且选两边都是如此。](https://b23.tv/0ebiupv)
+
+
+*****
+
+####  Piano-Forest  
+##### 132#       发表于 2023-6-26 22:35
+
+OP：[https://youtu.be/vouRbTrqkyU](https://youtu.be/vouRbTrqkyU)
+
+第1话插入歌「Far far away」：[https://youtu.be/7Hli9vemRMk](https://youtu.be/7Hli9vemRMk)
+
+OP封面
+<img src="https://p.sda1.dev/12/c2090ea3b3059e68bbe032a573365845/52993851635_d4fcf8d7bb_b.jpg" referrerpolicy="no-referrer">
+
+插入曲① A盘封面
+<img src="https://p.sda1.dev/12/aaaacd63ad4320b4ca5e257681703d14/20230626_223042.jpg" referrerpolicy="no-referrer">
+
+BD第1卷封面 共7卷，13话
+<img src="https://p.sda1.dev/12/1d4f6105fff1e9e054a61c903e37345f/20230626_223108.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 133#       发表于 2023-6-26 22:36
+
+[https://twitter.com/ta_akitsu/status/1673224894837063680](https://twitter.com/ta_akitsu/status/1673224894837063680)
+
+幻日のヨハネのOPで水中のシーンの原画やってます。よろしくお願いします。
+
+撮影めっちゃ綺麗でした。
+<img src="https://p.sda1.dev/12/5be3558db14290df2d25ab66a7a18efa/20230626_223550.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  rexzhanghao  
+##### 134#       发表于 2023-6-26 22:39
+
+Guilty Kiss小队的歌算是整个LL系列里最青睐的
+
+*****
+
+####  梅斯之围  
+##### 135#       发表于 2023-6-26 22:39
+
+感觉会是肉鸽
+
+
+*****
+
+####  蒜灵  
+##### 136#       发表于 2023-6-26 22:52
+
+叔叔或者巴哈有买版权吗？
+
+
+*****
+
+####  lanslort  
+##### 137#       发表于 2023-6-26 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这算好故事……吗
+
+游戏看起来倒是还行
+
+
+*****
+
+####  cmyk1234  
+##### 138#       发表于 2023-6-26 23:29
+
+ 本帖最后由 cmyk1234 于 2023-6-26 23:31 编辑 
+
+对游戏只有一个期待，复活发动Song of Diva唱歌，得唱轮回。
+
+隐藏角色绮罗翼（bushi）。
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 139#       发表于 2023-6-27 03:14
+
+日笠阳子配的这大狗听着好怪 格格不入的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cxj649  
+##### 140#       发表于 2023-6-27 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61445532&amp;ptid=2078039" target="_blank">蒜灵 发表于 2023-6-26 22:52</a>
+
+叔叔或者巴哈有买版权吗？</blockquote>
+巴哈有
+
+
+*****
+
+####  ads147147  
+##### 141#       发表于 2023-6-27 08:03
+
+突然意识到，如果幻日出二期，s2复活圣雪好像也可以，这样也算二期加人吗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  川陀  
+##### 142#       发表于 2023-6-27 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61447587&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-6-27 08:03</a>
+突然意识到，如果幻日出二期，s2复活圣雪好像也可以，这样也算二期加人吗
+
+—— 来自 OPPO PGU110,  ...</blockquote>
+圣雪应该是从19年之后就没有活动了吧，这几年的像AS也是只提到但是没有出现，感觉应该是合同到期了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 143#       发表于 2023-6-27 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61447612&amp;ptid=2078039" target="_blank">川陀 发表于 2023-6-27 08:07</a>
+圣雪应该是从19年之后就没有活动了吧，这几年的像AS也是只提到但是没有出现，感觉应该是合同到期了？
+
+— ...</blockquote>
+中之人还在活动就问题不大，只是看代哥愿不愿意，不过缺少了拉拉大赛，想让圣雪登场确实需要一个比较好的理由，毕竟函馆有点太远了。
+
+查了下2020年有参加live，实际上隔的也不算远，感觉也就是上面的意思决定要不要带圣雪玩。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  skdom  
+##### 144#       发表于 2023-6-27 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61447612&amp;ptid=2078039" target="_blank">川陀 发表于 2023-6-27 08:07</a>
+
+圣雪应该是从19年之后就没有活动了吧，这几年的像AS也是只提到但是没有出现，感觉应该是合同到期了？
+
+— ...</blockquote>
+圣雪2020年出了一单，有了自己第一次Live
+
+只不过疫情的影响，水团的蛋巡都没了，也无力顾及圣雪了
+
+
+*****
+
+####  宵神乐  
+##### 145#       发表于 2023-6-27 21:32
+
+质量还行啊，不过声线跟本篇是不是有点不同<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yeaha123  
+##### 146#       发表于 2023-6-28 12:55
+
+live太好看了，终于不是花田十辉了
+
+
+*****
+
+####  浴缸子  
+##### 147#       发表于 2023-6-28 16:46
+
+歌还不错，但是配音差点。
+
+看到楼里有人说狗奇怪，估计是因为说话嘴不动的缘故。不知道为啥总体质量挺好的但是狗做的有点敷衍。
+
+
+*****
+
+####  楠城旧篱  
+##### 148#       发表于 2023-6-28 17:08
+
+狗可能有伏笔，估计是故意的
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 149#       发表于 2023-6-29 12:51
+
+水团当年出的时候跟着看了第一季，现在已经忘光了
+
+第一集看下来感觉还不错，剧情什么的还看不出什么展开，插入曲和op都很好听，花丸我本来都忘了这个人了，滋啦的口癖出来就有印象了
+
+另外我感觉这作人设比水团本篇好看一点，我个人一直感觉ll的眼睛有点怪怪的，缪水还有虹的游戏人设都是这样，虹动画的人设就舒服不少
+
+
+*****
+
+####  仟音一心  
+##### 150#         楼主| 发表于 2023-6-29 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61466707&amp;ptid=2078039" target="_blank">浴缸子 发表于 2023-6-28 16:46</a>
+歌还不错，但是配音差点。
+
+看到楼里有人说狗奇怪，估计是因为说话嘴不动的缘故。不知道为啥总体质量挺好的 ...</blockquote>
+原作只有夜羽和动物学者梨子可以和莱拉普斯交流
+
+
+*****
+
+####  仟音一心  
+##### 151#         楼主| 发表于 2023-6-29 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61467025&amp;ptid=2078039" target="_blank">楠城旧篱 发表于 2023-6-28 17:08</a>
+狗可能有伏笔，估计是故意的</blockquote>
+其他人确实听不到莱拉普斯说话
+
+
+*****
+
+####  cmyk1234  
+##### 152#       发表于 2023-6-29 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61467025&amp;ptid=2078039" target="_blank">楠城旧篱 发表于 2023-6-28 17:08</a>
+狗可能有伏笔，估计是故意的</blockquote>
+像素游戏里说不定能狗变人（雷霆解放！）。
+
+
+*****
+
+####  仟音一心  
+##### 153#         楼主| 发表于 2023-6-29 13:59
+
+可能有人没看过LLSS，莱拉普斯出自二期第5话 捡到一只狗 事实上这狗叫豆馅是别人家的，还回去后善子追悔不已，好不容易才放下，所以本作算是圆了善子的梦。
+<img src="https://p.sda1.dev/12/fed1ae02ea8729f322e2ad13a4a68a6b/CMP_20230629135749552.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/0b04816f49901d4ea45d38457a57d10a/CMP_20230629135749607.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/87e2ecbddbc78d2c73a63873c1008d9d/CMP_20230629135749655.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/3784c4a50369ae9f334c850d27bd9a3a/CMP_20230629135749709.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/ca872d8e783f191702abd9ff004a5302/CMP_20230629135749762.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  浴缸子  
+##### 154#       发表于 2023-6-29 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61477420&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-6-29 13:20</a>
+
+原作只有夜羽和动物学者梨子可以和莱拉普斯交流</blockquote>
+跟设定没什么关系，狗嘴的动画很明显流畅度有问题，而且有几个镜头视线没对上主角。
+
+
+*****
+
+####  仟音一心  
+##### 155#         楼主| 发表于 2023-6-29 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61480413&amp;ptid=2078039" target="_blank">浴缸子 发表于 2023-6-29 17:05</a>
+跟设定没什么关系，狗嘴的动画很明显流畅度有问题，而且有几个镜头视线没对上主角。 ...</blockquote>
+我个人的理解就是刻意做出不听声音光看画面你都不知道这狗在和人说话的感觉，像是用心灵感应在交流。
+
+
+*****
+
+####  梅斯之围  
+##### 156#       发表于 2023-6-29 22:46
+
+大龄青年过年回家既视感
+
+
+*****
+
+####  浴缸子  
+##### 157#       发表于 2023-6-30 07:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61482804&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-6-29 19:55</a>
+
+我个人的理解就是刻意做出不听声音光看画面你都不知道这狗在和人说话的感觉，像是用心灵感应在交流。 ...</blockquote>
+这一点我同意，但是做动画还是要要符合基本的运动规律。
+
+比如最常见的处理方法，狗说话嘴不动，通过眼神和动作交流，这样既简单，看上去又合理。
+
+或者路人视角狗在叫，主角听着是在说话，要做到狗嘴频繁开闭，这样视觉上也合理。
+
+也可以取一些常见的狗张嘴的动作，比如张嘴喘气这样的模式，也不会很违和。
+
+我又看了下片子，他的处理方式应该是想用一次张嘴说一句话，这种处理方法适合短句，碰到长句子应该根据台词发音节奏增加几次张闭嘴动画，不然画面会很楞。片子里有不少地方一个长句只配一个张嘴的画面，看着就很别扭。
+
+
+*****
+
+####  haohaoh4  
+##### 158#       发表于 2023-7-2 22:11
+
+[https://twitter.com/nozu78/status/1675504584821981185](https://twitter.com/nozu78/status/1675504584821981185)
+
+<img src="https://img.saraba1st.com/forum/202307/02/221110gknj3n3hdds515ok.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (373.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 22:11 上传
+
+
+*****
+
+####  ads147147  
+##### 159#       发表于 2023-7-2 22:30
+
+来拉普斯在梨子来了后就故意不说话了，肯定是伏笔了。要么来拉普斯不会说话，是夜羽的幻想，要么它自己来头不小。
+
+看来没有一集一个solo了，那么就是传统卖团歌咯，不知道能有几个插入曲。
+
+
+*****
+
+####  仟音一心  
+##### 160#         楼主| 发表于 2023-7-2 23:56
+
+<img src="https://p.sda1.dev/12/dd63805367c35bec025c6cf0b8ced4cd/CMP_20230702235551987.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e89568ede04e6784f3aa7a859670c93f/CMP_20230702235552059.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/0a93abdd6942e746240ff69f8562aebb/CMP_20230702235552131.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/36dfcb2669f7484c0526ec2ffd5ebd2a/CMP_20230702235552195.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wsdbyh  
+##### 161#       发表于 2023-7-3 00:11
+
+这么体贴的花丸真的好棒啊
+
+
+*****
+
+####  hqtkkb  
+##### 162#       发表于 2023-7-3 00:18
+
+没看过水团，但女主给我的观感是真的好废柴啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+另外，结尾三人组那个敷衍的空翻笑死我了。
+
+
+*****
+
+####  Delicatus545  
+##### 163#       发表于 2023-7-3 00:33
+
+别的不说，这画风也太可爱了。7月周指活<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  akirakira  
+##### 164#       发表于 2023-7-3 00:40
+
+ed上色应该是负责上一轮solo专辑色彩的老师，这种水彩风真不错，加上山本由美子的原画神中神<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 165#         楼主| 发表于 2023-7-3 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524002&amp;ptid=2078039" target="_blank">hqtkkb 发表于 2023-7-3 00:18</a>
+没看过水团，但女主给我的观感是真的好废柴啊。
+
+另外，结尾三人组那个敷衍的空翻笑死我了。</blockquote>
+本篇只是中二病+运气差，完全不废
+
+*****
+
+####  草从  
+##### 166#       发表于 2023-7-3 00:42
+
+观感意外的好，歌也不错，狗说话和骸骨骑士一样，张嘴开麦闭嘴关麦
+
+
+*****
+
+####  默默摸鱼  
+##### 167#       发表于 2023-7-3 00:58
+
+联想到 天使降临我身边 里面小学生演舞台戏，狠狠期待一波
+
+
+*****
+
+####  ads147147  
+##### 168#       发表于 2023-7-3 11:40
+
+阿b港澳台都没有感觉真影响讨论热度。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  爱丁堡official  
+##### 169#       发表于 2023-7-3 11:44
+
+感觉狗很关键
+
+
+*****
+
+####  gundammarkⅡ  
+##### 170#       发表于 2023-7-3 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524393&amp;ptid=2078039" target="_blank">默默摸鱼 发表于 2023-7-3 00:58</a>
+联想到 天使降临我身边 里面小学生演舞台戏，狠狠期待一波</blockquote>
+<[img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">结局不会是水团排的戏吧
+
+
+*****
+
+####  nh_zzz  
+##### 171#       发表于 2023-7-3 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61528326&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-7-3 11:40</a>
+阿b港澳台都没有感觉真影响讨论热度。
+
+—— 来自 OPPO PGU110, Android 13上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+还好吧，好几个投稿都是正片塞生放直接投的，论坛热度不高而已（大概）
+
+
+*****
+
+####  子夜微雪  
+##### 172#       发表于 2023-7-3 18:34
+
+作为一般通过，这是看的第二部LL——第一部是星团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+把Live去掉我还以为在看隔壁PA的乡镇打工妹新企划<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  alingzero  
+##### 173#       发表于 2023-7-3 20:12
+
+看这部作品之前有必要把原作补了吗
+
+
+*****
+
+####  脚底心，洗则白  
+##### 174#       发表于 2023-7-3 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61536094&amp;ptid=2078039" target="_blank">alingzero 发表于 2023-7-3 20:12</a>
+看这部作品之前有必要把原作补了吗</blockquote>
+没必要
+
+
+*****
+
+####  仟音一心  
+##### 175#         楼主| 发表于 2023-7-3 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61536094&amp;ptid=2078039" target="_blank">alingzero 发表于 2023-7-3 20:12</a>
+看这部作品之前有必要把原作补了吗</blockquote>
+完全不补也没事，但是补了有会更大的趣味就是了。
+
+
+*****
+
+####  MobileMeowbot  
+##### 176#       发表于 2023-7-3 22:07
+
+可以补函馆unit carnival
+
+
+*****
+
+####  创始’’’天翔  
+##### 177#       发表于 2023-7-3 22:39
+
+感觉会像马三角那样唱歌治愈狂暴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ycy8332589  
+##### 178#       发表于 2023-7-3 22:51
+
+我想当夜羽的狗的狗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 179#       发表于 2023-7-3 23:15
+
+<blockquote>引用第172楼alingzero于2023-07-03 21:12发表的  :
+
+看这部作品之前有必要把原作补了吗</blockquote>
+水团只看过一遍的半路人觉得没必要。但最好了解下原作各人的角色设定，不然有些地方的梗会一头雾水。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  仟音一心  
+##### 180#         楼主| 发表于 2023-7-4 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61538375&amp;ptid=2078039" target="_blank">Toby_dak 发表于 2023-7-3 23:15</a>
+水团只看过一遍的半路人觉得没必要。但最好了解下原作各人的角色设定，不然有些地方的梗会一头雾水。
+
+--- ...</blockquote>
+也有一些三次元的梗只看动画也get不到的，比如梨子设定为动物学者，这个知道逢田姐梗的已经笑抽了。
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 181#       发表于 2023-7-4 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61541844&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-7-4 10:09</a>
+也有一些三次元的梗只看动画也get不到的，比如梨子设定为动物学者，这个知道逢田姐梗的已经笑抽了。 ...</blockquote>
+这是啥梗啊，逢田姐我只知道一个汉堡肉
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仟音一心  
+##### 182#         楼主| 发表于 2023-7-4 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61541876&amp;ptid=2078039" target="_blank">RhmBWT_Wu 发表于 2023-7-4 10:11</a>
+
+这是啥梗啊，逢田姐我只知道一个汉堡肉
+
+—— 来自 OnePlus PGKM10, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+逢田文明的梗，就是画伯
+<img src="https://pic2.zhimg.com/50/v2-854b1dd6bb96e67cb525de5cd22b44f5_hd.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 183#       发表于 2023-7-4 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61534765&amp;ptid=2078039" target="_blank">子夜微雪 发表于 2023-7-3 18:34</a>
+作为一般通过，这是看的第二部LL——第一部是星团
+把Live去掉我还以为在看隔壁PA的乡镇打工妹新企划 ...</blockquote>
+目前的命题作文确实是振兴乡镇，水是和沼津绑定很深的企划，不扯乡镇是不可能的，就是看看切入点是啥吧，目前似乎还是以夜羽的成长弧光为主。
+
+用夜羽讨厌乡下又不得不回来的情节作为楔子，算近些年比较流行的主旋律乡镇故事开局，接下来应该是用奇幻冒险来创造人工圣地，结尾升华一下人物弧光就没问题了。
+
+有点好奇沼津是不是有那个超大树桩。。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 184#       发表于 2023-7-4 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61543540&amp;ptid=2078039" target="_blank">仟音一心 发表于 2023-7-4 12:13</a>
+逢田文明的梗，就是画伯</blockquote>
+草右下角是熊猫吗，怎么看起来最正常，难道是日本人对熊猫的爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  脚底心，洗则白  
+##### 185#       发表于 2023-7-4 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61544165&amp;ptid=2078039" target="_blank">RhmBWT_Wu 发表于 2023-7-4 13:08</a>
+草右下角是熊猫吗，怎么看起来最正常，难道是日本人对熊猫的爱
+
+—— 来自 OnePlus PGKM10, Andro ...</blockquote>
+可能猫特征最简单吧（）
+
+
+*****
+
+####  Goisdust  
+##### 186#       发表于 2023-7-4 14:34
+
+好无聊，而且完全没活用异世界设定，改成白沙水族馆那种失意偶像下乡寻求自我的故事毫无违和感。达到让老水人爆米的任务是及格了但也仅止于此
+
+
+*****
+
+####  巴麻耒  
+##### 187#       发表于 2023-7-4 22:20
+
+打开来全是善丸<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lyz1196  
+##### 188#       发表于 2023-7-4 22:50
+
+绘柄好看，不知道能坚持几集
+
+
+*****
+
+####  阿姆罗二世  
+##### 189#       发表于 2023-7-4 23:03
+
+千梨还能有吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Yeaha123  
+##### 190#       发表于 2023-7-4 23:08
+
+不是每集都有live，看来不是当作偶像片来做
+
+
+*****
+
+####  一个陆仁贾  
+##### 191#       发表于 2023-7-6 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524002&amp;ptid=2078039" target="_blank">hqtkkb 发表于 2023-7-3 00:18</a>
+没看过水团，但女主给我的观感是真的好废柴啊。
+
+另外，结尾三人组那个敷衍的空翻笑死我了。</blockquote>
+我个人认为她的萌点就是性感的中二声线和掉链子时瞬间切换回废柴声线，让人忍不住调戏<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Piano-Forest  
+##### 84#       发表于 2023-6-25 21:32
+
+<img src="https://p.sda1.dev/12/a67a2d53da4845872cbe414036ff66d5/20230625_213108.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 85#       发表于 2023-6-25 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61124279&amp;ptid=2078039" target="_blank">Piano-Forest 发表于 2023-6-4 22:56</a>
+
+6/25(日) 𝙰𝙱𝙴𝙼𝙰にて毎週日曜23時
+
+地上波1週間先行・最速配信決定✨ ...</blockquote>
+今晚
+
+
+*****
+
+####  ads147147  
+##### 86#       发表于 2023-6-25 23:11
+
+开live却没提aqours名义，怪哦，你们一季肯定都集结了怎么还变成solo偶像了吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来夜羽和步梦的第一个solo真的有好多自闭的意向，不是很明显暗示夜羽还有第二次solo么，13集再来大合唱击败异世界来的敌人是吧w
+
+总体来说挺让我满意的，节奏也很舒服像是当年看虹s1e1一样，什么丸子头偶像在阶梯高处对青梅竹马唱solo，还搞得对方悸动了。
+
+*****
+
+####  wsdbyh  
+##### 87#       发表于 2023-6-25 23:12
+
+看完熟肉了，和漫画不一样，动画的善子不会魔法，至少到第一话为止都不会
+
+
+*****
+
+####  阿姆罗二世  
+##### 88#       发表于 2023-6-25 23:15
+
+有点虹的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">挺好，感觉找对路子了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  西部鸭卡农  
+##### 89#       发表于 2023-6-25 23:17
+
+作为善丸党，不能再满意了；而且这虹1第一集的既视感，也让我对这部很有信心
+
+
+*****
+
+####  passion_krsw  
+##### 90#       发表于 2023-6-25 23:24
+
+一万年没看过水水了 怎么感觉这配音这么棒
+
+
+*****
+
+####  挖坑毕挺尸  
+##### 91#       发表于 2023-6-25 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61431808&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-6-25 23:11</a>
+
+开live却没提aqours名义，怪哦，你们一季肯定都集结了怎么还变成solo偶像了吗。
+
+说起来夜羽和步梦 ...</blockquote>
+幻日异世界主打一个熟悉的陌生人，浦女那群校园偶像相似但不是，尽管如此还是请来aqours唱了oped<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  forgetit  
+##### 92#       发表于 2023-6-25 23:37
+
+第一话很赞
+
+
+*****
+
+####  川陀  
+##### 93#       发表于 2023-6-25 23:48
+
+太喜欢这op的画面了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  gundammarkⅡ  
+##### 94#       发表于 2023-6-25 23:50
+
+突然想起，我几年前在大眼上看过一位博主写的水团同人文，江户背景的，梨X善，梨子作为武士主角的，夜羽好像是剑的灵魂？
+原本打算存着慢慢看，但后来博主开了只看半年，还能在哪儿找到<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酒石酸唑吡坦  
+##### 95#       发表于 2023-6-25 23:51
+
+好听，好看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">已循环
+
+
+*****
+
+####  蜜梨柑  
+##### 96#       发表于 2023-6-25 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61432306&amp;ptid=2078039" target="_blank">gundammarkⅡ 发表于 2023-6-25 23:50</a>
+
+突然想起，我几年前在大眼上看过一位博主写的水团同人文，江户背景的，梨X善，梨子作为武士主角的，夜羽好 ...</blockquote>
+樱与刀吧，你百度一下应该能找到
+
+
+*****
+
+####  仟音一心  
+##### 97#         楼主| 发表于 2023-6-26 06:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61431823&amp;ptid=2078039" target="_blank">wsdbyh 发表于 2023-6-25 23:12</a>
+看完熟肉了，和漫画不一样，动画的善子不会魔法，至少到第一话为止都不会 ...</blockquote>
+动画基本上是原创剧情
+
+
+*****
+
+####  550616  
+##### 98#       发表于 2023-6-26 06:34
+
+面包店那个，声优怎么嘴里含着东西。。
+
+
+*****
+
+####  gundammarkⅡ  
+##### 99#       发表于 2023-6-26 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61432397&amp;ptid=2078039" target="_blank">蜜梨柑 发表于 2023-6-25 23:59</a>
+樱与刀吧，你百度一下应该能找到</blockquote>
+B站找到了，谢谢
+
+
