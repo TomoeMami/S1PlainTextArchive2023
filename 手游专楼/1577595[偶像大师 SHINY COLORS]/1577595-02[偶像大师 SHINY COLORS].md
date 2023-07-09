@@ -2723,3 +2723,46 @@ eca640ba4304035390f9fe56f670c921_720.jpg
 
 草 真是做三张p卡啊 
 
+*****
+
+####  大崎甜花  
+##### 2863#       发表于 2023-7-3 15:34
+
+甜花，想要！
+
+<img src="https://img.saraba1st.com/forum/202307/03/153421npqg58t09de7d8tt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (320.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 15:34 上传
+
+
+*****
+
+####  三度音  
+##### 2864#       发表于 2023-7-5 23:55
+
+联动P卡竟然是要抽的
+
+
+*****
+
+####  冰风血羽  
+##### 2865#       发表于 2023-7-6 05:33
+
+反正石头已经被婚纱泳装二连击沉，无所谓了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Cielflame  
+##### 2866#       发表于 2023-7-6 10:49
+
+看到联动想入坑试试，是不是买个石头号等活动开抽就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想问下有没有什么靠谱的萌新攻略。
+
+以及，这游戏应该没有强制社交或者PVP吧？
+
