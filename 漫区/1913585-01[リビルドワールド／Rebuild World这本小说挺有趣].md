@@ -5429,3 +5429,154 @@ Delete
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这边阿尔法一点都不卑，隔壁阿尔法要多学学啊。
 
+*****
+
+####  kria  
+##### 440#       发表于 2023-7-3 11:58
+
+<img src="https://img.saraba1st.com/forum/202307/03/115744n99ccn9yg97jcn99.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0FPdY5akAArNHe.jpeg</strong> (180.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 11:57 上传
+
+
+*****
+
+####  cwbn  
+##### 441#       发表于 2023-7-3 12:07
+
+这文翻译到哪里看？大妈之家只到3下
+
+
+*****
+
+####  三合一出现  
+##### 442#       发表于 2023-7-3 14:32
+
+那边是台版资源，民汉不知道有哪些。
+
+
+*****
+
+####  kria  
+##### 443#       发表于 2023-7-3 17:08
+
+<img src="https://img.saraba1st.com/forum/202307/03/170803e3zkszb2u1usvud9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0GRRNiaAAIYPwL.jpeg</strong> (565.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 17:08 上传
+
+<img src="https://img.saraba1st.com/forum/202307/03/170809hnw8b8v4fll44l33.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0GRQB-aMAAIZK9.jpeg</strong> (269.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 17:08 上传
+
+
+*****
+
+####  月夜凝雪  
+##### 444#       发表于 2023-7-3 18:13
+
+民间汉化的基本都是WEB版，这部WEB和文库后期差异挺大的，我都追着追着干脆等文库了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  redsouris  
+##### 445#       发表于 2023-7-3 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61534487&amp;ptid=1913585" target="_blank">月夜凝雪 发表于 2023-7-3 18:13</a>
+民间汉化的基本都是WEB版，这部WEB和文库后期差异挺大的，我都追着追着干脆等文库了
+
+—— 来自 Xiaomi 230 ...</blockquote>
+WEB版剧情比较干脆，主角的扭曲表现的很突出，有更多实力悬殊的战斗
+文库的阿基拉没那么疯了，还和胜也后宫加对手戏，装备升级速度加快导致战斗难度都变了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  月夜凝雪  
+##### 446#       发表于 2023-7-3 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61536623&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-3 21:01</a>
+
+WEB版剧情比较干脆，主角的扭曲表现的很突出，有更多实力悬殊的战斗
+
+文库的阿基拉没那么疯了，还和胜也后 ...</blockquote>
+翻译做的总结
+
+Q.「成為小說家吧」「KAKUYOMU」上登載的WEB版和書籍版有甚麼不同?
+
+A. 隨着卷數的越多，WEB版和書籍版的差異越來越大。
+
+　　「1卷上 誘惑亡靈」「1卷下 無理無茶無謀」「2卷上 舊領域連接者」大體上是一樣的，不過追加了WEB版沒有的強敵boss怪物，細節的描寫和推進更加洗練，提高了完成度。特別是KATSUYA周遭與WEB版的差異更大。
+
+　　從「2卷下 死後報復委托程序」起，就像完全進入另一條路線的那樣，事件開始混雜起來。特別是後半部分，加入了如果讀過WEB版，會感到驚訝的變化。
+
+　　「3卷上 被掩埋的遺跡」「3卷下 懸賞頭目討伐的邀請」和WEB版的情節大致相同，但是改稿後可以說是不同的發展。可以感受到進入了與WEB版不同的路線。
+
+　　在「4卷 現世界和舊世界的鬥爭」中，正如出版社的宣傳預告「全面改稿，新的世界線」，從前半部分開始展現與WEB版完全不同的展開。更重要是出現了書籍版的原創角色，從大體上變成了不同的故事。
+
+　　「第5卷 大規模抗爭」從WEB版全面改稿，這已經變成不同的故事。
+
+　　6卷以後也從WEB版全面改稿後，幾乎可以認為是不同的故事。
+
+
+*****
+
+####  kria  
+##### 447#       发表于 2023-7-5 17:06
+
+新刊書帶加上
+
+<img src="https://img.saraba1st.com/forum/202307/05/170612u0wbr7sn5bbywsbw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F0QYSTdaQAA88k5.jpeg</strong> (491.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-5 17:06 上传
+
+
+*****
+
+####  redsouris  
+##### 448#       发表于 2023-7-5 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61559721&amp;ptid=1913585" target="_blank">kria 发表于 2023-7-5 17:06</a>
+新刊書帶加上</blockquote>
+副业姐又换衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  topia  
+##### 449#       发表于 2023-7-6 02:19
+
+web版看完了，好像玩重装机兵啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 450#       发表于 2023-7-6 16:14
+
+说起来最新卷我买了都还未看呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过这作动画实在不看好，这种硬核动作多的不烧钱基本就是能动就完了
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

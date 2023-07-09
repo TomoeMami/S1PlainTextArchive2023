@@ -1185,3 +1185,202 @@ BC秋季完结
 
 单抽出来了，嘿嘿，杏奈我的杏奈<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+*****
+
+####  ジュード  
+##### 7167#       发表于 2023-6-26 21:45
+
+<img src="https://img.saraba1st.com/forum/202306/26/214547dwsd1zs81w7w20qg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4148.jpeg</strong> (487.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/214548r2p2816ixh26rrn1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4149.jpeg</strong> (521.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/214548bsll2qhozulu2qls.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4150.jpeg</strong> (379.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/214549m6ggosk3byprixzz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4151.jpeg</strong> (473.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202306/26/214550babapcageee2pcyk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_4152.jpeg</strong> (462.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-26 21:45 上传
+
+
+*****
+
+####  BQlin  
+##### 7168#       发表于 2023-6-26 22:32
+
+今年的fes应该又轮到彩色卡了吧，希望再加些辅助功能，别整天惦记那个b分数加成
+
+
+*****
+
+####  BQlin  
+##### 7169#       发表于 2023-6-28 21:35
+
+不是彩卡，没意思，发动率还锁死颜色
+
+什么时候才来点解放双手的技能，虽说有自动票了
+
+没票也只能靠无敌卡放手几秒，还得盯着屏幕
+
+
+*****
+
+####  z6226618  
+##### 7170#       发表于 2023-6-29 22:55
+
+准备开始灭同担
+
+
+*****
+
+####  BQlin  
+##### 7171#       发表于 2023-6-29 23:02
+
+ 本帖最后由 BQlin 于 2023-6-29 23:03 编辑 
+
+每天觉醒四张卡才能开摸的日子，想想就累
+
+草，封面这安娜怎么还会动的
+
+
+*****
+
+####  花开安菲路  
+##### 7172#       发表于 2023-6-29 23:20
+
+白嫖终于出货了，出了步<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+没体没石头，周年把基本奖励拿齐就摸了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7173#       发表于 2023-6-29 23:32
+
+选歌界面终于能直接选push了
+
+什么时候才把自动打工常驻，都做出来了，别只开放给大活动
+
+
+*****
+
+####  BQlin  
+##### 7174#       发表于 2023-7-2 11:22
+
+爽到，本来只想换个石头的，没想到井也能X2
+
+<img src="https://img.saraba1st.com/forum/202307/02/112141am8nd88rzmbfv5w1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230702_112115.jpg</strong> (31.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 11:21 上传
+
+
+*****
+
+####  花开安菲路  
+##### 7175#       发表于 2023-7-2 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61512747&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-7-2 11:22</a>
+爽到，本来只想换个石头的，没想到井也能X2</blockquote>
+fes全图鉴了嘛？羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  花开安菲路  
+##### 7176#       发表于 2023-7-2 14:18
+
+shs池又歪了，歪了已有的炸鸡shs和常驻roco<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7177#       发表于 2023-7-2 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61514452&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-7-2 14:14</a>
+
+fes全图鉴了嘛？羡慕</blockquote>
+没有，只是想拿石头突五星，目标39个不同角色的五星
+
+还很久远，差10个人的
+
+
+*****
+
+####  supergilaboy  
+##### 7178#       发表于 2023-7-3 23:17
+
+直接2次10连白嫖毕业<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 7179#       发表于 2023-7-3 23:19
+
+设计这生日服有大病，什么编织袋
+
+
+*****
+
+####  花开安菲路  
+##### 7180#       发表于 2023-7-4 09:17
+
+想要马尾静香，结果出了俩美奈子了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+周年摸鱼的话，自动打歌券根本用不完，感觉比普通活动还咸鱼。
+
+
+*****
+
+####  花开安菲路  
+##### 7181#       发表于 2023-7-6 15:03
+
+今年周年，杏奈p灭了同担，脑子都快打出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我看了眼排行榜，目前大部分偶像，100位都是70wpt左右，人气一直很高的琴叶上了100w。
+然而杏奈100位已经要175w了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cckuku  
+##### 7182#       发表于 2023-7-6 15:07
+
+选择打akane牌子的我岁月静好<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7183#       发表于 2023-7-6 15:45
+
+安娜每年都挺高的，有钱有命才能去碰一碰
+
