@@ -979,3 +979,84 @@ DM-300：没什么好办法，提前探好图注意不要出供电柱区域时�
 
 cdda试了一下就感觉，，这ui太古典了，或者说键盘的操作比例太高了，到了刚玩要做一张键位说明贴墙上的程度，有没有什么mod能改成多级菜单式操作
 
+*****
+
+####  Fask  
+##### 83#       发表于 2023-7-5 23:15
+
+买了HyperRogue和Dungeonmans。
+Approaching Infinity这游戏怎么样？好像是快脱离ea了，已经涨价一波了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  某雷  
+##### 84#         楼主| 发表于 2023-7-6 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61459493&amp;ptid=2072396" target="_blank">不会武术 发表于 2023-6-28 00:14</a>
+
+cdda试了一下就感觉，，这ui太古典了，或者说键盘的操作比例太高了，到了刚玩要做一张键位说明贴墙上的程度 ...</blockquote>
+用回车点的话是分级菜单
+
+键位不用记，玩着玩着就知道怎么点最快了，大写用shift点不用切锁定
+
+
+*****
+
+####  不会武术  
+##### 85#       发表于 2023-7-6 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61565180&amp;ptid=2072396" target="_blank">某雷 发表于 2023-7-6 00:21</a>
+用回车点的话是分级菜单
+
+键位不用记，玩着玩着就知道怎么点最快了，大写用shift点不用切锁定
+
+ ...</blockquote>
+大致是记住了就是按着按着会切输入法烦得要死
+
+
+*****
+
+####  2474089352  
+##### 86#       发表于 2023-7-6 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61565864&amp;ptid=2072396" target="_blank">不会武术 发表于 2023-7-6 01:37</a>
+大致是记住了就是按着按着会切输入法烦得要死</blockquote>
+玩的时候在右下角切成英文输入法就好，避免误切。顺便一提我觉得cdda的ui和物品管理系统是众多古典rl里面最美妙的，也是最人性化的。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  barry.allen  
+##### 87#       发表于 2023-7-6 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56175179&amp;ptid=2072396" target="_blank">某雷 发表于 2022-6-8 15:22</a>
+
+英文不是多，是天量
+
+整个游戏的剧情都藏在终端机里头的大量大量文本叙述，还得你自己去找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏能改字体么，cogmind默认字体感觉太伤眼
+
+
+*****
+
+####  某雷  
+##### 88#         楼主| 发表于 2023-7-6 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61565864&amp;ptid=2072396" target="_blank">不会武术 发表于 2023-7-6 01:37</a>
+
+大致是记住了就是按着按着会切输入法烦得要死</blockquote>
+去语言设置里添加一个eng键盘，win+空格切过来就不会弹输入法了
+
+*****
+
+####  某雷  
+##### 89#         楼主| 发表于 2023-7-6 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61572191&amp;ptid=2072396" target="_blank">barry.allen 发表于 2023-7-6 15:08</a>
+
+这游戏能改字体么，cogmind默认字体感觉太伤眼</blockquote>
+似乎不能，可以问问discord那边的老哥
+

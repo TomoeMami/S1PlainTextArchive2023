@@ -1256,3 +1256,10 @@ v3歌力好强<img src="https://static.saraba1st.com/image/smiley/face2017/037.p
 
 —— 来自 Xiaomi Mi 10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  tansapple  
+##### 106#       发表于 2023-7-6 15:06
+
+V3真是翻天覆地的变化，之前V2唱成夹子音的部分音乐在V3都唱的很顺滑<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
