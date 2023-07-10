@@ -6888,3 +6888,513 @@ NGA有人对专区的风格回过味儿来了</blockquote>
 
 144/180是祖宗之法
 
+*****
+
+####  苍蓝之枪  
+##### 44479#       发表于 2023-6-18 19:05
+
+为了拿宝箱还翻车了，真恶心，还不能杀太快
+
+
+*****
+
+####  AbigailWilliams  
+##### 44480#       发表于 2023-6-18 20:02
+
+这种模式就该有个只要你能全杀完，就把宝箱全给你的机制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kon-El  
+##### 44481#       发表于 2023-6-19 08:48
+
+还得是雪碧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  花星空  
+##### 44482#       发表于 2023-6-19 14:52
+
+圣杯战线真的是……他不是难易的问题，他是让人打起来很烦躁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ousia  
+##### 44483#       发表于 2023-6-19 17:09
+
+最近真的欧得异常……
+
+从君11到BB池的所有池（除了大象和福尔摩斯）总数没有一个超过20抽，除了堂吉诃德其他up的全出了，还歪了只周黑鸭和嘴臭双子
+
+
+*****
+
+####  电波系腑海林  
+##### 44484#       发表于 2023-6-19 18:23
+
+圆梦了，单抽出了BB。看了一下未来要抽公主RBA麻婆和提妈，压力还挺大的，希望8周年不要来个大的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  tvfxqalways5  
+##### 44485#       发表于 2023-6-19 20:57
+
+问下现在国服适合入坑吗？主要是看到摩诃迦梨和难敌的视频。好像是日服的？另一个感兴趣的是伊阿宋，希腊神话的
+
+就是问国服适合入坑吗？日服有中文吗？
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 44486#       发表于 2023-6-19 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61348501&amp;ptid=1712412" target="_blank">tvfxqalways5 发表于 2023-6-19 20:57</a>
+
+问下现在国服适合入坑吗？主要是看到摩诃迦梨和难敌的视频。好像是日服的？另一个感兴趣的是伊阿宋，希腊神 ...</blockquote>
+要中文建议去台服
+
+愿意读英语也可以考虑美服
+
+
+*****
+
+####  DET  
+##### 44487#       发表于 2023-6-19 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61348501&amp;ptid=1712412" target="_blank">tvfxqalways5 发表于 2023-6-19 20:57</a>
+问下现在国服适合入坑吗？主要是看到摩诃迦梨和难敌的视频。好像是日服的？另一个感兴趣的是伊阿宋，希腊神 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看你想多久之后能玩到，台服和美服好像都是差两年进度，国服差一年，当然日服是最快速能玩到的，很急的话现在比较推荐日服+中文翻译视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  両儀  
+##### 44488#       发表于 2023-6-19 23:23
+
+这战线真恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  flyzzhj  
+##### 44489#       发表于 2023-6-20 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥这次圣杯战线一个单位一回合只能攻击一次？
+
+
+*****
+
+####  武者小路紫苑  
+##### 44490#       发表于 2023-6-20 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61352046&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-6-20 09:09</a>
+
+为啥这次圣杯战线一个单位一回合只能攻击一次？</blockquote>
+assassin攻击一次花20行动力，原地不动的话可以砍两下，另外rider移动只花15行动力，不攻击的话可以走三格
+
+
+*****
+
+####  kyonkoism  
+##### 44491#       发表于 2023-6-20 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">死想显现界域我还是推的很开心的，最主要是能体验到，作为御主的玩家自己真的有在变强这点
+
+玩国内的手游剧情多了，潜意识的都快觉得玩家作为一个无能的人，有能但完全看不出的人，明明角色语音眉来眼去，但剧情和角色基本没啥互动的摄像头，是正常的
+
+回到FGO这，角色都是围绕的玩家推进剧情就让人感觉太难能可贵了。倒不如说，本来手游不就该这样么，媚玩家才是常态，他妈的玩O玩的
+
+说回2.6.5，樱井光虽然作恶多端，但是在下总国搞出了灵基之影这个贡献确实是该狠狠的夸，从摄像头到一夫当关，谁能想到玩家能成长的那么多
+
+之前的灵基之影顶多就是帮个忙的程度，还是有剧情中汇合的英灵打主阵的，但本章从表现上来看，守城一战里秒杀人形幻灵级基本不在话下，面对99骑冲大门也能用灵基之影防住一段时间
+
+这种感觉就像是小时后第一次看到FSN士郎原来ubw线能秒了B叔一样的爽感，傲天of the傲天，赞！（在群里边玩边聊的时候还被日服群友剧透说7章的玩家更猛，真的假的？
+
+最后，打完小教授后，小教授求饶那段实在是太好笑了
+
+<img src="https://img.saraba1st.com/forum/202306/20/102812vj8j0nyypkynnmyy.jpg" referrerpolicy="no-referrer">
+
+<strong>-3b114e7a7263ab9e.jpg</strong> (287.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 10:28 上传
+
+<img src="https://img.saraba1st.com/forum/202306/20/102815mdtm0d3s09ti3va0.jpg" referrerpolicy="no-referrer">
+
+<strong>-14768b150863448c.jpg</strong> (18 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-20 10:28 上传
+
+此时此刻，你怕不是在开玩笑吧？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 44492#       发表于 2023-6-20 10:46
+
+翻页
+
+
+*****
+
+####  少年游不游  
+##### 44493#       发表于 2023-6-20 12:00
+
+妖高打这个也太强了，一看cv居然还是麻团，这下不得不拉满了
+
+
+*****
+
+####  莉莉橙  
+##### 44494#       发表于 2023-6-20 14:13
+
+妖精高文确实极其适合战线玩法，对单输出三红砍兮，对群宝具威力也在线，自带恢复减伤，生存能力太优秀，经常砍完全场还是满血，三技能群缓充甚至能给队友拉NP
+
+
+*****
+
+####  一个陆仁贾  
+##### 44495#       发表于 2023-6-20 18:40
+
+妖崔其实也挺适合这种场合
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  GuDaZi  
+##### 44496#       发表于 2023-6-20 21:56
+
+最大的难题居然是如何在杀完前拿到宝箱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tttabc1  
+##### 44497#       发表于 2023-6-20 23:30
+
+到日服最新活动，这个是最后一次战线吗？
+
+
+*****
+
+####  khxooo  
+##### 44498#       发表于 2023-6-21 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61363159&amp;ptid=1712412" target="_blank">tttabc1 发表于 2023-6-20 23:30</a>
+到日服最新活动，这个是最后一次战线吗？</blockquote>
+最后一次，希望永不再来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 44499#       发表于 2023-6-21 18:44
+
+最后一次这个战线怎么打，只求过关，没什么思路
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  qixinno2  
+##### 44500#       发表于 2023-6-21 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61373811&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-6-21 18:44</a>
+
+最后一次这个战线怎么打，只求过关，没什么思路
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅 ...</blockquote>
+巴格子 雪B 再带个始皇梵高之类的 仇伽摩可以用系统助战的大象单挑掉 打对面从者BB的时候别站在紫色菱形格子上就行
+
+
+*****
+
+####  gfm  
+##### 44501#       发表于 2023-6-21 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61373811&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-6-21 18:44</a>
+
+最后一次这个战线怎么打，只求过关，没什么思路
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅 ...</blockquote>
+[https://www.bilibili.com/video/BV1n34y1W7Z8](https://www.bilibili.com/video/BV1n34y1W7Z8)
+
+求保险也能带些其他的从者，开局后留在上面就是，等大象都单挑的差不多后就成
+
+
+*****
+
+####  Kon-El  
+##### 44502#       发表于 2023-6-21 21:18
+
+艹，才注意到茶壶有时间限制的，攒了一堆全浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  GuDaZi  
+##### 44503#       发表于 2023-6-22 10:22
+
+大象打战线还不错。np升得快，宝具后还有无敌。靠大象＋拉二灭了东路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lhwang11  
+##### 44504#       发表于 2023-6-22 10:27
+
+战线头两次玩还挺有意思的，玩多了就腻了，有点折磨，每次都上熊迦摩黑狗硬怼
+
+
+*****
+
+####  6030sylar  
+##### 44505#       发表于 2023-6-22 18:14
+
+ 本帖最后由 6030sylar 于 2023-6-22 18:17 编辑 
+
+回忆本还是无敌的摩呆梅乱杀
+
+发现政哥哥，老李，项羽都没有，但是有鱼和兰陵王
+
+战线也是无敌的王姐乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 44506#       发表于 2023-6-23 08:27
+
+圣杯战线打完了，这类型的关卡即使有作业也不好复现。
+最难打的是NPC是红A的关卡，开局要面对莉莉丝和Lip的追击，右边是芬恩、高文和大王的追击。尤其是芬恩，一套下来打得我方成员非伤即残，但剑阶（我用的是妖高）得防莉莉丝和Lip，完全抽不出空去对付芬恩。
+
+最后一关反而比较简单，因为难点就是那三管血各16W的水BB。水伽摩基本上能被NPC大象和我方骑阶给收拾掉。最后就是挑一边（李书文或大河）突破去拿宝箱
+
+
+*****
+
+####  苍蓝之枪  
+##### 44507#       发表于 2023-6-24 13:21
+
+黑贞爆破失败.....1宝根本没办法同时解决无敌贯通和伤害不够的问题
+
+好友还没个挂高宝黑贞的
+
+
+*****
+
+####  艾尔特翔  
+##### 44508#       发表于 2023-6-24 18:10
+
+圣杯战线也打完了，希望再也别来了，这加载太慢了
+
+*****
+
+####  朝仓和美  
+##### 44509#       发表于 2023-6-24 18:12
+
+巴格子好强啊，喜欢😍
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  奎拉西亚  
+##### 44510#       发表于 2023-6-27 11:00
+
+bgo群怎么解散了？新群何在？
+
+
+*****
+
+####  花星空  
+##### 44511#       发表于 2023-6-28 10:54
+
+拿摔跤大姐姐过了最后一关，再也不想打这玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44512#       发表于 2023-6-28 17:08
+
+实在没劲把进阶关基本全打了，还剩一个
+
+
+*****
+
+####  shimotsuki14  
+##### 44513#       发表于 2023-6-29 14:48
+
+今次摸的彻底，一点半才抄作业把战线打完
+2.3回忆本本来打算放弃了，后来把三个原版送呼符的爆破掉，一看1点55
+
+
+*****
+
+####  collincollin  
+##### 44514#       发表于 2023-6-29 16:08
+
+重新认识了象
+
+
+*****
+
+####  khxooo  
+##### 44515#       发表于 2023-6-29 20:31
+
+小号狗叫，60石头2宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GuDaZi  
+##### 44516#       发表于 2023-6-29 22:18
+
+五星都抽到了，一个以藏都没有抽到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tttabc1  
+##### 44517#       发表于 2023-6-30 06:52
+
+张角进友情池了么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">活动礼装10张了还没见到
+
+
+*****
+
+####  azccc52  
+##### 44518#       发表于 2023-6-30 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61487318&amp;ptid=1712412" target="_blank">tttabc1 发表于 2023-6-30 06:52</a>
+张角进友情池了么活动礼装10张了还没见到</blockquote>
+进了，说明你太欧了，我活动礼装刚满破就四宝了
+
+
+*****
+
+####  西瓜查理  
+##### 44519#       发表于 2023-6-30 14:07
+
+什么都掉就是不掉活动礼装淦
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  苍蓝之枪  
+##### 44520#       发表于 2023-7-1 10:06
+
+怎么游戏玩都不玩的人会突发奇想把游戏下回来然后呼符豹跳一下的啊.......
+
+
+*****
+
+####  xy1041  
+##### 44521#       发表于 2023-7-1 22:59
+
+马上周年又要送一堆石头了？周年还是公主，是时候回坑抽卡爽一把了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  khxooo  
+##### 44522#       发表于 2023-7-2 00:25
+
+尼玛大号呼符彩圈歪狐狸，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佐塚間桐  
+##### 44523#       发表于 2023-7-2 11:31
+
+剧情又臭又长<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  麻花疼  
+##### 44524#       发表于 2023-7-3 08:04
+
+太草了，开服玩到现在，结果上周的周常忘做了。
+
+周末去游泳了，回家累的不行，早早就睡了，今早打开游戏一看才发现还有几个任务没做完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这泥马是弃坑前兆吧，自从我练度全满后就越来越咸了。。。
+
+
+*****
+
+####  shimotsuki14  
+##### 44525#       发表于 2023-7-3 12:03
+
+周常早都随意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  guojiaoqi  
+##### 44526#       发表于 2023-7-3 18:17
+
+剧情何止又臭又长，尬吹源为朝的受不了，最搞笑的是羁绊礼装画的很写实，一看哦就这？
+
+
+*****
+
+####  xy1041  
+##### 44527#       发表于 2023-7-4 14:03
+
+都能种树了，弃坑不是很随意，我就是随机弃坑随机回来抽卡挖矿打打活动，千里眼一下这一年还挺多新系统的，说不定这次可以玩久点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  佐塚間桐  
+##### 44528#       发表于 2023-7-5 11:09
+
+这是扒灰故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  collincollin  
+##### 44529#       发表于 2023-7-6 11:20
+
+为朝：我源氏嫡流，堂堂保元第一巴图鲁，怎么混成你儿子了
+
+
+*****
+
+####  朝仓和美  
+##### 44530#       发表于 2023-7-7 09:08
+
+为什么最近活动剧情都这么无聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
