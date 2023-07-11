@@ -42,3 +42,13 @@
 
 劲太大了，gal养胃都给治好了。
 
+*****
+
+####  lanslort  
+##### 781#       发表于 2023-7-8 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=54407787&amp;ptid=2007124" target="_blank">为你而活 发表于 2022-1-24 07:30</a>
+
+想起有一个细节没什么人提，就是50万纪念会跟你坦白“雨”的真名不是读ame，是读rain，按日文其实是lain吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 百万直播跟lain联动了
+
