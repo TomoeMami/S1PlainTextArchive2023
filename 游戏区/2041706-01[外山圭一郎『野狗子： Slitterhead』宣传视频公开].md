@@ -801,3 +801,34 @@ Toyama-san's fortune slip predicts great fortune for this year.
 Not a bad start!
 <img src="https://p.sda1.dev/9/42aa60e1bf895b2780baa679fedd847d/20230120_211040.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  byisme001  
+##### 80#       发表于 2023-7-7 17:04
+
+【《野狗子》开发者日记 测试阶段实机画面-哔哩哔哩】 https://b23.tv/RCHE5CF
+
+
+*****
+
+####  chdhdhd  
+##### 81#       发表于 2023-7-7 17:29
+
+新情报，期待。不过界面有点arpg
+
+
+*****
+
+####  Dorohedoro  
+##### 82#       发表于 2023-7-8 11:48
+
+核心玩法是找出隐藏在人群中的怪物，这个有点意思，看看实际关卡设计会是什么样
+
+
+*****
+
+####  jacket  
+##### 83#       发表于 2023-7-8 15:18
+
+这工作室的名字是指ボケ还是什么
+
