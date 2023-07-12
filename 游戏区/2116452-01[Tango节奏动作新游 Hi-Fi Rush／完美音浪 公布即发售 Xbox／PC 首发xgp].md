@@ -5017,3 +5017,10 @@ XGPU/Prime Gaming会员福利：限时领取《完美音浪》团队协作套装
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  爱护动物抓根宝  
+##### 477#       发表于 2023-7-9 20:49
+
+高BPM确实挺有乐子的，打起来更像音游了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
