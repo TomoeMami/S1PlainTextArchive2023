@@ -5037,3 +5037,20 @@ b站搞了个特供v最协，不过不光是中日英管人，还有少量普通
 
 看了宣传PV感觉姐妹是定死的吧，剩下第三个怎么想也是sena吧，别人又没号
 
+*****
+
+####  格林卡罗尔  
+##### 1095#       发表于 2023-7-9 01:45
+
+のあ　すみれ　リサ，比最强的搭配差了一截，不过也有接近cr杯的分数了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  TiHaru  
+##### 1096#       发表于 2023-7-9 16:25
+
+好像没有分点的说法啊，感觉会被创死
+

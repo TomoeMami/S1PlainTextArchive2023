@@ -2541,3 +2541,72 @@ https://github.com/stevenyomi/copymanga
 我是用的这个拷贝漫画源</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我还以为已经没有拷贝源了 谢谢老哥
 
+*****
+
+####  披头破落户  
+##### 255#       发表于 2023-7-8 23:34
+
+请问tachiyomi的**插件提示要选择合适的镜像网站再重启，选过后重启还提示这个咋办
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  linux40  
+##### 256#       发表于 2023-7-9 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61601642&amp;ptid=2010665" target="_blank">披头破落户 发表于 2023-7-8 23:34</a>
+请问tachiyomi的**插件提示要选择合适的镜像网站再重启，选过后重启还提示这个咋办
+
+—— 来自 Xiaomi 2201 ...</blockquote>
+绕不过cloudflare。我现在在用一个叫漫蛙的插件替代。
+
+
+*****
+
+####  披头破落户  
+##### 257#       发表于 2023-7-9 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61603065&amp;ptid=2010665" target="_blank">linux40 发表于 2023-7-9 08:29</a>
+绕不过cloudflare。我现在在用一个叫漫蛙的插件替代。</blockquote>
+禁 漫被和谐了，这俩内容差不多嘛
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  linux40  
+##### 258#       发表于 2023-7-9 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61603250&amp;ptid=2010665" target="_blank">披头破落户 发表于 2023-7-9 09:16</a>
+禁 漫被和谐了，这俩内容差不多嘛
+
+—— 来自 Xiaomi 22011211C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+漫蛙比18comic慢一点，可能是从18comic抓的。
+
+
+*****
+
+####  披头破落户  
+##### 259#       发表于 2023-7-9 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61603756&amp;ptid=2010665" target="_blank">linux40 发表于 2023-7-9 10:43</a>
+漫蛙比18comic慢一点，可能是从18comic抓的。</blockquote>
+再看看吧，要把那么多漫画迁移也不是简单的事<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  披头破落户  
+##### 260#       发表于 2023-7-9 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61603756&amp;ptid=2010665" target="_blank">linux40 发表于 2023-7-9 10:43</a>
+漫蛙比18comic慢一点，可能是从18comic抓的。</blockquote>
+搞好了，可能是你说的cloudflare的问题，我给关了，目前用香港的梯子连东南亚分站可以看了
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
