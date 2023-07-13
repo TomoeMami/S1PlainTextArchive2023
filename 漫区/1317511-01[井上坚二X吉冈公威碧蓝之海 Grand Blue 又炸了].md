@@ -199,3 +199,47 @@
 
 爱菜应该彻底支棱不起来了
 
+*****
+
+####  白金口袋  
+##### 1285#       发表于 2023-7-6 10:03
+
+你们这大学也太自由了吧，都打成这样了讲师面不改色的继续讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泥鳅化石  
+##### 1286#       发表于 2023-7-6 10:06
+
+好歹这次导师没上手参与不是？
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  id_catcher  
+##### 1287#       发表于 2023-7-8 16:55
+
+刚刚重温漫画，才发现23话争夺女青祭门票时，千纱的社交软件头像，是第4话伊织去水族馆买回来送个她的章鱼小挂件<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+而且之前学园祭摆摊，两人一起做煎饼的默契高得离谱，小时候一定有什么回忆吧？
+
+虽然对毒岛有些残酷，但千纱基本稳赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stormist  
+##### 1288#       发表于 2023-7-8 18:03
+
+你们教室空间蛮大的啊，这都施展得开
+
+
+*****
+
+####  一色いろは  
+##### 1289#       发表于 2023-7-10 11:47
+
+两个月都是搞笑会最后放一下千纱
+

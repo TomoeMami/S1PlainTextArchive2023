@@ -2327,3 +2327,10 @@ Yamato_Takeru(bronze_statue,Osaka)01.jpg
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61514660&amp;ptid=2112855" target="_blank">先手必胜 发表于 2023-7-2 14:39</a></blockquote>
 你看这是三神器之一啊
 
+*****
+
+####  Piano-Forest  
+##### 217#         楼主| 发表于 2023-7-10 12:28
+
+<img src="https://p.sda1.dev/12/b24311c17d20d3ac3a6a374e3ebc118f/20230710_122611.jpg" referrerpolicy="no-referrer">
+
