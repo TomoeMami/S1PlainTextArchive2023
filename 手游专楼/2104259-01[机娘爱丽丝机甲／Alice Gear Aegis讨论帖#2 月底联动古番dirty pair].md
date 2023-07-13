@@ -4178,3 +4178,530 @@ Jabberwock=混沌，想要让人进化，VICE+人类=VERSUS（完全体）。ALI
 这一 ...</blockquote>
 我觉得枫是站VICE一边，毕竟就大义而言爱丽斯就是妨碍人类进化的邪恶
 
+*****
+
+####  江戸前ルナ  
+##### 511#         楼主| 发表于 2023-6-24 09:28
+
+阿金最近的新BOSS太仁慈了啊，弱火暗被绫香三红无脑吊锤，弱冰电被孤影无脑吊锤……孤影还好点摄影SP一波一般就个打残，绫香现在的数值水准开局开个手烧一波降防然后开三红直接能无脑从满血直接80%几率无伤捅到死……还有用高速机玩立回对射也能很轻松……
+
+上一次针对棍机们的BOSS还是刺猬……完克孤影和棍机近战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孫光龍  
+##### 512#       发表于 2023-6-24 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">挺好的，总比那些个课金课到怪身上各种出新机制恶心老角色的手游强多了.......
+
+
+*****
+
+####  zhwpjy  
+##### 513#       发表于 2023-6-25 18:13
+
+这个长闲月底进卡池？
+
+
+*****
+
+####  madcow  
+##### 514#       发表于 2023-6-25 20:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">TV还没看，刚反应过来TV女主这套装备跟尾长的是一套的啊，狗屋要出人倒是挺方便（？
+
+
+*****
+
+####  Picavian  
+##### 515#       发表于 2023-6-26 14:49
+
+牛角包专武拆掉浮游炮和额外推进器就是海老川设计的aegis用新型量产gear。不止尾长，龙子也是这一套改的。
+
+从背景角度而言，御成屋和aegis开发局都属于北条系的研发团队，而从时间来看这几套装备还是牛角包这一套最早……或许牛角包被折磨这一趟不是没价值的。
+
+
+*****
+
+####  孫光龍  
+##### 516#       发表于 2023-6-26 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">寿屋开窍了，还是通用素体多点好卖换色
+
+你看以前这些专属特装一个一个改模多难受
+
+
+*****
+
+####  不灭的旋律  
+##### 517#       发表于 2023-6-27 21:27
+
+你游第一个正式实装前就出胶的，第一个同一人物原版和AN同时实装的，第一个原版和AN装备同时实装形态还不同的，第一个原版和AN属性不同的。这是对牛角面包有多大信心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 518#       发表于 2023-6-27 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还没看过动画的表示看了下预告一听这声音更加不想抽了（虽然票要满了还是会抽
+
+*****
+
+####  江戸前ルナ  
+##### 519#         楼主| 发表于 2023-6-27 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61457605&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-6-27 21:27</a>
+
+你游第一个正式实装前就出胶的，第一个同一人物原版和AN同时实装的，第一个原版和AN装备同时实装形态还不同 ...</blockquote>
+所以你当牛角包是本家吗，但是目前牛角包宣传的是作为联动，原版也不一定进普池啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 520#       发表于 2023-6-28 01:30
+
+<blockquote>江戸前ルナ 发表于 2023-6-27 23:09
+所以你当牛角包是本家吗，但是目前牛角包宣传的是作为联动，原版也不一定进普池啊如果不是本家， ...</blockquote>
+搁联动里差不多的也就大流士那个吧，同一个人双属性
+
+
+*****
+
+####  江戸前ルナ  
+##### 521#         楼主| 发表于 2023-6-28 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61459970&amp;ptid=2104259" target="_blank">madcow 发表于 2023-6-28 01:30</a>
+
+搁联动里差不多的也就大流士那个吧，同一个人双属性</blockquote>
+还有小迷糊和希露菲啊
+
+
+*****
+
+####  不灭的旋律  
+##### 522#       发表于 2023-6-28 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61458861&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-6-27 23:09</a>
+
+所以你当牛角包是本家吗，但是目前牛角包宣传的是作为联动，原版也不一定进普池啊如果不是本家， ...</blockquote>
+都说了同一人物，联动那几个明明不是同一人非要搞成an不能一起出击
+
+
+*****
+
+####  Picavian  
+##### 523#       发表于 2023-6-28 14:45
+
+异　世　界　转　生
+
+
+*****
+
+####  zhwpjy  
+##### 524#       发表于 2023-6-28 15:29
+
+卧槽an和普池一起
+
+
+*****
+
+####  孫光龍  
+##### 525#       发表于 2023-6-28 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剧情什么鬼，动画要变成梦结局了吗
+
+*****
+
+####  zhwpjy  
+##### 526#       发表于 2023-6-28 15:38
+
+这剧情 被大卡车撞到别的世界线了？
+
+
+*****
+
+####  杂灰  
+##### 527#       发表于 2023-6-28 17:31
+
+有剧情总结吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Picavian  
+##### 528#       发表于 2023-6-28 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61467344&amp;ptid=2104259" target="_blank">杂灰 发表于 2023-6-28 17:31</a>
+
+有剧情总结吗</blockquote>
+tv结束后牛角包收拾东西往回走，路上想帮着一个小男孩找家人。结果小男孩孤儿冲锋上了公路，牛角包追他被卡车创了——自感被创后牛角包在成子坂（本社）醒来，遇到了成子坂三人组，但这些人并不认识她——阿星表示这大概是异世界转生。
+
+*****
+
+####  Picavian  
+##### 529#       发表于 2023-6-28 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61459970&amp;ptid=2104259" target="_blank">madcow 发表于 2023-6-28 01:30</a>
+
+搁联动里差不多的也就大流士那个吧，同一个人双属性</blockquote>
+其实大流士那俩人的年纪差十年来着。之前那几个案例都是不同个体，不过说来这次牛角包和师门牛角包似乎也不是同一世界线的同一人（待核实
+
+
+*****
+
+####  孫光龍  
+##### 530#       发表于 2023-6-28 18:14
+
+所以an和本体一个是动画世界线一个是游戏世界线么
+
+活动剧情结尾应该固定在游戏世界线了吧，后面的主线搞不好也会参与
+
+*****
+
+####  杂灰  
+##### 531#       发表于 2023-6-28 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61467841&amp;ptid=2104259" target="_blank">Picavian 发表于 2023-6-28 18:05</a>
+tv结束后牛角包收拾东西往回走，路上想帮着一个小男孩找家人。结果小男孩孤儿冲锋上了公路，牛角包追他被 ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Picavian  
+##### 532#       发表于 2023-6-28 18:34
+
+小声：众所周知，本【游戏】的主线致敬《爱丽丝梦游仙境》系列。而现在伴随着牛角包联动，我们的办公室变成镜像的了。或许本次联动也会梗《爱丽丝镜中奇遇记》？
+
+
+*****
+
+####  不灭的旋律  
+##### 533#       发表于 2023-6-28 20:41
+
+牛角包的能力是平行世界移动，甚至能借平行世界其他自己的能力。AN牛角包是游戏世界的牛角包，两人一接触就会対消灭。最后是梦结局联动剧情就是被卡车撞后昏迷时的梦。猜对了算我赢错了算金字塔输<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lxh00770077  
+##### 534#       发表于 2023-6-28 21:08
+
+为了留住牛角包，康宝司令官/队长变身泥头车把她创进了手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三合一出现  
+##### 535#       发表于 2023-6-29 09:51
+
+现在办公室是镜像的
+
+
+*****
+
+####  zhwpjy  
+##### 536#       发表于 2023-6-29 15:30
+
+坏所长出来了  这个难道是 异世界牛角包大战本世界牛角包吗
+
+
+*****
+
+####  外骨骼  
+##### 537#       发表于 2023-6-29 17:48
+
+什么牛角包，是双核00哒！
+
+
+*****
+
+####  LEOKO~  
+##### 538#       发表于 2023-6-29 22:48
+
+ 本帖最后由 LEOKO~ 于 2023-6-29 22:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61467967&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-6-28 18:14</a>
+
+所以an和本体一个是动画世界线一个是游戏世界线么
+
+活动剧情结尾应该固定在游戏世界线了吧，后面的主线搞不 ...</blockquote>
+先不考屡是做梦，起码两个世界是收束的，都是从秋季作战后开始分支，到觉醒篇汇合
+
+另外估计这世界的长闲直接进了御成屋，但最后在实验前逃跑了，然后乱入的马上被抓去做实验了，然后本土长闲带队救人，外观上两人的区别是是否有项链...
+
+
+*****
+
+####  hl7424994  
+##### 539#       发表于 2023-6-30 14:26
+
+草，连边见室长都异世界转生了
+
+
+*****
+
+####  灰色蔓延  
+##### 540#       发表于 2023-6-30 19:36
+
+目前看展开应该是类似于黑白猫共斗？
+不过装备说明风格也不同，本体是咪咪眼的特殊研究室特制gear，设计方针更极端一些腿甲(瞬间高出力，控制力强化)，红色gear是虽然也是御成屋，但是是第三开发室的产品，看说明是更均衡考虑(腿甲高机动和安定性并存)。
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+*****
+
+####  LEOKO~  
+##### 541#       发表于 2023-6-30 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61492655&amp;ptid=2104259" target="_blank">hl7424994 发表于 2023-6-30 14:26</a>
+
+草，连边见室长都异世界转生了</blockquote>
+我猜错了，但这也更可能是梦了，哪有这么巧的一起转生
+
+*****
+
+####  LEOKO~  
+##### 542#       发表于 2023-6-30 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61492655&amp;ptid=2104259" target="_blank">hl7424994 发表于 2023-6-30 14:26</a>
+
+草，连边见室长都异世界转生了</blockquote>
+我猜错了，但这也更可能是梦了，哪有这么巧的一起转生
+
+*****
+
+####  LEOKO~  
+##### 543#       发表于 2023-6-30 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61492655&amp;ptid=2104259" target="_blank">hl7424994 发表于 2023-6-30 14:26</a>
+
+草，连边见室长都异世界转生了</blockquote>
+我猜错了，但这也更可能是梦了，哪有这么巧的一起转生
+
+
+*****
+
+####  江戸前ルナ  
+##### 544#         楼主| 发表于 2023-7-1 16:12
+
+喷了，这次实验污染剧情竟然是全语音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hl7424994  
+##### 545#       发表于 2023-7-1 16:15
+
+阿金的拉垮剧情演出太对不起这段配音了 (
+
+*****
+
+####  江戸前ルナ  
+##### 546#         楼主| 发表于 2023-7-1 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61505167&amp;ptid=2104259" target="_blank">hl7424994 发表于 2023-7-1 16:15</a>
+
+阿金的拉垮剧情演出太对不起这段配音了 (</blockquote>
+活动是这样的了，就用回原来通用的。人物动作不像主线那样专门去K各种新动作。
+
+
+*****
+
+####  灰色蔓延  
+##### 547#       发表于 2023-7-1 21:18
+
+<img src="https://img.saraba1st.com/forum/202307/01/211737bjhrnqqrglcng9gw.png" referrerpolicy="no-referrer">
+
+<strong>のどか.png</strong> (45.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-1 21:17 上传
+
+<img src="https://img.saraba1st.com/forum/202307/01/211737zqnpq5qyhyfovvf4.png" referrerpolicy="no-referrer">
+
+<strong>のどか　ココ.png</strong> (42.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-1 21:17 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">黑化版coco酱立绘感觉更棒啊。阿金能切换不
+
+
+*****
+
+####  regular  
+##### 548#       发表于 2023-7-2 21:51
+
+这全语音难不成原本是为动画录的？
+
+
+*****
+
+####  Picavian  
+##### 549#       发表于 2023-7-3 15:55
+
+coco，我们便合一罢！
+
+
+*****
+
+####  hl7424994  
+##### 550#       发表于 2023-7-3 18:56
+
+搞笑动画唐突正剧收尾，然后后日谈你以为是正剧吧最后又回到标准搞笑动画的结局去。阿金你们老实交代是不是为了这个牛角包池特地把动画本来的结局放到游戏活动里头去了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 551#       发表于 2023-7-3 20:36
+
+永远在平行世界彷徨回不到原来的世界一点都不搞笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+以后联动随时可以当工具人拉出来，联动完了扔掉。复刻幼女战记的时候可以让牛角包一起回和塔尼亚的世界去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LEOKO~  
+##### 552#       发表于 2023-7-3 20:54
+
+回不去笑死
+
+
+*****
+
+####  孫光龍  
+##### 553#       发表于 2023-7-3 21:58
+
+这下成为平行世界的漫游者了.....什么时候进化成因果律守护者
+
+
+*****
+
+####  江戸前ルナ  
+##### 554#         楼主| 发表于 2023-7-3 22:15
+
+说不定是魂穿回去啦。因为除非是被卡车撞完醒来的状态，其他的无论如何时间都不对的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LEOKO~  
+##### 555#       发表于 2023-7-3 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61537461&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-7-3 22:15</a>
+
+说不定是魂穿回去啦。因为除非是被卡车撞完醒来的状态，其他的无论如何时间都不对的 ...</blockquote>
+是魂穿，但没回去
+
+*****
+
+####  regular  
+##### 556#       发表于 2023-7-3 22:36
+
+还带连续转生的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 557#       发表于 2023-7-4 01:23
+
+叫nodoka原来是故意的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 558#       发表于 2023-7-5 22:20
+
+预告三个an复刻，后面是准备接什么新联动之类的吗，有没有说法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 559#         楼主| 发表于 2023-7-5 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61563508&amp;ptid=2104259" target="_blank">alialex 发表于 2023-7-5 22:20</a>
+
+预告三个an复刻，后面是准备接什么新联动之类的吗，有没有说法</blockquote>
+联动挂到23号呢，月中怎么可能还是联动，多半是AN
+
+
+*****
+
+####  孫光龍  
+##### 560#       发表于 2023-7-6 06:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎么觉得该出fa了
+上一组fa过去多久了？
+
+
+*****
+
+####  外骨骼  
+##### 561#       发表于 2023-7-6 07:54
+
+fa狗子和老婆楓怎么不复刻一下
+
+
+*****
+
+####  windaria  
+##### 562#       发表于 2023-7-6 18:17
+
+所以牛角包算是流放异世界了？虽然不怎么喜欢百合痴女，但是这样退场感觉也有点不舒服
+
+
+*****
+
+####  Picavian  
+##### 563#       发表于 2023-7-7 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61574757&amp;ptid=2104259" target="_blank">windaria 发表于 2023-7-6 18:17</a>
+
+所以牛角包算是流放异世界了？虽然不怎么喜欢百合痴女，但是这样退场感觉也有点不舒服 ...</blockquote>
+开放性结局＋给加料复刻留出空间。
+
+
+*****
+
+####  LEOKO~  
+##### 564#       发表于 2023-7-7 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61582922&amp;ptid=2104259" target="_blank">Picavian 发表于 2023-7-7 11:01</a>
+
+开放性结局＋给加料复刻留出空间。</blockquote>
+冰属性FA是吧？
+
+
+*****
+
+####  madcow  
+##### 565#       发表于 2023-7-9 10:20
+
+看了下发现没an的角色也没几个了？
+
+
+*****
+
+####  不灭的旋律  
+##### 566#       发表于 2023-7-9 11:04
+
+没AN的还剩我龙、奈奈、小萌、利佳、阿迪、晶乃、2022分割线、最强、龙子、绘传。其实今年AN本来可以追上今年新角色的金字塔摸了最多只能出到晶乃。
+
+
+*****
+
+####  外骨骼  
+##### 567#       发表于 2023-7-10 14:37
+
+是时候复刻fa狗子吾妻了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">我40票
+
