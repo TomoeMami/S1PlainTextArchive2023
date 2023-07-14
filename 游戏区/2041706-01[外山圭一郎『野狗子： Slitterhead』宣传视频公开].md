@@ -832,3 +832,29 @@ Not a bad start!
 
 这工作室的名字是指ボケ还是什么
 
+*****
+
+####  半生不熟子  
+##### 84#       发表于 2023-7-11 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61594593&amp;ptid=2041706" target="_blank">Dorohedoro 发表于 2023-7-8 11:48</a>
+核心玩法是找出隐藏在人群中的怪物，这个有点意思，看看实际关卡设计会是什么样 ...</blockquote>
+什么幽灵线东京……
+
+
+*****
+
+####  tureleona  
+##### 85#       发表于 2023-7-11 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61596328&amp;ptid=2041706" target="_blank">jacket 发表于 2023-7-8 15:18</a>
+这工作室的名字是指ボケ还是什么</blockquote>
+摄影术语，焦外成像
+
+*****
+
+####  tureleona  
+##### 86#       发表于 2023-7-11 21:55
+
+开发视频看着动作性好高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
