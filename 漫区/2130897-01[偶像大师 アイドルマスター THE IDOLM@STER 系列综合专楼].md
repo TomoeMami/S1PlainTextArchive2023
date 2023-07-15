@@ -4909,3 +4909,42 @@ ml和灰姑娘也寄了
 
 2023-7-5 11:59 上传
 
+*****
+
+####  傘木希美  
+##### 452#       发表于 2023-7-12 12:08
+
+想问一下，星耀季节要买那个贵的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+看m@sterpiece也在更贵的里，是个dlc？
+
+—— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Unlight  
+##### 453#         楼主| 发表于 2023-7-12 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61637113&amp;ptid=2130897" target="_blank">傘木希美 发表于 2023-7-12 12:08</a>
+想问一下，星耀季节要买那个贵的嘛
+看m@sterpiece也在更贵的里，是个dlc？</blockquote>
+也可以先买基础版体验一下，后续dlc都可以再根据情况买
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  傘木希美  
+##### 454#       发表于 2023-7-12 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61637173&amp;ptid=2130897" target="_blank">Unlight 发表于 2023-7-12 12:13</a>
+也可以先买基础版体验一下，后续dlc都可以再根据情况买
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看下面似乎还有好多好多东西啊
+都是剧情/衣服啥的？
+算了，先买豪华版吧，毕竟把m@sterpiece
+为了这个来的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
