@@ -912,3 +912,2767 @@ ABEMA・ニコニコ生放送
 这动画是只有一集？</blockquote>
 约55分钟的特别篇 不知道放完后会不会宣布tv<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 100#         楼主| 发表于 2023-7-2 14:31
+
+<img src="https://p.sda1.dev/12/2f704f040b595c0b7e5d2f257a3c706f/20230702_142724.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/12/d35acccc52c5968e7c9c7a823998c541/20230702_142728.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/02a6a21a917d7ab26fb7e501e7f683c1/20230702_142800.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/a59e43849ba4e95ced02fb36cabbeb13/20230702_142801.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/12/fd18eb3b8bcfda82343b9ca1856a9d9a/20230702_142740.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  meailove  
+##### 101#       发表于 2023-7-2 14:36
+
+这个tv什么时候能出来，尼尔都还拖着呢
+
+
+*****
+
+####  Lokad  
+##### 102#       发表于 2023-7-2 15:50
+
+闪恩大战，金皮的千门王财对轰做出来了，这才像一人平城的top级战力嘛。
+
+
+*****
+
+####  格林卡罗尔  
+##### 103#       发表于 2023-7-2 16:01
+
+我还以为7月放的是tv版，结果还是之前的特别篇
+
+
+*****
+
+####  黑上シグマ  
+##### 104#       发表于 2023-7-2 18:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才20分钟韦伯已经SHIT了两次了
+
+
+*****
+
+####  七七見奈波  
+##### 105#       发表于 2023-7-2 18:36
+
+怎么感觉成品还是一股半成品味儿，没做摄影吗？
+
+
+*****
+
+####  tjshibc21  
+##### 106#       发表于 2023-7-2 19:00
+
+工期确实爆炸了
+
+也还不错了 爆米花味有了
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 107#       发表于 2023-7-2 19:00
+
+居然做了宝石老头和锁公聊天这段
+
+*****
+
+####  meailove  
+##### 108#       发表于 2023-7-2 19:00
+
+监督亲自下场画中割。
+
+*****
+
+####  没有爱就看不见  
+##### 109#       发表于 2023-7-2 19:01
+
+看样子tv一时半会还出不来
+
+
+*****
+
+####  starcraft3  
+##### 110#       发表于 2023-7-2 19:04
+
+森井的人设动画以后更是丑到爆
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑上シグマ  
+##### 111#       发表于 2023-7-2 19:05
+
+森久保那味太对了
+
+*****
+
+####  Piano-Forest  
+##### 112#         楼主| 发表于 2023-7-2 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61512953&amp;ptid=2086574" target="_blank">Piano-Forest 发表于 2023-7-2 11:45</a>
+
+━━━━━━━━━━━━━━━
+
+Fate/strange Fake
+
+TVアニメーションシリーズ化決定</blockquote>
+PV：[https://youtu.be/yE9CkWGZ32c](https://youtu.be/yE9CkWGZ32c)
+
+『Fate/strange Fake』TVアニメーションシリーズ化決定！
+
+■メインスタッフ
+
+原作：成田良悟・TYPE-MOON　『Fate/strange Fake』（電撃文庫刊）
+
+キャラクター原案：森井しづき
+
+監督：榎戸駿・坂詰嵩仁
+
+シリーズ構成：大東大介
+
+キャラクターデザイン：山田有慶
+
+音楽：澤野弘之
+
+制作：A-1 Pictures
+<img src="https://p.sda1.dev/12/b82e5b3e19be01faa9a15c82fc5891a5/20230702_190957.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/46e3715fc5b272819db65d5510ea0f92/7489b2b9gy1hfiex7iwdmj21z41404h0.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxc4563982  
+##### 113#       发表于 2023-7-2 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金先生各种角度的便秘表情，得罪摄影师了（
+
+*****
+
+####  yangun22  
+##### 114#       发表于 2023-7-2 19:45
+
+长谷川育美居然又在跑龙套，希望后面能有个主要角色配配
+
+*****
+
+####  没有爱就看不见  
+##### 115#       发表于 2023-7-2 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61520074&amp;ptid=2086574" target="_blank">yangun22 发表于 2023-7-2 19:45</a>
+
+长谷川育美居然又在跑龙套，希望后面能有个主要角色配配</blockquote>
+她有公主来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  blue321  
+##### 116#       发表于 2023-7-2 19:50
+
+王材对睿智这段真的爽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 117#       发表于 2023-7-2 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61520074&amp;ptid=2086574" target="_blank">yangun22 发表于 2023-7-2 19:45</a>
+
+长谷川育美居然又在跑龙套，希望后面能有个主要角色配配</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她在隔壁棚已经是第一女主了，fate这边就不要了吧
+
+
+*****
+
+####  螺纹  
+##### 118#       发表于 2023-7-2 21:22
+
+我扎的横飞姬真病啊
+
+
+*****
+
+####  沼蝇  
+##### 119#       发表于 2023-7-2 21:36
+
+跟宝石翁说话的是谁？
+
+*****
+
+####  starcraft3  
+##### 120#       发表于 2023-7-2 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61521720&amp;ptid=2086574" target="_blank">沼蝇 发表于 2023-7-2 21:36</a>
+跟宝石翁说话的是谁？</blockquote>
+一个死徒
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑上シグマ  
+##### 121#       发表于 2023-7-2 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61521720&amp;ptid=2086574" target="_blank">沼蝇 发表于 2023-7-2 21:36</a>
+
+跟宝石翁说话的是谁？</blockquote>
+27祖排第27的锁哥
+
+*****
+
+####  广西桂系兵  
+##### 122#       发表于 2023-7-2 21:53
+
+乖离剑和人子炮的对波用侧写啥的带过去了，没有那种直观的碰撞、冲突、爆炸啥的
+
+
+*****
+
+####  得过且过  
+##### 123#       发表于 2023-7-2 21:55
+
+宝具对轰有美苏核战那味了。
+
+
+*****
+
+####  fault  
+##### 124#       发表于 2023-7-2 22:13
+
+还不错，就是闪恩对轰的bgm选的不是很好。
+
+
+*****
+
+####  gpx234mqx  
+##### 125#       发表于 2023-7-2 22:19
+
+45战就是去放水啊
+
+2F5E9E77-53A2-404B-90CC-3DFE759F9565.jpeg
+(433.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 22:19 上传
+
+<img src="https://img.saraba1st.com/forum/202307/02/221919w2twch4clt2awltc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 126#       发表于 2023-7-2 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这群人魔力够放这么多大招吗
+
+*****
+
+####  we89623  
+##### 127#       发表于 2023-7-2 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522454&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-2 22:19</a>
+45战就是去放水啊</blockquote>
+得了吧，就是一个动画表现力不同被闪厨吹成出力不同，你是不是看06版EA连柳洞寺地砖都打不破就认为EA就是垃圾宝具？ 
+
+更何况这表现力的密度还不如魔伊卫宫巨侠的无限剑制。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥田至  
+##### 128#       发表于 2023-7-2 22:28
+
+<blockquote>we89623 发表于 2023-7-2 22:22
+得了吧，就是一个动画表现力不同被闪厨吹成出力不同，你是不是看06版EA连柳洞寺地砖都打不破就认为EA就是 ...</blockquote>
+让他们吹吧，等到海出来就没得吹了。啧啧
+
+*****
+
+####  gpx234mqx  
+##### 129#       发表于 2023-7-2 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522507&amp;ptid=2086574" target="_blank">we89623 发表于 2023-7-2 22:22</a>
+
+得了吧，就是一个动画表现力不同被闪厨吹成出力不同，你是不是看06版EA连柳洞寺地砖都打不破就认为EA就是 ...</blockquote>
+5战闪根本就是全程放水好吧
+
+放EA也不全力
+
+
+*****
+
+####  gpx234mqx  
+##### 130#       发表于 2023-7-2 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522483&amp;ptid=2086574" target="_blank">格雷殿下 发表于 2023-7-2 22:21</a>
+
+这群人魔力够放这么多大招吗</blockquote>
+当地限定灵脉供魔<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+冬木那边供魔太小气了吧
+
+*****
+
+####  gpx234mqx  
+##### 131#       发表于 2023-7-2 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61521934&amp;ptid=2086574" target="_blank">黑上シグマ 发表于 2023-7-2 21:49</a>
+
+27祖排第27的锁哥</blockquote>
+宝石翁三个祖好友之一啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lokad  
+##### 132#       发表于 2023-7-2 22:40
+
+ 本帖最后由 Lokad 于 2023-7-2 22:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522627&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-2 22:30</a>
+
+5战闪根本就是全程放水好吧
+
+放EA也不全力</blockquote>
+1.去看FSN游戏多条线金皮卡大战各从者的文字段落，有原著不看 看动画再套进设定里，这种行为不可取。
+
+2.漫画印度兄弟互相打架10分钟，余波能把数千公里大峡谷打爆了，平A的威力比动画EA和人子对波表现都猛。
+
+3.游戏里打狂海是“无数” 打士郎也是“无数“ 打大狗是”数千“，全程放海是动画表现问题，fate线老动画的红A打士郎的UBW就有剑海场面。魔法伊利亚的剧场卫宫巨侠也有超越FSF动画王财数量的UBW表现。
+
+<img src="https://img.saraba1st.com/forum/202307/02/224134hvirdzgqydd25qzv.jpg" referrerpolicy="no-referrer">
+
+<strong>69f94ba98226cffc7f64ff7dfc014a90f403eaf4.jpg</strong> (63.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 22:41 上传
+
+巨侠的UBW  
+
+<img src="https://img.saraba1st.com/forum/202307/02/224148kd1v18pzjt8uu5bj.jpg" referrerpolicy="no-referrer">
+
+<strong>9f889f0a304e251f82eaa737e286c9177e3e5318.jpg</strong> (165.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 22:41 上传
+
+<img src="https://img.saraba1st.com/forum/202307/02/224152iz3k22pqxkejpo0e.jpg" referrerpolicy="no-referrer">
+
+<strong>88f29a58d109b3de9aa2a7a789bf6c81810a4c18.jpg</strong> (168.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 22:41 上传
+
+<img src="https://img.saraba1st.com/forum/202307/02/224154mri7272i7li78k6m.jpg" referrerpolicy="no-referrer">
+
+<strong>99acb112c8fcc3cee9dd8afcd745d688d53f2018.jpg</strong> (138.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-2 22:41 上传
+
+老动画的UBW。
+
+*****
+
+####  桥田至  
+##### 133#       发表于 2023-7-2 22:42
+
+卧槽 闪厨！这玩意不是在FATE吧成过街老鼠了吗，哦原来这是S1 (笑
+
+*****
+
+####  仟音一心  
+##### 134#       发表于 2023-7-2 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522591&amp;ptid=2086574" target="_blank">桥田至 发表于 2023-7-2 22:28</a>
+
+让他们吹吧，等到海出来就没得吹了。啧啧</blockquote>
+还是群殴闪闪更好看，就是不知道要等多久<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 135#       发表于 2023-7-2 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522703&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-2 22:36</a>
+
+当地限定灵脉供魔
+
+冬木那边供魔太小气了吧</blockquote>
+不止Atrcher组的灵脉供魔，这FSF就没有一组是缺魔的，
+
+*****
+
+####  we89623  
+##### 136#       发表于 2023-7-2 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522627&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-2 22:30</a>
+5战闪根本就是全程放水好吧
+
+放EA也不全力</blockquote>
+你这种闪厨言论我10多年前就见识够多了，十年多年前我还能战战，现在只能说对对对，你说的对。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  禦厨三九二  
+##### 137#       发表于 2023-7-2 22:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">服了，日本贝多芬能不能再出戏点啊
+
+
+*****
+
+####  vmon  
+##### 138#       发表于 2023-7-2 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唉，不知道TV啥时候能出来，等不及看进狱系从者了。
+
+*****
+
+####  Leliel  
+##### 139#       发表于 2023-7-2 23:01
+
+台词简直都是1.5倍速的念的
+
+
+*****
+
+####  仟音一心  
+##### 140#       发表于 2023-7-2 23:03
+
+我的理解一直是掏EA出来的都算认真闪
+
+
+*****
+
+####   匿名
+##### 141#        匿名   发表于 2023-7-2 23:19
+
+动画播出完了，你对这部作品打几分呢，欢迎到鉴赏区参加投票。
+[https://bbs.saraba1st.com/2b/thread-2142753-1-1.html](https://bbs.saraba1st.com/2b/thread-2142753-1-1.html)
+
+[2023.07][TV.1]Fate/strange Fake -黎明低语-/Fate/strange Fake -Whispers of Dawn-
+
+*****
+
+####  pzk  
+##### 142#       发表于 2023-7-2 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">松岗这组完全和黄金神威那边的**侦探一样的搭配
+
+
+*****
+
+####  红鲤鱼与黑化肥  
+##### 143#       发表于 2023-7-2 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然经常嘲武内脸但是动画化的wada近卫森井脸好像都不如……
+
+*****
+
+####  cowgp01  
+##### 144#       发表于 2023-7-2 23:29
+
+好像没有漫画给力，还删了白骑被召唤的剧情
+
+
+*****
+
+####  gpx234mqx  
+##### 145#       发表于 2023-7-2 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61522788&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-2 22:44</a>
+
+不止Atrcher组的灵脉供魔，这FSF就没有一组是缺魔的，</blockquote>
+都在放开了供魔
+
+这边还有骂死他是无限魔力的，真B这边还能偷电<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 146#       发表于 2023-7-2 23:46
+
+又看了遍熟肉，各种细节的演出太强了，而且还特别喜欢展示大场景，观感极佳。横飞姬那段配音也是完全符合我的脑补
+
+*****
+
+####  wyjbnb  
+##### 147#       发表于 2023-7-2 23:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这一集？没后续了？
+
+*****
+
+####  黑上シグマ  
+##### 148#       发表于 2023-7-2 23:49
+
+<blockquote>引用第146楼wyjbnb于2023-07-02 23:49发表的  :
+
+就这一集？没后续了？</blockquote>
+宣布要出后续了，什么时候不知道
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  [皆神孝介]  
+##### 149#       发表于 2023-7-2 23:53
+
+动画人物鼻子的画法是不是有点问题？
+
+*****
+
+####  hosilly  
+##### 150#       发表于 2023-7-2 23:59
+
+果然assassin小姐姐好美，我跟死徒达成一致了，好想看她哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+话说现在漫画画到哪里了？当时看到狂海和亚马孙女王出来后就没追了
+
+
+*****
+
+####  仟音一心  
+##### 151#       发表于 2023-7-3 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61523726&amp;ptid=2086574" target="_blank">hosilly 发表于 2023-7-2 23:59</a>
+果然assassin小姐姐好美，我跟死徒达成一致了，好想看她哭啊
+
+话说现在漫画画到哪里了？当时看到狂海 ...</blockquote>
+那个不是狂海，是AV海
+
+
+*****
+
+####  hosilly  
+##### 152#       发表于 2023-7-3 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524078&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-3 00:24</a>
+
+那个不是狂海，是AV海</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">口误了
+
+
+*****
+
+####  scorbian  
+##### 153#       发表于 2023-7-3 00:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">不太了解fate设定的问下，这个开膛手杰克和FA里那个萝莉开膛手杰克是啥关系？
+
+
+*****
+
+####  FanFun  
+##### 154#       发表于 2023-7-3 01:08
+
+不错的序章，期待值拉起来了，赶紧把正篇端上来吧
+
+*****
+
+####  starcraft3  
+##### 155#       发表于 2023-7-3 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524342&amp;ptid=2086574" target="_blank">scorbian 发表于 2023-7-3 00:51</a>
+不太了解fate设定的问下，这个开膛手杰克和FA里那个萝莉开膛手杰克是啥关系？ ...</blockquote>
+一个是**打胎成精 一个是杰克这个概念 都不是真正的杰克。顺便狂杰克也能变身成萝莉杰克的外形。
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bgmilk  
+##### 156#       发表于 2023-7-3 01:16
+
+  摄影没做完就扔上来了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cwlo  
+##### 157#       发表于 2023-7-3 02:23
+
+有点好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  被子十三  
+##### 158#       发表于 2023-7-3 03:08
+
+一个OVA都拖了半年，这TV不会也搞成尼尔那样拖成年番吧
+有知道A-1是出了啥事么
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  lucky95  
+##### 159#       发表于 2023-7-3 03:21
+
+设定是牛逼疯了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+要是是飞碟做的就好了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hcf220  
+##### 160#       发表于 2023-7-3 03:56
+
+好离谱的作画质量。
+
+看过的有没有说下原作怎么样
+
+—— 来自 OnePlus PHB110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  starcraft3  
+##### 161#       发表于 2023-7-3 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524995&amp;ptid=2086574" target="_blank">hcf220 发表于 2023-7-3 03:56</a>
+好离谱的作画质量。
+
+看过的有没有说下原作怎么样</blockquote>
+原作的问题在于太乱太杂 配合现在fate系作品各种穿越平行世界的各种角色玩梗和设定 路人甚至普通看过几部动画的都很容易不知所云 还有就是这么多卷了还有两卷完结了还有一大半人没死  放在以往应该都没几个了
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  pzk  
+##### 162#       发表于 2023-7-3 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61525102&amp;ptid=2086574" target="_blank">starcraft3 发表于 2023-7-3 06:16</a>
+原作的问题在于太乱太杂 配合现在fate系作品各种穿越平行世界的各种角色玩梗和设定 路人甚至普通看过几部 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊那这不就是fate里最糟糕的情况：角色一直互相装逼刷时髦但没有人给这时髦付出死的代价。
+
+
+*****
+
+####  没有爱就看不见  
+##### 163#       发表于 2023-7-3 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61525323&amp;ptid=2086574" target="_blank">pzk 发表于 2023-7-3 07:56</a>
+
+啊那这不就是fate里最糟糕的情况：角色一直互相装逼刷时髦但没有人给这时髦付出死的代价。 ...</blockquote>
+最新卷有死相的人都开始陆续退场了，而装了全书目前为止最大的一个逼的人也基本是下卷退场预定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cowgp01  
+##### 164#       发表于 2023-7-3 08:42
+
+<blockquote>pzk 发表于 2023-7-3 07:56
+啊那这不就是fate里最糟糕的情况：角色一直互相装逼刷时髦但没有人给这时髦付出死的代价。 ...</blockquote>
+成田的故事不就这样，很热闹，场面很大，人人有逼装，但是不舍得死人。结局回头看故事也就这样，不过要我说成田写的东西作为娱乐作品是非常合格的
+
+
+*****
+
+####  vmon  
+##### 165#       发表于 2023-7-3 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524995&amp;ptid=2086574" target="_blank">hcf220 发表于 2023-7-3 03:56</a>
+
+好离谱的作画质量。
+
+看过的有没有说下原作怎么样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在FATE相关小说里算前列了。
+
+
+*****
+
+####  zakki  
+##### 166#       发表于 2023-7-3 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524342&amp;ptid=2086574" target="_blank">scorbian 发表于 2023-7-3 00:51</a>
+
+不太了解fate设定的问下，这个开膛手杰克和FA里那个萝莉开膛手杰克是啥关系？ ...</blockquote>
+没什么关系，都不是开膛手杰克本人，都是概念性质的英灵，这个狂杰克能玩的花活要比杀杰克多不少，
+
+*****
+
+####  ナルバレック  
+##### 167#       发表于 2023-7-3 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524995&amp;ptid=2086574" target="_blank">hcf220 发表于 2023-7-3 03:56</a>
+
+好离谱的作画质量。
+
+看过的有没有说下原作怎么样</blockquote>
+成田的**病，大乱斗大杂烩大乱入，东扯月姬，西扯FGO，但是又下笔太软，便当总发不出去几个，完结永远是老大难问题，群像虽然是他擅长的，但是送便当这点心太软了。
+
+无头骑士异闻录，永生之酒，甚至死神小说，他都有这个问题
+
+
+*****
+
+####  6030sylar  
+##### 168#       发表于 2023-7-3 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这热闹的像是来开趴体，比FA还热闹，有人能剧透一下给我这一大堆又真又不是真的从者是怎么回事吗
+
+
+*****
+
+####  洛克萨斯  
+##### 169#       发表于 2023-7-3 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61525937&amp;ptid=2086574" target="_blank">6030sylar 发表于 2023-7-3 09:14</a>
+
+这热闹的像是来开趴体，比FA还热闹，有人能剧透一下给我这一大堆又真又不是真的从者是怎么回事吗 ...</blockquote>
+这次圣杯战假货版6骑，真货7+？，反正很热闹
+
+
+*****
+
+####  57042711  
+##### 170#       发表于 2023-7-3 09:34
+
+中间有一段闪闪和黑皮散步远景都变PPT了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  洛克萨斯  
+##### 171#       发表于 2023-7-3 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">想看阿海精彩表演还得靠fsf，在其他fate系的作品都很惨
+
+
+*****
+
+####  仟音一心  
+##### 172#       发表于 2023-7-3 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61526419&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-3 09:48</a>
+
+想看阿海精彩表演还得靠fsf，在其他fate系的作品都很惨</blockquote>
+但av海debuff也上满了，退场可能和金闪闪差不多时候，当然我觉得同归都算赚到了。
+
+*****
+
+####  洛克萨斯  
+##### 173#       发表于 2023-7-3 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61526546&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-3 09:56</a>
+
+但av海debuff也上满了，退场可能和金闪闪差不多时候，当然我觉得同归都算赚到了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">英勇战死和fgo片场毫无尊严变成梗木桩相比还是fsf片场好，起码有高光，弓海用少量篇幅就塑造出一个大英雄的形象，不比本篇和幼女绑死，fgo成搞笑角色强
+
+
+*****
+
+####  ttoady  
+##### 174#       发表于 2023-7-3 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61525537&amp;ptid=2086574" target="_blank">没有爱就看不见 发表于 2023-7-3 08:30</a>
+最新卷有死相的人都开始陆续退场了，而装了全书目前为止最大的一个逼的人也基本是下卷退场预定了 ...</blockquote>
+好奇装最大B的是谁
+
+*****
+
+####  没有爱就看不见  
+##### 175#       发表于 2023-7-3 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61526835&amp;ptid=2086574" target="_blank">ttoady 发表于 2023-7-3 10:14</a>
+
+好奇装最大B的是谁</blockquote>
+就上面在讨论的仇海，基本是单刷了天之公牛
+
+*****
+
+####  zakki  
+##### 176#       发表于 2023-7-3 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61526835&amp;ptid=2086574" target="_blank">ttoady 发表于 2023-7-3 10:14</a>
+
+好奇装最大B的是谁</blockquote>
+仇海，小恩还有弗拉特。闪闪几乎时啥都没装到
+
+
+*****
+
+####  洛克萨斯  
+##### 177#       发表于 2023-7-3 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蘑菇亲爹目前是小丑定位，整了波大乐子把自己几乎干挺了
+
+*****
+
+####  仟音一心  
+##### 178#       发表于 2023-7-3 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61526600&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-3 10:00</a>
+英勇战死和fgo片场毫无尊严变成梗木桩相比还是fsf片场好，起码有高光，弓海用少量篇幅就塑造出一 ...</blockquote>
+AV海甚至直球嘲讽了狂海：能被旺财解决掉的只有无可救药的弱者和没有理性的野兽。
+
+
+*****
+
+####  6030sylar  
+##### 179#       发表于 2023-7-3 10:38
+
+现在倒是狂海和狂兰才是异类了，狂战士说话利索又清晰
+
+*****
+
+####  洛克萨斯  
+##### 180#       发表于 2023-7-3 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527160&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-3 10:33</a>
+
+AV海甚至直球嘲讽了狂海：能被旺财解决掉的只有无可救药的弱者和没有理性的野兽。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狂海不是木桩就是和伊利亚系无脑绑定的赠品，同样还有罗摩，只是下手没阿海这么重，你月是真的叛逆，原典吹爆的就总想装自己最懂的整点花活膈应人，最新出的怖军语音就把人看傻了
+
+
+*****
+
+####  zakki  
+##### 181#       发表于 2023-7-3 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61525937&amp;ptid=2086574" target="_blank">6030sylar 发表于 2023-7-3 09:14</a>
+
+这热闹的像是来开趴体，比FA还热闹，有人能剧透一下给我这一大堆又真又不是真的从者是怎么回事吗 ...</blockquote>
+雪原市的圣杯战争是虚假的圣杯战争，只能召唤6骑伪从者，伪从者中没有saber。然后再通过成功召唤出saber，将虚假的圣杯战争升华成圣杯战争，可以召唤真6骑从者。也就是说一共13个从者，其中只有一个剑，剩下的职阶都是两个
+
+*****
+
+####  仟音一心  
+##### 182#       发表于 2023-7-3 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527238&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-3 10:38</a>
+
+狂海不是木桩就是和伊利亚系无脑绑定的赠品，同样还有罗摩，只是下手没阿海这么重，你月是真的叛 ...</blockquote>
+罗摩：说哈奴曼就是伟大的哈奴曼，说到我就直呼其名是吧？你丫的。
+
+*****
+
+####  水银之蛇  
+##### 183#       发表于 2023-7-3 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61526546&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-3 09:56</a>
+
+但av海debuff也上满了，退场可能和金闪闪差不多时候，当然我觉得同归都算赚到了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">成田肯定得圆闪恩第二次大战，仇海这灵基都快爆了的debuff我感觉撑不到二闪起来打复活赛。
+
+*****
+
+####  仟音一心  
+##### 184#       发表于 2023-7-3 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527321&amp;ptid=2086574" target="_blank">水银之蛇 发表于 2023-7-3 10:44</a>
+
+成田肯定得圆闪恩第二次大战，仇海这灵基都快爆了的debuff我感觉撑不到二闪起来打复活赛。 ...</blockquote>
+所以能同归都算赚到了，主要成田小恩亲爹，八成还是要圆一下梦。
+
+*****
+
+####  洛克萨斯  
+##### 185#       发表于 2023-7-3 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527309&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-3 10:43</a>
+
+雪原市的圣杯战争是虚假的圣杯战争，只能召唤6骑伪从者，伪从者中没有saber。然后再通过成功召唤出saber ...</blockquote>
+还有个watcher
+
+*****
+
+####  水银之蛇  
+##### 186#       发表于 2023-7-3 10:46
+
+ 本帖最后由 水银之蛇 于 2023-7-3 10:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527007&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-3 10:23</a>
+
+仇海，小恩还有弗拉特。闪闪几乎时啥都没装到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有二闪还隐藏了一个新宝具，复活赛肯定得升级装一波逼的。
+
+*****
+
+####  洛克萨斯  
+##### 187#       发表于 2023-7-3 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527320&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-3 10:43</a>
+
+罗摩：说哈奴曼就是伟大的哈奴曼，说到我就直呼其名是吧？你丫的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">你月实装的印度系见到罗摩不都得磕一个才够恭敬，总喜欢原典强的就整的花活，芬恩不是靠fa补了一波简直是不堪入目的小丑，天天尬吹bba
+
+*****
+
+####  水银之蛇  
+##### 188#       发表于 2023-7-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527237&amp;ptid=2086574" target="_blank">6030sylar 发表于 2023-7-3 10:38</a>
+
+现在倒是狂海和狂兰才是异类了，狂战士说话利索又清晰</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在狂化等级不是和神志挂钩了，而是跟精神上挂钩，摩根和南丁这种神志很清晰的也是狂战士。
+
+*****
+
+####  Boliva  
+##### 189#       发表于 2023-7-3 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普通路过村民  
+##### 190#       发表于 2023-7-3 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527465&amp;ptid=2086574" target="_blank">Boliva 发表于 2023-7-3 10:52</a>
+
+话说假6阶都出全了吧，真7阶除去理查还有6个是谁？都很强么？假6阶2个概念从者1个闪级，1个神灵级… ...</blockquote>
+真弓：海（后面变复仇者
+
+真枪：西格玛（魔术师）
+
+真术：横飞姬男体
+
+真骑：希波吕忒
+
+真杀：王哈coser影灯笼
+
+真狂：芬巴巴
+
+*****
+
+####  6x6z6w  
+##### 191#       发表于 2023-7-3 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527465&amp;ptid=2086574" target="_blank">Boliva 发表于 2023-7-3 10:52</a>
+
+话说假6阶都出全了吧，真7阶除去理查还有6个是谁？都很强么？假6阶2个概念从者1个闪级，1个神灵级… ...</blockquote>
+反白一下：
+弓阶是淋了黑泥的B叔
+
+枪阶是Watcher的Master西格玛，舞弥的儿子
+
+骑阶是希波吕忒，亚马逊女王
+
+杀阶是影灯笼哈桑，气息遮断等级有EX，全哈桑里最高
+
+术阶是普雷拉蒂，由参加圣杯战争的少女普雷拉蒂召唤，相当于他当他自己的Master
+
+狂阶是胡姆巴巴，闪和恩二人生前大战过的怪物
+
+
+*****
+
+####  洛克萨斯  
+##### 192#       发表于 2023-7-3 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527463&amp;ptid=2086574" target="_blank">水银之蛇 发表于 2023-7-3 10:52</a>
+
+现在狂化等级不是和神志挂钩了，而是跟精神上挂钩，摩根和南丁这种神志很清晰的也是狂战士。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不会说话的狂战士反而是少数，你月现在出场过的狂战士说话一个比一个有条理思路清晰
+
+
+*****
+
+####  gpx234mqx  
+##### 193#       发表于 2023-7-3 11:27
+
+<blockquote>zakki 发表于 2023-7-3 10:43
+雪原市的圣杯战争是虚假的圣杯战争，只能召唤6骑伪从者，伪从者中没有saber。然后再通过成功召唤出saber ...</blockquote>
+是14个，saber一个，真伪6骑12个（西格玛充数），EX阶watcher一个
+
+*****
+
+####  zakki  
+##### 194#       发表于 2023-7-3 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527376&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-3 10:46</a>
+还有个watcher</blockquote>
+watcher顶了真枪的位置，仇海顶了真弓的位置。不过watcher本质不出手，目的是让西格玛成为真枪其实区别也不大
+
+
+*****
+
+####  zakki  
+##### 195#       发表于 2023-7-3 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61528065&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-3 11:27</a>
+是14个，saber一个，真伪6骑12个（西格玛充数），EX阶watcher一个</blockquote>
+watcher基本算编外人员了，伊什塔尔也是
+
+*****
+
+####  厄神之息  
+##### 196#       发表于 2023-7-3 11:43
+
+狂化不是早就变成指会有傻逼逻辑绑着了吗，不论做什么都会不能自已的拐到那条傻逼逻辑链上。南丁啥的不都是这个情况，所以狂化的狂是偏执狂的狂（
+
+
+*****
+
+####  gpx234mqx  
+##### 197#       发表于 2023-7-3 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61528244&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-3 11:35</a>
+
+watcher基本算编外人员了，伊什塔尔也是</blockquote>
+Watcher就是负责监视圣杯战争
+
+伊斯塔就是个遗留诅咒，搞事的
+
+*****
+
+####  失落之翼  
+##### 198#       发表于 2023-7-3 11:51
+
+小说完结了么不是说断断续续的？好久没看漫画了，感觉如果一季动画做不了太多？
+
+*****
+
+####  gpx234mqx  
+##### 199#       发表于 2023-7-3 11:53
+
+sfs的爱歌在罗马尼亚搞事情吧
+
+
+*****
+
+####  cowgp01  
+##### 200#       发表于 2023-7-3 11:54
+
+<blockquote>失落之翼 发表于 2023-7-3 11:51
+小说完结了么不是说断断续续的？好久没看漫画了，感觉如果一季动画做不了太多？ ...</blockquote>
+成田说还有两卷完结，但是目前的坑感觉再给他5卷也完结不了
+
+*****
+
+####  gpx234mqx  
+##### 201#       发表于 2023-7-3 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61528490&amp;ptid=2086574" target="_blank">失落之翼 发表于 2023-7-3 11:51</a>
+
+小说完结了么不是说断断续续的？好久没看漫画了，感觉如果一季动画做不了太多？ ...</blockquote>
+还有2卷吧
+
+*****
+
+####  稀勢のささ  
+##### 202#       发表于 2023-7-3 11:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">热闹是真热闹
+
+
+*****
+
+####  仓岛千百合  
+##### 203#       发表于 2023-7-3 13:33
+
+<blockquote>Boliva 发表于 2023-7-3 10:52
+话说假6阶都出全了吧，真7阶除去理查还有6个是谁？都很强么？假6阶2个概念从者1个闪级，1个神灵级… ...</blockquote>
+是谁说假阶比真阶弱的？
+
+
+*****
+
+####  we89623  
+##### 204#       发表于 2023-7-3 13:37
+
+我还是喜欢死亡骑士和椿这对，希望早日打赢复活赛，小椿真是天选之女，连抽三张SSR
+
+
+*****
+
+####  洛克萨斯  
+##### 205#       发表于 2023-7-3 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">闪恩对轰真是有钱啊............期待海闪大战了
+
+
+*****
+
+####  index  
+##### 206#       发表于 2023-7-3 14:00
+
+看贴吧有人猜测弗拉特是最终Boss 真的假的？
+
+
+*****
+
+####  cao1rui2  
+##### 207#       发表于 2023-7-3 14:37
+
+下一集什么时候出？
+
+*****
+
+####  zakki  
+##### 208#       发表于 2023-7-3 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61530348&amp;ptid=2086574" target="_blank">index 发表于 2023-7-3 14:00</a>
+
+看贴吧有人猜测弗拉特是最终Boss 真的假的？</blockquote>
+有可能，目前最大可能是最终boss的要么横飞姬要么弗拉特，不过准确说的话也不算弗拉特
+
+
+*****
+
+####  gpx234mqx  
+##### 209#       发表于 2023-7-3 18:53
+
+ 本帖最后由 gpx234mqx 于 2023-7-3 18:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61530348&amp;ptid=2086574" target="_blank">index 发表于 2023-7-3 14:00</a>
+
+看贴吧有人猜测弗拉特是最终Boss 真的假的？</blockquote>
+佛拉特觉醒新灵长，在场无人能敌啊
+
+还有匹敌基尔什塔利亚的大魔术人理保障天球的大魔术空洞異譚，一样能清洗地表啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+你看基尔什塔利亚就能把神灵打趴了，这位更强
+
+还剩两卷除非横飞姬把大鱿鱼本尊召唤出来，否则这里没比他更强的了
+
+*****
+
+####  魂梦·SiD  
+##### 210#       发表于 2023-7-3 18:56
+
+第一话啥b玩意 做的乱七八糟的 闪恩大战bgm来个精神小伙摇滚rap 我屌你妈妈的 小太刀做的吗
+
+这只是我一个人的偏见吗
+
+
+*****
+
+####  gpx234mqx  
+##### 211#       发表于 2023-7-3 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535016&amp;ptid=2086574" target="_blank">魂梦·SiD 发表于 2023-7-3 18:56</a>
+
+第一话啥b玩意 做的乱七八糟的 闪恩大战bgm来个精神小伙摇滚rap 我屌你妈妈的 小太刀做的吗
+
+这只是我一个人 ...</blockquote>
+这BGM不是美式风格吗
+
+
+*****
+
+####  魂梦·SiD  
+##### 212#       发表于 2023-7-3 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535061&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-3 18:59</a>
+
+这BGM不是美式风格吗</blockquote>
+单拿出来没有什么不好 放在闪恩感动再会大战有点....不得正点宏大管弦乐啥的
+
+
+*****
+
+####  万年僵尸  
+##### 213#       发表于 2023-7-3 19:27
+
+一般惯例是本传的主要角色不会死在外传里，艾尔梅罗教室全体动员不就是为了把弗拉特救回去的嘛
+
+弗兰切斯卡一脸最后会吃瘪的样子肯定不会成功的
+
+我倒要看看那个吸血鬼跟埋葬机关要怎么圆
+
+最有可能的结局就是没有赢家，“真正的宝物就是我们冒险途中获得的友谊呀！”这样有聚有散
+
+缲丘椿这个二代间桐樱还是希望能有个good end<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 214#       发表于 2023-7-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535451&amp;ptid=2086574" target="_blank">万年僵尸 发表于 2023-7-3 19:27</a>
+
+一般惯例是本传的主要角色不会死在外传里，艾尔梅罗教室全体动员不就是为了把弗拉特救回去的嘛
+
+弗兰切斯卡 ...</blockquote>
+弗兰切斯卡除非转职介外国人，否则没戏<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  竞自由  
+##### 215#       发表于 2023-7-3 20:38
+
+还不错，战斗场面有点爽<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133G, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  6x6z6w  
+##### 216#       发表于 2023-7-3 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535016&amp;ptid=2086574" target="_blank">魂梦·SiD 发表于 2023-7-3 18:56</a>
+
+第一话啥b玩意 做的乱七八糟的 闪恩大战bgm来个精神小伙摇滚rap 我屌你妈妈的 小太刀做的吗
+
+这只是我一个人 ...</blockquote>
+看到贝多芬再世=现代汉斯季默=泽野弘之这个名字你还不懂吗，RAP就是他配乐的一环啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cao1rui2  
+##### 217#       发表于 2023-7-3 22:09
+
+那段还不如按之前pv里的来，放rap确实感觉有点突兀
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 218#       发表于 2023-7-3 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535451&amp;ptid=2086574" target="_blank">万年僵尸 发表于 2023-7-3 19:27</a>
+
+一般惯例是本传的主要角色不会死在外传里，艾尔梅罗教室全体动员不就是为了把弗拉特救回去的嘛
+
+弗兰切斯卡 ...</blockquote>
+你说得对，不过问题在于，对于弗拉特这个角色而言，可能FSF才能算是他的“本传”，因为这个角色就是成田创作出来的，二世事件簿涉及弗拉特的剧情都是由成田担任监修的，所以我认为成田应该是有对弗拉特这个角色的全权处置权。
+
+*****
+
+####  没有爱就看不见  
+##### 219#       发表于 2023-7-3 22:53
+
+弗拉特的问题就在于从他的决战之日来看，二世和fsf可能都不是他的本传
+
+
+*****
+
+####  一条咸鱼波浪宽  
+##### 220#       发表于 2023-7-3 23:07
+
+淳皇又拿了个可以放飞自我的角色
+
+
+*****
+
+####  格林卡罗尔  
+##### 221#       发表于 2023-7-3 23:47
+
+我觉得fsf不管写什么蘑菇都管不到，反过来也如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  xunit  
+##### 222#       发表于 2023-7-4 02:11
+
+立本贝多芬的BGM能不能不要有人声啊，真的很破坏气氛诶<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 223#       发表于 2023-7-4 03:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527099&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-3 10:28</a>
+蘑菇亲爹目前是小丑定位，整了波大乐子把自己几乎干挺了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无所谓了，论战增幅ea砸最大坑，自动迎击防狙击，360环绕王财各种上限表现还得看fsf
+属于是亲儿子蘑菇都不会给的表现机会了
+
+*****
+
+####  winda  
+##### 224#       发表于 2023-7-4 03:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">横飞姬那段明显作画发力了，看来是性癖爆发厨力cut
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 225#       发表于 2023-7-4 04:18
+
+呃呃 意思是还有六个真的要招
+
+无敌了呀 这么多人<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 226#       发表于 2023-7-4 07:36
+
+月姬Fate分家时蘑菇都特地说了句FSF除外，成田这边怎么写蘑菇应该是不会管的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 227#       发表于 2023-7-4 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61539935&amp;ptid=2086574" target="_blank">winda 发表于 2023-7-4 03:15</a>
+
+横飞姬那段明显作画发力了，看来是性癖爆发厨力cut</blockquote>
+人设烧，真扎的声音，好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  terminator1990  
+##### 228#       发表于 2023-7-4 09:28
+
+看到有小灰镜头我就满足了，下次再见到能动的小灰鬼知道是猴年马月<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cowgp01  
+##### 229#       发表于 2023-7-4 09:38
+
+弓海：什么20km九合一神气射百弓都是不纯物，我只会大力拉弓和三倍血
+
+
+*****
+
+####  rainknine  
+##### 230#       发表于 2023-7-4 11:35
+
+ 本帖最后由 rainknine 于 2023-7-4 11:38 编辑 
+
+因为对fsf只听说过一些片段，还以为黑影是b叔这次又当Loli控了，一集下来没看见人出场有点好奇所以查了查，没想到缲丘Loli的情况是这样的
+但是总之
+回来了，fate那种热热闹闹的感觉回来了
+横飞姬可爱
+但是的但是
+日本贝多芬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+弗拉特用玩具匕首招出来开膛手杰克是什么讲究，这算圣遗物召唤还是相性召唤？
+
+*****
+
+####  NZ-333  
+##### 231#       发表于 2023-7-4 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535016&amp;ptid=2086574" target="_blank">魂梦·SiD 发表于 2023-7-3 18:56</a>
+第一话啥b玩意 做的乱七八糟的 闪恩大战bgm来个精神小伙摇滚rap 我屌你妈妈的 小太刀做的吗
+
+这只是我一个人 ...</blockquote>
+这段bgm确实狗屎，不知道为什么有种韩国感
+
+*****
+
+####  starcraft3  
+##### 232#       发表于 2023-7-4 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61542996&amp;ptid=2086574" target="_blank">rainknine 发表于 2023-7-4 11:35</a>
+因为对fsf只听说过一些片段，还以为黑影是b叔这次又当Loli控了，一集下来没看见人出场有点好奇所以查了查， ...</blockquote>
+那个匕首是一款开膛手杰克题材游戏送的特典
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cowgp01  
+##### 233#       发表于 2023-7-4 11:42
+
+<blockquote>rainknine 发表于 2023-7-4 11:35
+因为对fsf只听说过一些片段，还以为黑影是b叔这次又当Loli控了，一集下来没看见人出场有点好奇所以查了查， ...</blockquote>
+大众娱乐游戏的附赠品假货小刀，召唤出大众娱乐都市怪谈产生的狂杰克
+
+
+*****
+
+####  zakki  
+##### 234#       发表于 2023-7-4 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61542996&amp;ptid=2086574" target="_blank">rainknine 发表于 2023-7-4 11:35</a>
+
+因为对fsf只听说过一些片段，还以为黑影是b叔这次又当Loli控了，一集下来没看见人出场有点好奇所以查了查， ...</blockquote>
+应该也算是相性召唤吧，杰克的小刀给了一定的指向性
+
+*****
+
+####  proselyte  
+##### 235#       发表于 2023-7-4 17:09
+
+ 本帖最后由 proselyte 于 2023-7-4 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61543097&amp;ptid=2086574" target="_blank">cowgp01 发表于 2023-7-4 11:42</a>
+
+大众娱乐游戏的附赠品假货小刀，召唤出大众娱乐都市怪谈产生的狂杰克</blockquote>
+原本都以为是小刀触媒召唤
+
+实际上嘛
+弗拉特体内有个叫提亚的东西，是埃斯卡尔德斯家族搞出来的，因为那个东西的存在有杀人鬼的潜质，再加上触媒的引导，最后召唤出来的就是berserker开膛手杰克
+
+*****
+
+####  洛克萨斯  
+##### 236#       发表于 2023-7-4 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61542996&amp;ptid=2086574" target="_blank">rainknine 发表于 2023-7-4 11:35</a>
+
+因为对fsf只听说过一些片段，还以为黑影是b叔这次又当Loli控了，一集下来没看见人出场有点好奇所以查了查， ...</blockquote>
+相性，按照他体内某个东西召唤的
+
+*****
+
+####  仟音一心  
+##### 237#       发表于 2023-7-4 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61542996&amp;ptid=2086574" target="_blank">rainknine 发表于 2023-7-4 11:35</a>
+
+因为对fsf只听说过一些片段，还以为黑影是b叔这次又当Loli控了，一集下来没看见人出场有点好奇所以查了查， ...</blockquote>
+目前认为是相性召唤，主要起作用的是弗拉特体内的“它”，当然玩具刀可能也有那么点用。
+
+
+*****
+
+####  洛克萨斯  
+##### 238#       发表于 2023-7-4 17:14
+
+相性抽卡就是全卡池大海捞针，抽出来强度不能保证但和自己性格合得来，不容易背刺自己
+
+用圣遗物就是定向卡池，缩小范围，能保底强度，但合不合得来就难说了
+
+*****
+
+####  密特里奈斯  
+##### 239#       发表于 2023-7-4 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535451&amp;ptid=2086574" target="_blank">万年僵尸 发表于 2023-7-3 19:27</a>
+
+一般惯例是本传的主要角色不会死在外传里，艾尔梅罗教室全体动员不就是为了把弗拉特救回去的嘛
+
+弗兰切斯卡 ...</blockquote>
+问题是fsf不是本体时间线，FSF的弗拉特死了也不影响事件簿的他
+
+何况弗拉特是fsf人物，事件簿才是客串……
+
+*****
+
+####  proselyte  
+##### 240#       发表于 2023-7-4 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547116&amp;ptid=2086574" target="_blank">密特里奈斯 发表于 2023-7-4 17:15</a>
+
+问题是fsf不是本体时间线，FSF的弗拉特死了也不影响事件簿的他
+
+何况弗拉特是fsf人物，事件簿才是客串…… ...</blockquote>
+弗拉特可能还能复活
+
+
+*****
+
+####  黑上シグマ  
+##### 241#       发表于 2023-7-4 17:21
+
+<blockquote>引用第238楼密特里奈斯于2023-07-04 17:15发表的  :
+
+引用:万年僵尸 发表于 2023-7-3 19:27一般惯例是本传的主要角色不会死在外传里，艾尔梅罗......</blockquote>
+我记得按照8卷的回想，FSF的时间线应该是在事件簿和大冒险之后，所以就算真死了也不会对三田诚那边有任何影响……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  57042711  
+##### 242#       发表于 2023-7-4 17:58
+
+小说确实挺劲的，开始就有教会魔鬼改造人大战死徒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  KDConan  
+##### 243#       发表于 2023-7-4 18:01
+
+只追了漫画，讲到舞弥儿子了，后面弗拉特这么危险的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zakki  
+##### 244#       发表于 2023-7-4 18:10
+
+当时设计这圣杯战争的召唤规则设计的还真是巧妙，穷人有穷人的玩法，买得起圣遗物的有钱人有有钱人的玩法，而且意外的很平衡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  盖尔杰特克  
+##### 245#       发表于 2023-7-4 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547096&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-4 17:14</a>
+
+相性抽卡就是全卡池大海捞针，抽出来强度不能保证但和自己性格合得来，不容易背刺自己
+
+用圣遗物就是定向卡 ...</blockquote>
+对于普通人来说，最便宜实惠的圣遗物怕不就是卫宫家了，随便找个家具都能随机摇出红a，村正，黑a，都是一流保底从者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  盖尔杰特克  
+##### 246#       发表于 2023-7-4 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547881&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-4 18:10</a>
+
+当时设计这圣杯战争的召唤规则设计的还真是巧妙，穷人有穷人的玩法，买得起圣遗物的有钱人有有钱人的玩法， ...</blockquote>
+穷人直接飞去日本偷一件卫宫家的东西<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Saber琪  
+##### 247#       发表于 2023-7-4 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61502259&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-1 11:33</a>
+明天，小说还没完啊，咋出tv</blockquote>
+现在回复了，不得不说fsf有成田和三田真的太好了，成田twi说如果身体状况好的话会把大纲什么的弄好递交给各方的，fsf也差不多只有两卷就完结了
+
+*****
+
+####  Saber琪  
+##### 248#       发表于 2023-7-4 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547207&amp;ptid=2086574" target="_blank">黑上シグマ 发表于 2023-7-4 17:21</a>
+我记得按照8卷的回想，FSF的时间线应该是在事件簿和大冒险之后，所以就算真死了也不会对三田诚那边有任何 ...</blockquote>
+所以大冒险会涉及圣杯解体战嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">比较期待这个
+
+*****
+
+####  Saber琪  
+##### 249#       发表于 2023-7-4 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61535016&amp;ptid=2086574" target="_blank">魂梦·SiD 发表于 2023-7-3 18:56</a>
+第一话啥b玩意 做的乱七八糟的 闪恩大战bgm来个精神小伙摇滚rap 我屌你妈妈的 小太刀做的吗
+
+这只是我一个人 ...</blockquote>
+泽野做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 250#       发表于 2023-7-4 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547991&amp;ptid=2086574" target="_blank">Saber琪 发表于 2023-7-4 18:20</a>
+
+所以大冒险会涉及圣杯解体战嘛比较期待这个</blockquote>
+没戏，这种大场面肯定得蘑菇亲自操刀
+
+
+*****
+
+####  gpx234mqx  
+##### 251#       发表于 2023-7-4 18:46
+
+其实开膛手杰克狂能变身水着幼女的，毕竟杀阶也是谣言形态之一
+
+*****
+
+####  gpx234mqx  
+##### 252#       发表于 2023-7-4 18:49
+
+<blockquote>盖尔杰特克 发表于 2023-7-4 18:15
+穷人直接飞去日本偷一件卫宫家的东西，就能抽到保底一流的剑骨头从者，打不过了还可以跑路靠着投 ...</blockquote>
+还不如去拿撒库拉和凛的东西，保底女神啊
+
+
+*****
+
+####  starcraft3  
+##### 253#       发表于 2023-7-4 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547991&amp;ptid=2086574" target="_blank">Saber琪 发表于 2023-7-4 18:20</a>
+所以大冒险会涉及圣杯解体战嘛比较期待这个</blockquote>
+成田说解体战让蘑菇自己填坑 三田也差不多意思
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cxj649  
+##### 254#       发表于 2023-7-4 19:26
+
+ 本帖最后由 cxj649 于 2023-7-4 19:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547785&amp;ptid=2086574" target="_blank">KDConan 发表于 2023-7-4 18:01</a>
+
+只追了漫画，讲到舞弥儿子了，后面弗拉特这么危险的吗
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最新2卷就是二世教室集体大暴走
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么，伊斯特尔已经有了？没关系换艾蕾之类
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">弗拉特爆头了，放出应该是这场最终BOSS的东西
+
+
+*****
+
+####  Saber琪  
+##### 255#       发表于 2023-7-4 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61548530&amp;ptid=2086574" target="_blank">starcraft3 发表于 2023-7-4 19:16</a>
+成田说解体战让蘑菇自己填坑 三田也差不多意思
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 S1Next-鹅 ...</blockquote>
+那猴年马月了，蘑菇能不能撑得住都难说<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 256#       发表于 2023-7-4 20:11
+
+保底实惠的遗物应该是饭桌，圆桌系强度下限太高了
+
+
+*****
+
+####  一条咸鱼波浪宽  
+##### 257#       发表于 2023-7-4 21:46
+
+rap的违和感的话
+
+只能想到因为举办地是在米国
+
+必须有点地方特色了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 258#       发表于 2023-7-4 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61547941&amp;ptid=2086574" target="_blank">盖尔杰特克 发表于 2023-7-4 18:15</a>
+
+穷人直接飞去日本偷一件卫宫家的东西，就能抽到保底一流的剑骨头从者，打不过了还可以跑路靠着投 ...</blockquote>
+感觉其实大仲马的宝具和红A（士郎）的投影能力其实挺合拍的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟投影降宝具等级刚好可以压到大仲马的宝具作效范围内（B级以下）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乾理央  
+##### 259#       发表于 2023-7-4 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红A强，但顶得住他那耗魔量的也没几个，一般魔术师大概顶个一两次剑骨头就没了，白兵战里红A也不能稳赢。
+
+
+*****
+
+####  小市民_re  
+##### 260#       发表于 2023-7-5 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61541236&amp;ptid=2086574" target="_blank">terminator1990 发表于 2023-7-4 09:28</a>
+
+看到有小灰镜头我就满足了，下次再见到能动的小灰鬼知道是猴年马月</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">有小灰的吗，我还找半天没找到
+
+
+*****
+
+####  Saber琪  
+##### 261#       发表于 2023-7-5 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61551485&amp;ptid=2086574" target="_blank">小市民_re 发表于 2023-7-5 00:03</a>
+有小灰的吗，我还找半天没找到</blockquote>
+二世在办公室跟人偶魔术师谈话那段，小灰只露了个面 没台词
+
+*****
+
+####  NZ-333  
+##### 262#       发表于 2023-7-5 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61551485&amp;ptid=2086574" target="_blank">小市民_re 发表于 2023-7-5 00:03</a>
+有小灰的吗，我还找半天没找到</blockquote>
+替身魔术师找孔明，坐沙发上喝茶的时候小灰抱着盘子站在旁边
+
+
+*****
+
+####  小市民_re  
+##### 263#       发表于 2023-7-5 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61551550&amp;ptid=2086574" target="_blank">Saber琪 发表于 2023-7-5 00:09</a>
+
+二世在办公室跟人偶魔术师谈话那段，小灰只露了个面 没台词</blockquote>
+谢谢，看到了，可能真的是瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天堂懵懂人  
+##### 264#       发表于 2023-7-5 03:46
+
+我倒感觉还不错
+
+这个画风和我以前电子游戏软件送的光盘里随机赠送的动画片或者游戏PV一样
+
+很有欧美的风格
+
+看到后面才发现原来就是美利坚的场地
+
+BGM到没觉得有太突兀了
+
+
+*****
+
+####  厄神之息  
+##### 265#       发表于 2023-7-5 14:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">常规的圣杯战，红A暂且不论，正常人真的能召到套皮从者和异闻带/特异点/mooncell从者吗？二世现在参战还能召到套自己皮的诸葛亮不成吗？伊莉雅到印度就能召套皮志度内了？
+
+*****
+
+####  ナルバレック  
+##### 266#       发表于 2023-7-5 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61557853&amp;ptid=2086574" target="_blank">厄神之息 发表于 2023-7-5 14:39</a>
+
+常规的圣杯战，红A暂且不论，正常人真的能召到套皮从者和异闻带/特异点/mooncell从者吗？二世现在参 ...</blockquote>
+志度内是北海道的，和印度没有关系
+
+
+*****
+
+####  仟音一心  
+##### 267#       发表于 2023-7-5 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61548252&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-4 18:46</a>
+其实开膛手杰克狂能变身水着幼女的，毕竟杀阶也是谣言形态之一</blockquote>
+可以但是只有现在这个狂杰克还能和仇海过两招，杀阶萝莉那就是被秒的份。
+
+
+*****
+
+####  厄神之息  
+##### 268#       发表于 2023-7-5 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61557906&amp;ptid=2086574" target="_blank">ナルバレック 发表于 2023-7-5 14:43</a>
+
+志度内是北海道的，和印度没有关系</blockquote>
+原来是这样吗，我还一直以为是印度神呢，那我改一下。
+
+*****
+
+####  恋叶梦境  
+##### 269#       发表于 2023-7-5 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61557853&amp;ptid=2086574" target="_blank">厄神之息 发表于 2023-7-5 14:39</a>
+
+常规的圣杯战，红A暂且不论，正常人真的能召到套皮从者和异闻带/特异点/mooncell从者吗？二世现在参 ...</blockquote>
+志度内是阿依努、北欧和芬兰神话啊，如果说樱的话倒是和印度关系匪浅。
+
+只不过虽然不是作为从者，本作中和伊斯塔打的时候，艾蕾的确有来
+
+
+*****
+
+####  厄神之息  
+##### 270#       发表于 2023-7-5 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61558444&amp;ptid=2086574" target="_blank">恋叶梦境 发表于 2023-7-5 15:31</a>
+
+志度内是阿依努、北欧和芬兰神话啊，如果说樱的话倒是和印度关系匪浅。
+
+只不过虽然不是作为从者，本作中 ...</blockquote>
+重点在于套皮啊。。。神灵系的从者不是只要和自己有点像就能套皮的吗？重点还是和御主相性吧，没相性的普通人，拿了樱的衣服也叫不出雪山樱吧？fsf我只看了漫画，这次的伊斯塔尔也没套皮凛啊，后面出现的艾蕾也是黄毛凛套皮形象的艾蕾吗？<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cowgp01  
+##### 271#       发表于 2023-7-5 16:22
+
+<blockquote>厄神之息 发表于 2023-7-5 15:40
+重点在于套皮啊。。。神灵系的从者不是只要和自己有点像就能套皮的吗？重点还是和御主相性吧，没相性的普 ...</blockquote>
+因为在平行世界有关系所以可以上了在附近的凛身变金毛带走屑女神，感觉只能说是彩蛋
+
+
+*****
+
+####  zakki  
+##### 272#       发表于 2023-7-5 16:59
+
+其实fgo一堆从者都可以看作是fgo专属的，按设定来说也没啥出现在其他作品的可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 273#       发表于 2023-7-5 17:48
+
+迦勒底那个系统太超规格了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gpx234mqx  
+##### 274#       发表于 2023-7-5 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61560292&amp;ptid=2086574" target="_blank">57042711 发表于 2023-7-5 17:48</a>
+
+迦勒底那个系统太超规格了
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+说起来是冬木召唤系统不行，限制太多
+
+迦勒底饭桌系统就没问题了
+
+
+*****
+
+####  亚历山大帝  
+##### 275#       发表于 2023-7-5 19:15
+
+迦勒底的系统只适合游戏，
+
+比如 “能同时召唤多个同名从者” 这事儿就让故事没法编了。
+
+
+*****
+
+####  亚历山大帝  
+##### 276#       发表于 2023-7-5 19:29
+
+不过 F/SF 的系统也不一般，
+
+打着“赝品”的名义，什么超规格操作都能实现。
+
+根本就是贝木泥舟的“赝品”。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 277#       发表于 2023-7-5 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61561497&amp;ptid=2086574" target="_blank">亚历山大帝 发表于 2023-7-5 19:29</a>
+
+不过 F/SF 的系统也不一般，
+
+打着“赝品”的名义，什么超规格操作都能实现。</blockquote>
+FSF正常召唤
+
+除了叫出Watcher外，其他都正常啊
+
+
+*****
+
+####  霖星  
+##### 278#       发表于 2023-7-5 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61561638&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-5 19:43</a>
+
+FSF正常召唤
+
+除了叫出Watcher外，其他都正常啊</blockquote>
+强度不正常啊
+
+多来几个闪恩级别的从者，多搞几次伪圣杯战争，地球上还能有活人么
+
+
+*****
+
+####  没有爱就看不见  
+##### 279#       发表于 2023-7-5 21:04
+
+强度还是正常的，都是理论上条件合适就能召唤出来的级别
+
+不正常的是各种骚操作频出的魔术师，什么黑泥令咒一起上把职介洗了，什么和从者打配合内爆敌从者灵基的，还有叫场外魔术师支援一起改写宝具特攻的
+
+士郎这种正经开挂和从者打正面的看着都眉清目秀了
+
+*****
+
+####  cowgp01  
+##### 280#       发表于 2023-7-5 21:08
+
+强度不正常的是屑女神带来的天牛和根源王子吧
+
+
+*****
+
+####  亚历山大帝  
+##### 281#       发表于 2023-7-5 21:38
+
+ 本帖最后由 亚历山大帝 于 2023-7-5 21:41 编辑 
+
+离谱操作还有 “用自己当触媒，召唤出了自己” 的Caster组，
+
+其他离谱御主还包括 死徒、婴儿、狗。
+
+相比之下，F/A 那种认认真真准备7个魔术师参赛的情况，简直是教科书了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  芝士排骨  
+##### 282#       发表于 2023-7-5 22:38
+
+只有一集的宣传制作怎么还这么堪忧啊，，，
+
+简直像高配的动态漫画
+
+闪恩对招的BGM什么鬼，选rap
+
+
+*****
+
+####  kilkilo  
+##### 283#       发表于 2023-7-5 22:58
+
+有大佬整理的原作小说跟漫画吗，之前追着追着就停了
+
+
+*****
+
+####  仟音一心  
+##### 284#       发表于 2023-7-5 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61564025&amp;ptid=2086574" target="_blank">kilkilo 发表于 2023-7-5 22:58</a>
+有大佬整理的原作小说跟漫画吗，之前追着追着就停了</blockquote>
+小说dmzj有
+漫画B漫买了
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 285#       发表于 2023-7-5 23:47
+
+这漫画出的也够慢的，才第五卷啊
+
+
+*****
+
+####  6030sylar  
+##### 286#       发表于 2023-7-6 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">强度当然不正常啊，闪恩就算了，苍白骑士是什么鬼啊！仇海那个改灵基更是突出一个我说能改就能改
+
+
+*****
+
+####  character  
+##### 287#       发表于 2023-7-6 00:35
+
+真假assassin也是极端中的极端，话说这两个人又没真当上哈桑也没有在历史上留下任何功绩/传说之类的，究竟凭什么可以上英灵之座
+
+*****
+
+####  cxj649  
+##### 288#       发表于 2023-7-6 00:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度正常是真R,但是嘛……被30个主角抢了令咒了
+
+*****
+
+####  cxj649  
+##### 289#       发表于 2023-7-6 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61558558&amp;ptid=2086574" target="_blank">厄神之息 发表于 2023-7-5 15:40</a>
+
+重点在于套皮啊。。。神灵系的从者不是只要和自己有点像就能套皮的吗？重点还是和御主相性吧，没相性的普 ...</blockquote>
+艾蕾自己来上凛的身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  remedios010000  
+##### 290#       发表于 2023-7-6 01:37
+
+FGO的饭桌系统是真的强，谁家真圣杯战争令咒还能一天回一画的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外你月这一堆世界线，连上根源的人都快烂大街了，橙子你个冠位使唤式姐几年啥也没看出来，那还能说是两仪式太摸鱼了藏的好除了干也谁都不知道。弗拉特天天搁二世眼皮子底下晃荡，你个鉴识眼也没被看破？
+
+
+*****
+
+####  天堂懵懂人  
+##### 291#       发表于 2023-7-6 03:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊？看了下百科是7月1号才宣布TV动画系列制作决定，这个特别篇还是跳票过后的
+
+这不得猴年马月了
+
+
+*****
+
+####  fshzx  
+##### 292#       发表于 2023-7-6 06:37
+
+反正我是看爽了，分镜剧情编排都好棒，文戏做得很好，十分紧凑，各种蒙太奇镜头切换，真的很用心
+给现在的ufo做还不一定能做出来，看看隔壁的鬼灭就知道了
+
+
+*****
+
+####  马甲君  
+##### 293#       发表于 2023-7-6 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61527614&amp;ptid=2086574" target="_blank">6x6z6w 发表于 2023-7-3 11:02</a>
+反白一下：
+
+弓阶是B叔，但因为被Master淋了冬木黑泥最后变异成复仇阶，但战斗力还是强到爆表
+
+枪阶是Watche ...</blockquote>
+好像是和FGO第七章联动了。
+第七章弓凛的公牛没了是被这里白嫖了。
+小恩一落地就说现在地球上不是充斥着之前乌鲁克的那种鬼东西实在太好了。
+闪看到小恩就说，内在不是那个毛头小子实在太好了。
+
+*****
+
+####  deatheye  
+##### 294#       发表于 2023-7-6 07:39
+
+看完，唯一不爽的是为啥是日本贝多芬？
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑上シグマ  
+##### 295#       发表于 2023-7-6 08:20
+
+<blockquote>引用第286楼character于2023-07-06 00:35发表的  :
+
+真假assassin也是极端中的极端，话说这两个人又没真当上哈桑也没有在历史上留下任何功绩/传说之类......</blockquote>
+真杀被承认为哈桑了啊？称号是幽弋のハサン
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  白鲸之影  
+##### 296#       发表于 2023-7-6 09:08
+
+只有一集吗？
+
+
+*****
+
+####  gpx234mqx  
+##### 297#       发表于 2023-7-6 10:46
+
+王哈之影，招王哈只能跑出幽弋的  叫出哈桑系是正常的啊，5战小次郎出来才不正常
+
+
+*****
+
+####  盖尔杰特克  
+##### 298#       发表于 2023-7-6 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61550846&amp;ptid=2086574" target="_blank">乾理央 发表于 2023-7-4 22:57</a>
+
+红A强，但顶得住他那耗魔量的也没几个，一般魔术师大概顶个一两次剑骨头就没了，白兵战里红A也不能 ...</blockquote>
+成熟的英灵会自己找魔力吃，红a就是靠着吃冬木小野味加以前埋的魔术礼装，硬生生被王财扎成刺猬了还能战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 299#       发表于 2023-7-6 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568479&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-6 10:46</a>
+
+王哈之影，招王哈只能跑出幽弋的  叫出哈桑系是正常的啊，5战小次郎出来才不正常 ...</blockquote>
+小次郎出来按现在fgo的解释就是召了个小次郎的死灵吧
+
+
+*****
+
+####  冰原狼  
+##### 300#       发表于 2023-7-6 13:09
+
+作画看的很爽，再一看发现是只有一集的特别篇，怪不得，我就说TV哪能这么浪的
+型月系入坑跟选个新专业似的，实在没精力深入研究，等TV出来看个乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  6030sylar  
+##### 301#       发表于 2023-7-6 13:13
+
+到时候tv出来这一小时都能拆成3集了，不太乐观
+
+
+*****
+
+####  大秦男女  
+##### 302#       发表于 2023-7-6 15:50
+
+感覺現在的進度條可能是前四五話了，只看過漫畫，感覺很多細節都被跳過了，記得召喚吉爾的大叔開始前内心戲超多的，還說什麽不要像冬木的間桐之類的
+
+
+*****
+
+####  ナルバレック  
+##### 303#       发表于 2023-7-6 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61563774&amp;ptid=2086574" target="_blank">芝士排骨 发表于 2023-7-5 22:38</a>
+
+只有一集的宣传制作怎么还这么堪忧啊，，，
+
+简直像高配的动态漫画
+
+闪恩对招的BGM什么鬼，选rap ...</blockquote>
+A1自己喜欢这个风格，FA当初最大经费的迦尔纳齐格战斗也是这个风格
+
+
+*****
+
+####  vmon  
+##### 304#       发表于 2023-7-6 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61572707&amp;ptid=2086574" target="_blank">大秦男女 发表于 2023-7-6 15:50</a>
+
+感覺現在的進度條可能是前四五話了，只看過漫畫，感覺很多細節都被跳過了，記得召喚吉爾的大叔開始前内心戲 ...</blockquote>
+目前大概就是小说序章结束差不多的进度，说起来原本小说也是玩票先写了个序章，然后隔了好几年才认真开始写，希望TV别整这么久吧。。。。。。
+
+
+*****
+
+####  失落之翼  
+##### 305#       发表于 2023-7-6 17:44
+
+这个差不多接近第一卷漫画的进度
+
+
+*****
+
+####  星降る森  
+##### 306#       发表于 2023-7-6 18:54
+
+<blockquote>没有爱就看不见 发表于 2023-7-5 21:04
+强度还是正常的，都是理论上条件合适就能召唤出来的级别
+
+不正常的是各种骚操作频出的魔术师，什么黑泥令咒 ...</blockquote>
+瘟疫骑士这种beast级显然不是正常能招的吧
+
+*****
+
+####  cen  
+##### 307#       发表于 2023-7-6 18:59
+
+秦始皇和哥斯拉也找过圣杯的那句台词怎么给删了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没有爱就看不见  
+##### 308#       发表于 2023-7-6 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61575195&amp;ptid=2086574" target="_blank">星降る森 发表于 2023-7-6 18:54</a>
+
+瘟疫骑士这种beast级显然不是正常能招的吧</blockquote>
+苍白现在有点被吹过了，理查这种等级的从者（暂定一流）在有绝大魔力的支援下基本上能在他的结界里通行无阻（不算海放出来的狗），而苍白的应对手段相当稀少，除了放怪物出来咬人外基本上没别的招
+
+
+*****
+
+####  ナルバレック  
+##### 309#       发表于 2023-7-6 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61575629&amp;ptid=2086574" target="_blank">没有爱就看不见 发表于 2023-7-6 19:29</a>
+
+苍白现在有点被吹过了，理查这种等级的从者（暂定一流）在有绝大魔力的支援下基本上能在他的结界里通行无 ...</blockquote>
+错了，是被低估了，苍白的设定的意思是他能变成非常超规格的东西（诸如各自神话灾害），只是御主是植物人萝莉什么都不懂，没有知识储备才导致他危害性大减
+
+
+*****
+
+####  没有爱就看不见  
+##### 310#       发表于 2023-7-6 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61575826&amp;ptid=2086574" target="_blank">ナルバレック 发表于 2023-7-6 19:45</a>
+
+错了，是被低估了，苍白的设定的意思是他能变成非常超规格的东西（诸如各自神话灾害），只是御主是植物人 ...</blockquote>
+不否定苍白能搞出超规格的东西，但明显达不到beast的等级
+
+
+*****
+
+####  patema  
+##### 311#       发表于 2023-7-6 20:18
+
+苍白是终末装置吧，应该和老苏和奥博龙对比吧
+
+
+*****
+
+####  集合酱  
+##### 312#       发表于 2023-7-7 01:00
+
+借地问问阿瓦隆里都有什么啊 总不能两个人真吃草吧
+
+
+*****
+
+####  gpx234mqx  
+##### 313#       发表于 2023-7-7 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61579749&amp;ptid=2086574" target="_blank">集合酱 发表于 2023-7-7 01:00</a>
+
+借地问问阿瓦隆里都有什么啊 总不能两个人真吃草吧</blockquote>
+妖精，梅林
+
+*****
+
+####  ナルバレック  
+##### 314#       发表于 2023-7-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61579749&amp;ptid=2086574" target="_blank">集合酱 发表于 2023-7-7 01:00</a>
+
+借地问问阿瓦隆里都有什么啊 总不能两个人真吃草吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/07/090958t7pd748vvo8lehp7.jpg" referrerpolicy="no-referrer">
+
+<strong>d46d6ad9f2d3572ca4e5e117cf13632763d0c337.jpg</strong> (273.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-7 09:09 上传
+
+阿瓦隆只是星之内海其中一块地方，泛人类史角神就在其他的星之内海
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 315#       发表于 2023-7-7 10:20
+
+tv啥时候出啊，有点想去看漫画了，但感觉会很破坏后面看动画的体验
+
+*****
+
+####  zakki  
+##### 316#       发表于 2023-7-7 10:28
+
+到时候出TV的话肯定要把特别篇拆开的吧，不然目前6骑里rider和assassin的戏份删减太多了，狂信子掌握了所有前任哈桑的能力和她信仰基本没讲，而rider这边基本删的动画党不可能看得懂，只会觉得为啥小女孩一会在医院一会在家里。闪恩大战加不加戏倒是次要的，后面战斗场面还有的是
+
+*****
+
+####  洛克萨斯  
+##### 317#       发表于 2023-7-7 10:40
+
+ 本帖最后由 洛克萨斯 于 2023-7-7 10:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61582353&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-7 10:28</a>
+
+到时候出TV的话肯定要把特别篇拆开的吧，不然目前6骑里rider和assassin的戏份删减太多了，狂信子掌握了所有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是她认为的前任的能力，有些比原版好用，有些不如原版，幽弋和百貌的她不会
+
+
+*****
+
+####  tansapple  
+##### 318#       发表于 2023-7-7 11:54
+
+狂信的技能是“俺寻思”大法的结果，有些比原型强，有些比原型弱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 319#       发表于 2023-7-7 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61582550&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-7 10:40</a>
+是她认为的前任的能力，有些比原版好用，有些不如原版，幽弋和百貌的她不会 ...</blockquote>
+百貌和她是一届，所以不会妄想幻象（反正也是杂鱼技能，不学拉倒）。
+
+
+*****
+
+####  斯卡哈  
+##### 320#       发表于 2023-7-7 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61583897&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-7 12:10</a>
+
+百貌和她是一届，所以不会妄想幻象（反正也是杂鱼技能，不学拉倒）。</blockquote>
+这是斥候神技，可惜被最后被时臣拿去刚正面了——你以为你抽的是你徒弟CV的哈桑哦
+
+
+*****
+
+####  cowgp01  
+##### 321#       发表于 2023-7-7 13:26
+
+狂杰克：妄想幻象什么的这我也做得到啊
+
+
+*****
+
+####  洛克萨斯  
+##### 322#       发表于 2023-7-7 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61583897&amp;ptid=2086574" target="_blank">仟音一心 发表于 2023-7-7 12:10</a>
+
+百貌和她是一届，所以不会妄想幻象（反正也是杂鱼技能，不学拉倒）。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百貌那玩意很好用的，打从者不好用，收集情报阴御主不要太强
+
+
+*****
+
+####  gpx234mqx  
+##### 323#       发表于 2023-7-7 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61584359&amp;ptid=2086574" target="_blank">斯卡哈 发表于 2023-7-7 12:56</a>
+
+这是斥候神技，可惜被最后被时臣拿去刚正面了——你以为你抽的是你徒弟CV的哈桑哦 ...</blockquote>
+ 狂信这种是战士特质，不是暗杀者特质，刚正面不屑于刺杀<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 324#       发表于 2023-7-7 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61582550&amp;ptid=2086574" target="_blank">洛克萨斯 发表于 2023-7-7 10:40</a>
+
+是她认为的前任的能力，有些比原版好用，有些不如原版，幽弋和百貌的她不会 ...</blockquote>
+百貌人格分裂，幽弋自爆
+
+狂信想学也学不了啊
+
+
+*****
+
+####  洛克萨斯  
+##### 325#       发表于 2023-7-7 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61588727&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-7 18:39</a>
+
+百貌人格分裂，幽弋自爆
+
+狂信想学也学不了啊</blockquote>
+狂信没有领导能力吧，哈桑除了有刺杀技术还要领导教团的，虽然我也没看出静谧有就是了，狂信那个社交能力只能说非常下饭
+
+*****
+
+####  Rincewind  
+##### 326#       发表于 2023-7-7 20:43
+
+fsf最大的特点就是富裕仗了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+虽然我觉得几组退场者退的都挺草率，但反正看爽了就行
+
+
+*****
+
+####  结标淡希  
+##### 327#       发表于 2023-7-7 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61588713&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-7 18:37</a>
+
+狂信这种是战士特质，不是暗杀者特质，刚正面不屑于刺杀
+
+没当上哈桑的原因之一就是万一狂信当了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不就回归传统了嘛，看看你们初代首领
+
+
+*****
+
+####  spacious  
+##### 328#       发表于 2023-7-8 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61591132&amp;ptid=2086574" target="_blank">结标淡希 发表于 2023-7-7 22:22</a>
+
+这不就回归传统了嘛，看看你们初代首领</blockquote>
+王哈 社交应该是满的
+
+
+*****
+
+####  亚历山大帝  
+##### 329#       发表于 2023-7-8 20:13
+
+说实话，直接拿出汉字 “天地乖离剑” 还是很违和，
+
+毕竟一直强调是发生在美国的故事。
+
+<img src="https://img.saraba1st.com/forum/202307/08/201332jgadahax3hetxpd3.jpg" referrerpolicy="no-referrer">
+
+<strong>[Lilith-Raws] Fate／strange Fake：Whispers of Dawn - 01 [Baha][WebDL 1080p AVC A.jpg</strong> (140.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-8 20:13 上传
+
+
+*****
+
+####  qz66618  
+##### 330#       发表于 2023-7-8 21:52
+
+没看过原作，问一下后面那个黑皮妹妹和白头发疯疯的女角色戏份多吗，这俩人设好戳我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普通路过村民  
+##### 331#       发表于 2023-7-8 22:08
+
+蒂尼戏份挺多的（闪是主角组之一所以御主也跟着戏份可以 7.8这两卷还有小高光
+
+但是横飞姬印象中戏份不算很多<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">（虽然是黑幕之一 没准后面更新会给多
+
+
+*****
+
+####  qz66618  
+##### 332#       发表于 2023-7-8 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600623&amp;ptid=2086574" target="_blank">普通路过村民 发表于 2023-7-8 22:08</a>
+
+蒂尼戏份挺多的（闪是主角组之一所以御主也跟着戏份可以 7.8这两卷还有小高光
+
+但是横飞姬印象中戏份不算很 ...</blockquote>
+横飞姬的配音和人设都太棒了，戏份不多也太可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  普通路过村民  
+##### 333#       发表于 2023-7-8 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600703&amp;ptid=2086574" target="_blank">qz66618 发表于 2023-7-8 22:14</a>
+
+横飞姬的配音和人设都太棒了，戏份不多也太可惜了</blockquote>
+戏份会有 成田群像剧都会给每个角色或多或少的高光/集中描写的 横飞姬应该是时候未到罢了（指小说原作）<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 334#       发表于 2023-7-8 23:02
+
+ 本帖最后由 zakki 于 2023-7-8 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600437&amp;ptid=2086574" target="_blank">qz66618 发表于 2023-7-8 21:52</a>
+没看过原作，问一下后面那个黑皮妹妹和白头发疯疯的女角色戏份多吗，这俩人设好戳我 ...</blockquote>
+横飞姬戏份很多啊，她是最大黑幕，从头到尾就是各种串联事件来搞事，不过目前本人还没怎么下场，目前推测是最终boss
+
+
+*****
+
+####  zakki  
+##### 335#       发表于 2023-7-8 23:05
+
+如果很喜欢特别篇伪六组的登场情节的话，那后面真六骑的登场会更有中二fate味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  weige  
+##### 336#       发表于 2023-7-9 02:45
+
+这个企划莫名其妙，要么剧场版大法分几章来播，要么老老实实做季番，现在不伦不类等整篇来热度都凉透了
+
+
+*****
+
+####  hlazd  
+##### 337#       发表于 2023-7-9 05:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61602594&amp;ptid=2086574" target="_blank">weige 发表于 2023-7-9 02:45</a>
+这个企划莫名其妙，要么剧场版大法分几章来播，要么老老实实做季番，现在不伦不类等整篇来热度都凉透了 ...</blockquote>
+fate 系列的东西需要担心热度…凉了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fshzx  
+##### 338#       发表于 2023-7-9 05:55
+
+hf改编都隔了十几年，完全不用担心热度哈，
+fz也是完结了几年才做动画，
+最好是fsf小说和动画同步完结，冲一波销量
+
+
+*****
+
+####  万年僵尸  
+##### 339#       发表于 2023-7-9 07:04
+
+是说可能是造型的原因，黑皮萝莉一直给我一种2P色橘爱丽丝的感觉<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+塔其巴那桑用平板玩fgo结果十连出了闪闪的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 340#       发表于 2023-7-9 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61602594&amp;ptid=2086574" target="_blank">weige 发表于 2023-7-9 02:45</a>
+这个企划莫名其妙，要么剧场版大法分几章来播，要么老老实实做季番，现在不伦不类等整篇来热度都凉透了 ...</blockquote>
+不是有小道消息吗，本来后续tv动画是被日本方的anx砍了，但美国那边觉得在美国有潜力又给拉起来了
+
+
+*****
+
+####  亚历山大帝  
+##### 341#       发表于 2023-7-9 08:52
+
+ 本帖最后由 亚历山大帝 于 2023-7-9 08:53 编辑 
+
+黑皮原住民出场机会虽多，高光却一直没轮到她，
+
+基本都是跟在闪闪身后一脸 “这家伙到底要怎么伺候？！” 的表情。
+
+白毛萝莉很快就会进入“召唤Servent” 的剧情，会有一大段高浓度演出（字面意），
+
+但也会把表面上 小恶魔、痴女、萝莉 的标签砸掉，看能不能接受了。
+
+部分读者表示：不是女孩子就更棒了！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  HKGC296  
+##### 342#       发表于 2023-7-9 09:38
+
+所以fsf现在是怎么个放出节奏啊？我还以为这个就算第一集了...
+
+
+*****
+
+####  k1no  
+##### 343#       发表于 2023-7-9 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61603353&amp;ptid=2086574" target="_blank">HKGC296 发表于 2023-7-9 09:38</a>
+
+所以fsf现在是怎么个放出节奏啊？我还以为这个就算第一集了...</blockquote>
+这原本算跳票后的特别篇，前几天刚确定tv动画，放送日期都没定，最快都要明年吧
+
+
+*****
+
+####  gpx234mqx  
+##### 344#       发表于 2023-7-9 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61601248&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-8 23:02</a>
+
+横飞姬戏份很多啊，她是最大黑幕，肯定不是龙套，从头到尾就是各种串联事件来搞事，不过要说正式描写或者 ...</blockquote>
+拜托，这人目前战线里很弱的，连人皮书都没有<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+除非转外国人，否则战斗力弱五渣，连虫爷都打不过<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 345#       发表于 2023-7-9 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61604791&amp;ptid=2086574" target="_blank">gpx234mqx 发表于 2023-7-9 12:49</a>
+拜托，这人目前战线里很弱的，连人皮书都没有
+
+除非转外国人，否则战斗力弱五渣，连虫爷都打不过[ ...</blockquote>
+你不会真觉得她很弱吧，她那些战绩是自己调侃自己罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算她本体很弱，但她肯定留后手能搞什么来
+
+
+*****
+
+####  佟柚子  
+##### 346#       发表于 2023-7-9 15:08
+
+为啥打架的时候放rap<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  普通路过村民  
+##### 347#       发表于 2023-7-9 15:13
+
+因为是美漫啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（确信
+
+*****
+
+####  洛克萨斯  
+##### 348#       发表于 2023-7-9 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">横飞姬如果敢对着泳装村姑发癫估计会死的很惨
+
+
+*****
+
+####  gpx234mqx  
+##### 349#       发表于 2023-7-9 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61605520&amp;ptid=2086574" target="_blank">zakki 发表于 2023-7-9 14:09</a>
+
+你不会真觉得她很弱吧，她那些战绩是自己调侃自己罢了就算她本体很弱，但她肯定留后手能搞什么来 ...</blockquote>
+所以她相见元帅啊
+
+没元帅的教本她根本不能发挥实力<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  吃货红毛  
+##### 350#       发表于 2023-7-10 14:48
+
+作画真牛啊 不过看完之后才知道原来TV版还早，早知道不看了，这些要等好久
+
+
+*****
+
+####  妮贝雅  
+##### 351#       发表于 2023-7-10 16:14
+
+引用错了（
+
+
+*****
+
+####  伊迪潘宫森  
+##### 352#       发表于 2023-7-12 11:23
+
+装逼的时候放说唱是不是有点搞错了
+
+*****
+
+####  gpx234mqx  
+##### 90#       发表于 2023-7-1 11:33
+
+明天，小说还没完啊，咋出tv
+
+
+*****
+
+####  七七見奈波  
+##### 91#       发表于 2023-7-1 11:46
+
+拖到现在终于做完了？
+
+
+*****
+
+####  57042711  
+##### 92#       发表于 2023-7-1 17:56
+
+现在一小时特番都是标配了是吧，卷<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+型月能不能再次伟大就看FSF了！
+
+
+*****
+
+####  Piano-Forest  
+##### 93#         楼主| 发表于 2023-7-2 11:45
+
+━━━━━━━━━━━━━━━
+
+Fate/strange Fake
+
+TVアニメーションシリーズ化決定
+
+━━━━━━━━━━━━━━━
+
+本日開催のワールドプレミアにて発表いたしました！
+
+ティザービジュアル[US ver.]も公開💡
+
+今夜のTVSP放送後にもお知らせがございますので、お楽しみに！
+<img src="https://p.sda1.dev/12/bfe7d909fbedb20994fd3c54aa8b9743/20230702_114437.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 94#       发表于 2023-7-2 11:48
+
+哈？这是要怎么搞啊？
+
+成田！成田快起来干活！
+
+
+*****
+
+####  bthulu  
+##### 95#       发表于 2023-7-2 11:54
+
+小说后续现在不是一团混乱吗，角色堆了一堆都没什么着墨……
+
+TV出啥
+
+
+*****
+
+####  黑上シグマ  
+##### 96#       发表于 2023-7-2 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61513048&amp;ptid=2086574" target="_blank">bthulu 发表于 2023-7-2 11:54</a>
+
+小说后续现在不是一团混乱吗，角色堆了一堆都没什么着墨……
+
+TV出啥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">成田说大概还剩2卷
+
+
+*****
+
+####  bthulu  
+##### 97#       发表于 2023-7-2 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61513141&amp;ptid=2086574" target="_blank">黑上シグマ 发表于 2023-7-2 12:06</a>
+
+成田说大概还剩2卷</blockquote>
+怎么收啊，陨石遁？<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cowgp01  
+##### 98#       发表于 2023-7-2 12:55
+
+成田标准结局，大家打场打架没死人哈哈哈散场。非标准就排队死人
+
+*****
+
+####  仟音一心  
+##### 99#       发表于 2023-7-2 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61513048&amp;ptid=2086574" target="_blank">bthulu 发表于 2023-7-2 11:54</a>
+小说后续现在不是一团混乱吗，角色堆了一堆都没什么着墨……
+
+TV出啥</blockquote>
+伊什塔尔退场了，可能可以排队死人了
+现在主要担心的还是成田这个身体。
+
+
