@@ -1128,3 +1128,38 @@ pc端没游客选项吧
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 925#         楼主| 发表于 2023-7-11 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉新策划颠了 雷伊改到5费了
+
+
+*****
+
+####  rgauss  
+##### 926#         楼主| 发表于 2023-7-12 12:00
+
+<img src="https://p.sda1.dev/12/7c88908da09727c81f1031abde3ef87e/CMP_20230712115950435.jpg" referrerpolicy="no-referrer">?
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 927#         楼主| 发表于 2023-7-12 18:31
+
+台服兑换码功能终于有用了，奖励一随机三蓝票。
+
+CODExGEASS
+
+
+*****
+
+####  拍不到脑袋  
+##### 928#       发表于 2023-7-13 11:55
+
+好好好，真没想到啊居然有能用的一天
+
