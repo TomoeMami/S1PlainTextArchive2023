@@ -9619,3 +9619,38 @@ emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://
 <img src="https://p.sda1.dev/12/63fbb15e419c1a15184ab8cde1dbf382/bedd6bd1.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/12/9856289cccebe82b8e92c2dceba8508a/e0348130.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Lollipopstar  
+##### 698#       发表于 2023-7-13 20:10
+
+ 本帖最后由 Lollipopstar 于 2023-7-13 20:18 编辑 
+
+就爱看傲娇布丁吃瘪<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202307/13/201723ijmc2kg5mxo1mc12.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230713201652.jpg</strong> (299.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202307/13/201723h9yyeefy2eay008y.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230713201657.jpg</strong> (119.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 20:17 上传
+
+
+*****
+
+####  最强惠酱  
+##### 699#       发表于 2023-7-13 23:52
+
+真人演技有点看不下去
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
