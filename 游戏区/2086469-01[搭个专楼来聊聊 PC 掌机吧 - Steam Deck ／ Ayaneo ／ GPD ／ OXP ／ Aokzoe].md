@@ -1968,3 +1968,630 @@ SD屏幕素质不高+机子不轻+对于AVG来说性能超标</blockquote>
 
 看新闻好像说steamdeck在今年3月份更新了一个和PC端互相传输游戏的更新..这个功能从哪儿使用呢？
 
+*****
+
+####  医生狼多  
+##### 734#       发表于 2023-7-5 12:17
+
+开抄触摸板了<img src="https://p.sda1.dev/12/ef5a0faa02557f68bd1161eec703385b/CMP_20230705121739687.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 735#         楼主| 发表于 2023-7-5 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61556164&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-7-5 12:17</a>
+
+开抄触摸板了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 牛子可不只有触摸板，还有触摸板的那一系列配套软件，来呀 Aya，一起抄走。
+
+
+*****
+
+####  医生狼多  
+##### 736#       发表于 2023-7-5 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61556312&amp;ptid=2086469" target="_blank">bypass 发表于 2023-7-5 12:27</a>
+牛子可不只有触摸板，还有触摸板的那一系列配套软件，来呀 Aya，一起抄走。 ...</blockquote>
+aya连那个SPACe都搞不明白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 737#       发表于 2023-7-5 12:47
+
+还是觉得国产这些牌子换代是不是有点太快了，老机主不会不爽吗
+
+
+*****
+
+####  luffyzhou  
+##### 738#       发表于 2023-7-5 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61556312&amp;ptid=2086469" target="_blank">bypass 发表于 2023-7-5 12:27</a>
+
+牛子可不只有触摸板，还有触摸板的那一系列配套软件，来呀 Aya，一起抄走。 ...</blockquote>
+回头等人适配steam os，就会得到一个性能增强还更健身的deck<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luffyzhou  
+##### 739#       发表于 2023-7-5 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61556540&amp;ptid=2086469" target="_blank">Fuero 发表于 2023-7-5 12:47</a>
+
+还是觉得国产这些牌子换代是不是有点太快了，老机主不会不爽吗</blockquote>
+会。最近6800u到7840u其实还好，680m集显其实已经能玩不少游戏了，而且amd驱动适配渣渣，现在也没真正发挥780m的性能。4000系和5000系其实背刺才是最厉害的。
+
+
+*****
+
+####  圈量子  
+##### 740#       发表于 2023-7-5 23:56
+
+这楼居然上来了，有人想听听ayaneo客服扯皮时不小心白送我一台机子（600刀）的故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 741#       发表于 2023-7-6 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61564810&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-7-5 23:56</a>
+这楼居然上来了，有人想听听ayaneo客服扯皮时不小心白送我一台机子（600刀）的故事吗 ...</blockquote>
+侠坐茶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  keytomylife  
+##### 742#       发表于 2023-7-6 00:08
+
+16G RAM是肯定不够用的
+
+他们为什么就不明白呢
+
+
+*****
+
+####  圈量子  
+##### 743#       发表于 2023-7-6 00:42
+
+ 本帖最后由 圈量子 于 2023-7-6 00:50 编辑 
+
+事情是这样的，我五月份在ayaneo美国官网买了一台ayaneo 2021 非pro版，价格599刀。东西寄过来后打开包装就是坏的无法开机，而且东西比我想象得笨重很多，我想着干脆不要了，当场就给客服发邮件要求退货。然后就进入了长达三周的扯皮<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+我：把东西寄给你，把钱退给我<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+客服：请问是否可以给你维修一下呢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+他们客服团队感觉有很多人连电子邮件的用法都不太清楚，不看以前的交流记录，所以上面那个对话重复了很多次，好多个客服来回踢皮球不愿意处理。在第三周的时候终于来了个大概级别高一点的客服同意退货，安排dhl把机子送走了。
+
+过了一周东西到了深圳后我发邮件问我的退款呢，又来了一个客服继续跟我扯皮，说能不能给你修好然后你别退货了。我在一个月的扯皮后早就对ayaneo火冒三丈，发了封邮件骂了一通客服，然后他们换了个人回复，道歉并处理了退款（一开始还想扣下55刀的运费也被我拿着官网退货条款骂回去了）
+
+我以为事情到这里就结束了，结果一周后我收到一个dhl包裹，打开一看里面就是我退货的那台ayaneo 2021<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+最妙的是他们商店用的是shopify系统，一旦给客户发起退款就无法取消或者追回，也不能找信用卡公司<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+结果就是一个多月的扯皮让我白嫖了一台win掌机（虽然太重了但是免费的就不抱怨了）他们赔了台机子（估计是库存机中国官网都没卖了）外加中➡️美➡️中➡️美的三次国际运费<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  出轨的三头龙  
+##### 744#       发表于 2023-7-6 08:23
+
+问下gdpwin4如何
+
+
+*****
+
+####  bypass  
+##### 745#         楼主| 发表于 2023-7-6 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61565401&amp;ptid=2086469" target="_blank">圈量子 发表于 2023-7-6 00:42</a>
+
+事情是这样的，我五月份在ayaneo美国官网买了一台ayaneo 2021 非pro版，价格599刀。东西寄过来后打开包装就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 真的就是草台班子。我就这告诉尾巴大叔派粉丝过来堵你门。
+
+
+*****
+
+####  医生狼多  
+##### 746#       发表于 2023-7-6 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61566731&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 08:23</a>
+问下gdpwin4如何</blockquote>
+品控垃，握把烫，不建议买，不如等等winmini
+
+*****
+
+####  出轨的三头龙  
+##### 747#       发表于 2023-7-6 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61567624&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-7-6 09:44</a>
+
+品控垃，握把烫，不建议买，不如等等winmini</blockquote>
+感谢，已拔草
+
+
+*****
+
+####  eternity0079  
+##### 748#       发表于 2023-7-6 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61566731&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 08:23</a>
+
+问下gdpwin4如何</blockquote>
+win4玩了几个月，和其它几个同类win掌机比，这个尺寸相对小的，但缺点也是这个，1080P分辨率这个6寸屏看着有些费眼，觉得要么再大一寸，要么做成900P会更合适。
+
+品控不太行方面：滑盖屏有不少人买的缝隙有些大，我这个倒是还好，两边握把位置玩大型游戏会发热，实际我觉得在尚可接受范围。
+
+续航和其它同类产品比是半斤八两，4399差不多3个小时，大型游戏不到2小时。
+
+个人用起来觉得是马马虎虎的感觉，因为我最近几年需要这种产品，否则哪家win掌机我都不会买。
+
+
+*****
+
+####  出轨的三头龙  
+##### 749#       发表于 2023-7-6 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61567844&amp;ptid=2086469" target="_blank">eternity0079 发表于 2023-7-6 10:01</a>
+
+win4玩了几个月，和其它几个同类win掌机比，这个尺寸相对小的，但缺点也是这个，1080P分辨率这个6寸屏看 ...</blockquote>
+感觉处于一个勉强能接受但是没什么购买欲的级别。
+
+我个人主要就玩玩gal，之前有个崩腾的go2，玩玩纯文字都勉强，兰10多娜多娜这种直接各种掉帧卡。
+
+不知道win机玩玩怪猎物语这种游戏体验会不会比ns好，感觉现在有些刷子游戏在ns上还不是最好方案。
+
+*****
+
+####  eternity0079  
+##### 750#       发表于 2023-7-6 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568302&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 10:35</a>
+
+感觉处于一个勉强能接受但是没什么购买欲的级别。
+
+我个人主要就玩玩gal，之前有个崩腾的go2，玩玩纯文字 ...</blockquote>
+现在的win掌机性能已经很可圈可点了，帧数肯定比NS强很多。
+
+win掌机我觉得最应该做好的是屏幕显示和操作感，我选win掌机的另外一个原因是Windows方便修改游戏，业余时间有限，已经没有什么时间精力去高强度刷了。
+
+
+*****
+
+####  dududa  
+##### 751#       发表于 2023-7-6 10:42
+
+我用win4最大的感觉是沉，真tm沉。win4虽然比sd轻，但sd快头大握持感好，实际感觉没那么沉，而win4厚得跟块砖似的，反而感觉沉得多。还有那个小摇杆，我是真不明白为啥一大堆的win掌机都用小摇杆，手感是真逆天。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  心之光  
+##### 752#       发表于 2023-7-6 10:47
+
+7840U的核显能正常玩高达战斗行动2吗
+
+*****
+
+####  dududa  
+##### 753#       发表于 2023-7-6 10:48
+
+提起gpd我最烦的一点是为啥他家不做前端。前端这种东西明明可以有效提升用户体验，现在国产掌机应该就gpd没有前端了吧。一问就是让用体感助手，tm在win4这种6寸屏上体感助手点东西太费劲了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  eternity0079  
+##### 754#       发表于 2023-7-6 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568509&amp;ptid=2086469" target="_blank">dududa 发表于 2023-7-6 10:48</a>
+
+提起gpd我最烦的一点是为啥他家不做前端。前端这种东西明明可以有效提升用户体验，现在国产掌机应该就gpd没 ...</blockquote>
+对，win4这种小屏幕在windows桌面下操作很蛋疼，触屏虽然大多时候还好，但要点击某些地方的时候不是那么精细，右摇杆下面的触摸光标也贼难用。
+
+把屏幕和鼠标操作这两点优化一下我觉得就还可以了，尺寸和分辨率应该也是挺难做的，玩了朋友的SD觉得太大，为了尺寸小点才买win4,要不直接win max2了。
+
+
+*****
+
+####  zzy516232108  
+##### 755#       发表于 2023-7-6 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">SD买了一个月，打了很多RPG游戏，真的很舒服
+
+而且很多游戏都不用给任天堂付移动税了，爽飞
+
+
+*****
+
+####  出轨的三头龙  
+##### 756#       发表于 2023-7-6 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568378&amp;ptid=2086469" target="_blank">eternity0079 发表于 2023-7-6 10:40</a>
+
+现在的win掌机性能已经很可圈可点了，帧数肯定比NS强很多。
+
+win掌机我觉得最应该做好的是屏幕显示和操作 ...</blockquote>
+有推荐的吗
+
+
+*****
+
+####  出轨的三头龙  
+##### 757#       发表于 2023-7-6 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568781&amp;ptid=2086469" target="_blank">zzy516232108 发表于 2023-7-6 11:06</a>
+
+SD买了一个月，打了很多RPG游戏，真的很舒服
+
+而且很多游戏都不用给任天堂付移动税了，爽飞 ...</blockquote>
+sd容量感觉有点缩啊，够用吗
+
+*****
+
+####  医生狼多  
+##### 758#       发表于 2023-7-6 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569547&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 11:54</a>
+sd容量感觉有点缩啊，够用吗</blockquote>
+买最便宜的64g版本，自己换1tssd就行
+
+
+*****
+
+####  u2deack  
+##### 759#       发表于 2023-7-6 12:05
+
+想问一下用过了的机器自己再换ssd很麻烦么，是不是要复制数据什么的
+只买了个512的tf卡现在游戏动不动就100g真的有点遭不住
+
+*****
+
+####  bypass  
+##### 760#         楼主| 发表于 2023-7-6 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569732&amp;ptid=2086469" target="_blank">u2deack 发表于 2023-7-6 12:05</a>
+
+想问一下用过了的机器自己再换ssd很麻烦么，是不是要复制数据什么的
+
+只买了个512的tf卡现在游戏动不动就100 ...</blockquote>
+跟新机器没差，老机器要是拆过说不定还更好拆一些。换 SSD 都需要还原系统，这个过程新老机器都是一样的。
+
+*****
+
+####  出轨的三头龙  
+##### 761#       发表于 2023-7-6 12:09
+
+说起来ayaneo air plus如何
+
+
+*****
+
+####  医生狼多  
+##### 762#       发表于 2023-7-6 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569784&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 12:09</a>
+说起来ayaneo air plus如何</blockquote>
+要出新版的7840u的air1s了，相同模具，可以等等看
+
+*****
+
+####  u2deack  
+##### 763#       发表于 2023-7-6 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569767&amp;ptid=2086469" target="_blank">bypass 发表于 2023-7-6 12:07</a>
+跟新机器没差，老机器要是拆过说不定还更好拆一些。换 SSD 都需要还原系统，这个过程新老机器都是一样的 ...</blockquote>
+原来机器内存里的文件都重新装或者下载就行了么，还是需要怎么备份或者复制
+我再去找找教程好了，不然买个新游戏就总是要删游戏
+
+*****
+
+####  bypass  
+##### 764#         楼主| 发表于 2023-7-6 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569901&amp;ptid=2086469" target="_blank">u2deack 发表于 2023-7-6 12:18</a>
+
+原来机器内存里的文件都重新装或者下载就行了么，还是需要怎么备份或者复制
+
+我再去找找教程好了，不然买 ...</blockquote>
+游戏挪到 SD 卡，系统重装之后插卡就能自动识别。 
+
+
+*****
+
+####  出轨的三头龙  
+##### 765#       发表于 2023-7-6 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569865&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-7-6 12:15</a>
+
+要出新版的7840u的air1s了，相同模具，可以等等看</blockquote>
+现有模具品控怎么样啊，听说2很差
+
+
+*****
+
+####  zzy516232108  
+##### 766#       发表于 2023-7-6 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569547&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 11:54</a>
+
+sd容量感觉有点缩啊，够用吗</blockquote>
+我买的64g乞丐版搭配了一张1t ssd
+
+如果还不够用再买一张sd卡
+
+
+*****
+
+####  eternity0079  
+##### 767#       发表于 2023-7-6 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569301&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 11:37</a>
+
+有推荐的吗</blockquote>
+你也可以关注一下今年沸沸扬扬的ROG ally，但我不推荐任何win掌机，市面现有的几个品牌都是各有各的特点和缺点，看哪个顺眼就买哪个吧。
+
+
+*****
+
+####  妄想中毒  
+##### 768#       发表于 2023-7-6 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568509&amp;ptid=2086469" target="_blank">dududa 发表于 2023-7-6 10:48</a>
+提起gpd我最烦的一点是为啥他家不做前端。前端这种东西明明可以有效提升用户体验，现在国产掌机应该就gpd没 ...</blockquote>
+做不做我觉得没多大区别，ayaneo自己的前端做的和屎一样甚至不如我sd刷win装的第三方工具好使
+
+
+*****
+
+####  cot495  
+##### 769#       发表于 2023-7-6 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61569547&amp;ptid=2086469" target="_blank">出轨的三头龙 发表于 2023-7-6 11:54</a>
+
+sd容量感觉有点缩啊，够用吗</blockquote>
+自己动手改1t或者某宝买改好的新机
+
+
+*****
+
+####  bypass  
+##### 770#         楼主| 发表于 2023-7-6 19:32
+
+<img src="https://img.saraba1st.com/forum/202307/06/193137fp3mhm1aqfitjtzx.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6836.png</strong> (577.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-6 19:31 上传
+
+Ayaneo Kun
+
+
+*****
+
+####  dududa  
+##### 771#       发表于 2023-7-6 19:58
+
+aya新公布的那个鲲，重量有点离谱了，900多克，按尾巴大叔的尿性我严重怀疑可能差一点就1kg，真手里拿了个砖
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bypass  
+##### 772#         楼主| 发表于 2023-7-7 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61575981&amp;ptid=2086469" target="_blank">dududa 发表于 2023-7-6 19:58</a>
+
+aya新公布的那个鲲，重量有点离谱了，900多克，按尾巴大叔的尿性我严重怀疑可能差一点就1kg，真手里拿了个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 800+ 的 OXP 都扛过来了，1KG 也不是不可以（真扛着板砖玩游戏）。
+
+*****
+
+####  Winder07  
+##### 773#       发表于 2023-7-7 11:30
+
+那我不如拿幻x2023
+
+
+*****
+
+####  dududa  
+##### 774#       发表于 2023-7-7 12:29
+
+说实话，真不如幻x了。幻x最大的缺点就是贵，但以aya的一贯定价来看，没准这个aya 鲲能让幻x也有了性价比。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Mchaos  
+##### 775#       发表于 2023-7-7 12:45
+
+有用过gpdwin4的兄弟说下体验吗，特别是屏幕观感和玩galgame这一块。ally抢不到，干脆买win4还带键盘了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bypass  
+##### 776#         楼主| 发表于 2023-7-8 07:46
+
+<img src="https://img.saraba1st.com/forum/202307/08/074627xnfbn7np46pfa7pt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (264.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-8 07:46 上传
+
+
+*****
+
+####  Re.Troy  
+##### 777#       发表于 2023-7-8 10:35
+
+win4超一公斤，本来对这重量没啥概念，还有点长草，然后搜了下我手上的sp8才不到900g，打扰了我继续用surface了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大暴死  
+##### 778#       发表于 2023-7-8 11:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">1kg买超极本不好吗
+
+—— 来自 Xiaomi M2102K1C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  肛之练筋士  
+##### 779#       发表于 2023-7-8 12:33
+
+<blockquote>Re.Troy 发表于 2023-7-8 10:35
+win4超一公斤，本来对这重量没啥概念，还有点长草，然后搜了下我手上的sp8才不到900g，打扰了我继续用surfa ...</blockquote>
+没有超1公斤，超1斤倒是有（1斤=500g），机子差不多是600g左右
+
+
+*****
+
+####  Re.Troy  
+##### 780#       发表于 2023-7-8 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61594941&amp;ptid=2086469" target="_blank">肛之练筋士 发表于 2023-7-8 12:33</a>
+没有超1公斤，超1斤倒是有（1斤=500g），机子差不多是600g左右</blockquote>
+我看错了，看成win max2的数据了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  back57992  
+##### 781#       发表于 2023-7-8 14:38
+
+WIN和SD都体验了一遍 只能说出了SD有极少游戏不兼容外 完全没有要WIN的理由。
+
+
+*****
+
+####  医生狼多  
+##### 782#       发表于 2023-7-9 16:47
+
+<img src="https://p.sda1.dev/12/7b3950560282a90e6b2b3b07021f2001/IMG_20230709_164621_278.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  83913536  
+##### 783#       发表于 2023-7-9 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61593230&amp;ptid=2086469" target="_blank">bypass 发表于 2023-7-8 07:46</a></blockquote>
+感觉AYA压根没理解触摸板的用途...就照抄了，估计都没软件适配
+
+
+*****
+
+####  violettor  
+##### 784#       发表于 2023-7-9 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61607660&amp;ptid=2086469" target="_blank">83913536 发表于 2023-7-9 18:02</a>
+ 感觉AYA压根没理解触摸板的用途...就照抄了，估计都没软件适配</blockquote>
+这触摸板位置是真的纯粹照猫画虎了
+
+
+*****
+
+####  毒品  
+##### 785#       发表于 2023-7-10 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61607660&amp;ptid=2086469" target="_blank">83913536 发表于 2023-7-9 18:02</a>
+感觉AYA压根没理解触摸板的用途...就照抄了，估计都没软件适配</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">潜进 qq 群，尾巴大叔说这玩意就是摆设
+
+
+*****
+
+####  bypass  
+##### 786#         楼主| 发表于 2023-7-10 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61611657&amp;ptid=2086469" target="_blank">毒品 发表于 2023-7-10 00:33</a>
+
+潜进 qq 群，尾巴大叔说这玩意就是摆设</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 所以是加着玩的吗。最起码当做鼠标要比 GPD Win 4 那个遥感好用吧。 
+
+
+*****
+
+####  plumlis  
+##### 787#       发表于 2023-7-12 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61568509&amp;ptid=2086469" target="_blank">dududa 发表于 2023-7-6 10:48</a>
+
+提起gpd我最烦的一点是为啥他家不做前端。前端这种东西明明可以有效提升用户体验，现在国产掌机应该就gpd没 ...</blockquote>
+因为GPD根本没有能力开发前端呀
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+我作为首批参与GPD Win1的老用户，现在粉转超级黑，我可对GPD太了解了。
+
+GPD的软件生态几乎等于没有，因为它们没人开发。软件全靠白嫖第三方工具，有的给点钱，有的直接不给拿来就用。GPD的宣发海外和国内只有祝开辉一个人，屏幕永远用边角料最稀烂的，宣传永远放卫星。不然你以为为啥GPD的机器在国产同类里总能做到最低是为啥？这些成本都没有呀。
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+GPD连官网做个工具和 Bios 下载都做不利索，全靠 QQ 群营销和售后，做个新产品页面，还得发到群里让路人帮忙挑错改错别字，你觉得 GPD 有啥能力？
+
+GPD 唯一的优势就是价格相对便宜，性能释放激进，其他的都是一坨答辩。
+
+
+*****
+
+####  出轨的三头龙  
+##### 788#       发表于 2023-7-13 12:52
+
+有人分析下ROG掌机吗
+
+
+*****
+
+####  nilren  
+##### 789#       发表于 2023-7-13 13:31
+
+GPD家的WIN2、3、P2MAX
+
+手里就还剩下WIN3，套个NS LITE的手把手感不错，我自己玩起来还是挺好的，不打算换
+
+没摸过其他的掌机没发对比，先这么玩着我觉得也挺好的。华硕那个屏幕和性能肯定是最强 ，但目前朋友们评价最好的还是性能偏弱屏幕不行的steam掌机。
+
+
+*****
+
+####  dududa  
+##### 790#       发表于 2023-7-13 14:21
+
+steamdeck现在体验说得过去纯粹是更新时间长，刚出的时候体验还不如win掌机呢，那时候都是吹steamdeck性能强的。但说真的v社更新这一年多确实让steamos渐渐变得好用了。win掌机这边就没有这种持续更新，我现在就寄希望于rog，也不说对Windows进行多深度的改造，能和微软合作干点啥也算踏出新的一步了。要是让我做梦的话，我希望微软能把xbox的快速恢复功能给移植到Windows上。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  luffyzhou  
+##### 791#       发表于 2023-7-13 23:11
+
+买过win2和win3，他家的外壳摸着真挺廉价（虽然又不是不能玩），屏幕我win3换了1次有亮点（1次是3个在接近中心，第2次是1个在边角），实在懒得换（客服说没法帮着挑屏），加上当时intel驱动实在不完善，就出掉了。这两台机器没有装握把的时候手感实在不行，win3后来买了官方那个硅胶套手感好一些
+
+—— 来自 samsung SM-F9360, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

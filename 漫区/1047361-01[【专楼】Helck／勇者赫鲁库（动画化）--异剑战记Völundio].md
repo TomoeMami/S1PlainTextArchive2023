@@ -323,3 +323,201 @@ B漫已上架，暂时只有11话
 贴吧终于有人接手36之后汉化了，看能不能更完</blockquote>
 这哥们效率好高，赞<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+*****
+
+####  azbhg1  
+##### 1072#       发表于 2023-7-7 21:48
+
+贴吧老哥已经神速把漫画更新到最新了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 1073#       发表于 2023-7-8 07:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又要开始欢乐向了么
+
+
+*****
+
+####  推之空  
+##### 1074#       发表于 2023-7-8 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61508783&amp;ptid=1047361" target="_blank">azbhg1 发表于 2023-7-1 21:49</a></blockquote>
+她可爱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  瓦米里奥  
+##### 1075#       发表于 2023-7-8 08:52
+
+这个节骨眼插入配角回忆，七尾老师是懂寸止的<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azbhg1  
+##### 1076#       发表于 2023-7-10 11:32
+
+坏了<img src="https://p.sda1.dev/12/e5df2dc1d84353dac48b657f70013695/2ca53bc8a6942fa3.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  推之空  
+##### 1077#       发表于 2023-7-10 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">别啊
+
+
+*****
+
+####  kyogngn  
+##### 1078#       发表于 2023-7-10 12:14
+
+呀没咯！<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sakilin2013  
+##### 1079#       发表于 2023-7-10 12:17
+
+次回！琥珀死す!
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  starring  
+##### 1080#       发表于 2023-7-10 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">琥珀不要死啊
+
+
+*****
+
+####  Freakyyu  
+##### 1081#       发表于 2023-7-10 12:44
+
+也不至于欢乐向来得这么快……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  瓦米里奥  
+##### 1082#       发表于 2023-7-10 13:00
+
+前面琥珀flag已经插满了，是时候暂时退场了
+
+
+*****
+
+####  klzxs  
+##### 1083#       发表于 2023-7-10 13:15
+
+从一开始就像是那种传功长老的类型的角色
+
+不过到了现在倒是觉得不一定会退场了
+
+
+*****
+
+####  Booorunestud  
+##### 1084#       发表于 2023-7-10 14:12
+
+怎么几个月没看就从种田流变欢乐向了
+
+
+*****
+
+####  三合一出现  
+##### 1085#       发表于 2023-7-10 14:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种级别的战斗，死几个有头有脸的角色是跑不了啦。
+
+
+*****
+
+####  tansapple  
+##### 1086#       发表于 2023-7-10 16:08
+
+乐观一点，也许琥珀和阿祖一样都有后备的复活机制呢，堂堂帝国四天王之一呢。不过现在还是不能明确异剑这个故事是在赫鲁库之前，还是之后<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyborgIP  
+##### 1087#       发表于 2023-7-10 17:04
+
+相信七尾老师，赫鲁库都是大团圆<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  kyonkoism二号机  
+##### 1088#       发表于 2023-7-11 20:42
+
+肯定是大团圆啊，倒不如说现在已经越来越有既视感了，MUV的既视感
+
+敌人就是beta，异剑王就是从别的已经没救了的时间线穿过来的人，甚至可能就是平行世界版男主，而他的队友其实就是男主现在队友的偏移版，比如这个世界男主的队友是鬼人，异剑王的队友就是鬼人的妹妹
+
+琥珀培养男主就是为了让男主锻炼增幅能力，但是为了阻止异剑王甚至可以杀了他的发言我搞不太懂
+
+如果我的猜测准确，接下来就是琥珀终极牺牲，正常点就是被boss穿胸，狠一点就是直接爆头
+
+然后主角根据琥珀遗言，一路颠簸找到异剑王后得知真相，经过一系列试验最后靠增幅成功倒带历史，然后Völundio—— alternative篇开启<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pure_liquid  
+##### 1089#       发表于 2023-7-13 21:14
+
+终于补到了48话（应该是最新话？）
+
+我在想这部（以及前作赫鲁库）的世界观会不会和网络小说《道诡异仙》有一点点相似之处（以下涉及《道诡》的文字反白）
+
+赫鲁库和异剑两部作品中提到的“世界的意志”对应《道诡异仙》中的大傩/长生天
+
+而女王/奎因对应于儿神/石渎甚至是福生天（取决于女王的定位）
+
+我为什么要把一部不相干的作品硬扯进来呢
+
+主要是想提出一个猜想，就是“世界的意志”表现出的疯狂、“不讲道理”，并不是内在、原生的
+
+而是被外来的侵略者（女王或者女王背后的势力）给吓疯的
+
+就像大傩被福生天吓疯了一样
+
+
+*****
+
+####  azbhg1  
+##### 1090#       发表于 2023-7-13 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61652650&amp;ptid=1047361" target="_blank">pure_liquid 发表于 2023-7-13 21:14</a>
+
+终于补到了48话（应该是最新话？）
+
+我在想这部（以及前作赫鲁库）的世界观会不会和网络小说《道诡异仙》有 ...</blockquote>
+helck都说清楚了，世界的意志就是单纯毁灭旧世界诞生一个不一样的新世界，单纯的毁灭与新生。旧作里出现的新世界生物都是被新世界力量影响到的、还处在变化之中的不稳定的中间状态。
+
+一定要碰瓷一个也是伊苏8那个到点了就灭世的玩意。
+
+异剑的queen之流多半也是世界意志相关的产物，一下来说的就是毁灭地球上的生物，跟世界的意志目的一模一样。
+
+
+*****
+
+####  三合一出现  
+##### 1091#       发表于 2023-7-13 23:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">现在异剑这边的刀子算是来得迟了。最大的问题始终，这次的世界意志以什么方式出现。上次的教主还是过去的赫鲁库那边的降临于某人，可这次的女王就完全是另一回事了，简直像是世界意志直接动手打人一样。
+
