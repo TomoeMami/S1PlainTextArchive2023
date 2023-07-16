@@ -4457,3 +4457,41 @@ NS版确认交由[PLAYISM](https://space.bilibili.com/476739899)发行，包含�
 
 楼主功德无量，测试版一直忍着没玩，等正式版出来支持一下
 
+*****
+
+####  Niyah  
+##### 257#       发表于 2023-7-12 11:36
+
+实体版这个毕业照内封设计的好对味
+
+
+*****
+
+####  Tnsbilws  
+##### 258#         楼主| 发表于 2023-7-13 13:05
+
+ 本帖最后由 Tnsbilws 于 2023-7-13 13:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61636718&amp;ptid=1915014" target="_blank">Niyah 发表于 2023-7-12 11:36</a>
+
+实体版这个毕业照内封设计的好对味</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/13/130501tiqvxhm44141o3iz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230713130138.png</strong> (93.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 13:05 上传
+
+补个图，确实很对味
+
+<img src="https://img.saraba1st.com/forum/202307/13/130635uvgkd19gsbatgdtb.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230713130600.png</strong> (93.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 13:06 上传
+
+另外这个说明书太有古早PC游戏说明书的味道了
+

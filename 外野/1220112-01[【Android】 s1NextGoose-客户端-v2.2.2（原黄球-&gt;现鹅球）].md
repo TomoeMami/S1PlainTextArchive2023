@@ -175,3 +175,10 @@ Play 版在高版本安卓上的专属 bug，换普通版就行了
 
 github 上没 push 2.5.4 的代码吗，我看GitHub上的代码还是 2.5.3，想给鹅球加个自动夜间模式
 
+*****
+
+####  花开安菲路  
+##### 1431#       发表于 2023-7-13 12:57
+
+大佬，图片发不出来了，是移动网的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
