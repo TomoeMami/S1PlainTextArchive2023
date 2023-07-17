@@ -4145,3 +4145,247 @@ aya家那个 1215u的air plus怎么样？有买了的吗？主要是很喜欢那
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  83913536  
+##### 399#       发表于 2023-7-7 00:44
+
+最新322bios感觉已经把ally弄废了，为了不烧TF卡左边风扇被设置成手动模式下不低于75转速，最大的优势高瓦数下静音荡然无存
+
+
+*****
+
+####  dududa  
+##### 400#       发表于 2023-7-7 00:54
+
+我最好奇的是322版本的bios修复319版本的性能降低了吗，我咋感觉玩游戏帧数没啥区别呢
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Mchaos  
+##### 401#       发表于 2023-7-7 10:46
+
+还就那个猛猛耍猴<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  夜_乌鸦  
+##### 402#       发表于 2023-7-9 10:53
+
+话说这个是原生Windows，Windows上能玩的老游戏都支持？steam deck主要是玩老游戏太困难了，有点心动这个
+
+
+*****
+
+####  飞侠小黑  
+##### 403#       发表于 2023-7-9 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60335498&amp;ptid=2127262" target="_blank">nage560 发表于 2023-4-4 20:36</a>
+这一个个都出掌机的，阿索怎么还坐得住。</blockquote>
+阿索做的win掌机你敢买？？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  83913536  
+##### 404#       发表于 2023-7-10 02:39
+
+原来奥创中心切换插电性能模式的功能要用原装充电器才行，感觉这功能还挺实用的，离电限制40帧续航，插电60帧
+
+
+*****
+
+####  ultraseven  
+##### 405#       发表于 2023-7-10 04:01
+
+322更新是为了修复SD卡过热的问题，属于硬件设计失误吧。反正我不用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 406#       发表于 2023-7-10 08:47
+
+ 本帖最后由 bypass 于 2023-7-10 08:52 编辑 
+
+重复发帖了，删掉 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bypass  
+##### 407#       发表于 2023-7-10 08:47
+
+ 本帖最后由 bypass 于 2023-7-10 08:52 编辑 
+
+<img src="https://imgur.ihainan.me/yhukugR.png" referrerpolicy="no-referrer">
+
+<strong>23/07/04 更新 BIOS 322 和 Armoury Crate SE v1.2.13:</strong>
+ <blockquote>Ally BIOS 322 Update Changelog: <strong>Ally BIOS 322 更新日志</strong>
+
+Bug fix: Resolved an issue that caused the ROG Ally to be stuck at the boot up loading screen when users configured a password in BIOS mode.
+<strong>Bug 修复：解决了用户在 BIOS 设置了密码之后，ROG Ally 会卡在启动加载界面的问题。</strong>
+
+Modified the Ally’s fan curve from 30dBA to 35dBA in Turbo mode when plugged in, and from 25dBA to 30 dBA in Turbo mode when using the battery. Changed the minimum fan speed in Manual mode when device hits a certain temperature.
+<strong>修改了 Ally 的风扇曲线，插电 Turbo 模式下，噪音从 30 分贝来到了 35 分贝，电池 Turbo 模式，噪音从 25 分贝来到了 30 分贝。修改了手动模式下，设备达到特定温度之后的最小风扇转速。</strong></blockquote><blockquote>Armoury Crate SE v1.2.13 Changelog: <strong>奥创 SE v1.2.13 更新日志</strong>
+
+UX improvement: optimized the panel opacity, resulting in a more visually balanced display.
+<strong>UI 改进：优化了面板的透明度，视觉效果看起来更平衡。</strong>
+
+New feature: Modified FPS Limiter options to "30/45/60/90/120/OFF".
+<strong>新特性：修改 FPS 限制器可选项为 "30/45/60/90/120/不锁帧"。</strong>
+
+New feature: Added BIOS and Armoury Crate configuration information under System settings.
+<strong>新特性：在系统设置里面添加了 BIOS 和奥创中心的配置信息展示。</strong>
+
+Bug fix: Fixed incorrect TDP values displayed on the Manual mode icon.
+<strong>Bug 修复：修复了手动模式图标中错误的 TDP 显示值。</strong>
+
+Bug fix: Resolved an issue when uploading images and recordings for social media sharing.
+<strong>Bug 修复：解决了一个上传图片和录像到社交媒体时会遇到的一个问题。</strong> 
+
+Bug fix: Resolved an issue where an error code from Armoury Crate Service tool was displayed (error code: 0xc0000142).
+<strong>Bug 修复：解决了奥创服务工具的一个错误代码（0xc0000142）被展示出来的问题。</strong>
+
+New feature: Added an “Alt+F4” function in Command Center to quickly exit games and programs.
+<strong>新特性：在命令中心中添加 "ALT + F4" 快捷键用来快速退出游戏和程序。</strong></blockquote>
+
+
+*****
+
+####  bypass  
+##### 408#       发表于 2023-7-12 16:31
+
+[https://www.bilibili.com/video/BV1P14y1d7fg](https://www.bilibili.com/video/BV1P14y1d7fg)
+
+TESTV 的开箱
+
+
+*****
+
+####  bypass  
+##### 409#       发表于 2023-7-13 11:45
+
+ROG Ally + 第三方显卡扩展坞：[https://www.bilibili.com/video/BV1Lh4y1M7os](https://www.bilibili.com/video/BV1Lh4y1M7os)
+
+
+*****
+
+####  luffyzhou  
+##### 410#       发表于 2023-7-13 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61647340&amp;ptid=2127262" target="_blank">bypass 发表于 2023-7-13 11:45</a>
+
+ROG Ally + 第三方显卡扩展坞：https://www.bilibili.com/video/BV1Lh4y1M7os</blockquote>
+看了下，是m2转oculink口的，还得拆壳……要是能破解rog那个xmobile的口就好了，回头我的幻13和16翻转也能有个便宜些的方案用
+
+
+*****
+
+####  bypass  
+##### 411#       发表于 2023-7-13 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61647558&amp;ptid=2127262" target="_blank">luffyzhou 发表于 2023-7-13 12:05</a>
+
+看了下，是m2转oculink口的，还得拆壳……要是能破解rog那个xmobile的口就好了，回头我的幻13和16翻转也 ...</blockquote>
+对。目前这个方案，不仅要拆壳 m2 来转 oculink，硬盘只能外挂 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 那画面太美我不敢看。
+
+作者说可以直接改 XG 接口但是成本太高。
+
+
+*****
+
+####  出轨的三头龙  
+##### 412#       发表于 2023-7-13 13:07
+
+所以ally玩4399能顶4小时吗
+
+*****
+
+####  出轨的三头龙  
+##### 413#       发表于 2023-7-13 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61423900&amp;ptid=2127262" target="_blank">土豆麻辣人 发表于 2023-6-25 15:39</a>
+
+其实deck也能打不少黄油。但对民间汉化和播片比较多的兼容性不太好。
+
+rog打黄油感觉操作不行，没有触摸板 ...</blockquote>
+没触摸啊，直接放弃了，谢谢
+
+
+*****
+
+####  土豆麻辣人  
+##### 414#       发表于 2023-7-13 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648127&amp;ptid=2127262" target="_blank">出轨的三头龙 发表于 2023-7-12 23:08</a>
+ 没触摸啊，直接放弃了，谢谢</blockquote>
+ally有触控屏，没触摸板。
+
+
+*****
+
+####  出轨的三头龙  
+##### 415#       发表于 2023-7-13 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61649243&amp;ptid=2127262" target="_blank">土豆麻辣人 发表于 2023-7-13 15:05</a>
+
+ally有触控屏，没触摸板。</blockquote>
+我现在就关心个小游戏续航，能不插电4h就购入，不行就看看蒸汽吊屏幕行不行
+
+
+*****
+
+####  dududa  
+##### 416#       发表于 2023-7-13 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61649747&amp;ptid=2127262" target="_blank">出轨的三头龙 发表于 2023-07-13 15:53:09</a>
+我现在就关心个小游戏续航，能不插电4h就购入，不行就看看蒸汽吊屏幕行不行 ...</blockquote>能不能玩4h取决于你口中的小游戏到底有多小，rog ally电池是40wh，4小时的话也就是rog掌机总功耗要小于10w，能分给apu的也就6、7w左右？你上网找一找rog掌机玩你想玩的游戏时的大致功耗不就清楚了吗。顺便说一句，steamdeck的电池也是40wh的，续航不会比rog强很多，最起码不会说玩同样小游戏一个能到4h，另一个差挺远。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  luffyzhou  
+##### 417#       发表于 2023-7-13 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61647906&amp;ptid=2127262" target="_blank">bypass 发表于 2023-7-13 12:44</a>
+对。目前这个方案，不仅要拆壳 m2 来转 oculink，硬盘只能外挂  那画面太美我不敢看。
+
+作者说可 ...</blockquote>
+我订了个aya的air 1s 7840u，也不知是这机器先到，还是能先抢到4999的ally<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9360, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  土豆麻辣人  
+##### 418#       发表于 2023-7-14 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61649747&amp;ptid=2127262" target="_blank">出轨的三头龙 发表于 2023-7-13 01:53</a>
+ 我现在就关心个小游戏续航，能不插电4h就购入，不行就看看蒸汽吊屏幕行不行 ...</blockquote>
+ally不可能有4h，我sd最低整机功耗是7w（tdp3w），基本就是屏幕亮度一半以下，玩30fps的文字游戏。有些小游戏，功耗并不低，比如你敢信玩beholder 60fps要18w（整机）吗？
+
+
+*****
+
+####  脚本水平  
+##### 419#       发表于 2023-7-14 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61660549&amp;ptid=2127262" target="_blank">土豆麻辣人 发表于 2023-7-14 15:58</a>
+
+ally不可能有4h，我sd最低整机功耗是7w（tdp3w），基本就是屏幕亮度一半以下，玩30fps的文字游戏。有些小 ...</blockquote>
+
+最近用SD玩宿命残响和时空之轮都是60帧整机7w
+
+大概能撑不到6小时
+

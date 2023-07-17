@@ -2334,3 +2334,13 @@ Yamato_Takeru(bronze_statue,Osaka)01.jpg
 
 <img src="https://p.sda1.dev/12/b24311c17d20d3ac3a6a374e3ebc118f/20230710_122611.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 218#         楼主| 发表于 2023-7-14 16:51
+
+7月21日~7月23日，来Bilibili World PlayStation展台体验《Fate/Samurai Remnant》全世界首次中文试玩版！
+
+锁定2.1H 2A18 PlayStation展台，更多精彩体验，待你现场揭秘
+<img src="https://p.sda1.dev/12/a6f37d23b5a1ced4fd04d60717b94c27/1689324601254.jpg" referrerpolicy="no-referrer">
+
