@@ -5415,3 +5415,2772 @@ b限自己要不要来是一码事，阿姨的要求是另一码事。阿姨给�
 
 强风大背头唱的还行。
 
+*****
+
+####  yywzjsw  
+##### 14070#       发表于 2023-6-9 08:55
+
+最近好多会限
+
+
+*****
+
+####  往世雷书  
+##### 14071#       发表于 2023-6-9 10:18
+
+🈶重要内容吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  clvan_  
+##### 14072#       发表于 2023-6-9 14:11
+
+挺好的，好歹算有一点点运营了
+
+
+*****
+
+####  十九号大侠  
+##### 14073#       发表于 2023-6-9 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clvan_  
+##### 14074#       发表于 2023-6-9 18:58
+
+c102摊位还行
+
+
+*****
+
+####  yywzjsw  
+##### 14075#       发表于 2023-6-9 19:39
+
+今年好多动作，不知道卖什么，虽然觉得还是立牌什么的
+
+
+*****
+
+####  古战场亡魂  
+##### 14076#       发表于 2023-6-9 20:11
+
+运气还可以啊，我记得出摊要抽签的。
+
+
+*****
+
+####  往世雷书  
+##### 14077#       发表于 2023-6-11 09:29
+
+有人要进nga里版，声望不够，我跟他说私信韩锷，版主最近看一下那边的私信
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  makourisu-2  
+##### 14078#       发表于 2023-6-11 10:01
+
+里版还有人在发帖吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 14079#       发表于 2023-6-11 10:03
+
+五周年真快啊
+
+
+*****
+
+####  Dualist彩  
+##### 14080#       发表于 2023-6-12 14:37
+
+看一眼你楼就不安了，小麻正处于生死存亡之际，还能再续辉煌吗
+
+
+*****
+
+####  往世雷书  
+##### 14081#       发表于 2023-6-12 14:44
+
+怎么就生死存亡了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  十九号大侠  
+##### 14082#       发表于 2023-6-12 20:11
+
+不会是因为冰糖没嘴你麻吧
+syl他什么时候能自己弄个3D回啊
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  专业划水人员  
+##### 14083#       发表于 2023-6-12 22:41
+
+可惜她现在应该没钱换3d皮了。自己出钱那套3d风格巨怪。
+
+
+*****
+
+####  秋游刃  
+##### 14084#       发表于 2023-6-12 23:22
+
+她当初应该先找个原画，把整体风格定下来，再找模型师做3D的。现在这样，估计是她直接向模型师提要求，让模型师照做，然后不断修改的产物。
+
+不过有一说一，素模的精度倒是挺高。
+
+
+*****
+
+####  ashero  
+##### 14085#       发表于 2023-6-13 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61257933&amp;ptid=2018830" target="_blank">专业划水人员 发表于 2023-6-12 22:41</a>
+
+可惜她现在应该没钱换3d皮了。她自己出钱那套3d风格巨怪。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没钱是不可能的 比她没钱的都能出 
+
+
+*****
+
+####  古战场亡魂  
+##### 14086#       发表于 2023-6-13 05:51
+
+她3d不都4套了吗，比2d皮都多，平时用不上罢了。
+
+
+*****
+
+####  往世雷书  
+##### 14087#       发表于 2023-6-13 15:46
+
+不会是在攒嫁妆⑧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Cushaw  
+##### 14088#       发表于 2023-6-13 17:15
+
+才不要给野男人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  JY要塞  
+##### 14089#       发表于 2023-6-13 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">怎么还有人心存幻想
+
+
+*****
+
+####  秋游刃  
+##### 14090#       发表于 2023-6-13 18:07
+
+话题咋又一转野男人了…
+
+
+*****
+
+####  路人庚  
+##### 14091#       发表于 2023-6-14 08:21
+
+今天阿咩醒的早啊
+
+<img src="https://img.saraba1st.com/forum/202306/14/081951xrwhoxfhoo5rqdhp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1AD78CCE-1CFD-4DA6-ADD6-DC662D28DE9B.jpeg</strong> (322.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-14 08:19 上传
+
+
+*****
+
+####  yywzjsw  
+##### 14092#       发表于 2023-6-14 08:35
+
+是不是就没睡（
+
+
+*****
+
+####  andeloz  
+##### 14093#       发表于 2023-6-14 09:21
+
+确实没睡
+
+
+*****
+
+####  路人庚  
+##### 14094#       发表于 2023-6-14 17:46
+
+你咩姐大概开始蓝色协议了（然鹅大概也并不播）
+
+
+*****
+
+####  秋游刃  
+##### 14095#       发表于 2023-6-14 18:13
+
+之前放的“直播游戏”这颗卫星什么时候能落地？
+
+*****
+
+####  古战场亡魂  
+##### 14096#       发表于 2023-6-14 18:14
+
+ 本帖最后由 古战场亡魂 于 2023-6-14 18:20 编辑 
+
+真播你看嘛，好玩和适合直播是两码子事。
+
+
+*****
+
+####  秋游刃  
+##### 14097#       发表于 2023-6-14 19:13
+
+看啊，就算她直播数羊，我也能坚持到最后一只。虽说我对直播内容也有喜好，但没有不看这一选项。
+
+*****
+
+####  Dualist彩  
+##### 14098#       发表于 2023-6-14 19:15
+
+写怪文书去了
+“最近很少讲生活上的事了，一定是有男朋友了吧，如果mea愿意告诉我有男朋友在照顾你的话我会很开心的”
+“。。。”
+
+
+*****
+
+####  往世雷书  
+##### 14099#       发表于 2023-6-14 19:51
+
+光有男朋友不行，还得温柔帅气
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  thisisaspider  
+##### 14100#       发表于 2023-6-14 20:07
+
+还得有钱活好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 14101#       发表于 2023-6-14 20:33
+
+把“男朋友”换成“男人”吧，严谨一点好。
+
+
+*****
+
+####  息衍  
+##### 14102#       发表于 2023-6-14 22:28
+
+不如改成 也有男人了
+
+
+*****
+
+####  yywzjsw  
+##### 14103#       发表于 2023-6-15 08:40
+
+改成男人们吧
+
+
+*****
+
+####  Cushaw  
+##### 14104#       发表于 2023-6-15 09:14
+
+直接写野男人们吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  makourisu-2  
+##### 14105#       发表于 2023-6-15 17:07
+
+不会是要跟野男人出去happy了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 14106#       发表于 2023-6-15 17:23
+
+不就是去玩蓝色协议了吗:)
+
+
+*****
+
+####  clvan_  
+##### 14107#       发表于 2023-6-15 17:47
+
+游戏废人promax状态，on!
+
+
+*****
+
+####  掉头学姐  
+##### 14108#       发表于 2023-6-15 18:46
+
+跟野男人玩蓝色协议了
+
+
+*****
+
+####  奇拉奇拉  
+##### 14109#       发表于 2023-6-16 01:13
+
+好久没回来，一回来就看见楼友们在绿来绿去，还是熟悉的m楼
+
+—— 来自 HONOR ANY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  呓亘  
+##### 14110#       发表于 2023-6-16 03:08
+
+哇<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  息衍  
+##### 14111#       发表于 2023-6-16 11:21
+
+<img src="https://img.saraba1st.com/forum/202306/16/112146k44ydlzcf87o8ua8.jpg" referrerpolicy="no-referrer">
+
+<strong>X4{IO9ALAQ23M7A2_33NZ6Y.jpg</strong> (102.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-16 11:21 上传
+
+女儿都有了！
+
+
+*****
+
+####  LIPP  
+##### 14112#       发表于 2023-6-16 14:42
+
+蓝色协议确实好玩
+
+—— 来自 OPPO CPH2353, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Cushaw  
+##### 14113#       发表于 2023-6-16 15:27
+
+真的有这么好玩吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋游刃  
+##### 14114#       发表于 2023-6-16 15:54
+
+那坏了，我还指望她玩十分钟删游，回来好好直播呢。
+
+
+*****
+
+####  TiHaru  
+##### 14115#       发表于 2023-6-16 17:05
+
+看完比赛发推是吧
+
+*****
+
+####  掉头学姐  
+##### 14116#       发表于 2023-6-16 17:10
+
+她瓦直播玩过吗
+
+
+*****
+
+####  qigeer  
+##### 14117#       发表于 2023-6-16 19:01
+
+7.22 mea bw
+听别的主播漏勺说可能是有现场连麦环节的
+
+
+*****
+
+####  专业划水人员  
+##### 14118#       发表于 2023-6-16 22:21
+
+瘾真大
+
+
+*****
+
+####  Cushaw  
+##### 14119#       发表于 2023-6-16 22:23
+
+已经结束咧~<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rosevalley46  
+##### 14120#       发表于 2023-6-16 22:25
+
+？啊怎么结束了
+
+*****
+
+####  D麦林  
+##### 14121#       发表于 2023-6-16 22:26
+
+快一年多没来了 一来还是野男人话题
+
+有一种家的温暖
+
+*****
+
+####  Dualist彩  
+##### 14122#       发表于 2023-6-16 22:26
+
+梁木了，不想播可以不播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sleipnirω  
+##### 14123#       发表于 2023-6-16 22:29
+
+不是，这游戏真这么好玩啊
+
+
+*****
+
+####  clvan_  
+##### 14124#       发表于 2023-6-16 22:35
+
+刚开服，mmo社交反馈和新鲜感最足的时候
+
+*****
+
+####  秋游刃  
+##### 14125#       发表于 2023-6-16 22:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  呓亘  
+##### 14126#       发表于 2023-6-16 22:37
+
+？？？？？
+
+*****
+
+####  呓亘  
+##### 14127#       发表于 2023-6-16 22:37
+
+这人能不能靠点谱
+
+
+*****
+
+####  gongge666  
+##### 14128#       发表于 2023-6-16 22:43
+
+不是上个月才来过么
+
+*****
+
+####  古战场亡魂  
+##### 14129#       发表于 2023-6-16 22:46
+
+年轻人第一款mmo。
+
+
+*****
+
+####  掉头学姐  
+##### 14130#       发表于 2023-6-16 22:55
+
+她不是玩了梦幻之星吗
+
+
+*****
+
+####  古战场亡魂  
+##### 14131#       发表于 2023-6-16 23:14
+
+沉迷的才叫第一款。
+
+
+*****
+
+####  Dualist彩  
+##### 14132#       发表于 2023-6-17 07:19
+
+亚达，要。。。要变成府子哥的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 14133#       发表于 2023-6-17 09:30
+
+怪不得最近B限变多了，斧苟可不会像B站惯着她，狠狠打工<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 14134#       发表于 2023-6-17 09:35
+
+该流出中之人了
+
+*****
+
+####  JY要塞  
+##### 14135#       发表于 2023-6-17 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">180斤超重坦有盒营业的资本吗
+
+
+*****
+
+####  秋游刃  
+##### 14136#       发表于 2023-6-17 09:58
+
+给她布置任务的时候能不能按时长而不是次数呢。
+
+
+*****
+
+####  往世雷书  
+##### 14137#       发表于 2023-6-17 10:28
+
+建议按营收
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  专业划水人员  
+##### 14138#       发表于 2023-6-17 10:48
+
+希望皮还是自己。
+
+*****
+
+####  Dualist彩  
+##### 14139#       发表于 2023-6-17 10:49
+
+能不能爆出你麻是萌鸽股东，打工的？收米的！
+
+
+*****
+
+####  古战场亡魂  
+##### 14140#       发表于 2023-6-17 11:16
+
+又不主力在b发展。没有莫名其妙的联动，钱确保能拿到就是了。
+
+
+*****
+
+####  秋游刃  
+##### 14141#       发表于 2023-6-17 11:46
+
+主力在不在b站，直播能这么敷衍我是没想到的。
+
+
+*****
+
+####  掉头学姐  
+##### 14142#       发表于 2023-6-17 12:13
+
+说实话真挺伤人的，之前唱了这么久，来b限马上就跑了，不如不b限
+
+*****
+
+####  clvan_  
+##### 14143#       发表于 2023-6-17 12:13
+
+挺好的，昨天直播还挺乐的，很真实。
+
+就是为什么不能直播打游戏呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 14144#       发表于 2023-6-17 14:56
+
+ 本帖最后由 秋游刃 于 2023-6-17 15:01 编辑 
+
+编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shanyao1  
+##### 14145#       发表于 2023-6-17 15:09
+
+是房导牵线的吗，雨音月奈毕业转生回去也进府了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  草牛  
+##### 14146#       发表于 2023-6-17 15:14
+
+已经有潜规则小视频流出了，要的扣1
+
+*****
+
+####  Dualist彩  
+##### 14147#       发表于 2023-6-17 15:21
+
+111111，我要看斧子和774一前一后
+
+
+*****
+
+####  往世雷书  
+##### 14148#       发表于 2023-6-17 15:29
+
+ 本帖最后由 往世雷书 于 2023-6-17 15:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61321068&amp;ptid=2018830" target="_blank">shanyao1 发表于 2023-6-17 15:09</a>
+是房导牵线的吗，雨音月奈毕业转生回去也进府了</blockquote>
+不保真，感觉像当初的字幕组抽成15%谣言，希望房导本人出来说几句
+
+<img src="https://img.saraba1st.com/forum/202306/17/152942by36y110jt968j18.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230617_151706_gov.pianzong.androidnga_edit_156484329301346.jpg</strong> (319.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-17 15:29 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  草牛  
+##### 14149#       发表于 2023-6-17 15:36
+
+尼哥潭匿名不太可信，这个人每次有瓜都挂个匿名出来车轱辘偷字幕的事儿，可能是房导结的私仇
+
+*****
+
+####  JY要塞  
+##### 14150#       发表于 2023-6-17 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">答应我，野男人不要超过两位数好吗
+
+*****
+
+####  gongge666  
+##### 14151#       发表于 2023-6-17 15:37
+
+有些东西是挺怪的谁也不好说，这种事情最好（大概率已经有太监多嘴去了）也别告诉mea，每次因为一点莫名其妙的信息差搞得她又要不安了
+
+*****
+
+####  息衍  
+##### 14152#       发表于 2023-6-17 15:38
+
+匿名的爆料我从来不信，里面会掺的多少是假话都很致命
+
+
+*****
+
+####  呓亘  
+##### 14153#       发表于 2023-6-17 15:57
+
+看了昨天B限熟肉 态度还行……
+
+
+*****
+
+####  缺陷电气杨永信  
+##### 14154#       发表于 2023-6-17 16:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超电是真似了吗 我记得以前不是在超电下面的吗
+
+挂件团的时候应该是在萌电那边，当时vt翻萌电的著作权的时候翻到挂件团了
+
+挂件团完就被拉去勒夫那了吧 
+
+*****
+
+####  gogomw  
+##### 14155#       发表于 2023-6-17 16:08
+
+建议雷书NGA爆料全部都不信以提高自己的智力水平
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 往世雷书| + 1||
+
+查看全部评分
+
+*****
+
+####  息衍  
+##### 14156#       发表于 2023-6-17 16:09
+
+还差一个陨落白门楼
+
+*****
+
+####  Dualist彩  
+##### 14157#       发表于 2023-6-17 16:09
+
+我出35000，给我买个mea
+
+*****
+
+####  往世雷书  
+##### 14158#       发表于 2023-6-17 16:12
+
+OKOK，吸取教训
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Dualist彩  
+##### 14159#       发表于 2023-6-17 16:16
+
+早该让你麻不安敲打敲打了，给我狠狠地成为直播机器，事业心熊熊燃烧
+
+*****
+
+####  gongge666  
+##### 14160#       发表于 2023-6-17 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61321461&amp;ptid=2018830" target="_blank">缺陷电气杨永信 发表于 2023-6-17 16:03</a>
+
+超电是真似了吗 我记得以前不是在超电下面的吗
+
+挂件团的时候应该是在萌电那边，当时vt翻萌电的著作 ...</blockquote>
+主要是B站嫌公司对外国个人打钱太麻烦了不想搞了，现在少数几个还是合同没到期的
+
+
+*****
+
+####  呓亘  
+##### 14161#       发表于 2023-6-17 16:28
+
+想看事业心熊熊燃烧的mea
+
+
+*****
+
+####  掉头学姐  
+##### 14162#       发表于 2023-6-17 16:37
+
+感觉还是不要痴心妄想了
+
+
+*****
+
+####  shanyao1  
+##### 14163#       发表于 2023-6-17 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61321461&amp;ptid=2018830" target="_blank">缺陷电气杨永信 发表于 2023-6-17 16:03</a>
+
+超电是真似了吗 我记得以前不是在超电下面的吗
+
+挂件团的时候应该是在萌电那边，当时vt翻萌电的著作 ...</blockquote>
+上个月叔叔都退出超电了
+
+
+*****
+
+####  -MUON-  
+##### 14164#       发表于 2023-6-17 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">b大点事情看一群小丑搁那狂欢真的难蚌，不过有些事也能得到解释了就是。
+
+
+*****
+
+####  专业划水人员  
+##### 14165#       发表于 2023-6-17 20:00
+
+只要保证皮和版权没问题，这事对她基本没影响。
+
+
+*****
+
+####  thisisaspider  
+##### 14166#       发表于 2023-6-17 20:11
+
+本来除了纪念日就不在B打钱了，现在是完全不想打了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十九号大侠  
+##### 14167#       发表于 2023-6-17 20:26
+
+好不容易才把皮的版权拿到手，不可能还交出去吧
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  qigeer  
+##### 14168#       发表于 2023-6-17 20:47
+
+我最近也在看lulu
+我给大家说下lulu那边的说法吧，自由心证。
+
+b日v分部准备在2023年内让全部日v都加公会
+然后也给她推荐了萌鸽，她听说收益不会减少，而且接下来因为也有活动可以找人对接就直接签了，在活动和企划上还是得靠自己，和以前是一样的，以上。
+
+觉得有问题的也别回我了，最近不会看v相关论坛了。
+
+*****
+
+####  掉头学姐  
+##### 14169#       发表于 2023-6-17 20:52
+
+发错楼了？
+
+
+*****
+
+####  JY要塞  
+##### 14170#       发表于 2023-6-17 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61324778&amp;ptid=2018830" target="_blank">qigeer 发表于 2023-6-17 20:47</a>
+我最近也在看lulu
+我给大家说下lulu那边的说法吧，自由心证。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兄啊，你发错楼了吧
+
+
+*****
+
+####  路人庚  
+##### 14171#       发表于 2023-6-18 03:37
+
+算时间的话，你咩姐和萌鸽的合同应该是早就签了，看下来大概也没什么特别的，不如说最近一年直播的朋友圈变的更固化封闭了（汗小女友+野男人联动打101除外
+
+不过话说回来，想在这个时代迎来第二春，估计得足够抽象才行（比如请18年的嘴臭咩上身
+
+
+*****
+
+####  Dualist彩  
+##### 14172#       发表于 2023-6-18 12:16
+
+不存在的，能大火的只有你麻最好的朋友回来和你麻连体！寄吧冰蛋都能万舰，咩夸能多少舰我不敢想了
+
+
+*****
+
+####  专业划水人员  
+##### 14173#       发表于 2023-6-18 12:57
+
+还是做无情的唱歌机器吧，现在阿b这边不是谁当头部谁被集火吗？只要nga和v8那种v圈黑法官还在还是不火比较好。
+
+
+*****
+
+####  czhhws  
+##### 14174#       发表于 2023-6-18 13:06
+
+期待mea到18年热度还不如期待她**50万关注<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2173, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  砂糖Kazuma  
+##### 14175#       发表于 2023-6-18 13:54
+
+中之人营业搞快点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+勒夫你欠我的麻照啥时候还<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  砂糖Kazuma  
+##### 14176#       发表于 2023-6-18 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61328092&amp;ptid=2018830" target="_blank">路人庚 发表于 2023-6-18 03:37</a>
+算时间的话，你咩姐和萌鸽的合同应该是早就签了，看下来大概也没什么特别的，不如说最近一年直播的朋友圈变 ...</blockquote>
+辛德瑞拉预热期还在暴言便利店整顿职场的事情，当时应该没有加萌鸽
+
+时间点至少在辛德瑞拉正式开团以后
+
+
+*****
+
+####  十九号大侠  
+##### 14177#       发表于 2023-6-18 17:35
+
+踏马的，勒夫还不把小麻的塔照爆出来？我要看肥猪
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  秋游刃  
+##### 14178#       发表于 2023-6-18 17:58
+
+中之人照片的话没必要找勒夫啊，想看的话我6点10分发一张小麻无遮挡塔照好了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+脸可能不认识，但那身衣服你们应该一看就懂<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+当然，楼友觉得不合适的话就算了。
+
+*****
+
+####  息衍  
+##### 14179#       发表于 2023-6-18 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61333591&amp;ptid=2018830" target="_blank">秋游刃 发表于 2023-6-18 17:58</a>
+
+中之人照片的话没必要找勒夫啊，想看的话我6点10分发一张小麻无遮挡塔照好了
+
+脸可能不认识，但那身 ...</blockquote>
+111真发么
+
+*****
+
+####  呓亘  
+##### 14180#       发表于 2023-6-18 18:02
+
+能挑张好看的发吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  thisisaspider  
+##### 14181#       发表于 2023-6-18 18:03
+
+mea一定在玩蓝色协议，而我却被封号了。后面忘了...渐行渐远<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 14182#       发表于 2023-6-18 18:09
+
+ 本帖最后由 专业划水人员 于 2023-6-18 18:11 编辑 
+
+那么厉害，小麻的鼻子不是世界之谜等级的吗
+
+*****
+
+####  息衍  
+##### 14183#       发表于 2023-6-18 18:11
+
+我就等一个鼻子拼图了
+
+*****
+
+####  呓亘  
+##### 14184#       发表于 2023-6-18 18:11
+
+图呢
+
+*****
+
+####  thisisaspider  
+##### 14185#       发表于 2023-6-18 18:12
+
+rnm，我F5都按烂了
+
+*****
+
+####  秋游刃  
+##### 14186#       发表于 2023-6-18 18:12
+
+只要存在于互联网，哪有可能那么容易消除啊，既然没人反对那我发了，请稍等<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 14187#       发表于 2023-6-18 18:13
+
+锵锵
+
+<img src="https://img.saraba1st.com/forum/202306/18/181302mqp7nhy5qkponmpp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230618152817.png</strong> (23.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-18 18:13 上传
+
+*****
+
+####  thisisaspider  
+##### 14188#       发表于 2023-6-18 18:13
+
+我去外星人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  路人庚  
+##### 14189#       发表于 2023-6-18 18:14
+
+呃呃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  专业划水人员  
+##### 14190#       发表于 2023-6-18 18:14
+
+我去，二次元眼睛
+
+
+*****
+
+####  专业划水人员  
+##### 14191#       发表于 2023-6-18 18:14
+
+风怒
+
+*****
+
+####  thisisaspider  
+##### 14192#       发表于 2023-6-18 18:14
+
+还是高估楼友了，找亡国民去了
+
+*****
+
+####  呓亘  
+##### 14193#       发表于 2023-6-18 18:14
+
+emmmmm 这还不如那个缝合麻图
+
+*****
+
+####  息衍  
+##### 14194#       发表于 2023-6-18 18:14
+
+我现在的心情：
+
+<img src="https://img.saraba1st.com/forum/202306/18/181457mlxujuyxh1zpyru8.jpg" referrerpolicy="no-referrer">
+
+<strong>]S@K43N0FXD{R69PU}NY$FV_tmb.jpg</strong> (100.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-18 18:14 上传
+
+*****
+
+####  thisisaspider  
+##### 14195#       发表于 2023-6-18 18:15
+
+1. 先去玩蓝色协议
+
+2. 勾搭亡国民
+
+3. 成功套出麻照
+
+万代使我计划出师未捷<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  化鳥虫二  
+##### 14196#       发表于 2023-6-18 18:16
+
+还不如去黑了人生电脑
+
+*****
+
+####  秋游刃  
+##### 14197#       发表于 2023-6-18 18:18
+
+你们就说遮没遮吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+syl
+
+现在你们应该知道满心期待她直播，结果就播了13分钟时我的心情了吧。
+
+明明以前那么喜欢直播的一个人……
+
+我都快郁闷死了，可你们居然聊勒夫聊得不亦乐乎<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 14198#       发表于 2023-6-18 18:19
+
+我也觉得13分钟有点伤人，前面ytb播了那么长
+
+*****
+
+####  化鳥虫二  
+##### 14199#       发表于 2023-6-18 18:20
+
+Alien👽我是alien👽👽👽 迷惑了😵😵你的心❤️❤️ 混杂相交的宇宙引力💫💫 感觉到的心情😲是心跳不已❤️❤️❤️ Alien👽你的alien👽👽👽 被吸引的心❤️无法逃脱🏃🏃🏃 为你献上💁从未有过的体验😮， 直到异世界👾的尽头都心跳不已💃💃💃​
+
+*****
+
+####  thisisaspider  
+##### 14200#       发表于 2023-6-18 18:20
+
+我觉得不如我蓝色协议封号气人<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 14201#       发表于 2023-6-18 18:23
+
+真的好像把咩用被子卷起来打她屁股
+
+*****
+
+####  Sleipnirω  
+##### 14202#       发表于 2023-6-18 18:25
+
+难绷外星人
+
+*****
+
+####  TomDu  
+##### 14203#       发表于 2023-6-18 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十九号大侠  
+##### 14204#       发表于 2023-6-18 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clvan_  
+##### 14205#       发表于 2023-6-18 19:42
+
+没看我都知道是哪一张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有新的早传遍了
+
+
+*****
+
+####  -MUON-  
+##### 14206#       发表于 2023-6-18 19:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么外星人草
+
+
+*****
+
+####  往世雷书  
+##### 14207#       发表于 2023-6-18 20:54
+
+还好吧，不坦，头发也不错，大不了戴口罩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JY要塞  
+##### 14208#       发表于 2023-6-18 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">现在坦不坦可不好说
+
+
+*****
+
+####  -MUON-  
+##### 14209#       发表于 2023-6-18 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">是我喜欢的歌，特码的朝花夕誓就是没碰上好时候，要放现在起码也有个几亿票房。
+
+
+*****
+
+####  yywzjsw  
+##### 14210#       发表于 2023-6-19 09:09
+
+一下子多了那么多楼，结果就这？我还以为会发粉红坦克
+
+
+*****
+
+####  D麦林  
+##### 14211#       发表于 2023-6-19 10:19
+
+绷不住了 真开始岁月史书你麻是斧子哥一手操办蹭孙狗热度火起来的了
+
+
+*****
+
+####  专业划水人员  
+##### 14212#       发表于 2023-6-19 10:27
+
+他们再编下去，下个版本就是774真正身份是斧了。
+
+
+*****
+
+####  JY要塞  
+##### 14213#       发表于 2023-6-19 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61340489&amp;ptid=2018830" target="_blank">D麦林 发表于 2023-6-19 10:19</a>
+绷不住了 真开始岁月史书你麻是斧子哥一手操办蹭孙狗热度火起来的了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就不怕回旋标打到他们最爱的井皇头上吗
+
+*****
+
+####  gongge666  
+##### 14214#       发表于 2023-6-19 10:57
+
+其实从来也没证据证明当初给她房子住的那人是774<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">我一直认为774是mea人格分裂小号
+
+*****
+
+####  息衍  
+##### 14215#       发表于 2023-6-19 10:58
+
+别急 回旋镖再飞会儿 欧阳鸣夏都能暴露出来
+
+
+*****
+
+####  kenjjj  
+##### 14216#       发表于 2023-6-19 12:06
+
+倪哥说的那幕后黑手怎么不早点给你麻塞到100w啊，这也太没用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 14217#       发表于 2023-6-19 12:15
+
+呃呃，独角兽嘴疑似有些硬了，还不如想想774到底透没透过你麻
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 秋游刃|-2|思路广|
+
+查看全部评分
+
+
+*****
+
+####  砂糖Kazuma  
+##### 14218#       发表于 2023-6-19 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61340489&amp;ptid=2018830" target="_blank">D麦林 发表于 2023-6-19 10:19</a>
+绷不住了 真开始岁月史书你麻是斧子哥一手操办蹭孙狗热度火起来的了</blockquote>
+这岁月史书自身怕不就是斧子哥一手操办的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+下一步就该说pmr的日本青年女性日常也是一种抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 14219#       发表于 2023-6-19 12:56
+
+认真的说这也是一种信息壁垒。最了解v的是她的粉丝，但粉丝可能有滤镜说出来的话不可靠；从自身或其他粉丝群体那里获得信息，也有可能受主观情绪和客观信息差的影响得出错误的结论。要解决有两方面，一个是粉丝提供关于自家v的信息时候尽量客观破除滤镜，一个是少当业界警察法官，今天出警这个明天审判那个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  古战场亡魂  
+##### 14220#       发表于 2023-6-19 13:50
+
+别理ylg的言论了行不行。
+
+顺带一提郡道美玲g了，mea在虹的人际关系又断一条。
+
+只能说mea的人脉跟不上v的新陈代谢速度。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gongge666  
+##### 14221#       发表于 2023-6-19 13:54
+
+反正野男人够多，女的G了就G了
+
+*****
+
+####  十九号大侠  
+##### 14222#       发表于 2023-6-19 13:55
+
+有苔苔带她还好啦。
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Dualist彩  
+##### 14223#       发表于 2023-6-19 14:00
+
+感觉不如泔水这条人脉硬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 14224#       发表于 2023-6-19 14:07
+
+ 本帖最后由 秋游刃 于 2023-6-19 14:10 编辑 
+
+其实我还挺想看咩跟BS另两位那个箱联动的。
+
+日，刚上推搜了一下就看到明天有野男人联动<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yywzjsw  
+##### 14225#       发表于 2023-6-19 14:10
+
+不是联动过一次吗
+
+
+*****
+
+####  秋游刃  
+##### 14226#       发表于 2023-6-19 14:12
+
+两次，但联动的不是勇者和前辈。
+
+*****
+
+####  gongge666  
+##### 14227#       发表于 2023-6-19 14:17
+
+得亏holo被赶出去了，要不然我们现在肯定B限要看她跟夕刻联动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  古战场亡魂  
+##### 14228#       发表于 2023-6-19 14:25
+
+看了一下苔苔明天的联动，原来就是谷歌地图逛街。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 14229#       发表于 2023-6-19 14:37
+
+地图看房很久以前流行过的直播节目了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  古战场亡魂  
+##### 14230#       发表于 2023-6-19 14:59
+
+看房是看户型图外观地理位置价钱，谷歌逛街真的就是谷歌逛街。
+
+不是一个节目。
+
+
+*****
+
+####  掉头学姐  
+##### 14231#       发表于 2023-6-19 15:04
+
+老师就因为棒球就挂了？
+
+
+*****
+
+####  andeloz  
+##### 14232#       发表于 2023-6-19 15:25
+
+我去 播游戏
+
+
+*****
+
+####  JY要塞  
+##### 14233#       发表于 2023-6-19 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61343625&amp;ptid=2018830" target="_blank">gongge666 发表于 2023-6-19 14:17</a>
+得亏holo被赶出去了，要不然我们现在肯定B限要看她跟夕刻联动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">想多了，要是木口还在，还轮得到你麻？早就切割了
+
+
+*****
+
+####  KL25001  
+##### 14234#       发表于 2023-6-19 17:21
+
+这人物外观，处男审美啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  路人庚  
+##### 14235#       发表于 2023-6-19 17:28
+
+ 本帖最后由 路人庚 于 2023-6-19 17:30 编辑 
+
+干，居然在社畜时间播蓝色协议
+
+草，什么内衣外穿痴女
+
+
+*****
+
+####  thisisaspider  
+##### 14236#       发表于 2023-6-19 21:52
+
+不如和小女友联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+蓝p！怎么我就玩不了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qigeer  
+##### 14237#       发表于 2023-6-19 21:53
+
+听今晚其他人的直播，mea应该是被逼进斧的，官签结束后她没得选了，B直接给安排了
+
+
+*****
+
+####  草牛  
+##### 14238#       发表于 2023-6-19 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">bv圈爱咋样咋样好吧，你麻在工会应激群体眼里是下等人，帮助他们建设所谓良好v圈对她没任何好处
+
+*****
+
+####  gogomw  
+##### 14239#       发表于 2023-6-19 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要拿到手的钱多去哪个公会有所谓吗，泥畜和拉夫孝子又不是你麻粉丝
+
+
+*****
+
+####  掉头学姐  
+##### 14240#       发表于 2023-6-19 22:59
+
+这种事who care，能不能把房导这种莫名其妙的意见领袖摁死
+
+
+*****
+
+####  yywzjsw  
+##### 14241#       发表于 2023-6-20 08:38
+
+什么倒霉鬼感觉（
+
+
+*****
+
+####  TiHaru  
+##### 14242#       发表于 2023-6-20 10:02
+
+怎么歌回录播都来不及隐藏了
+
+
+*****
+
+####  秋游刃  
+##### 14243#       发表于 2023-6-20 10:52
+
+什么什么歌回录播？
+
+
+*****
+
+####  古战场亡魂  
+##### 14244#       发表于 2023-6-20 12:26
+
+谁知道呢，说不定就是开始歌回留档了呗。
+
+本来就是强行加入会员内容的，现在会限多了，说不定就这么放出来了。
+
+
+*****
+
+####  秋游刃  
+##### 14245#       发表于 2023-6-20 12:34
+
+歌回的标题倒还是不留档。
+
+
+*****
+
+####  汇聚群光  
+##### 14246#       发表于 2023-6-21 12:23
+
+在我看来她应该只是太懒以至于没能及时删掉以前的歌回录播罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 14247#       发表于 2023-6-23 06:00
+
+嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜嗷呜
+
+
+*****
+
+####  秋游刃  
+##### 14248#       发表于 2023-6-23 21:17
+
+又鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  makourisu-2  
+##### 14249#       发表于 2023-6-23 22:21
+
+又去打蓝色协议了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 14250#       发表于 2023-6-23 22:42
+
+蓝色协议已经戒了，目前重回LOL的怀抱。
+
+
+*****
+
+####  往世雷书  
+##### 14251#       发表于 2023-6-24 10:32
+
+求你玩蓝色协议<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  D麦林  
+##### 14252#       发表于 2023-6-24 15:27
+
+这才几天就戒了 这么三分钟热度啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我以为MMO这种起码也得深度沉迷几个月的
+
+*****
+
+####  息衍  
+##### 14253#       发表于 2023-6-24 15:28
+
+找不到乐趣不就不玩了 这不是很正常  MMO身边没人陪玩不动的
+
+
+*****
+
+####  十九号大侠  
+##### 14254#       发表于 2023-6-25 22:42
+
+又是LOL
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  秋游刃  
+##### 14255#       发表于 2023-6-25 23:38
+
+她快俩月没直播LOL了吧。
+
+
+*****
+
+####  Sleipnirω  
+##### 14256#       发表于 2023-6-25 23:44
+
+如果要参加lol对战的话是先要在t台赠送订阅吗？
+
+*****
+
+####  秋游刃  
+##### 14257#       发表于 2023-6-25 23:51
+
+不用吧，日服30级加她好友。我不会玩LOL，有问题的话楼友补充吧。
+
+
+*****
+
+####  yywzjsw  
+##### 14258#       发表于 2023-6-26 12:09
+
+这看上去是每个月都要搞上舰礼物了？
+
+
+*****
+
+####  clvan_  
+##### 14259#       发表于 2023-6-26 18:53
+
+后知后觉后天就是五周年了，时间过得好快
+
+
+*****
+
+####  十九号大侠  
+##### 14260#       发表于 2023-6-26 22:46
+
+府系的大手
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  往世雷书  
+##### 14261#       发表于 2023-6-27 13:13
+
+有运营利好事业民
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋游刃  
+##### 14262#       发表于 2023-6-27 17:57
+
+明天5周年，我在犬山推上找到了你咩的安排<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202306/27/175713s7e3fbhev8iif9i4.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230627152711.png</strong> (99.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-27 17:57 上传
+
+
+*****
+
+####  TomDu  
+##### 14263#       发表于 2023-6-27 18:16
+
+摆烂是这样的
+
+
+*****
+
+####  呓亘  
+##### 14264#       发表于 2023-6-27 19:04
+
+乐府能不能给点劲 好好训训这摆烂小丫头
+
+*****
+
+####  JY要塞  
+##### 14265#       发表于 2023-6-27 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">狠狠肉体营业吗
+
+
+*****
+
+####  十九号大侠  
+##### 14266#       发表于 2023-6-27 19:39
+
+为什么会是今天端午节啊
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  yywzjsw  
+##### 14267#       发表于 2023-6-27 23:06
+
+五周年快乐
+
+
+*****
+
+####  clvan_  
+##### 14268#       发表于 2023-6-27 23:13
+
+五周年快乐
+
+
+*****
+
+####  59268416  
+##### 14269#       发表于 2023-6-27 23:39
+
+五周年了
+
+
+*****
+
+####  aisakahammer  
+##### 14270#       发表于 2023-6-27 23:49
+
+一晃五年
+
+
+*****
+
+####  TiHaru  
+##### 14271#       发表于 2023-6-28 01:56
+
+20分钟才两万啊，好廉价
+
+
+*****
+
+####  办右台  
+##### 14272#       发表于 2023-6-28 09:42
+
+五周年快乐呦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  掉头学姐  
+##### 14273#       发表于 2023-6-28 11:44
+
+五周年平平淡淡
+
+*****
+
+####  lovcavil  
+##### 14274#       发表于 2023-6-28 11:51
+
+乐府是连体厨，他就等着下半年人回来开整
+
+
+*****
+
+####  呓亘  
+##### 14275#       发表于 2023-6-28 14:44
+
+一晃都五年了，十年之约过半了都
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  gongge666  
+##### 14276#       发表于 2023-6-28 15:39
+
+钱赚了，偶像也当了，接下来的5年目标应该就是找个靠谱帅气的牛郎嫁了，她这一生也算完美了
+
+
+*****
+
+####  往世雷书  
+##### 14277#       发表于 2023-6-28 15:58
+
+本来觉得22岁嫁人太早，但如果不搞事业的话早点嫁也行，又一想婚姻大事不能轻易决定，就替她患得患失起来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  专业划水人员  
+##### 14278#       发表于 2023-6-28 18:30
+
+今年不发歌？
+
+
+*****
+
+####  yywzjsw  
+##### 14279#       发表于 2023-6-28 19:20
+
+不知道会不会连续发3首
+
+
+*****
+
+####  yanghaozhend  
+##### 14280#       发表于 2023-6-28 20:36
+
+5周年おめでとう
+
+
+*****
+
+####  -MUON-  
+##### 14281#       发表于 2023-6-28 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">不知不觉五年了啊~ 真快呢··· 
+
+
+*****
+
+####  yywzjsw  
+##### 14282#       发表于 2023-6-28 21:32
+
+艹出专辑了
+
+
+*****
+
+####  掉头学姐  
+##### 14283#       发表于 2023-6-28 21:42
+
+尽然搞第二次见面会
+
+
+*****
+
+####  TomDu  
+##### 14284#       发表于 2023-6-28 21:43
+
+好好好
+
+*****
+
+####  专业划水人员  
+##### 14285#       发表于 2023-6-28 21:44
+
+ 本帖最后由 专业划水人员 于 2023-6-28 21:52 编辑 
+
+。。。。。
+
+*****
+
+####  Dualist彩  
+##### 14286#       发表于 2023-6-28 21:48
+
+大的太多了，舒服舒服
+
+
+*****
+
+####  路人庚  
+##### 14287#       发表于 2023-6-28 22:23
+
+这mv最后一个分镜就是爱啊（
+
+
+*****
+
+####  makourisu-2  
+##### 14288#       发表于 2023-6-28 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  甘栗No.007  
+##### 14289#       发表于 2023-6-28 22:46
+
+买<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  十九号大侠  
+##### 14290#       发表于 2023-6-28 23:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiHaru  
+##### 14291#       发表于 2023-6-28 23:06
+
+神乐老师的漫画第三部叫变态代理
+
+
+*****
+
+####  往世雷书  
+##### 14292#       发表于 2023-6-28 23:14
+
+买买买，我已经准备卖房子买了<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  TiHaru  
+##### 14293#       发表于 2023-6-28 23:19
+
+三年前的今天是赤坂第一次在直播中出声
+
+
+*****
+
+####  KL25001  
+##### 14294#       发表于 2023-6-28 23:31
+
+cd曲之后会上itunes么，我记得之前几首原创曲是上了的
+
+
+*****
+
+####  Mikumiku831  
+##### 14295#       发表于 2023-6-28 23:37
+
+五年了也才22<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  掉头学姐  
+##### 14296#       发表于 2023-6-29 00:15
+
+还有日本财布弄铁塔应援啊，还挺好看的
+
+
+*****
+
+####  Mikumiku831  
+##### 14297#       发表于 2023-6-29 00:30
+
+进来会限就在啃泡面 必debu
+
+
+*****
+
+####  TiHaru  
+##### 14298#       发表于 2023-6-29 11:09
+
+脸像游乐园到底是怎么一种比喻
+
+
+*****
+
+####  JY要塞  
+##### 14299#       发表于 2023-6-29 11:16
+
+暗示大饼脸
+
+
+*****
+
+####  十九号大侠  
+##### 14300#       发表于 2023-6-29 14:43
+
+这个8月18，双推流
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  往世雷书  
+##### 14301#       发表于 2023-6-29 15:12
+
+游乐园让人流连忘返
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  专业划水人员  
+##### 14302#       发表于 2023-6-29 15:19
+
+表情丰富
+
+
+*****
+
+####  ashero  
+##### 14303#       发表于 2023-6-29 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61475522&amp;ptid=2018830" target="_blank">TiHaru 发表于 2023-6-29 11:09</a>
+
+脸像游乐园到底是怎么一种比喻</blockquote>
+面部肌肉超灵活？
+
+
+*****
+
+####  Sleipnirω  
+##### 14304#       发表于 2023-6-29 17:34
+
+灰青听了几次，感觉伴奏有点大声了，但是曲绘是真的好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  矛盾的结晶体  
+##### 14305#       发表于 2023-6-29 19:39
+
+还没来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  掉头学姐  
+##### 14306#       发表于 2023-6-29 19:42
+
+总是喜欢犯这种错，真是小屁孩，啥时候被社会毒打下
+
+
+*****
+
+####  呓亘  
+##### 14307#       发表于 2023-6-29 20:05
+
+服了这人 一点谱都不靠 我等着她狠狠摔跟头那天
+
+
+*****
+
+####  yywzjsw  
+##### 14308#       发表于 2023-6-29 20:15
+
+我还以为记错日期了，原来不是我问题
+
+*****
+
+####  Sleipnirω  
+##### 14309#       发表于 2023-6-29 20:21
+
+还不来，洗澡去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dualist彩  
+##### 14310#       发表于 2023-6-29 20:35
+
+唉，不上心
+
+
+*****
+
+####  呓亘  
+##### 14311#       发表于 2023-6-29 20:40
+
+昨天刚夸过她 真是的
+
+*****
+
+####  JY要塞  
+##### 14312#       发表于 2023-6-29 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经典复刻，可惜现在连炎上都没人炎了，凉得透彻
+
+
+*****
+
+####  路人庚  
+##### 14313#       发表于 2023-6-29 21:00
+
+睡过头也是从侧面证明府子哥大手管不到你咩（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aisakahammer  
+##### 14314#       发表于 2023-6-29 21:07
+
+本来准备跑步的时候听，结果跑完回家洗好澡都
+
+
+*****
+
+####  -MUON-  
+##### 14315#       发表于 2023-6-29 21:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">令人安心的迟到，想打羊屁股
+
+
+*****
+
+####  呓亘  
+##### 14316#       发表于 2023-6-29 21:30
+
+看直播间 好像是因为加班太多太累了？
+
+
+*****
+
+####  十九号大侠  
+##### 14317#       发表于 2023-6-29 23:04
+
+又放鸽子
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  十九号大侠  
+##### 14318#       发表于 2023-6-30 11:39
+
+云顶
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  秋游刃  
+##### 14319#       发表于 2023-6-30 13:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  呓亘  
+##### 14320#       发表于 2023-6-30 22:59
+
+这人咋这么喜欢拳头出的游戏？
+
+
+*****
+
+####  息衍  
+##### 14321#       发表于 2023-6-30 23:48
+
+ 你想想那些中年暴白，更老点的喜欢砍传奇页游的
+
+
+*****
+
+####  Dualist彩  
+##### 14322#       发表于 2023-7-1 07:48
+
+现充是这样的，唉，交际花
+
+
+*****
+
+####  往世雷书  
+##### 14323#       发表于 2023-7-1 08:55
+
+咋又起这个话头了
+
+<img src="https://img.saraba1st.com/forum/202307/01/085548bwo5eg56eus6gv98.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230701_085513_com.koalcat.s1_edit_167157022003629.jpg</strong> (322.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-1 08:55 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  clvan_  
+##### 14324#       发表于 2023-7-1 11:38
+
+就直播那两三个小时就别定性别人生活了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话真自闭也不会去玩强社交游戏
+
+
+*****
+
+####  往世雷书  
+##### 14325#       发表于 2023-7-1 11:49
+
+她做的事和其他管人做的没什么区别，自闭社恐的管人也不见得社交活动比她少了，单拿出来强调她现充没必要
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  病態極端  
+##### 14326#       发表于 2023-7-1 12:09
+
+在那個年齡那種社會染那種顏色的頭髮，不是現充就是地雷。
+
+
+*****
+
+####  秋游刃  
+##### 14327#       发表于 2023-7-1 13:00
+
+倒不如说，在不知道直播外什么样的情况下，要怎么确定她是不是现充。
+
+
+*****
+
+####  记莫更寂寞  
+##### 14328#       发表于 2023-7-1 14:26
+
+答案是她每天都在和我doi，没空现充
+
+
+*****
+
+####  JY要塞  
+##### 14329#       发表于 2023-7-1 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">那么多野男人还不现充
+
+
+*****
+
+####  gongge666  
+##### 14330#       发表于 2023-7-1 15:56
+
+我觉得她要是现充也不会一年到头围着犬山联动了，感觉相比最初她自闭了很多
+
+
+*****
+
+####  往世雷书  
+##### 14331#       发表于 2023-7-1 18:00
+
+直接加noripro得了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Dualist彩  
+##### 14332#       发表于 2023-7-1 20:29
+
+说说自闭社恐管人，给楼友鉴定下是否rp
+
+
+*****
+
+####  鷹書たかしょ  
+##### 14333#       发表于 2023-7-1 23:54
+
+好久没上S1，翻了翻就有麻图看，开心<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|欢乐多|
+
+查看全部评分
+
+
+*****
+
+####  雪风utopia  
+##### 14334#       发表于 2023-7-4 19:23
+
+麻图？哪里有麻图<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102K1C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  上坂蓮華  
+##### 14335#       发表于 2023-7-6 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上家好会喂牌
+
+
+*****
+
+####  TiHaru  
+##### 14336#       发表于 2023-7-6 20:42
+
+[https://youtu.be/rjGrTGx8zVQ](https://youtu.be/rjGrTGx8zVQ)
+
+咩啊应该也是这种吧
+
+
+*****
+
+####  受菊  
+##### 14337#       发表于 2023-7-6 23:34
+
+咋听着像是要自己去CM参展一样
+
+
+*****
+
+####  gongge666  
+##### 14338#       发表于 2023-7-7 09:40
+
+委托别人不代表自己不会去，甚至有可能在空闲的时候去摊位跟委托交流一下
+
+*****
+
+####  往世雷书  
+##### 14339#       发表于 2023-7-7 10:05
+
+她说话声音不会被听出来吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  clvan_  
+##### 14340#       发表于 2023-7-7 10:46
+
+别想太多了，你麻就算去逛cm也不会明晃晃的。在自己摊位交流那和广而告之没啥区别了，最多在哪个角落窥视一下，然后回来杂谈吐吐槽啥的。
+
+
+*****
+
+####  JY要塞  
+##### 14341#       发表于 2023-7-7 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该去抓麻了
+
+
+*****
+
+####  秋游刃  
+##### 14342#       发表于 2023-7-7 12:09
+
+总而言之,摊位附近如果出现身高170，体重140靠上的女性，那多留意一下就对了。
+
+
+*****
+
+####  息衍  
+##### 14343#       发表于 2023-7-7 12:20
+
+摊位附近如果出现身高140，体重170靠上的女性，那多留意一下就对了。
+
+
+*****
+
+####  呓亘  
+##### 14344#       发表于 2023-7-7 12:27
+
+小麻不要被特定啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 14345#       发表于 2023-7-7 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61584084&amp;ptid=2018830" target="_blank">呓亘 发表于 2023-7-7 12:27</a>
+小麻不要被特定啊丑女小麻在摊位上被特定，导致粉丝大量流失，这样的未来我不要啊 ...</blockquote>
+我也想到了这个结局
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Cushaw  
+##### 14346#       发表于 2023-7-7 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61584084&amp;ptid=2018830" target="_blank">呓亘 发表于 2023-7-7 12:27</a>
+小麻不要被特定啊丑女小麻在摊位上被特定，导致粉丝大量流失，这样的未来我不要啊 ...</blockquote>
+为什么不能是小美女<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  专业划水人员  
+##### 14347#       发表于 2023-7-8 14:35
+
+因为线下过的都没夸过她是美女（
+
+*****
+
+####  gongge666  
+##### 14348#       发表于 2023-7-8 14:40
+
+说一个女孩可爱就跟说一个男人老实一样<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">偏偏所有人对她的评价都只有可爱
+
+
+*****
+
+####  往世雷书  
+##### 14349#       发表于 2023-7-8 15:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JY要塞  
+##### 14350#       发表于 2023-7-8 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有楼友不愿接受现实
+
+
+*****
+
+####  秋游刃  
+##### 14351#       发表于 2023-7-8 17:15
+
+长相评价只有可爱有点尬黑了，明明还有有趣。
+
+
+*****
+
+####  往世雷书  
+##### 14352#       发表于 2023-7-8 18:14
+
+ 本帖最后由 往世雷书 于 2023-7-8 18:18 编辑 
+
+有画面了：
+线下见面，大吃一惊，欲言又止，绞尽脑汁，还挺可爱，很有礼貌，非常有趣
+以前人们说她和观众看到的不一样，反差很大，原来大家都理解成线上屑线下鉴，现在可以解读为真人和皮差距太大<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  呓亘  
+##### 14353#       发表于 2023-7-8 19:55
+
+说不定小麻已经整容成大美女了，这次BW就是为了故意颜出，吸引肉体厨，开启事业第二春<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  掉头学姐  
+##### 14354#       发表于 2023-7-8 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61599065&amp;ptid=2018830" target="_blank">呓亘 发表于 2023-7-8 19:55</a>
+说不定小麻已经整容成大美女了，这次BW就是为了故意颜出，吸引肉体厨，开启事业第二春 ...</blockquote>
+你以为是lulu吗
+
+
+*****
+
+####  十九号大侠  
+##### 14355#       发表于 2023-7-8 20:20
+
+小麻估计小整了，我见过
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  TiHaru  
+##### 14356#       发表于 2023-7-8 21:43
+
+uimm的最新评价：脸像游乐场
+
+
+*****
+
+####  矛盾的结晶体  
+##### 14357#       发表于 2023-7-8 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  呓亘  
+##### 14358#       发表于 2023-7-8 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600337&amp;ptid=2018830" target="_blank">TiHaru 发表于 2023-7-8 21:43</a>
+ uimm的最新评价：脸像游乐场</blockquote>
+是说脸盘大得像摩天轮吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋游刃  
+##### 14359#       发表于 2023-7-9 11:41
+
+她对CM那么紧张…难道要玩反套路，大家都以为摊位上是委托的代理，但其实那就是小麻本人！
+
+
+*****
+
+####  往世雷书  
+##### 14360#       发表于 2023-7-9 11:50
+
+真人出摊不会有结束后被跟踪到家的风险吗，还是说仗着臭底边为所欲为？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  掉头学姐  
+##### 14361#       发表于 2023-7-9 11:55
+
+臭底边是这样的
+
+
+*****
+
+####  秋游刃  
+##### 14362#       发表于 2023-7-9 12:02
+
+她以前又不是没参加过线下live，不过我也就随便一说，还是在现场寻找170的女性靠谱。
+
+
+*****
+
+####  Cushaw  
+##### 14363#       发表于 2023-7-9 12:18
+
+直接穿痛衣不是更好？不怕她没有情绪变化<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  呓亘  
+##### 14364#       发表于 2023-7-9 13:13
+
+不如直接找几个池面在摊位附近转悠，发花痴的就是
+
+
+*****
+
+####  yywzjsw  
+##### 14365#       发表于 2023-7-10 08:55
+
+不如找扎堆的女粉，说不定你麻就伪装在里面
+
+
+*****
+
+####  qigeer  
+##### 14366#       发表于 2023-7-10 10:50
+
+这就去线下逮捕
+
+
+*****
+
+####  记莫更寂寞  
+##### 14367#       发表于 2023-7-10 11:23
+
+希望楼友们最好不是只说不做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  路人庚  
+##### 14368#       发表于 2023-7-10 16:09
+
+这壁纸，两眼一闭衣服一换，你咩姐要素全无啊（
+
+*****
+
+####  TiHaru  
+##### 14369#       发表于 2023-7-10 16:14
+
+啊？以前有发吗
+
+*****
+
+####  JY要塞  
+##### 14370#       发表于 2023-7-10 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61615065&amp;ptid=2018830" target="_blank">记莫更寂寞 发表于 2023-7-10 11:23</a>
+希望楼友们最好不是只说不做</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友行动力但凡有口嗨的十分之一，你麻现在都该变成楼友星怒了
+
+
+*****
+
+####  秋游刃  
+##### 14371#       发表于 2023-7-10 17:17
+
+ 本帖最后由 秋游刃 于 2023-7-10 17:19 编辑 
+
+发饰还在，壁纸不错啊，还挺可爱的，比我想象中要好。
+
+
+*****
+
+####  thisisaspider  
+##### 14372#       发表于 2023-7-10 20:55
+
+我只能说太瑟勒 幸福<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 又可以推一年了
+
+
+*****
+
+####  yywzjsw  
+##### 14373#       发表于 2023-7-12 11:01
+
+艹才发现**和fanbox的是差分
+
+
+*****
+
+####  TiHaru  
+##### 14374#       发表于 2023-7-13 21:34
+
+<img src="https://img.saraba1st.com/forum/202307/13/213351jext8c5wbbrbb55d.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4022.png</strong> (56.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202307/13/213352du3g3vl3bkpmva31.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4023.png</strong> (60.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 21:33 上传
+
+
+*****
+
+####  makourisu-2  
+##### 14375#       发表于 2023-7-13 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61652828&amp;ptid=2018830" target="_blank">TiHaru 发表于 2023-7-13 21:34</a></blockquote>
+这位是？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  秋游刃  
+##### 14376#       发表于 2023-7-13 22:20
+
+U1
+
+
+*****
+
+####  秋游刃  
+##### 14377#       发表于 2023-7-13 22:55
+
+久违的长杂谈，还是有点意犹未尽。
+
+
+*****
+
+####  JY要塞  
+##### 14378#       发表于 2023-7-14 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61652828&amp;ptid=2018830" target="_blank">TiHaru 发表于 2023-7-13 21:34</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也看不出说的是你麻啊
+
+
+*****
+
+####  TomDu  
+##### 14379#       发表于 2023-7-14 00:59
+
+什么时候发的 上下文是什么<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  往世雷书  
+##### 14380#       发表于 2023-7-14 06:42
+
+有饼吃？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋游刃  
+##### 14381#       发表于 2023-7-14 11:55
+
+U1这个是昨晚发的，不知道咋回事，突然感慨起来。
+
