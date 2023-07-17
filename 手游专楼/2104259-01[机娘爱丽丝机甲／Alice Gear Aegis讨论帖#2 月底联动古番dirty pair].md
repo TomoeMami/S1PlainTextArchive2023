@@ -4705,3 +4705,69 @@ fa狗子和老婆楓怎么不复刻一下
 
 是时候复刻fa狗子吾妻了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">我40票
 
+*****
+
+####  不灭的旋律  
+##### 568#       发表于 2023-7-13 23:28
+
+海老川说AN奈奈的战斗服设计是和AN装备配套的，催更奈奈的AN装备。问题是你游前半年角色的AN装备都没出齐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 569#         楼主| 发表于 2023-7-13 23:33
+
+神婆的分支步枪很可以啊，完全改变了机体原来的郁闷感。SP的大剑和动作也很帅
+
+
+*****
+
+####  杂灰  
+##### 570#       发表于 2023-7-14 00:28
+
+虾川设计**战斗服的水平大有进步 特别是跟机设方面的进步比<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">除了两侧以外一片黑的情况下中间一个肉色的洞，虾川你之前xp有这么过激的吗
+
+
+*****
+
+####  冰风血羽  
+##### 571#       发表于 2023-7-14 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">存的最后黄票票总算娶回来了，换上婚纱往那一站真是美丽
+
+
+*****
+
+####  孫光龍  
+##### 572#       发表于 2023-7-14 07:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽奖动画准的时候不多，一般蓝底vice出现的时候
+往往会歪
+
+
+*****
+
+####  yygundam  
+##### 573#       发表于 2023-7-14 16:51
+
+我全蓝都出过货，确定演出动画就是图一乐（
+
+
+*****
+
+####  ushas  
+##### 574#       发表于 2023-7-14 21:58
+
+[https://www.bilibili.com/video/BV1ZV411T75o](https://www.bilibili.com/video/BV1ZV411T75o)
+
+神婆这分支四舍五入等于29的AN狙了，配合新给的增伤buf，可谓凤凰涅槃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 575#       发表于 2023-7-14 22:08
+
+我想知道为什么有时候我10连下去连三星都没抽到
+
