@@ -1384,3 +1384,104 @@ fes全图鉴了嘛？羡慕</blockquote>
 
 安娜每年都挺高的，有钱有命才能去碰一碰
 
+*****
+
+####  花开安菲路  
+##### 7184#       发表于 2023-7-12 18:58
+
+摸鱼玩家的周年活动已经结束咧，
+
+犯了去年同样的错，摸了60多W杏奈1000位都没有，忘记换成其它偶像摸个黄牌了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+周年曲打了135W分，最后两天掉出5000名了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然也都没什么所谓，
+
+好消息是，活动最后一天嫖到马尾静香了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7185#       发表于 2023-7-12 19:16
+
+翼的1000名居然还没30w，今年这么低了
+
+本来准备摸的，看到有自定义称号顺便就拿一拿，每天清完次数刚刚好
+
+去年是真的摸了，拿完卡打几拳凑够觉醒就没动
+
+升级任务到时看看会怎样简化
+
+
+*****
+
+####  花开安菲路  
+##### 7186#       发表于 2023-7-13 12:03
+
+今年三限定奖励输麻了，
+<img src="https://p.sda1.dev/12/9505c65901bb9358353c757f38d1089e/CMP_20230713120102786.jpg" referrerpolicy="no-referrer">
+水着未来，猫猫桃子，祭典莉绪，全是普通老限定<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+我想要发型发色fes啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cckuku  
+##### 7187#       发表于 2023-7-13 12:52
+
+我出了一个艾米丽的发色卡，一个重复的紬紬泳装，还有一个nao，感觉没啥惊喜。
+
+
+*****
+
+####  しろの舞  
+##### 7188#       发表于 2023-7-13 13:01
+
+正式实装MS2，这下期待的曲子更多了
+
+
+*****
+
+####  BQlin  
+##### 7189#       发表于 2023-7-13 13:05
+
+ 本帖最后由 BQlin 于 2023-7-13 13:07 编辑 
+
+hibiki ayumu takane
+
+看画风和技能还是古早时期的卡，还不如给几个石头
+
+查了下全是18年的，梦回二周年是吧
+
+*****
+
+####  natmk  
+##### 7190#       发表于 2023-7-13 13:12
+
+一张重复的 两张老限定 今年运气全用去白嫖了美奈子和静静都出了
+
+
+*****
+
+####  屈江鸟  
+##### 7191#       发表于 2023-7-13 22:27
+
+SHS白嫖只出了个新惠美，不过券出了贵音和雪步的异色，不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7192#       发表于 2023-7-15 14:09
+
+好像就改了下一键升三星，开四星还是要跳转过去发型那边，居然还不优化一下效率
+
+
+*****
+
+####  花开安菲路  
+##### 7193#       发表于 2023-7-15 17:02
+
+今年周年服超喜欢，彩色设计简洁又亮眼，可爱又有传统偶像制服感，过去的周年服有点用力过度，显得稍微另类了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
