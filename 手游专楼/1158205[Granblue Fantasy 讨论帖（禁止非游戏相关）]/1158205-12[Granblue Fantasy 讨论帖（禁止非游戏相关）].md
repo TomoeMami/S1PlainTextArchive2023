@@ -1638,3 +1638,70 @@ JB比较复杂，总之是准备这次泳装月中下个一两井再砸光老王
 每天打满一车蓝箱加混主放共斗，到现在为止，不够一次终突的很多，不出一次沙漏的只剩我了 ...</blockquote>
 这高难被你打成六龙概率
 
+*****
+
+####  江戸前ルナ  
+##### 17390#       发表于 2023-7-15 18:25
+
+ 本帖最后由 江戸前ルナ 于 2023-7-15 18:29 编辑 
+
+可能火属性真的杀过KMR的妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+纯打手，几乎没任何团队性能。坏女人1技能奥义发动而不是奥义冷却，也就是打完奥义后只有一回合BUFF。跟在银姐身后可能会好些，但是还会自己降防确定要跟火龙竞争？更别说作为平A选手要打奥义暖机还没防驱散<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">回想起暗出新打手都起码能让人去试试梅塔比比能不能踢6<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+虽然直球女同不错，但性能设计明显要配的是银姐或平A盘而不是技伤盘子的雅典娜<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DDWarrior  
+##### 17391#       发表于 2023-7-15 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672868&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2023-7-15 18:25</a>
+可能火属性真的杀过KMR的妈
+
+纯打手，几乎没任何团队性能。坏女人1技能奥义发动而不是奥义冷却，也 ...</blockquote>
+别慌，土属性玩家已经退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  はちたや  
+##### 17392#       发表于 2023-7-16 00:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你要抱怨季限强度干脆说福原只玩暗得了，没必要拿火当盾啊
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17393#       发表于 2023-7-16 06:24
+
+土属性季限（指野蛮神话）
+
+
+*****
+
+####  Sylpheed  
+##### 17394#       发表于 2023-7-16 09:37
+
+这两年夏泳前两批不都这吊样，最强的还是涂鸦，而且也没刺客级别的了，只能说放宽心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  zhwpjy  
+##### 17395#       发表于 2023-7-16 13:00
+
+涩就行了 要啥自行车
+
+
+*****
+
+####  kobushi  
+##### 17396#       发表于 2023-7-16 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">怎么又遇到无限登出的bug了
+
