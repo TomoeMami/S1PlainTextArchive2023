@@ -3676,3 +3676,12 @@ TV出啥</blockquote>
 现在主要担心的还是成田这个身体。
 
 
+*****
+
+####  马肉刺身  
+##### 353#       发表于 2023-7-16 21:10
+
+闪恩对战好中二，好羞耻<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
