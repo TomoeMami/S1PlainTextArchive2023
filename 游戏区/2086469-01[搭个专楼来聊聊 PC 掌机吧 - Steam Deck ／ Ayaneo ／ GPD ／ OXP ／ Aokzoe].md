@@ -2595,3 +2595,18 @@ steamdeck现在体验说得过去纯粹是更新时间长，刚出的时候体�
 
 —— 来自 samsung SM-F9360, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  bypass  
+##### 792#         楼主| 发表于 2023-7-17 16:00
+
+Slide 也要开始宣发了。
+
+<img src="https://img.saraba1st.com/forum/202307/17/160035dvvpt5vv2amm552p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-17 16:00 上传
+
