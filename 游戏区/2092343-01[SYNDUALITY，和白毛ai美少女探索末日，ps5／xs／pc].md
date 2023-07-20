@@ -839,3 +839,219 @@ ttps://www.4gamer.net/games/657/G065720/20230330082/
 
 音乐se味好重，可以代尼尔3了
 
+*****
+
+####  医生狼多  
+##### 100#         楼主| 发表于 2023-7-16 00:35
+
+本来我还以为今年sop或者万代展会有消息的，结果啥都没有，感觉难产了
+
+
+*****
+
+####  siriii  
+##### 101#       发表于 2023-7-17 17:28
+
+动画第一集看了感觉还不错……按说应该是想动画完结无缝衔接游戏发售？要不然等动画播完半年再卖还有个锤子热度。
+
+
+*****
+
+####  Evomenon  
+##### 102#       发表于 2023-7-17 17:38
+
+关键它游戏又是前传，很迷<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+别告诉我，动画是xb2，面具男是游戏男主，然后游戏是黄金国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Evomenon  
+##### 83#       发表于 2023-7-15 10:26
+
+游戏啥时候发售啊，动画看着还行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 84#       发表于 2023-7-15 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58700224&amp;ptid=2092343" target="_blank">jerryoq1 发表于 2022-12-1 02:53</a>
+
+竟然还有动画
+
+财团B上一个白毛红瞳女主 动画和游戏一起搞得叫</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绯红结系不是挺好的 虽然动画没一点意思
+
+
+*****
+
+####  格雷殿下  
+##### 85#       发表于 2023-7-15 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好想开高达，好急
+
+
+*****
+
+####  千千千千鸟  
+##### 86#       发表于 2023-7-15 13:36
+
+如果按绯红结息的套路动画游戏只有一边能做好的话，动画目前感觉不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  highsky  
+##### 87#       发表于 2023-7-15 16:36
+
+动画看着还不错
+
+游戏pv看着天雷滚滚
+
+
+*****
+
+####  Tring  
+##### 88#       发表于 2023-7-15 17:26
+
+ 本帖最后由 Tring 于 2023-7-15 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61635307&amp;ptid=2092343" target="_blank">diectt 发表于 2023-7-12 09:47</a>
+
+同一世界观，动画是2242年，游戏是2222年，动画是游戏的后日谈
+
+按照目前动画的表现，这个AI是有身体能谈 ...</blockquote>
+居然先行后日谈，这是什么脑缺思路？
+
+现在只希望动画至少能做完整，别整个欲知前文去玩游戏了。
+
+
+*****
+
+####  Marro  
+##### 89#       发表于 2023-7-15 17:51
+
+<blockquote>Tring 发表于 2023-7-15 17:26
+居然先行后日谈，这是什么脑缺思路？
+
+现在只希望动画至少能做完整，别整个欲知前文去玩游戏了。
+</blockquote>
+游戏和动画就是两个载体，不这么整怎么整，游戏改的动画或动画的游戏改都挺垃圾的
+
+
+*****
+
+####  Tring  
+##### 90#       发表于 2023-7-15 18:00
+
+ 本帖最后由 Tring 于 2023-7-15 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672580&amp;ptid=2092343" target="_blank">Marro 发表于 2023-7-15 17:51</a>
+
+游戏和动画就是两个载体，不这么整怎么整，游戏改的动画或动画的游戏改都挺垃圾的 ...</blockquote>
+我的意思不该<strong>先</strong>出<strong>后</strong>日谈。
+
+最糟的情况，剧情整个不明不白，还要等着靠个还没发售的玩意去补，就蠢得不行。
+
+
+*****
+
+####  Marro  
+##### 91#       发表于 2023-7-15 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672668&amp;ptid=2092343" target="_blank">Tring 发表于 2023-7-15 18:00</a>
+
+我的意思不该先出后日谈。
+
+最糟的情况，剧情整个不明不白，还要等着靠个还没发售的玩意去补，就蠢得不行 ...</blockquote>
+大概率吧，动画做的差不多然后让你去整前作补，不然他这时间设定不是多此一举吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Geyorkias  
+##### 92#       发表于 2023-7-15 18:10
+
+所以代哥这游戏今年还能出吗？
+
+
+*****
+
+####  Tring  
+##### 93#       发表于 2023-7-15 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672701&amp;ptid=2092343" target="_blank">Marro 发表于 2023-7-15 18:05</a>
+
+大概率吧，动画做的差不多然后让你去整前作补，不然他这时间设定不是多此一举吗。 ...</blockquote>
+所以说这做法就很抽。
+
+自古前传后出的作品，都有一个共性，
+
+就是必须有一个完整立得住的本篇支撑，才有可能出靠谱的前传。
+
+不过现在批判完整性还是虚空打靶，
+
+只能说希望别就想着拍个广告片。
+
+
+*****
+
+####  pf67  
+##### 94#       发表于 2023-7-15 21:19
+
+ 本帖最后由 pf67 于 2023-7-15 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672395&amp;ptid=2092343" target="_blank">Tring 发表于 2023-7-15 17:26</a>
+居然先行后日谈，这是什么脑缺思路？
+
+现在只希望动画至少能做完整，别整个欲知前文去玩游戏了。</blockquote>
+这种作法不是很常见么
+
+比如火纹封印之剑先出，后面续作是前传的烈火之剑
+
+谭游2-3的dlc不也都是前传
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TriSPD  
+##### 95#       发表于 2023-7-15 21:23
+
+谁要开马桶啊
+
+
+*****
+
+####  lmclmc2  
+##### 96#       发表于 2023-7-15 22:15
+
+看了第一集想立即购入游戏，结果怎么是动画先行的后日谈，何意啊代哥
+
+
+*****
+
+####  Tring  
+##### 97#       发表于 2023-7-15 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61674991&amp;ptid=2092343" target="_blank">pf67 发表于 2023-7-15 21:19</a>
+
+这种作法不是很常见么
+
+比如火纹封印之剑先出，后面续作是前传的烈火之剑</blockquote>
+就像我上面说的，后出前传，必须先出的本篇能立得起来。
+
+
+*****
+
+####  火焰的攻击  
+##### 98#       发表于 2023-7-15 23:57
+
+主要是看角色渲染风格，现在动画建立的好感挪不到游戏上，不说别的，动画多少女角色，游戏多少，我是毫无信心的。
+
+*****
+
+####  koodooliz  
+##### 99#       发表于 2023-7-16 00:02
+
+算是bnei的多媒体企划，按官网动画和游戏是同等的……你也不能叫他单纯的游戏改
+但重点还是放在游戏上吧，可是游戏又没新消息。
+
+
