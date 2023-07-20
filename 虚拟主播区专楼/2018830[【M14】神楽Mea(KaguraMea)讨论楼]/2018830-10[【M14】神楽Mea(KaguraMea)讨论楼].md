@@ -8184,3 +8184,90 @@ U1
 
 U1这个是昨晚发的，不知道咋回事，突然感慨起来。
 
+*****
+
+####  TiHaru  
+##### 14382#       发表于 2023-7-17 18:00
+
+录的好敷衍啊，b站就该这个待遇
+
+*****
+
+####  十九号大侠  
+##### 14383#       发表于 2023-7-17 18:06
+
+b站也是有粉丝的
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  yywzjsw  
+##### 14384#       发表于 2023-7-17 18:18
+
+为什么爱v
+
+
+*****
+
+####  Homuxus  
+##### 14385#       发表于 2023-7-17 19:11
+
+啊这  我上上个月舰长礼物到了居然是个空盒子_(:з」∠)_这该找谁反应一下(눈_눈)
+
+
+*****
+
+####  -MUON-  
+##### 14386#       发表于 2023-7-17 19:15
+
+麻！草！怎么又来这套
+
+
+*****
+
+####  路人庚  
+##### 14387#       发表于 2023-7-17 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61697160&amp;ptid=2018830" target="_blank">Homuxus 发表于 2023-7-17 19:11</a>
+
+啊这  我上上个月舰长礼物到了居然是个空盒子_(:з」∠)_这该找谁反应一下(눈_눈) ...</blockquote>
+阿b客服吧
+
+*****
+
+####  planetcd  
+##### 14388#       发表于 2023-7-17 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">咩咩怎么没穿过新衣服来B限
+
+
+*****
+
+####  十九号大侠  
+##### 14389#       发表于 2023-7-17 20:25
+
+这么快吗，经典一个小时
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  掉头学姐  
+##### 14390#       发表于 2023-7-17 20:29
+
+切割，b站真不熟
+
+
+*****
+
+####  ashero  
+##### 14391#       发表于 2023-7-18 01:25
+
+ 本帖最后由 ashero 于 2023-7-18 01:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61697651&amp;ptid=2018830" target="_blank">planetcd 发表于 2023-7-17 20:00</a>
+
+咩咩怎么没穿过新衣服来B限</blockquote>
+两个都用过 只是用得少
+
