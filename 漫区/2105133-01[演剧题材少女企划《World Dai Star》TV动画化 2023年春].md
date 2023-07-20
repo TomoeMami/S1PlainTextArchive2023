@@ -13865,3 +13865,28 @@ https://www.bilibil ...</blockquote>
 
 手游只有日服么？剧中剧什么时候出？
 
+*****
+
+####  蒜灵  
+##### 1134#       发表于 2023-7-17 10:23
+
+有没有n1大佬说一下手游剧情都有啥？
+
+
+*****
+
+####  rosental  
+##### 1135#       发表于 2023-7-17 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61690701&amp;ptid=2105133" target="_blank">蒜灵 发表于 2023-7-17 10:23</a>
+有没有n1大佬说一下手游剧情都有啥？</blockquote>
+这周才上线，还没出<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ピちゃン  
+##### 1136#       发表于 2023-7-17 19:08
+
+b站上，有人在翻译手游各团的第一话剧情
+
