@@ -6174,3 +6174,149 @@ c9那边是不是还在因为原友搞投票，阿电过去的条件是踢原友
 还有传言说电觉得自己在navi被教练限制指挥得不爽的</blockquote>
 虽然我觉得blade搞足球体系那套确实不合理，但是电式指挥这半年下来不就是把把被各路丹麦指挥在开局40s左右时间的中期指令环节爆掉，这也不涉及体系问题，和原友便秘也就不分伯仲。步枪手指挥转明白的其实也就豆豆一个人，楼里还老黑。
 
+*****
+
+####  拉萨乌姆  
+##### 3824#       发表于 2023-7-13 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">草，Elige剃了个光头
+
+
+*****
+
+####  那由  
+##### 3825#       发表于 2023-7-14 21:03
+
+小李子这又钢又指挥太吓人了，什么时候度过蜜月期小森开始涡轮增压啊
+
+
+*****
+
+####  zpl123  
+##### 3826#       发表于 2023-7-15 11:26
+
+看了下科隆分组 g2 faze navi 小蜜蜂一组阿
+
+
+*****
+
+####  heseran  
+##### 3827#       发表于 2023-7-15 18:42
+
+液体对G2申请互动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">疯狂鞭尸小孩
+
+
+*****
+
+####  heseran  
+##### 3828#       发表于 2023-7-15 20:26
+
+ 本帖最后由 heseran 于 2023-7-15 20:28 编辑 
+
+Niko这个图二好他妈猛，比队内第二加第五杀的都多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3829#       发表于 2023-7-15 22:17
+
+G2又choke了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恶搞之王  
+##### 3830#       发表于 2023-7-15 22:46
+
+col被打麻了，好惨
+
+
+*****
+
+####  Robakey  
+##### 3831#       发表于 2023-7-16 21:59
+
+im什么顶级major昙花一现 最大泡沫？意识另说，怎么连枪法都这么变形啊
+
+
+*****
+
+####  andychen  
+##### 3832#       发表于 2023-7-16 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61686289&amp;ptid=1857369" target="_blank">Robakey 发表于 2023-7-16 21:59</a>
+
+im什么顶级major昙花一现 最大泡沫？意识另说，怎么连枪法都这么变形啊</blockquote>
+能看出来5个人打得都不舒服
+
+等这阵容打一段时间再看吧
+
+
+*****
+
+####  dev2ce  
+##### 3833#       发表于 2023-7-16 22:31
+
+飞柱你玩不玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  etiamsheng  
+##### 3834#       发表于 2023-7-16 22:45
+
+ADR39，nb
+
+*****
+
+####  heseran  
+##### 3835#       发表于 2023-7-16 22:48
+
+换阵蜜月期呢！？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3836#       发表于 2023-7-16 22:57
+
+到底是什么让Navi放弃了独联体阵容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3837#       发表于 2023-7-16 23:15
+
+有蜜月期的一般是交流没啥问题的队伍，Navi现在队内点都不一定报的明白，等两个月吧
+
+
+*****
+
+####  andychen  
+##### 3838#       发表于 2023-7-16 23:46
+
+Navi感觉是jl和im一起玩，简单和小李子一起玩，剩下一个bit状况外
+
+
+*****
+
+####  heseran  
+##### 3839#       发表于 2023-7-16 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61687928&amp;ptid=1857369" target="_blank">andychen 发表于 2023-7-16 23:46</a>
+Navi感觉是jl和im一起玩，简单和小李子一起玩，剩下一个bit状况外</blockquote>
+B1t：你们在聊什么呀？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宝儿  
+##### 3840#       发表于 2023-7-17 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61664081&amp;ptid=1857369" target="_blank">那由 发表于 2023-7-14 21:03</a>
+
+小李子这又钢又指挥太吓人了，什么时候度过蜜月期小森开始涡轮增压啊</blockquote>
+真快吧  就一天
+
