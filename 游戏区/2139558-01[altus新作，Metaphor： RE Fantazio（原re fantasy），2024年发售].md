@@ -4770,3 +4770,20 @@ https://gouhuo.qq.com/u/t/27673N4
 
 赶紧把p6端上来吧，这个看上去就不像能扩大受众
 
+*****
+
+####  byisme001  
+##### 475#       发表于 2023-7-17 13:06
+
+这个是穿越系的还是纯异世界背景
+
+*****
+
+####  ナルバレック  
+##### 476#       发表于 2023-7-17 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61692899&amp;ptid=2139558" target="_blank">byisme001 发表于 2023-7-17 13:06</a>
+
+这个是穿越系的还是纯异世界背景</blockquote>
+目前消息量看着不是穿越类的
+
