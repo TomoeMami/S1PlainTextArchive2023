@@ -2242,3 +2242,486 @@ ed上色应该是负责上一轮solo专辑色彩的老师，这种水彩风真�
 B站找到了，谢谢
 
 
+*****
+
+####  lucky95  
+##### 192#       发表于 2023-7-9 20:02
+
+夜羽和狗各种可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  ads147147  
+##### 193#       发表于 2023-7-9 22:30
+
+冷淡女王风mari，真的是好少见，而且不知道为啥，好涩（跑
+
+好像就是水1南回的表现。下一集果南和曜回。
+
+至于本集，只能说打戏比水魔好，其他地方，好像是看昭和奥。。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  lanslort  
+##### 194#       发表于 2023-7-9 23:08
+
+上集还不错，这集就突出一个尬 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  索兰塔.织姬  
+##### 195#       发表于 2023-7-9 23:34
+
+摩托车OS界面里的露比精灵，这真的不是革命机吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wsdbyh  
+##### 196#       发表于 2023-7-9 23:50
+
+战斗场面怎么说呢，动作戏是用心了，但是敌人太普通了，完全就是大炮打蚂蚁，根本燃不起来啊
+
+
+*****
+
+####  最强惠酱  
+##### 197#       发表于 2023-7-9 23:54
+
+画面玩嗨了，这片比本家要用心好多，不过一枪一个的鹿硬是打了一串连击，我都没发现yhn战斗里吹笛有啥作用，后面说法杖干了啥有点一头雾水。
+
+yhn和鞠莉原来有这么强cp感吗，真不错<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shikiasuka  
+##### 198#       发表于 2023-7-10 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61610416&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-7-9 22:30</a>
+
+冷淡女王风mari，真的是好少见，而且不知道为啥，好涩（跑
+
+好像就是水1南回的表现。下一集果南和曜回。</blockquote>
+确实好色，尤其是那对角居然不是装饰
+
+*****
+
+####  豚厨二象性  
+##### 199#       发表于 2023-7-10 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61611985&amp;ptid=2078039" target="_blank">shikiasuka 发表于 2023-7-10 01:20</a>
+确实好色，尤其是那对角居然不是装饰</blockquote>
+夜羽没摸一把可惜了
+
+
+*****
+
+####  gundammarkⅡ  
+##### 200#       发表于 2023-7-10 02:06
+
+鞠莉是不是连性格都变了<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 201#       发表于 2023-7-10 05:53
+
+鞠莉这设定看上去已经活了N年吧 年龄三个问号那种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Delicatus545  
+##### 202#       发表于 2023-7-10 06:54
+
+这话很关键吗，怎么op就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lawsherman  
+##### 203#       发表于 2023-7-10 07:31
+
+<blockquote>索兰塔.织姬 发表于 2023-7-9 23:34
+摩托车OS界面里的露比精灵，这真的不是革命机吗？</blockquote>
+得亏不是战姬绝唱，不然露比就无了
+
+
+*****
+
+####  Goisdust  
+##### 204#       发表于 2023-7-10 09:33
+
+果然不是只有我想到了苍色骑士
+
+<img src="https://img.saraba1st.com/forum/202307/10/093219l6wl6kvkmwrk9v8p.jpg" referrerpolicy="no-referrer">
+
+<strong>螢幕擷取畫面 2023-07-10 092338.jpg</strong> (78.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-10 09:32 上传
+
+
+*****
+
+####  cmyk1234  
+##### 205#       发表于 2023-7-10 10:28
+
+ 本帖最后由 cmyk1234 于 2023-7-10 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61611165&amp;ptid=2078039" target="_blank">索兰塔.织姬 发表于 2023-7-9 23:34</a>
+摩托车OS界面里的露比精灵，这真的不是革命机吗？</blockquote>
+好像是RedBuster的伙伴机（Buddyroid）尼克。
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 206#       发表于 2023-7-10 11:25
+
+虽然假面骑士相关我只看过风都侦探，但那摩托好照井龙啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  创始’’’天翔  
+##### 207#       发表于 2023-7-10 14:41
+
+ 本帖最后由 创始’’’天翔 于 2023-7-10 14:42 编辑 
+
+这集好怪猎，轻弩太刀狩猎笛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。冲进纷争开唱，马7的既视感
+
+*****
+
+####  创始’’’天翔  
+##### 208#       发表于 2023-7-10 14:42
+
+不过鹿还是太low，换个体积大点的违和感要少得多
+
+
+*****
+
+####  Goisdust  
+##### 209#       发表于 2023-7-10 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61617388&amp;ptid=2078039" target="_blank">创始’’’天翔 发表于 2023-7-10 14:42</a>
+
+不过鹿还是太low，换个体积大点的违和感要少得多</blockquote>
+说是战斗又不能伤到对方，怎么打都别扭。希望不是考虑到偶像要避免暴力场景才做成这样的，不然这样要演一季真的好蠢
+
+
+*****
+
+####  没有爱就看不见  
+##### 210#       发表于 2023-7-10 15:20
+
+战斗方面确实尬，夜羽见鞠莉虽然挺样板戏的但是架不住冷淡低防魔王鞠莉有点新鲜，特别是想到原版是个天天操着奇怪口音虾泥的家伙
+
+
+*****
+
+####  一个陆仁贾  
+##### 211#       发表于 2023-7-10 18:01
+
+高家三姐妹，猫眼三姐妹，而且大姐二姐对向跳就很艾斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+绯红德尔塔，精灵凭依后那耀眼的红绿色真的很革命机主角机。黛雅家大业大，衣着打扮和战斗服设计都很有品味啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hqtkkb  
+##### 212#       发表于 2023-7-10 18:49
+
+看完这一集我已经在思考要不要提前开席了，这也太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chenzhi11  
+##### 213#       发表于 2023-7-10 20:05
+
+这不挺有梗的嘛
+
+我看的挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Harlaus  
+##### 214#       发表于 2023-7-10 20:32
+
+故事有些尬，但善子女士眼中其他成员的形象还是挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  待宵  
+##### 215#       发表于 2023-7-10 20:42
+
+出完接着做虹咲异世界吧
+
+
+*****
+
+####  wolf1997  
+##### 216#       发表于 2023-7-10 21:01
+
+新人设好看，希望以后能照着这套人设发展LL。目前看下来十分适合幼教。
+
+
+*****
+
+####  创始’’’天翔  
+##### 217#       发表于 2023-7-10 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61617555&amp;ptid=2078039" target="_blank">Goisdust 发表于 2023-7-10 14:53</a>
+
+说是战斗又不能伤到对方，怎么打都别扭。希望不是考虑到偶像要避免暴力场景才做成这样的，不然这样要演一 ...</blockquote>
+这真的是当成偶像片来做吗，这集唱歌甚至没live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  lucky95  
+##### 218#       发表于 2023-7-11 01:26
+
+SunLes把水魔做成这屎样就是为了搞好水团异世界是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  NZ-333  
+##### 219#       发表于 2023-7-11 01:31
+
+魔王鞠莉好色<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 220#       发表于 2023-7-11 01:35
+
+感觉胡逼程度不够啊，有点放不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一放不开就尬了
+
+
+*****
+
+####  yangqizhi45  
+##### 221#       发表于 2023-7-11 11:41
+
+这片的转折都很唐突啊，第一集突然拿到魔杖，第二集一转万事屋，第三集唐突玩梗和面对鞠莉表现得异常的直率和能言善道
+
+
+*****
+
+####  仟音一心  
+##### 222#         楼主| 发表于 2023-7-11 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61626265&amp;ptid=2078039" target="_blank">yangqizhi45 发表于 2023-7-11 11:41</a>
+这片的转折都很唐突啊，第一集突然拿到魔杖，第二集一转万事屋，第三集唐突玩梗和面对鞠莉表现得异常的直率 ...</blockquote>
+原作是开局万事屋然后慢慢和另外8个队友慢慢熟络的日常，前三话可以看作介绍登场人物
+
+
+*****
+
+####  八神  
+##### 223#       发表于 2023-7-11 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61623258&amp;ptid=2078039" target="_blank">杂灰 发表于 2023-7-11 01:35</a>
+
+感觉胡逼程度不够啊，有点放不开一放不开就尬了</blockquote>
+水的一比，异世界都能这么水<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 224#       发表于 2023-7-11 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61623224&amp;ptid=2078039" target="_blank">lucky95 发表于 2023-7-11 01:26</a>
+SunLes把水魔做成这屎样就是为了搞好水团异世界是吗
+
+— from Nothing A063, Android 13 of S1 Next ...</blockquote>
+水魔现在定论就是网红写法，爆点堆砌最后没得啥料包饺子。
+
+幻日现在搞不懂什么路数，介于脚本搞过86改编那种后期爆发的路数，不好说是不是有卖什么葫芦药。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  lucky95  
+##### 225#       发表于 2023-7-11 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628969&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-7-11 16:34</a>
+
+水魔现在定论就是网红写法，爆点堆砌最后没得啥料包饺子。
+
+幻日现在搞不懂什么路数，介于脚本搞过86改编 ...</blockquote>
+看完水魔再看幻日感觉用心许多，也有不少角色成长弧还有对归乡的探讨，比起水魔用实力水大半季还是靠谱许多<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">当然，也就是对比水魔和别的厕纸
+
+*****
+
+####  cybernetics31  
+##### 226#       发表于 2023-7-11 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深夜动画，哪比得过日5档啊喂
+
+
+*****
+
+####  lucky95  
+##### 227#       发表于 2023-7-11 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61629607&amp;ptid=2078039" target="_blank">cybernetics31 发表于 2023-7-11 17:30</a>
+深夜动画，哪比得过日5档啊喂</blockquote>
+sunles:水团开高达也能上日五了<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+— from Nothing A063, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  创始’’’天翔  
+##### 228#       发表于 2023-7-12 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61630396&amp;ptid=2078039" target="_blank">lucky95 发表于 2023-7-11 18:45</a>
+
+sunles:水团开高达也能上日五了
+
+— from Nothing A063, Android 13 of S1 Next Goose v2.5.4 ...</blockquote>
+复刻萝卜大师是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，好评率要跌下三十了吧
+
+
+*****
+
+####  lucky95  
+##### 229#       发表于 2023-7-12 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61633956&amp;ptid=2078039" target="_blank">创始’’’天翔 发表于 2023-7-12 02:39</a>
+复刻萝卜大师是吧，好评率要跌下三十了吧</blockquote>
+代哥搞快点，我要看<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+— from HONOR ANY-NX1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  plazum  
+##### 230#       发表于 2023-7-12 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61623224&amp;ptid=2078039" target="_blank">lucky95 发表于 2023-7-11 01:26</a>
+
+SunLes把水魔做成这屎样就是为了搞好水团异世界是吗
+
+— from Nothing A063, Android 13 of S1 Next ...</blockquote>
+我觉得就幻日这个现状称不上“搞好”……
+
+*****
+
+####  plazum  
+##### 231#       发表于 2023-7-12 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61623250&amp;ptid=2078039" target="_blank">NZ-333 发表于 2023-7-11 01:31</a>
+
+魔王鞠莉好色<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"></blockquote>
++1<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 232#       发表于 2023-7-13 23:14
+
+[https://twitter.com/nozu78/status/1679499686447812608](https://twitter.com/nozu78/status/1679499686447812608)
+
+ヨハネ！！！誕生日おめでとぉぉおおおおお！！！！！✨✨✨🥳🥳🥳🥳
+
+<img src="https://img.saraba1st.com/forum/202307/13/231356uob2mwapbxsa82w1.jpg" referrerpolicy="no-referrer">
+
+<strong>20230713_231317.jpg</strong> (441.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 23:13 上传
+
+
+*****
+
+####  ads147147  
+##### 233#       发表于 2023-7-16 23:19
+
+第四集总算有点料了，夜羽也算正式进入小镇开始面临非日常吧。
+
+gk组排面啊，cyr和aaa互拆，就gk完整了。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  cybernetics31  
+##### 234#       发表于 2023-7-16 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">凑活看吧，大狗坑还挺多
+
+
+*****
+
+####  新HGCG  
+##### 235#       发表于 2023-7-16 23:25
+
+黑泽露比怎么变摩托车了
+
+*****
+
+####  wsdbyh  
+##### 236#       发表于 2023-7-16 23:25
+
+制作组一直明示狗子会有大新闻
+
+
+*****
+
+####  雪城穗乃香  
+##### 237#       发表于 2023-7-17 00:11
+
+虽然我本来没带着百合的眼光来看这片
+但四集下来感觉夜羽和莱拉普斯尊到不行，特别是狗狗在一些细节上对夜羽的宠溺，看着感觉好幸福……（
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 238#       发表于 2023-7-17 11:39
+
+感觉比起异世界水团，更像异世界樱花任务，当年樱花任务我好像看了十多集就没看下去了
+
+还是再看看后续有没有什么展开吧，狗肯定有什么隐情吧
+
+另外歌不错
+
+
+*****
+
+####  ads147147  
+##### 239#       发表于 2023-7-18 19:54
+
+带货了半小时游戏，这次生放送满乐的
+
