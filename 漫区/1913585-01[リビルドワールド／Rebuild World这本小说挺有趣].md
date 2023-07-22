@@ -5580,3 +5580,1098 @@ web版看完了，好像玩重装机兵啊<img src="https://static.saraba1st.com
 
 —— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  topia  
+##### 451#       发表于 2023-7-11 14:05
+
+文库也看到一家人齐齐整整了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来web版没头脑和不高兴好歹也结了不少梁子最后被切了西瓜也就算了
+
+硬给青梅加戏当缓冲最后也没救下来，而且感觉男2比web版还弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 452#       发表于 2023-7-11 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61627782&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-11 14:05</a>
+文库也看到一家人齐齐整整了
+
+本来web版没头脑和不高兴好歹也结了不少梁子最后被切了西瓜也就算了
+
+硬 ...</blockquote>
+只看过文库，倒觉得青梅送死比较无脑，胜也那一大段其实基本挺被动的，变身工具人不断骚扰，情报错综复杂，加上一直以来坏女人乱来的网络育成，就结局来说我还挺同情他的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 453#       发表于 2023-7-11 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61627948&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-11 14:20</a>
+
+只看过文库，倒觉得青梅送死比较无脑，胜也那一大段其实基本挺被动的，变身工具人不断骚扰，情报错综复杂 ...</blockquote>
+web版还是有杀小偷这个梁子在，切了西瓜很正常
+
+文库版明明前面加笔了一堆车站遗迹共斗赏金首共斗救妹子共斗，还有青梅一堆加戏，最后还是强行滑坡到男2死，只能说这个是web版就决定的大纲改不了了，改起来后面一部分就不好写了，至于一家人齐齐整整，反正web也坑在那了正好写死得了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三合一出现  
+##### 454#       发表于 2023-7-11 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这部知道小姐姐会死后，虽然说确实感觉很可惜，但是确实只是感觉可惜，果然还是喜欢**大姐姐。
+
+
+*****
+
+####  kiralzb  
+##### 455#       发表于 2023-7-11 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628239&amp;ptid=1913585" target="_blank">三合一出现 发表于 2023-7-11 14:58</a>
+这部知道小姐姐会死后，虽然说确实感觉很可惜，但是确实只是感觉可惜，果然还是喜欢**大姐姐。 ...</blockquote>
+等一个大姐姐逆推<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kiralzb  
+##### 456#       发表于 2023-7-11 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628164&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-11 14:42</a>
+web版还是有杀小偷这个梁子在，切了西瓜很正常
+
+文库版明明前面加笔了一堆车站遗迹共斗赏金首共斗救妹子共 ...</blockquote>
+这两人网络上就是相互排斥的，属于不可能友好
+加上两个坏女人都觉得自己的才好，累积的误解完全不打算解决，会这样是迟早的事了
+其实卖衣店那边也能看出隐患，萝莉坏女人不能直接控制他的行动，要巨r坏女人引导主角，但主角也是不按套路出牌的主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 457#       发表于 2023-7-11 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628581&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-11 15:41</a>
+
+这两人网络上就是相互排斥的，属于不可能友好
+
+加上两个坏女人都觉得自己的才好，累积的误解完全不打算解 ...</blockquote>
+毕竟没头脑和不高兴，只是觉得结果又不改的话文库的加笔显得有点欺诈了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+而且显得男2更弱智了却还留了个全尸<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三合一出现  
+##### 458#       发表于 2023-7-11 16:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男二的不高兴性格是真的让人烦，本来没人惹他，他自己却乱贴过来。
+
+
+*****
+
+####  redsouris  
+##### 459#       发表于 2023-7-11 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628581&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-11 15:41</a>
+这两人网络上就是相互排斥的，属于不可能友好
+加上两个坏女人都觉得自己的才好，累积的误解完全不打算解 ...</blockquote>
+两个人都留下来的话阿尔法会提前去司令部啊
+特别男2那边开始拉局域网之后比阿基拉进度快，没死的话已经准备出发了
+就算阿基拉没杀他也会被其他不爽坏女人的势力干掉
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ace7ace  
+##### 460#       发表于 2023-7-11 16:52
+
+话说文库版小偷事件已经结束了吗？
+胜也把主角拦下来两人结下梁子就完事了？
+
+顺便台版出的好慢。。。日版都11本了台版才到第6本
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  redsouris  
+##### 461#       发表于 2023-7-11 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628819&amp;ptid=1913585" target="_blank">三合一出现 发表于 2023-7-11 16:16</a>
+男二的不高兴性格是真的让人烦，本来没人惹他，他自己却乱贴过来。</blockquote>
+男2没头脑，阿基拉才是不高兴吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+一言不合开枪射人
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  redsouris  
+##### 462#       发表于 2023-7-11 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61629180&amp;ptid=1913585" target="_blank">ace7ace 发表于 2023-7-11 16:52</a>
+话说文库版小偷事件已经结束了吗？
+胜也把主角拦下来两人结下梁子就完事了？</blockquote>
+小偷后面拿着阿基拉钱包当入会费加了雪露的帮派<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，阿基拉当场钱包拿回来，想起优米娜给小偷求情懒得追究了，小偷丢给雪露看着就完了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  topia  
+##### 463#       发表于 2023-7-11 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61629180&amp;ptid=1913585" target="_blank">ace7ace 发表于 2023-7-11 16:52</a>
+
+话说文库版小偷事件已经结束了吗？
+
+胜也把主角拦下来两人结下梁子就完事了？</blockquote>
+已经结束了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小偷事件的起因改的更合理了一些
+
+感觉文库把web的事件节点用更合理的方式串起来了
+
+
+*****
+
+####  kiralzb  
+##### 464#       发表于 2023-7-11 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61628806&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-11 16:15</a>
+
+毕竟没头脑和不高兴，只是觉得结果又不改的话文库的加笔显得有点欺诈了
+
+而且显得男2更弱智了却还 ...</blockquote>
+不杀胜也的话就要继续写他那边的萝莉坏女人线，但是这个属于天然条件就不好写，因为胜也主要是靠堆人数，但又不可能给很多人戏份，而且萝莉坏女人还不显示不直接操控，加上糊里糊涂的感情戏和分分钟被网络反操控的精神，不会好看的，或者说这角色从一开始就是作为主角垫脚石创作，没办法<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 465#       发表于 2023-7-11 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61629131&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-11 16:49</a>
+
+两个人都留下来的话阿尔法会提前去司令部啊
+
+特别男2那边开始拉局域网之后比阿基拉进度快，没死的话已经准 ...</blockquote>
+胜也那堆人打不过主角就挺成问题了，而且他那组织装备还止步于当地等级吧，还是网络成员特化版，要去挑战最终任务还得花不少时间和金钱，不然我觉得途中就得跪，虽然在那之前大概会被坏女人前任先做掉，组织活动还是太显眼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsouris  
+##### 466#       发表于 2023-7-11 19:43
+
+ 本帖最后由 redsouris 于 2023-7-11 19:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61630583&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-11 19:06</a>
+胜也那堆人打不过主角就挺成问题了，而且他那组织装备还止步于当地等级吧，还是网络成员特化版，要去挑战 ...</blockquote>
+打不过阿基拉是因为断线了，对突发情况的经验比不上运气奇差的阿基拉
+而且阿基拉对胜也的那套统合作战系统提前练过对抗，也占了一些便宜
+
+团队作战就不需要太强力的单人装备了啊，断线环境下胜也的局域网依然可以发挥作用
+单刷一个人要顾及所有方面，断线环境就真的只能靠自己，要求自然不是团队能比的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  topia  
+##### 467#       发表于 2023-7-11 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61630322&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-11 18:37</a>
+
+不杀胜也的话就要继续写他那边的萝莉坏女人线，但是这个属于天然条件就不好写，因为胜也主要是靠堆人数， ...</blockquote>
+web版原本留了个尾巴，萝莉坏女人找上后宫，不过后来就没下文了
+
+文库就直接齐齐整整了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pgain2004  
+##### 468#       发表于 2023-7-11 19:56
+
+漫画更到47了（汉化还只在40），雪莉和尤米娜虽然心思复杂点但真的有能<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三合一出现  
+##### 469#       发表于 2023-7-11 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在看台版的进度，啥时候才能用上高级区域猎人的装备啊。毕竟看着这边打的怪被描述成在高级区那边只算杂兵，感觉那边就非常可怕的感觉。
+
+*****
+
+####  redsouris  
+##### 470#       发表于 2023-7-11 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61631060&amp;ptid=1913585" target="_blank">pgain2004 发表于 2023-7-11 19:56</a>
+漫画更到47了（汉化还只在40），雪莉和尤米娜虽然心思复杂点但真的有能 ...</blockquote>
+我看的漫画生肉到48啦
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  redsouris  
+##### 471#       发表于 2023-7-11 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61631131&amp;ptid=1913585" target="_blank">三合一出现 发表于 2023-7-11 20:02</a>
+现在看台版的进度，啥时候才能用上高级区域猎人的装备啊。毕竟看着这边打的怪被描述成在高级区那边 ...</blockquote>
+运输车队篇就能看到一些高级怪和高级猎人/装备的表现了，阿基拉的等级只能安排在车队后边捡漏，他换的摩托车算准前线装备
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Gooddays  
+##### 472#       发表于 2023-7-11 21:21
+
+ 本帖最后由 Gooddays 于 2023-7-11 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61629183&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-11 16:52</a>
+男2没头脑，阿基拉才是不高兴吧
+一言不合开枪射人</blockquote>
+在男主那生活环境，一言不合男主不开枪便可能是对方开枪。男主的生活环境其实只改变了很短时间，还基本上留在贫民区活动，所以他开枪的行为还算合理。
+
+男主能镇着一些黑道便是靠一言不合立刻开枪，所以一般黑道组织不敢随便招惹他。每次谈判时，黑道看着男主背后的重火力便只敢好言好语，生怕出现一言不合的情况。
+
+再看小偷那事传出去后便惹来一堆新小偷，也显示那地方属于谁够狠谁才能向上爬。假如男主能一开始便把小偷干掉，那便不会有后续的事。
+
+
+*****
+
+####  Gooddays  
+##### 473#       发表于 2023-7-11 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61629249&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-11 16:57</a>
+小偷后面拿着阿基拉钱包当入会费加了雪露的帮派，阿基拉当场钱包拿回来，想起优米娜给小偷求情懒 ...</blockquote>
+那文库是否删掉了后续被人恶意把小偷事件传开去，导致男主被其他小偷三番四次视为目标的剧情？这是男主再度坚定要干掉小偷的原因（原本男主已没多想这事）。
+
+
+*****
+
+####  redsouris  
+##### 474#       发表于 2023-7-11 21:42
+
+ 本帖最后由 redsouris 于 2023-7-11 21:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61631946&amp;ptid=1913585" target="_blank">Gooddays 发表于 2023-7-11 21:31</a>
+那文库是否删掉了后续被人恶意把小偷事件传开去，导致男主被其他小偷三番四次视为目标的剧情？这是男主再 ...</blockquote>
+文库没有这部分了
+漫画48里，小偷按朋友教的，让阿基拉当着雪露面说她欠的已经还清了，以后普通对待即可。
+维奥拉的策略变成雪露单人的戏份
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kiralzb  
+##### 475#       发表于 2023-7-11 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61630942&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-11 19:43</a>
+
+打不过阿基拉是因为断线了，对突发情况的经验比不上运气奇差的阿基拉
+
+而且阿基拉对胜也的那套统合作战系 ...</blockquote>
+最终任务不是暗示有断线区域嘛，而且怪只会比这时的主角强
+
+当然要是这组织能得到那个都市领导提供资金马上搞到前线级装备人手一套那或许是能现在就资格进去吧
+
+*****
+
+####  鬼谷ask  
+##### 476#       发表于 2023-7-11 21:45
+
+一年没看了，web版有更新进度吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 477#       发表于 2023-7-11 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61631946&amp;ptid=1913585" target="_blank">Gooddays 发表于 2023-7-11 21:31</a>
+
+那文库是否删掉了后续被人恶意把小偷事件传开去，导致男主被其他小偷三番四次视为目标的剧情？这是男主再 ...</blockquote>
+文库小偷没有多少戏份的，主要是让青梅给主角来了一次认识冲击，转头拿回钱都忘记这号人了
+
+马上就接上了新发现遗迹然后发展到卖货开店被打压
+
+
+*****
+
+####  redsouris  
+##### 478#       发表于 2023-7-11 21:53
+
+ 本帖最后由 redsouris 于 2023-7-11 22:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61632055&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-11 21:44</a>
+最终任务不是暗示有断线区域嘛，而且怪只会比这时的主角强
+
+当然要是这组织能得到那个都市领导提供资金马 ...</blockquote>
+断线不影响胜也的局域网，团队联携还是有优势
+那边的阿尔法只要提前找机会给胜也积累一下断线经验不会是大问题，就像这边的阿尔法也给阿基拉训练过自己不在的情况
+
+装备方面，阿尔法对阿基拉说过他单人光靠都市这边提供的顶级装也不是没可能挑战司令室，只是生存率堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+如果组队可以降低难度，那条件会更宽松，胜也团队已经达标能开始尝试挑战这也是阿尔法的判断，毕竟用团队的话不需要保证所有人完好无损，可以利用牺牲一部分人保主力的策略。例如分一部分人死守某段路口让胜也精锐部队突入，这是单人做不到的。哪怕其他队友都死光，保胜也一个人冲进去也达到目标。
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  三合一出现  
+##### 479#       发表于 2023-7-12 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可恶的旧时代斗蛐蛐
+
+
+*****
+
+####  伊布桑  
+##### 480#       发表于 2023-7-12 21:58
+
+最近追平了漫画，然后看到剧透说胜也三人组要整整齐齐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点意难平
+我个人其实挺喜欢那个长发青梅的，也不是说作为男主cp的那种喜欢，但是这种夹在两个疯男人之中都能迅速找到调解方法而且肯豁出性命去调解的角色挺刷我好感的，后期没了好可惜啊
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  topia  
+##### 481#       发表于 2023-7-12 23:17
+
+文库进度暂时追平了，不过最新卷还没电子版先放着
+不知道人生大起大落直接化灰的大小姐改没改<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个后面的新章web就断更了，下一本应该能把士郎篇结束吧
+
+
+*****
+
+####  topia  
+##### 482#       发表于 2023-7-13 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">找到最新卷的英文版看了一会，太不习惯了还是等电子版发售吧
+
+不过帮娼妇处理债务问题那段好像提到从女仆那里买的原味刀
+
+我记得web是有这段，但文库我记得刀是从椿淘来的破烂还给了青梅一把，是我看漏了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 483#       发表于 2023-7-13 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648165&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-13 13:11</a>
+找到最新卷的英文版看了一会，太不习惯了还是等电子版发售吧
+
+不过帮娼妇处理债务问题那段好像提到从 ...</blockquote>
+最新卷不是超人吗？电子版出挺久了吧，我拖延症到现在还未看就是
+文库给青梅的剑是椿那里拿的没错
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 484#       发表于 2023-7-13 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648374&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-13 13:37</a>
+最新卷不是超人吗？电子版出挺久了吧，我拖延症到现在还未看就是
+文库给青梅的剑是椿那里拿的没错</blockquote>
+最新卷是第三奥部，超人已经看完了，好像是明天上电子版<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kiralzb  
+##### 485#       发表于 2023-7-13 13:47
+
+第8卷上这鸡的立绘感觉不太行啊，封面还看不出来，站立就感觉身材比例很怪，这就是高价人工物吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kiralzb  
+##### 486#       发表于 2023-7-13 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648458&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-13 13:46</a>
+最新卷是第三奥部，超人已经看完了，好像是明天上电子版</blockquote>
+那看来我也该开始找时间看超人了，拖太久人名都不记得<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  topia  
+##### 487#       发表于 2023-7-13 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648464&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-13 13:47</a>
+第8卷上这鸡的立绘感觉不太行啊，封面还看不出来，站立就感觉身材比例很怪，这就是高价人工物吗
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一直觉得插图造型设计得一般，漫画又继承那个造型
+虽然看过漫画，但不知道为啥脑补的主角造型一直都是smt4f的Akira<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 488#       发表于 2023-7-13 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648498&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-13 13:50</a>
+一直觉得插图造型设计得一般，漫画又继承那个造型
+虽然看过漫画，但不知道为啥脑补的主角造型一直 ...</blockquote>
+漫画画工还是顶的，虽然以前画的是男铜，结果女体也画得这么棒，而且还特喜欢画雪露，洗澡都是眼福呢
+人设有好有坏也正常，其实主角那个挑染就很怪，漫画里黑白没感觉，动画pv一出来就绷不住了，再硬核都容易出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  topia  
+##### 489#       发表于 2023-7-13 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648569&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-13 13:57</a>
+
+漫画画工还是顶的，虽然以前画的是男铜，结果女体也画得这么棒，而且还特喜欢画雪露，洗澡都是眼福呢
+
+人 ...</blockquote>
+画工确实不错，主要是强化服设计一直都不太喜欢，早期的还好一点，后来的就感觉不太行
+
+
+*****
+
+####  kiralzb  
+##### 490#       发表于 2023-7-13 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648590&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-13 14:00</a>
+画工确实不错，主要是强化服设计一直都不太喜欢，早期的还好一点，后来的就感觉不太行 ...</blockquote>
+不同颜色差异明显的比较好设计，主角的都是黑不溜秋的细节上估计也很难有明显的特色
+现在主要是加了大衣，不显身材是差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 491#       发表于 2023-7-13 16:59
+
+主角断手砍提奥罗确实没有web版一刀砍爆建国机甲爽
+
+而且明明前面几乎没重伤，alpha回来反倒断了双手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉是为了强行收束到web的断手（但我记得web只断了一个吧）
+
+
+*****
+
+####  redsouris  
+##### 492#       发表于 2023-7-13 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61650516&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-13 16:59</a>
+主角断手砍提奥罗确实没有web版一刀砍爆建国机甲爽
+
+而且明明前面几乎没重伤，alpha回来反倒断了双手 ...</blockquote>
+文库断双手，所以住院时候可以双手感觉到阿尔法的胸部<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kiralzb  
+##### 493#       发表于 2023-7-14 00:20
+
+新卷买了，我也该开始看超人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 494#       发表于 2023-7-14 08:42
+
+抽空看了点超人，强调了好几次青梅是主角重要的人，感觉挺别扭的，虽然知道文库已经给青梅加了很多戏份<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 495#       发表于 2023-7-14 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">青梅也算是给主角了一个把强度广播调到正常的契机吧，地雷可视化了
+
+
+*****
+
+####  kria  
+##### 496#       发表于 2023-7-14 12:51
+
+[backcolor=rgba(230, 236, 240, 0.7)]朗読 [backcolor=rgba(230, 236, 240, 0.7)][#伊藤亜祐美](https://twitter.com/hashtag/%E4%BC%8A%E8%97%A4%E4%BA%9C%E7%A5%90%E7%BE%8E?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1679712989862309888%7Ctwgr%5Ea378be4846915aca4cdeb1465e45b332c3b96c85%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fpublish.twitter.com%2F%3Fquery%3Dhttps3A2F2Ftwitter.com2FRebuildWorld_PJ2Fstatus2F1679712989862309888widget%3DTweet&amp;src=hashtag_click)
+
+
+*****
+
+####  topia  
+##### 497#       发表于 2023-7-14 12:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">喷了，我还想之前找到那个英文版怎么和之前的剧情对不上，原来是用web版拼的，还加了最新卷试读部分的封面和插图
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过其他的都在打折显得最新卷都点贵啊
+
+
+*****
+
+####  泥鳅化石  
+##### 498#       发表于 2023-7-14 13:11
+
+之前看的WEB版，这本动画希望能和暗影大人一样找到厨子来做。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kiralzb  
+##### 499#       发表于 2023-7-14 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61658546&amp;ptid=1913585" target="_blank">泥鳅化石 发表于 2023-7-14 13:11</a>
+之前看的WEB版，这本动画希望能和暗影大人一样找到厨子来做。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 ...</blockquote>
+pv一眼原创和没钱，我觉得不行，特别是这部战斗密度还高<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kiralzb  
+##### 500#       发表于 2023-7-14 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61658213&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-14 12:37</a>
+青梅也算是给主角了一个把强度广播调到正常的契机吧，地雷可视化了</blockquote>
+最大作用明明是初恋的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只是青梅箭头太坚定，所以感觉怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 501#       发表于 2023-7-14 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61659197&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-14 14:11</a>
+
+最大作用明明是初恋的感觉
+
+只是青梅箭头太坚定，所以感觉怪怪的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  osore  
+##### 502#       发表于 2023-7-14 14:51
+
+牛头人朋友的感觉吧，其他几个关系好的女性都是照顾小弟弟的样子
+
+
+*****
+
+####  kiralzb  
+##### 503#       发表于 2023-7-14 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61659588&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-14 14:43</a>
+初恋的感觉不是静香妈妈吗？性癖已经被坏女人扭曲勒</blockquote>
+那是母爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+拍档组是姐姐
+超人这开头的探病就非常香，各种贴贴和调戏
+青梅是主角失去后才有朦胧情感
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  xvi黑翼公  
+##### 504#       发表于 2023-7-14 15:56
+
+<blockquote>泥鳅化石 发表于 2023-7-14 13:11
+之前看的WEB版，这本动画希望能和暗影大人一样找到厨子来做。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 ...</blockquote>
+不太行，这书有大量的机械作画、热兵器战斗、外骨骼、战车甚至萝卜，这些都是实打实要花钱的，就算和影实一样有厨力光靠取巧也很难出效果（
+
+
+*****
+
+####  topia  
+##### 505#       发表于 2023-7-14 16:16
+
+动画真的只能说能动就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泥鳅化石  
+##### 506#       发表于 2023-7-14 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61660514&amp;ptid=1913585" target="_blank">xvi黑翼公 发表于 2023-7-14 15:56</a>
+
+不太行，这书有大量的机械作画、热兵器战斗、外骨骼、战车甚至萝卜，这些都是实打实要花钱的，就算和影实 ...</blockquote>
+也不一定，如果能被日升看上合作拿来卖胶大概可以拿到足够的制作费用，虽然可能性不大吧。
+
+
+*****
+
+####  kiralzb  
+##### 507#       发表于 2023-7-14 21:02
+
+超人卷，乐子人来探病那里，主角还感谢他的帮助不然就死了，已经完全不记得乐子人帮过啥了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  topia  
+##### 508#       发表于 2023-7-14 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61664067&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-14 21:02</a>
+超人卷，乐子人来探病那里，主角还感谢他的帮助不然就死了，已经完全不记得乐子人帮过啥了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把赚来的钱都换成了弹药和回复药，不然在椿原就没了
+
+
+*****
+
+####  topia  
+##### 509#       发表于 2023-7-15 00:25
+
+最新卷居然把野营车轮流洗澡改成一起洗澡了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三合一出现  
+##### 510#       发表于 2023-7-15 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 511#       发表于 2023-7-15 12:25
+
+乐子人对主角解说现况，椿这交易完全属于亏的那方？帮她守家也就少点苍蝇的程度，虽然她卖的估计也是些垃圾，上卷和前任谈的是啥来着？感觉椿还是有小心思呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 512#       发表于 2023-7-15 17:42
+
+雪露探病也够多戏的，地位上是离主角越来越远，但是总能单方面扯上因缘，虽然不悯也是读者喜欢的属性，但有时候还是该给点糖的，漫画那边厨雪露倒是整了不少活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+话说超人这卷出挺久了，角色名字搞错了这样明显的误字都还未修正，明明版本还更新过了
+
+
+*****
+
+####  topia  
+##### 513#       发表于 2023-7-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61669858&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 12:25</a>
+乐子人对主角解说现况，椿这交易完全属于亏的那方？帮她守家也就少点苍蝇的程度，虽然她卖的估计也是些垃圾 ...</blockquote>
+得到一个缓冲区，都市帮忙守的也是缓冲区。算是把苍蝇从院子里赶出去了
+
+
+*****
+
+####  kiralzb  
+##### 514#       发表于 2023-7-15 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672558&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-15 17:48</a>
+得到一个缓冲区，都市帮忙守的也是缓冲区。算是把苍蝇从院子里赶出去了 ...</blockquote>
+走漏洞夺取的区域实际上也是废墟，椿完全可以监控乱杀，都市迟早也要封锁的，现在看来都市方面是完全利益方，感觉椿和都市搭线本身还是有其他目的
+
+光这身材也是厉害，现在女主里就雪露是贫吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsouris  
+##### 515#       发表于 2023-7-15 19:03
+
+ 本帖最后由 redsouris 于 2023-7-15 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672872&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 18:26</a>
+走漏洞夺取的区域实际上也是废墟，椿完全可以监控乱杀，都市迟早也要封锁的，现在看来都市方面是完全利益 ...</blockquote>
+从WEB看，椿这类AI要不是被权限卡死了，早就发动战争把苍蝇都灭了
+做不到只能退而求其次，拿攒了几百年的垃圾换个缓冲区，不让苍蝇到自己地盘上飞，她自己地盘打理的整整齐齐和外面那些废墟可大不一样
+
+雪露贫民窟环境，先天不足加后天缺营养啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+女猎人因为吃回复药、肉体改造等原因和普通人不好比较
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  topia  
+##### 516#       发表于 2023-7-15 19:41
+
+最新卷看完了，和web版魔改了不少，士郎不摸鱼了尝试直接联系椿（物理），大小姐那边不演了直接就真实商战（物理），web里只记得车震的高级猎人情侣成了木林受害者前辈，大小姐白卡事件还没正式开始主角就被玉音放送故技重演成赏金首了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以库洛艾化作齑粉还有没有戏
+
+
+*****
+
+####  kiralzb  
+##### 517#       发表于 2023-7-15 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61673294&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-15 19:03</a>
+
+从WEB看，椿这类AI要不是被权限卡死了，早就发动战争把苍蝇都灭了
+
+做不到只能退而求其次，拿攒了几百年的 ...</blockquote>
+椿地盘那一圈烂楼本来就是故意围起来的，我觉得她完全有技术将废墟修复，辛苦搞来的新地盘只是为了挡苍蝇也太浪费，和都市交易这里坚持用都市发型的货币也很奇怪，其实这帮AI总是想脱离规则的束缚，还有女仆公司的交易，我举得她以后或许可以离开领地？
+
+胜也的尸体被前任仔细解剖还挺惨的，难得主角留全尸，就是前任和机器人的错位交流导致主角依旧可以猥琐发育，加上断线时超出坏女人的预计，只能说主角运气确实好
+
+光搞装备的手腕还不错，50亿都能免单也太爽了，不过出个外城区都要找两个保镖，意外的富有？明明吃高级甜品也是有贵这认知的，当然也有主角现在的价位值得这点投资
+
+
+*****
+
+####  泥鳅化石  
+##### 518#       发表于 2023-7-15 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61672872&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 18:26</a>
+
+走漏洞夺取的区域实际上也是废墟，椿完全可以监控乱杀，都市迟早也要封锁的，现在看来都市方面是完全利益 ...</blockquote>
+不是吧？记得姐姐阵营里有个把胸部改造成纳米机器储存袋的，每次任务回来就变成了贫乳了。
+
+
+*****
+
+####  topia  
+##### 519#       发表于 2023-7-15 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61675355&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 21:49</a>
+椿地盘那一圈烂楼本来就是故意围起来的，我觉得她完全有技术将废墟修复，辛苦搞来的新地盘只是为了挡苍蝇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是高贵的防壁内人对外面安全状况的刻板印象，虽然基本是事实，后面住宅区直接几乎被炸平了
+
+*****
+
+####  redsouris  
+##### 520#       发表于 2023-7-15 22:18
+
+ 本帖最后由 redsouris 于 2023-7-15 22:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61675355&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 21:49</a>
+椿地盘那一圈烂楼本来就是故意围起来的，我觉得她完全有技术将废墟修复，辛苦搞来的新地盘只是为了挡苍蝇 ...</blockquote>
+统治型AI只注重自己的一亩三分地啊
+她没有扩张的欲求，不是借被攻击名义扩大权限她都不能到地盘外面来
+女仆公司那些商人型AI就灵活的多，例如爱丽丝能整出拿人类代替女仆人偶当员工
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  redsouris  
+##### 521#       发表于 2023-7-15 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61675454&amp;ptid=1913585" target="_blank">泥鳅化石 发表于 2023-7-15 21:56</a>
+不是吧？记得姐姐阵营里有个把胸部改造成纳米机器储存袋的，每次任务回来就变成了贫乳了。 ...</blockquote>
+正常来说在变平之前就会补充纳米机器的
+平的原因是缺钱<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  topia  
+##### 522#       发表于 2023-7-15 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61675709&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-15 22:18</a>
+统治型AI只注重自己的一亩三分地啊
+她没有扩张的欲求，不是借被攻击名义扩大权限她都不能到地盘外面来
+女 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有正经客人就允许和盗贼做交易的灵活
+
+
+*****
+
+####  kiralzb  
+##### 523#       发表于 2023-7-15 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61675454&amp;ptid=1913585" target="_blank">泥鳅化石 发表于 2023-7-15 21:56</a>
+
+不是吧？记得姐姐阵营里有个把胸部改造成纳米机器储存袋的，每次任务回来就变成了贫乳了。 ...</blockquote>
+那位小时候就手术了，本来会长成啥样其实不好说<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+但是高级鸡好像也是重金改造出来的，这种世界观下天然大概也没啥稀罕吧
+
+
+*****
+
+####  redsouris  
+##### 524#       发表于 2023-7-16 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61676811&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 23:52</a>
+那位小时候就手术了，本来会长成啥样其实不好说
+
+但是高级鸡好像也是重金改造出来的，这种世界观下 ...</blockquote>
+双刀姐被说脸可能是改的可特意跑回来说是原装，还是有人在意的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Gooddays  
+##### 525#       发表于 2023-7-16 10:44
+
+ 本帖最后由 Gooddays 于 2023-7-16 10:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61676811&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-15 23:52</a>
+那位小时候就手术了，本来会长成啥样其实不好说
+
+但是高级鸡好像也是重金改造出来的，这种世界观下 ...</blockquote>
+是她们那职业伴随很大危险，性命比天然重要得多，身上有纳米机械对战斗有一定帮助。而高级鸡因害怕被企业捉来研究，所以不择手段强化自己。
+
+其他不用直接面对危机，或身体能力目前能应付战斗的女性大多没有改造自己。
+
+
+*****
+
+####  kiralzb  
+##### 526#       发表于 2023-7-16 17:20
+
+情报屋这乐子人太会搞事了，旁边吓的要死的雪露真是又惨又搞笑，胜也最后留下这礼物真是够情义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  kiralzb  
+##### 527#       发表于 2023-7-16 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61679938&amp;ptid=1913585" target="_blank">Gooddays 发表于 2023-7-16 10:44</a>
+是她们那职业伴随很大危险，性命比天然重要得多，身上有纳米机械对战斗有一定帮助。而高级鸡因害怕被企业 ...</blockquote>
+关键是高级鸡会上瘾而且抢手还天价，其实人工物的话应该能量产才对，应该不至于这么夸张，说是天然极品到是有点说服力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  topia  
+##### 528#       发表于 2023-7-16 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61683220&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-16 17:25</a>
+关键是高级鸡会上瘾而且抢手还天价，其实人工物的话应该能量产才对，应该不至于这么夸张，说是天然极品到 ...</blockquote>
+毕竟维护也要不少钱的，一般人那种还配回复药的浴室搞不起的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsouris  
+##### 529#       发表于 2023-7-16 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61679938&amp;ptid=1913585" target="_blank">Gooddays 发表于 2023-7-16 10:44</a>
+是她们那职业伴随很大危险，性命比天然重要得多，身上有纳米机械对战斗有一定帮助。而高级鸡因害怕被企业 ...</blockquote>
+纳米机器那个女猎人是小时候得了不治之病，只有用东部技术进行生化改造才有救，而她们两个都是中部地区出生的，家族里很讨厌东部技术，听说她治病之后反而派人来杀她，所以两人和家族断绝关系一起跑到东部当猎人了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kria  
+##### 530#       发表于 2023-7-16 21:46
+
+<img src="https://img.saraba1st.com/forum/202307/16/214633vdgbb4dg4dr12rg1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7565.jpeg</strong> (254.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-16 21:46 上传
+
+
+*****
+
+####  darkddragon  
+##### 531#       发表于 2023-7-16 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">从pv开始就烂到没眼看了草
+
+*****
+
+####  topia  
+##### 532#       发表于 2023-7-16 21:59
+
+看pv还以为雪露是女主呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ardito  
+##### 533#       发表于 2023-7-17 08:14
+
+阿女士居然是小鹿，意外
+
+*****
+
+####  ardito  
+##### 534#       发表于 2023-7-17 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61662116&amp;ptid=1913585" target="_blank">泥鳅化石 发表于 2023-7-14 18:06</a>
+
+也不一定，如果能被日升看上合作拿来卖胶大概可以拿到足够的制作费用，虽然可能性不大吧。 ...</blockquote>
+日升也太远了，现在手握重装机兵版权的cy如果想出新作，赏钱造势还有点可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kiralzb  
+##### 535#       发表于 2023-7-17 20:04
+
+乐子人和光的对手戏有点意思，交代了不少都市和东部猎人的设定，车费啥的也有讲究，乐子人这老油条算是第一次正面展示实力？之前好像都是只报个结果啥的
+光这各种吃瘪预感，感觉会是雪露二号呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  topia  
+##### 536#       发表于 2023-7-17 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61697685&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-17 20:04</a>
+乐子人和光的对手戏有点意思，交代了不少都市和东部猎人的设定，车费啥的也有讲究，乐子人这老油条算是第一 ...</blockquote>
+乐子人可是有大量他提拔上去的高级猎人的人脉，肯定不是一般人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于阿光最新卷就要想尽方法下车，但感觉最后可能不一定下得去
+
+
+*****
+
+####  redsouris  
+##### 537#       发表于 2023-7-17 22:17
+
+ 本帖最后由 redsouris 于 2023-7-17 22:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698796&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-17 22:12</a>
+乐子人可是有大量他提拔上去的高级猎人的人脉，肯定不是一般人
+至于阿光最新卷就要想尽方法下车， ...</blockquote>
+下不去车的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+因为都市那边能和阿基拉这个越来越大的雷打交道的人就木林、依那贝和光三个，木林乐子人经常拱火，依那贝位高权重不方便行动，光作为正常人代表是无可替代的中间人
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  topia  
+##### 538#       发表于 2023-7-17 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698851&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-17 22:17</a>
+下不去车的
+因为都市那边能和阿基拉这个越来越大的雷打交道的人就木林、依那贝和光三个，木林乐子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azbhg1  
+##### 539#       发表于 2023-7-18 02:33
+
+这么明事理的好女人最后不会被傻逼给坑死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsouris  
+##### 540#       发表于 2023-7-18 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698998&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-17 22:33</a>
+不过文库目前是阿光把坂下重工给运输车上做诱饵的谢礼交换成了主角的猎人等级以换取装备调度工作 ...</blockquote>
+乐子人暗示过她会回来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+文库搞不好还会给她加戏
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  topia  
+##### 541#       发表于 2023-7-18 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61700625&amp;ptid=1913585" target="_blank">redsouris 发表于 2023-7-18 07:11</a>
+乐子人暗示过她会回来的
+文库搞不好还会给她加戏</blockquote>
+现在文库走向不是很清楚，比起和大小姐结梁子，都市干部的梁子更大，逃犯认证也是和都市干部有关。web版阿光能和逃亡的主角搭上线时毕竟因为那事和都市关系不深，现在就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsouris  
+##### 542#       发表于 2023-7-18 12:24
+
+ 本帖最后由 redsouris 于 2023-7-18 12:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61703220&amp;ptid=1913585" target="_blank">topia 发表于 2023-7-18 11:28</a>
+现在文库走向不是很清楚，比起和大小姐结梁子，都市干部的梁子更大，逃犯认证也是和都市干部有关。web版 ...</blockquote>
+WEB被赏金首也是因为都市干部被骗然后利诱入伙，牵制依那贝拖着不取消认证
+干部闹的厉害，依那贝抽不出身去见阿基拉灭火阻止他突突都市，乐子人不靠谱那不就只能拉小光她上车了吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kiralzb  
+##### 543#       发表于 2023-7-18 19:50
+
+上列车这段乐子人真会演啊，而且这部分的构成也有意思，之前就渲染过光作为墙内人的感性，上车前更细致描写，之后乐子人提供杀人数造成认知冲击，重新认识主角为人后再来个杀敌目的重勾拳，一套下来光都被控制得死死的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+就是有点疑惑光这么积极控制主角，居然没有事先调查，而且你突然上车有给车票费吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+另外在意的是主角这边的干部，用他名推荐他肯定考虑过这风险，主角真做掉敌对干部不知道他会不会出面保住，想看他选择默认的心理呢
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  redsouris  
+##### 544#       发表于 2023-7-18 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61709007&amp;ptid=1913585" target="_blank">kiralzb 发表于 2023-7-18 19:50</a>
+上列车这段乐子人真会演啊，而且这部分的构成也有意思，之前就渲染过光作为墙内人的感性，上车前更细致描写 ...</blockquote>
+就因为临时加塞上车所以和阿基拉睡一张床啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  topia  
+##### 545#       发表于 2023-7-19 15:06
+
+说起来水羽这个角色是不是胜也死了之后就再也没有提过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
