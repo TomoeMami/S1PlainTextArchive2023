@@ -430,3 +430,67 @@
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  红魔馆的糖  
+##### 468#       发表于 2023-7-19 08:29
+
+后知后觉，内测名单出了，没选上<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Slipper5  
+##### 469#       发表于 2023-7-19 08:32
+
+现在单次伤害上限还是999么
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  leonlink  
+##### 470#       发表于 2023-7-19 08:36
+
+有坛友被选上了吗
+
+
+*****
+
+####  tansapple  
+##### 471#       发表于 2023-7-19 10:24
+
+原版伤害上限999是因为RPG2000本身的限制，新引擎重新制作了，应该会解决这个问题，除非制作组非要保持“原汁原味”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赞卡机  
+##### 472#       发表于 2023-7-19 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61543060&amp;ptid=2093296" target="_blank">暗示我7酱 发表于 2023-7-4 11:40</a>
+期待！
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+这是啥开源掌机？
+
+
+*****
+
+####  宛若青空  
+##### 473#       发表于 2023-7-19 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61713850&amp;ptid=2093296" target="_blank">tansapple 发表于 2023-7-19 10:24</a>
+原版伤害上限999是因为RPG2000本身的限制，新引擎重新制作了，应该会解决这个问题，除非制作组非要保持“原 ...</blockquote>
+这个问题之前解谜回答过，上限突破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗示我7酱  
+##### 474#       发表于 2023-7-19 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61713947&amp;ptid=2093296" target="_blank">赞卡机 发表于 2023-7-19 10:32</a>
+
+这是啥开源掌机？</blockquote>
+周哥的RG35xx， 咸鱼200出头就可以收一部
+
