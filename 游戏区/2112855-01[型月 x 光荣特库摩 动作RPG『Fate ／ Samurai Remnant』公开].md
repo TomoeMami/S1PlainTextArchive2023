@@ -2344,3 +2344,91 @@ Yamato_Takeru(bronze_statue,Osaka)01.jpg
 锁定2.1H 2A18 PlayStation展台，更多精彩体验，待你现场揭秘
 <img src="https://p.sda1.dev/12/a6f37d23b5a1ced4fd04d60717b94c27/1689324601254.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 219#         楼主| 发表于 2023-7-20 20:47
+
+【《Fate⧸Samurai Remnant》Bilibili World特别宣传视频】 
+[https://b23.tv/HS9zXhu](https://b23.tv/HS9zXhu)
+
+
+*****
+
+####  黄泉川此方  
+##### 220#       发表于 2023-7-20 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">题材还行，战斗画面看着就不怎么想玩
+
+
+*****
+
+####  herryk159  
+##### 221#       发表于 2023-7-20 23:54
+
+看演示不大行啊
+
+
+*****
+
+####  wyy123  
+##### 222#       发表于 2023-7-21 07:45
+
+看演示有qte，想起了358打几下三角按键提示
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 223#       发表于 2023-7-21 13:43
+
+[https://bbs.nga.cn/read.php?tid=37079198](https://bbs.nga.cn/read.php?tid=37079198) 隔壁这个采访还有点货
+
+
+*****
+
+####  无动于衷  
+##### 224#       发表于 2023-7-21 14:03
+
+个人感觉和莱莎用的是一套引擎做的，就是光荣那个K引擎
+
+但是为什么效果上差了那么多……
+
+
+*****
+
+####  lingtian2876  
+##### 225#       发表于 2023-7-21 14:48
+
+不知道菲特的那种躲猫猫猜身份猜能力的感觉能不能做出来，看编剧和流程设计怎么样了
+
+
+*****
+
+####  不垃圾屌丝  
+##### 226#       发表于 2023-7-21 17:32
+
+猜身份参考EXTRA就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+剧本是光荣这边写，应该不用太担心吧
+居然直接把NS拖慢拿出来说了，你们对自己的优化水平有自信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 227#       发表于 2023-7-21 17:36
+
+“本作的boss战或者说强敌战和以往无双作品中“各打各的战斗”或者说不用考虑就敌方招式去战斗的模式，会不会有些不同？”
+
+NGA是真敢问，话说国内评价动作要素时“各打各的”这四个字太流行了。
+
+
+*****
+
+####  duraa  
+##### 228#       发表于 2023-7-21 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了PS5的试玩，还算有点购买欲，比之前的掉帧反向宣传片是好多了
+
