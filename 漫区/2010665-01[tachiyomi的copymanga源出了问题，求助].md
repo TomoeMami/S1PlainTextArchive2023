@@ -2610,3 +2610,71 @@ https://github.com/stevenyomi/copymanga
 
 —— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  不垃圾屌丝  
+##### 261#       发表于 2023-7-19 16:12
+
+最近kisslove源看不了了，看生肉全靠这个了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  失落之翼  
+##### 262#       发表于 2023-7-19 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61546768&amp;ptid=2010665" target="_blank">cmalkd 发表于 2023-7-4 16:50</a>
+
+tachiyomi的漫画人源更新后看不了了，有人有类似的问题吗？
+
+—— 来自 S1Fun</blockquote>
+漫画人，dmzj新更新的（旧的有些还能看），爱米推这些常用的都不行了（可能我很久没更新插件的原因？）
+
+
+*****
+
+####  mooerfoes  
+##### 263#       发表于 2023-7-19 17:29
+
+问问，大家有啥推荐的国产漫画插件吗？以前经常用的爱米推好像站都关了……
+
+平时也会用6漫画一类的，但是经常加载不出大量的图，还有的加载很慢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">古风漫画网好像水印比较大
+
+
+*****
+
+####  dookiee  
+##### 264#         楼主| 发表于 2023-7-20 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61718936&amp;ptid=2010665" target="_blank">mooerfoes 发表于 2023-7-19 17:29</a>
+问问，大家有啥推荐的国产漫画插件吗？以前经常用的爱米推好像站都关了……
+
+平时也会用6漫画一类的，但是经 ...</blockquote>
+漫画柜找一下？前几天在上面看了一人之下
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  mooerfoes  
+##### 265#       发表于 2023-7-21 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61731896&amp;ptid=2010665" target="_blank">dookiee 发表于 2023-07-20 20:06:35</a>
+漫画柜找一下？前几天在上面看了一人之下
+
+—— 来自 Xiaomi 22081212C, Android 13上的  v2.5.4 ...</blockquote>谢谢，因为要搭梯子所以去的不多<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">回头试试看
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  朝仓和美  
+##### 266#       发表于 2023-7-21 09:12
+
+漫画人现在看好几个漫画都有花屏的情况，比如学院里的杀人游戏，史上最强兽人先生，破鞋神二世
+你们有这种情况吗？
+
