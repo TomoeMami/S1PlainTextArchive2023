@@ -7097,3 +7097,129 @@ mv结束后独角兽还变觉醒绿了<img src="https://static.saraba1st.com/ima
 <img src="https://p.sda1.dev/12/e3098936ebd4a85e597349eaa4979e72/46uif32z01r7sl25bsr6kuyl7.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/12/50a0ce2e39afca0bc876385f76112e6b/CMP_20230705180915538.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 7368#       发表于 2023-7-14 16:46
+
+<img src="https://p.sda1.dev/12/6f3226c87332e98ac872042689d4cbeb/20230714_164506.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7369#       发表于 2023-7-16 21:44
+
+<img src="https://p.sda1.dev/12/5a5d2e021aee389eb6ffe8d00b5e0830/CMP_20230716214039246.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/a0559bd7c3a220c6212e22b498198584/1w9979zyqirmf13rv59sppzvq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/67fc3f24ee59863aefc53a7b369e2e63/CMP_20230716214039397.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/cbcd088a4106aaa45c8d6e53d5a490fe/1c8e75cjoojjbyisb1e1i3p45.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d55344379978c6e3d7ea68c1bc32fa87/23app1pubeyondz1orp069sv.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/2d184b4cc43004d889298cc791343d10/4xovfp3ittgncn2ag4aqkd5vy.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d355d4f0c10f0c7df8125b1c7974c195/CMP_20230716214046745.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d658385e7b908e26e8cb81707319fa98/CMP_20230716214243741.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/f418da8a7a721606cbb4388432661b32/CMP_20230716214243783.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/8a2378ba7c54c60dba4db3bc3726085d/CMP_20230716214243821.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/8a225304ac61901f7a187be7dcf0a8c0/CMP_20230716214243866.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/10d2d2ec3791b94e2d35036b3b2222c8/CMP_20230716214248127.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/650cf8f45497f2138e1422bea789517f/CMP_20230716214248177.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7370#       发表于 2023-7-17 14:52
+
+虹咲5th专「Fly with You!!」封面公开
+<img src="https://p.sda1.dev/12/94677a82d59def670e1e92fb039b780e/CMP_20230717145239700.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7371#       发表于 2023-7-17 18:20
+
+感觉挺多人像是穿的之前其他人风格的衣服一样w
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7372#       发表于 2023-7-17 19:42
+
+<img src="https://p.sda1.dev/12/7e4c0c95b7e86fd1f49fbeeeab9806cb/CMP_20230717194104314.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/312dcaaa51209bae3f138484185caa6b/CMP_20230717193958623.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4f52608fcda1e84780f00bc50583b688/CMP_20230717193958705.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e18a31351b197d9fc4ea1a6194ffa90b/CMP_20230717194007730.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/805cb9119b0d542fad23918f149c9daf/CMP_20230717194007798.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/5fd229983b35a2224b2a5ea8c169011e/CMP_20230717194007863.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/636393fcf417a09f3cbd46620195a016/CMP_20230717194007933.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/f955cd539fe0323ff67f36ffbbe8ec8a/CMP_20230717194014048.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/a37ec2cb842b31ddbe3e7abf87f1ebd8/CMP_20230717194132931.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/90127c8347e228487aa74c0c5e231d57/CMP_20230717194132820.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4f30afb20544ad5ae282ebc75ee73817/CMP_20230717194132714.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 7373#       发表于 2023-7-17 21:57
+
+菜宝今天的表现是很烂吗？看到魔爪组组长在转让魔爪组账号了……………………
+
+
+*****
+
+####  仟音一心  
+##### 7374#       发表于 2023-7-18 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698675&amp;ptid=1959558" target="_blank">cybernetics31 发表于 2023-7-17 21:57</a>
+菜宝今天的表现是很烂吗？看到魔爪组组长在转让魔爪组账号了…………………… ...</blockquote>
+没啊，表现非常好，人瘦了，这次的QUEENDOM甚至是发挥最佳的一次。
+和账号转让这两者有什么关系吗？
+
+
+*****
+
+####  cybernetics31  
+##### 7375#       发表于 2023-7-18 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61700885&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-7-18 08:20</a>
+没啊，表现非常好，人瘦了，这次的QUEENDOM甚至是发挥最佳的一次。
+和账号转让这两者有什么关系吗？ ...</blockquote>
+那就行…………还以为她出啥事能让字幕组拜拜了…………
+
+
+*****
+
+####  DarthAka  
+##### 7376#       发表于 2023-7-19 10:35
+
+<blockquote>cybernetics31 发表于 2023-7-18 09:16
+那就行…………还以为她出啥事能让字幕组拜拜了…………</blockquote>
+看楼上舞台照就知道，退一百步就算这姑娘瘦了，天生粗腿也不会细，现在才脱坑反踩实属有点大病
+
+
+*****
+
+####  星降る森  
+##### 7377#       发表于 2023-7-20 17:35
+
+ 本帖最后由 星降る森 于 2023-7-20 17:36 编辑 
+
+笑了，我觉得菜宝坏也就坏在了会中文但又不是中国人这点，真是白白两头被黑，咸鱼那视频单独拆出“黑点”你都不知道在黑谁，就因为会中文第一波吸引了一群本看不上她的粉丝，整出这么波回踩的破事
+
+
+*****
+
+####  仟音一心  
+##### 7378#       发表于 2023-7-21 13:48
+
+这边也发一下
+<img src="https://p.sda1.dev/12/c95098876ae9c76fcc02dd72d283e685/CMP_20230721134719459.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/c3191aaf9f7ca2005d95f7e8d1e1758a/CMP_20230721134719511.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/58480d2f9dc5bc6e0244b3777bed379d/CMP_20230721134719764.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/55b783dca2f103d906067dd528e32d10/CMP_20230721134719866.jpg" referrerpolicy="no-referrer">
+
