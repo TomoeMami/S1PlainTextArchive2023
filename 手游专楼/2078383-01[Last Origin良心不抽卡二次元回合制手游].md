@@ -880,3 +880,22 @@ https://zerlarnystyle.com/post-23194/
 开箱子都沉船好几次了，猛禽浴巾皮还重复了</blockquote>
 啊抱歉忘了是日服的课金赌狗箱，还以为是韩服的任务赌狗箱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  铁火辉夜  
+##### 81#       发表于 2023-7-21 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">隔壁关服无关联想，LO憋死啊
+
+
+*****
+
+####  leina0602  
+##### 82#       发表于 2023-7-22 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736254&amp;ptid=2078383" target="_blank">铁火辉夜 发表于 2023-7-21 09:31</a>
+
+隔壁关服无关联想，LO憋死啊</blockquote>
+虽然你游在DMM，GOOGLE PLAY和APP STORE一副要死的样子，但是在棒子那边有个叫ONE STORE排名还是很能打的，短时间内应该死不掉
+[https://forum.gamer.com.tw/C.php?bsn=36224&amp;snA=661](https://forum.gamer.com.tw/C.php?bsn=36224&amp;snA=661)
+
