@@ -2824,3 +2824,88 @@ eca640ba4304035390f9fe56f670c921_720.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">联动还要分2个池,高山wcnm
 
+*****
+
+####  shadowof  
+##### 2873#         楼主| 发表于 2023-7-20 16:05
+
+<img src="https://i.imgur.com/Bn15DxC.jpg" referrerpolicy="no-referrer">
+<img src="https://i.imgur.com/i5h6MgP.jpg" referrerpolicy="no-referrer">
+
+右下角的钻石很直接，1000カラットの物語
+
+
+*****
+
+####  shadowof  
+##### 2874#         楼主| 发表于 2023-7-21 18:44
+
+[https://twitter.com/imassc_official/status/1682337122450042880](https://twitter.com/imassc_official/status/1682337122450042880)
+
+合言葉: ソロライブ
+
+预告推的成员是当年3rd东京第二天solo披露的4人，新冠临时改成无人的场次。
+
+
+*****
+
+####  kria  
+##### 2875#       发表于 2023-7-22 21:50
+
+ 本帖最后由 kria 于 2023-7-22 21:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202307/22/214936ei7z61nt7d1t72zg.jpg" referrerpolicy="no-referrer">
+
+<strong>20230722_214928.jpg</strong> (10.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-22 21:49 上传
+
+<img src="https://img.saraba1st.com/forum/202307/22/215207cbmadml45gbgq1yz.jpg" referrerpolicy="no-referrer">
+
+<strong>Cache_1d71307941a1c5fe.jpg</strong> (153.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-22 21:52 上传
+
+
+*****
+
+####  冰风血羽  
+##### 2876#       发表于 2023-7-23 06:08
+
+无料真能出？我还以为是都市传说
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  蓮華  
+##### 2877#       发表于 2023-7-23 19:46
+
+新時代到来の予兆、黒色彗星（カラーレス・アイドル）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shadowof  
+##### 2878#         楼主| 发表于 2023-7-23 19:51
+
+去年就一直在猜会给ルカ加组合，
+
+今年加入以后什么都还没呢。
+
+主要放在给song上线造势了。
+
+
+*****
+
+####  kirakira~  
+##### 2879#       发表于 2023-7-23 21:00
+
+一眼CMYK
+
