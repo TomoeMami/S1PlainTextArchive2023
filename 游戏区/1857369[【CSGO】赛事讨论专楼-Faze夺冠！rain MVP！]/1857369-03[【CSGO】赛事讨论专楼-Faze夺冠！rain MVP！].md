@@ -6320,3 +6320,79 @@ B1t：你们在聊什么呀？<img src="https://static.saraba1st.com/image/smile
 小李子这又钢又指挥太吓人了，什么时候度过蜜月期小森开始涡轮增压啊</blockquote>
 真快吧  就一天
 
+*****
+
+####  那由  
+##### 3841#       发表于 2023-7-17 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61688476&amp;ptid=1857369" target="_blank">宝儿 发表于 2023-7-17 01:04</a>
+真快吧  就一天</blockquote>
+确实，昨晚看飞柱inf跳着进警房回防明显温度不对劲了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dev2ce  
+##### 3842#       发表于 2023-7-20 14:04
+
+难怪v社会警告blast，这破赛制输了两个bo3还有机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被淘汰还能打showdown
+
+
+*****
+
+####  天妇罗  
+##### 3843#       发表于 2023-7-20 14:31
+
+一天两个bo3，输三次才淘汰，什么养老比赛
+
+
+*****
+
+####  那由  
+##### 3844#       发表于 2023-7-20 23:13
+
+“北约援助乌克兰现状”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  heseran  
+##### 3845#       发表于 2023-7-20 23:29
+
+这波赌a挺抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3846#       发表于 2023-7-23 01:08
+
+明年要有上海major了，CS一直都是a大消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3847#         楼主| 发表于 2023-7-23 07:20
+
+五分之一a队还真能打五分之一液体啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老汤要坚持到拍完碟中谍8吗
+
+
+*****
+
+####  heseran  
+##### 3848#       发表于 2023-7-23 08:51
+
+今年年底的iem北京是不是取消了？
+
+
+*****
+
+####  demon6666  
+##### 3849#       发表于 2023-7-23 09:37
+
+今年年底是iem悉尼吧
+
