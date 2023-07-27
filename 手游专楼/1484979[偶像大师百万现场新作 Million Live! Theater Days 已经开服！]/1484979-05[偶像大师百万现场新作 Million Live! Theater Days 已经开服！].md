@@ -1485,3 +1485,103 @@ SHS白嫖只出了个新惠美，不过券出了贵音和雪步的异色，不�
 
 今年周年服超喜欢，彩色设计简洁又亮眼，可爱又有传统偶像制服感，过去的周年服有点用力过度，显得稍微另类了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7194#       发表于 2023-7-22 14:55
+
+惠美和可怜的发色卡，发色和衣服设计都挺的一般<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+新的活动曲倒是非常棒，
+
+活动服露大腿好评，但是其它设计还有点怪，可能是既想露又不敢露<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 7195#       发表于 2023-7-23 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61647541&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-7-13 12:03</a>
+今年三限定奖励输麻了，
+
+水着未来，猫猫桃子，祭典莉绪，全是普通老限定</blockquote>
+3new都叫输麻的么？ydbl
+
+还有发型和fes分类不是限定谢谢
+
+
+*****
+
+####  花开安菲路  
+##### 7196#       发表于 2023-7-23 08:56
+
+ 本帖最后由 花开安菲路 于 2023-7-23 09:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61756418&amp;ptid=1484979" target="_blank">枫紫 发表于 2023-7-23 08:24</a>
+3new都叫输麻的么？ydbl
+
+还有发型和fes分类不是限定谢谢</blockquote>
+啊这，一年的新建号，出new不是很正常嘛，非发型发色池我很少抽的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+另外说话干嘛攻击性那么高，我又不欠你什么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 7197#       发表于 2023-7-23 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61756581&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-7-23 08:56</a>
+
+啊这，一年的新建号，出new不是很正常嘛，非发型发色池我很少抽的
+
+另外说话干嘛嘴这么臭攻击性那 ...</blockquote>
+哦不好意思，我嘴就是那么臭的，让你不舒服了我道歉
+
+1年新玩家的话出旧限定应该高兴啊，发色还能妇科时狙击，旧卡的入手途径只有生日打上和必得了
+
+
+*****
+
+####  花开安菲路  
+##### 7198#       发表于 2023-7-23 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61756644&amp;ptid=1484979" target="_blank">枫紫 发表于 2023-7-23 09:09</a>
+哦不好意思，我嘴就是那么臭的，让你不舒服了我道歉
+
+1年新玩家的话出旧限定应该高兴啊，发色还能妇科时 ...</blockquote>
+因为新号，根本就不追求那虚无的收藏率啊。
+能出喜欢的限定或者发色这种对战力也有些提升的新限定，才有点意义<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萩原组土狼p  
+##### 7199#       发表于 2023-7-23 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61756762&amp;ptid=1484979" target="_blank">花开安菲路 发表于 2023-7-23 09:30</a>
+
+因为新号，根本就不追求那虚无的收藏率啊。
+
+能出喜欢的限定或者发色这种对战力也有些提升的新限定，才有 ...</blockquote>
+这游戏战力没用，抽到喜欢的就好，没必要追求啥强度的，这游戏也没强度
+
+
+*****
+
+####  花开安菲路  
+##### 7200#       发表于 2023-7-23 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61756870&amp;ptid=1484979" target="_blank">萩原组土狼p 发表于 2023-7-23 09:45</a>
+这游戏战力没用，抽到喜欢的就好，没必要追求啥强度的，这游戏也没强度 ...</blockquote>
+的确如此，只不过手动打歌的时候，能多打点分也算是一点小小的成就感吧，出活动曲或者新曲我会先试着打打分，然后就上自己喜欢的角色混编了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7201#       发表于 2023-7-24 19:35
+
+把六周年卡都觉醒到SSR了，领了不少石头奖励，感觉又有底气了，
+
+杏奈婚纱的正确用法是竖屏单人模式<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
