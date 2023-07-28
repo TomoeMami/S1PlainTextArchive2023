@@ -521,3 +521,149 @@ helck都说清楚了，世界的意志就是单纯毁灭旧世界诞生一个不
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">现在异剑这边的刀子算是来得迟了。最大的问题始终，这次的世界意志以什么方式出现。上次的教主还是过去的赫鲁库那边的降临于某人，可这次的女王就完全是另一回事了，简直像是世界意志直接动手打人一样。
 
+*****
+
+####  azbhg1  
+##### 1092#       发表于 2023-7-17 23:41
+
+贴吧更新到最新的49话了
+
+
+*****
+
+####  jy000129  
+##### 1093#       发表于 2023-7-18 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61653717&amp;ptid=1047361" target="_blank">三合一出现 发表于 2023-7-13 23:04</a>
+现在异剑这边的刀子算是来得迟了。最大的问题始终，这次的世界意志以什么方式出现。上次的教主还是 ...</blockquote>
+那个什么教祖就已经变成世界意志代言人了
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 1094#       发表于 2023-7-18 23:07
+
+为啥说琥珀是帝国四天王，这作里还有帝国的吗
+
+*****
+
+####  azbhg1  
+##### 1095#       发表于 2023-7-18 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61710916&amp;ptid=1047361" target="_blank">大弹涂鱼潜伏 发表于 2023-7-18 23:07</a>
+为啥说琥珀是帝国四天王，这作里还有帝国的吗</blockquote>
+前作里四天王剪影里有个带头巾的，helck连载结束后作者发了个预告，是一人把头巾摘下来，这个人就是琥珀
+
+
+*****
+
+####  三合一出现  
+##### 1096#       发表于 2023-7-19 08:33
+
+因为连载前的预告是这样暗示的，加上名字的原因。这作者过去没怎么用过误会/误导的方式来制造冲突所以琥珀是白天王的可能性非常的高。
+
+唯一问题就是，现在正篇里面本身没有把这事确定下来，现在老粉对异剑的其中一个讨论就是，这部到底是不是前作，时间点会是什么时候。
+
+
+*****
+
+####  azbhg1  
+##### 1097#       发表于 2023-7-21 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61710941&amp;ptid=1047361" target="_blank">azbhg1 发表于 2023-7-18 23:10</a>
+前作里四天王剪影里有个带头巾的，helck连载结束后作者发了个预告，是一人把头巾摘下来，这个人就是琥珀 ...</blockquote>
+补个图<img src="https://p.sda1.dev/12/868ca88a8ad97cee462420d27db756a3/-a6db38a3b19537.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azbhg1  
+##### 1098#       发表于 2023-7-24 00:41
+
+<img src="https://p.sda1.dev/12/1fa36e82904242f5488da310b51b6d65/FE3__97W_H_A_CA2_8_9OOS.png" referrerpolicy="no-referrer">
+
+琥珀应该是预见到顶多只能一换一了，准备一个人莽上去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FrozenA  
+##### 1099#       发表于 2023-7-24 02:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这楼竟然14年就开了？
+
+
+*****
+
+####  瓦米里奥  
+##### 1100#       发表于 2023-7-24 08:27
+
+汉化已出，女王果然认识瓦尔提欧，以及琥珀主召唤兽果然是白虎，最后一格虽然很帅不过基友和琥珀应该还是会至少退场一个？
+
+
+*****
+
+####  三合一出现  
+##### 1101#       发表于 2023-7-24 09:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">琥珀短暂下线吧，毕竟新手保护期也太久了。
+
+
+*****
+
+####  tansapple  
+##### 1102#       发表于 2023-7-24 09:25
+
+ 本帖最后由 tansapple 于 2023-7-24 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61765231&amp;ptid=1047361" target="_blank">FrozenA 发表于 2023-7-24 02:21</a>
+这楼竟然14年就开了？
+
+————-</blockquote>
+能接受剧透的话，那是世界意志提供的力量加成，你可以当做就是四小贩的主动赐福。
+
+
+*****
+
+####  FrozenA  
+##### 1103#       发表于 2023-7-24 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61766203&amp;ptid=1047361" target="_blank">tansapple 发表于 2023-7-24 09:25</a>
+能接受剧透的话，那是世界意志提供的力量加成，你可以当做就是四小贩的主动赐福。 ...</blockquote>
+我赫鲁库已经补完了，所以不怕剧透
+
+就是不太懂自然觉醒的弟弟为什么会被用作吸收亚空间能源的装置，主动赐福是指米卡洛斯把世界的意志强加给他了吗
+
+
+*****
+
+####  团结的腹肌  
+##### 1104#       发表于 2023-7-24 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61772234&amp;ptid=1047361" target="_blank">FrozenA 发表于 2023-7-24 17:12</a>
+
+我赫鲁库已经补完了，所以不怕剧透
+
+就是不太懂自然觉醒的弟弟为什么会被用作吸收亚空间能源的装置，主动 ...</blockquote>
+个人理解是觉醒和接触世界的意志无关，觉醒是变成新世界生物，而接触世界的意志应该只影响精神，接受世界意识的人会主动行动促进新世界诞生。
+
+
+*****
+
+####  azbhg1  
+##### 1105#       发表于 2023-7-24 21:40
+
+看贴吧发现原来真的不少人没发现helck里当年汉化组翻错了，都把魔女当姨妈了，人家明明是初代四天王的姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TR4835  
+##### 1106#       发表于 2023-7-25 17:30
+
+想看伏笔回收（
+
+<img src="https://p.sda1.dev/12/a6aa1394003fd66a5322bb63a383603f/CMP_20230725172928655.jpg" referrerpolicy="no-referrer">
+
