@@ -182,3 +182,20 @@ github 上没 push 2.5.4 的代码吗，我看GitHub上的代码还是 2.5.3，�
 
 大佬，图片发不出来了，是移动网的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  卡密sama  
+##### 1432#       发表于 2023-7-25 08:54
+
+现在不能自动签到了吗？
+
+
+*****
+
+####  蒜灵  
+##### 1433#       发表于 2023-7-25 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648016&amp;ptid=1220112" target="_blank">花开安菲路 发表于 2023-7-13 12:57</a>
+大佬，图片发不出来了，是移动网的问题吗</blockquote>
+图床的问题
+
