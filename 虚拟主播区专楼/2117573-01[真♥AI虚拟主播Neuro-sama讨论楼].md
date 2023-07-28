@@ -1263,3 +1263,10 @@ v3歌力好强<img src="https://static.saraba1st.com/image/smiley/face2017/037.p
 
 V3真是翻天覆地的变化，之前V2唱成夹子音的部分音乐在V3都唱的很顺滑<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+*****
+
+####  tansapple  
+##### 107#       发表于 2023-7-25 11:19
+
+邪牛最近几次杂谈，歌回和联动感觉比正牛还可爱，臭屁嘴臭小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
