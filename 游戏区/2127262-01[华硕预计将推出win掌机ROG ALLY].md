@@ -4389,3 +4389,73 @@ ally不可能有4h，我sd最低整机功耗是7w（tdp3w），基本就是屏�
 
 大概能撑不到6小时
 
+*****
+
+####  bypass  
+##### 420#       发表于 2023-7-21 15:21
+
+新的 BIOS 更新来了，应该是支持第三方充电头开启增强模式，修复了插电时性能还不如不插电的问题，各位可以升级试试。
+ <blockquote>New BIOS 323 update for the #ROGAlly. <strong>// 适用于 ROG Ally 的 323 版本 BIOS 更新</strong>
+
+🔹Added 30W support when plugging in 65W or higher wattage PD adapters or Type-C hub.
+<strong>使用 65w 或者更高瓦数 PD 充电器或者 Type-C 扩展坞的时候，支持开启 30w 增强模式。</strong>
+
+🔹Modified minimum panel backlight value to 10nits to improve usability in dark environments.
+<strong>将面板最低背光亮度值调整到 10 尼特，从而提高黑暗环境下的使用体验。</strong>
+
+🔹On future BIOS updates, the "Memory Assigned to GPU" setting won’t be reset to default; it will now keep its previous value.
+<strong>未来的 BIOS 更新将不会重置 "分配给 GPU 的内存容量" 设置值。</strong>
+
+🔹Optimized performance in Performance mode when plugged in.
+<strong>优化了插电时性能模式下的性能表现</strong></blockquote>
+
+
+*****
+
+####  恋妖壶  
+##### 421#       发表于 2023-7-23 12:27
+
+哎，这次抢购我还预约了，但是后来竟然都忘了，再耍下去真的拔草了
+
+
+*****
+
+####  从不黑妹子  
+##### 422#       发表于 2023-7-23 12:35
+
+我也忘了，草，这次看样子还是秒光？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  luffyzhou  
+##### 423#       发表于 2023-7-23 16:44
+
+12点06分抢到了，应该是捡漏了，准点进去的时候说没货来的
+
+
+*****
+
+####  你不会没有吧  
+##### 424#       发表于 2023-7-25 16:36
+
+到手一段时间了，分享下感受（和sd对比）：1.屏幕确实不错  2.玩gal和小黄油等非Steam游戏不用进desktop也不用配置乱七八糟的参数，这方面用sd很折腾  3.修改游戏很方便毕竟win，但是win无键鼠操作很别扭加上没触摸板更是雪上加霜 续航问题不说了，sd好一些但不多，都要时不时插电回血，没本质差别。还有这块屏挺适合看片的，配合emby拉起mpv套滤镜也好插帧也好都还不错，对天天拿infuse看片的我来说，这种看片方式挺新鲜的，找回了些许PSP的感觉。购买建议的话，如果你能解决网络问题，也喜欢折腾那无疑是SD的性价比更高；如果只想试试x86掌机那我建议咸鱼蹲蹲不怎么溢价的2t ally，使用门槛更低，且市场流通得很快，不喜欢直接转手很容易。
+
+
+*****
+
+####  泰坦失足  
+##### 425#       发表于 2023-7-26 10:28
+
+看了下, 挺惊讶美国Bestbuy这玩意居然有现货. 不知道是疫情和矿潮影响终于过去了, 产能提升的关系, 还是PC掌机没人买的原因. 已经习惯了从17年的NS起到22年的Deck都是缺货和抢购, 这一下随便买还有点挺不习惯的.
+
+
+*****
+
+####  monikaca  
+##### 426#       发表于 2023-7-26 10:34
+
+被耍猴了，倒不是出不起几百块，就是觉得多送几百块给黄牛不爽。
+
+到底怎么样才能原价抢到？
+
