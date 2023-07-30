@@ -5248,3 +5248,91 @@ CP方面，月歌 x yukki x 夏洛的互动能一直玩到关服。侦探x修女
 这模式超简单的吧，只是限定不能相同的皮，孔明四妹 A和S都能带大加攻，拐队友闭眼杀那些杂兵 ...</blockquote>
 火队都组满了哪来的什么难度 
 
+*****
+
+####  Muteki_Link  
+##### 1340#       发表于 2023-7-27 16:24
+
+朋友们现在手机端是怎么玩红烧的，我端**和梯子现在全线p403了。
+
+之前主要是pc版用**，至少可以手动选线有些线是能连上的，但是现在想用手机在外面打就很奔溃了，**手机端不能选特定线路，只能选区，日区老早以前就p403了，港澳台服可以用一段时间，现在也p403了，怎么断连重连也没用。自己的梯子干别的都没问题就上这个游戏p403，彻底无语了。
+
+
+*****
+
+####  ufo2222  
+##### 1341#       发表于 2023-7-27 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61808923&amp;ptid=2050204" target="_blank">Muteki_Link 发表于 2023-7-27 16:24</a>
+朋友们现在手机端是怎么玩红烧的，我端**和梯子现在全线p403了。
+
+之前主要是pc版用**，至少可以手动选线有 ...</blockquote>
+没事，刚刚看到企鹅收了key，国服指日可待，就是肯定变味了
+
+
+*****
+
+####  Hemis  
+##### 1342#       发表于 2023-7-27 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61808923&amp;ptid=2050204" target="_blank">Muteki_Link 发表于 2023-7-27 16:24</a>
+
+朋友们现在手机端是怎么玩红烧的，我端**和梯子现在全线p403了。
+
+之前主要是pc版用**，至少可以手动选线有 ...</blockquote>
+别的区再试试  
+
+我这边港区和日本就没连上的可能，以前最添堵的时候已经换到新加坡、越南去了，韩国和台区都联不上
+
+*****
+
+####  Unlight  
+##### 1343#       发表于 2023-7-27 17:12
+
+这下便乘腾讯手游力（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Muteki_Link  
+##### 1344#       发表于 2023-7-27 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61809598&amp;ptid=2050204" target="_blank">Hemis 发表于 2023-7-27 17:05</a>
+
+别的区再试试  
+
+我这边港区和日本就没连上的可能，以前最添堵的时候已经换到新加坡、越南去了，韩国和台 ...</blockquote>
+反复刷了，十几次，很偶然的成功了，还是看脸。看加速到随机能用的线
+
+*****
+
+####  Muteki_Link  
+##### 1345#       发表于 2023-7-27 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61809518&amp;ptid=2050204" target="_blank">ufo2222 发表于 2023-7-27 17:00</a>
+
+没事，刚刚看到企鹅收了key，国服指日可待，就是肯定变味了</blockquote>
+别说了，看到别人转的社长博客了，点名道姓感谢红烧天堂玩家。
+
+这下好了，帮凶竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+*****
+
+####  范坚强  
+##### 1346#       发表于 2023-7-27 17:38
+
+<blockquote>Muteki_Link 发表于 2023-7-27 16:24
+朋友们现在手机端是怎么玩红烧的，我端**和梯子现在全线p403了。
+
+之前主要是pc版用**，至少可以手动选线有 ...</blockquote>
+用uu试试？
+
+*****
+
+####  范坚强  
+##### 1347#       发表于 2023-7-27 17:41
+
+因为马甲被扒 魁就是冈本学这个以前有人知道么
+
