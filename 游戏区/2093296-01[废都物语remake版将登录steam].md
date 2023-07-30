@@ -494,3 +494,121 @@
 这是啥开源掌机？</blockquote>
 周哥的RG35xx， 咸鱼200出头就可以收一部
 
+*****
+
+####  Ehekatl  
+##### 475#       发表于 2023-7-27 11:29
+
+[https://ngabbs.com/read.php?tid=37154289](https://ngabbs.com/read.php?tid=37154289) 
+
+有老哥的试玩report出了 什么时候能玩到 我好tm的急啊 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大暗月  
+##### 476#       发表于 2023-7-27 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59441192&amp;ptid=2093296" target="_blank">厄斯沃穆 发表于 2023-01-22 00:03:12</a>
+新年贺图，小艾妲 v2.5.4</blockquote>看上去枯草真的有在监制，提了挺多“本来原作就想xxxx但是限于机能balabala”，挺好，更期待了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  穿越护城河  
+##### 477#       发表于 2023-7-27 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61713947&amp;ptid=2093296" target="_blank">赞卡机 发表于 2023-7-19 10:32</a>
+
+这是啥开源掌机？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/27/144627zz9d3fx435fq933o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230727144617.png</strong> (244.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 14:46 上传
+
+其实RA架构下能装easyrpg的都能用
+
+顺带发个自用的
+
+链接: [https://pan.baidu.com/s/1Pajt2LAgCMjDaz1duyBf-w](https://pan.baidu.com/s/1Pajt2LAgCMjDaz1duyBf-w) 提取码: uzx8
+
+
+*****
+
+####  Junakr  
+##### 478#       发表于 2023-7-27 16:31
+
+刚好整了个 3ds 的，重制根本不急，最好狠狠地打磨。
+
+<img src="https://img.saraba1st.com/forum/202307/27/163127p2kphkfphpouujpc.jpg" referrerpolicy="no-referrer">
+
+<strong>photo.jpg</strong> (94.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 16:31 上传
+
+
+*****
+
+####  scikirbypoke  
+##### 479#       发表于 2023-7-27 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61809058&amp;ptid=2093296" target="_blank">Junakr 发表于 2023-7-27 16:31</a>
+
+刚好整了个 3ds 的，重制根本不急，最好狠狠地打磨。</blockquote>
+这是怎么玩上的？
+
+
+*****
+
+####  穿越护城河  
+##### 480#       发表于 2023-7-27 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61809230&amp;ptid=2093296" target="_blank">scikirbypoke 发表于 2023-7-27 16:41</a>
+
+这是怎么玩上的？</blockquote>
+3ds上有easyrpg可装
+
+相比之下通过RA超出了它的能力
+
+
+*****
+
+####  厄斯沃穆  
+##### 481#         楼主| 发表于 2023-7-27 19:56
+
+近期的线下试玩活动玩家在微博上发了一些repo，官博基本都有进行转发，可以看看。[官方微博](https://weibo.com/u/7791171653?refer_flag=1005055013_)
+
+另外通过试玩的赠品可以看到部分主角立绘选项：
+
+<img src="https://img.saraba1st.com/forum/202307/27/195551yekgukamu22oq0ko.jpg" referrerpolicy="no-referrer">
+
+<strong>67825826gy1hg5qqo55k9j216k1qgqhj.jpg</strong> (143.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202307/27/195603evnz02z9jjxixaxp.jpg" referrerpolicy="no-referrer">
+
+<strong>b515e24fgy1hg7q2emmaaj22c0340u0y.jpg</strong> (217.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202307/27/195610mz6auumumakazkom.jpg" referrerpolicy="no-referrer">
+
+<strong>bae84f3agy1hg979gs34sj21410u0ti2.jpg</strong> (95.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 19:56 上传
+
