@@ -3415,3 +3415,1705 @@ K宝二技能带吸血，防御和被动是给自己打药，三技能伤害和�
 
 良秀的两个ego算是配套的，T级的给对面单体挂束缚和斩击脆弱，H级的则是束缚特攻AOE，速度高和回复体力的情况下也能增伤。
 
+*****
+
+####  Yuzutea  
+##### 204#       发表于 2023-6-29 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把N辛踢掉之后镜牢2p起来一下就舒服起来了
+
+
+*****
+
+####  久井路路  
+##### 205#       发表于 2023-6-30 17:54
+
+<img src="https://img.saraba1st.com/forum/202306/30/175348nraraofffqorapzx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230630175340.png</strong> (47.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-30 17:53 上传
+
+这个时间点出新的玛玛还真是没想到
+
+左手小笼包右手面条、实属惬意（ 
+
+
+*****
+
+####  Jamaisvu  
+##### 206#       发表于 2023-6-30 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61495256&amp;ptid=2120922" target="_blank">久井路路 发表于 2023-6-30 17:54</a>
+
+这个时间点出新的玛玛还真是没想到
+
+左手小笼包右手面条、实属惬意（ </blockquote>
+哦哦，玛丽太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">六协会终于有三星角色了，狂喜！
+
+不过我比较遗憾的是目前几个六协员工都没穿图书馆里的红色风衣，那套多帅啊...
+
+也许是级别不够吧，一科二科才允许穿强者套装？
+
+
+*****
+
+####  Yuzutea  
+##### 207#       发表于 2023-7-1 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">镜二困难月计估计又要滑轨了
+
+YJ可能呢没搞清楚二层怪是五层那buff然后boss打工厂或者粉红鞋是个什么概念<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 208#       发表于 2023-7-1 17:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">良秀ego池子200抽一个没出
+
+太毒了家人们<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 209#       发表于 2023-7-3 00:59
+
+感觉月计的思路是点了星光大道才能打hard，但实际情况到底怎么样就不知道了，等周四肝佬们探路看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 210#       发表于 2023-7-3 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61524403&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-3 00:59</a>
+感觉月计的思路是点了星光大道才能打hard，但实际情况到底怎么样就不知道了，等周四肝佬们探路看看吧[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在星光大道右边点满了左边差最后一个
+按现在透漏的hard相关我觉得不是这点buff就能好打的
+开局估计是要赌婴儿或者王冠才行了
+
+
+*****
+
+####  Jamaisvu  
+##### 211#       发表于 2023-7-3 19:42
+
+ 本帖最后由 Jamaisvu 于 2023-7-3 19:45 编辑 
+
+<img src="https://img.saraba1st.com/forum/202307/03/193922pd6vyid8hh63eimx.jpg" referrerpolicy="no-referrer">
+
+<strong>09189B1CF46B65E4DD33F075090D13CC.jpg</strong> (421.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-3 19:39 上传
+
+六协玛的技能出了，三个技能都是烧伤特攻的打击技能并且能叠烧伤，被动也是赐予队友打击技能的烧伤特攻。
+
+看着还不错，不过为了限定还是忍一下吧...
+
+另外我比较希望再出个能打的斩击特化三星，目前的剑契箱、黑云罗和W默都挺平平无奇的...
+
+
+*****
+
+####  法拉  
+##### 212#       发表于 2023-7-4 00:55
+
+尼玛，一个镜牢一而再再而三的跳票
+
+
+*****
+
+####  Jamaisvu  
+##### 213#       发表于 2023-7-4 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61539475&amp;ptid=2120922" target="_blank">法拉 发表于 2023-7-4 00:55</a>
+
+尼玛，一个镜牢一而再再而三的跳票</blockquote>
+可能在修复bug和调控难度吧，正好也给玩家更多时间刷刷星盘，要不到时候难度突升搞得怨声载道就不好了。
+
+
+*****
+
+####  Jamaisvu  
+##### 214#       发表于 2023-7-4 20:05
+
+话说我今天才知道ego动画可以长按加速<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+要是FGO也有这功能就好了...
+
+
+*****
+
+####  Yuzutea  
+##### 215#       发表于 2023-7-6 13:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">玛玛可爱捏
+
+该用箱子直接换了
+
+
+*****
+
+####  Jamaisvu  
+##### 216#       发表于 2023-7-6 19:31
+
+NGA那边有人做了地牢礼物的选项表，搬运一下：
+
+<img src="https://img.saraba1st.com/forum/202307/06/193039rzjf0x7jojx8cd88.png" referrerpolicy="no-referrer">
+
+<strong>axteQ2s-l8ygXoZ6nT3cSw8-28l.png</strong> (648.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-6 19:30 上传
+
+<img src="https://img.saraba1st.com/forum/202307/06/193040jgk4345mbb6mikke.png" referrerpolicy="no-referrer">
+
+<strong>axteQ2s-44d3XiZ4zT3cSw8-1vf.png</strong> (494.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-6 19:30 上传
+
+感谢作者辛苦整理，原帖：[https://bbs.nga.cn/read.php?tid=36870722](https://bbs.nga.cn/read.php?tid=36870722)
+
+
+*****
+
+####  囧十七  
+##### 217#       发表于 2023-7-7 19:23
+
+万众瞩目的夏活要来了，7.27
+
+
+*****
+
+####  ヒトニナル  
+##### 218#       发表于 2023-7-7 19:41
+
+看PV好像真去海边，快把都市的海端上来罢我已经等不及了
+
+
+*****
+
+####  Jamaisvu  
+##### 219#       发表于 2023-7-7 19:52
+
+<blockquote>ヒトニナル 发表于 2023-7-7 19:41
+看PV好像真去海边，快把都市的海端上来罢我已经等不及了</blockquote>
+狱 翻 黯 泳
+
+
+*****
+
+####  Jamaisvu  
+##### 220#       发表于 2023-7-7 19:54
+
+<img src="https://img.saraba1st.com/forum/202307/07/195335wx1orrrl3kwkainz.jpg" referrerpolicy="no-referrer">
+
+<strong>EF653CCFD4371FA1C0C3329D9D489605.jpg</strong> (93.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-7 19:53 上传
+
+活动前又塞了新池子，N犀牛默尔索，ZEWI协会罗佳...
+
+都去二赛季三星十连券里等着我吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 221#       发表于 2023-7-7 20:00
+
+～～和N公司的战斗员网恋(●✿∀✿●)～～：
+
+套皮直播<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202307/07/195809dy8uf27678m77227.png" referrerpolicy="no-referrer">
+
+<strong>3023216887310022.png</strong> (174.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-7 19:58 上传
+
+美颜照片<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202307/07/195810ckuetrqqjkt5t96t.png" referrerpolicy="no-referrer">
+
+<strong>4898216887310232.png</strong> (234 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-7 19:58 上传
+
+线下面基<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202307/07/195811d8lmbk0ak6dxnsbk.png" referrerpolicy="no-referrer">
+
+<strong>3964216887310112.png</strong> (167.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-7 19:58 上传
+
+
+*****
+
+####  囧十七  
+##### 222#       发表于 2023-7-7 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61589537&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-7 19:54</a>
+
+活动前又塞了新池子，N犀牛默尔索，ZEWI协会罗佳...
+
+都去二赛季三星十连券里等着我吧</blockquote>
+这次池子是常驻，不在二赛季的十连卷必出范围内。
+
+离27号有两周，20号再塞一个也不奇怪，怀疑一些老粉前一阵子笑月计卡池产能不足被月计听到了直接一周一池<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Yuzutea  
+##### 223#       发表于 2023-7-7 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屯了600个箱子等着换了
+
+要是夏活的人格和ego不能用箱子换我就去推上冲YJ<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+索子哥出常驻三灯的话感觉夏活三星会是浮浮或者小唐了
+
+*****
+
+####  Yuzutea  
+##### 224#       发表于 2023-7-7 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61589721&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-7 20:10</a>
+
+这次池子是常驻，不在二赛季的十连卷必出范围内。
+
+离27号有两周，20号再塞一个也不奇怪，怀疑一些老粉前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜20号会上个ego池子
+
+现在小辛还没HEego呢
+
+
+*****
+
+####  ヒトニナル  
+##### 225#       发表于 2023-7-7 20:41
+
+我记得还有符咒罗佳和玫瑰扳手小唐的卫星
+东朗ego人格要出的话应该在赛季末出，就是不知道会不会跟烤冷面一样没了
+
+*****
+
+####  Jamaisvu  
+##### 226#       发表于 2023-7-7 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61589721&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-7 20:10</a>
+
+这次池子是常驻，不在二赛季的十连卷必出范围内。
+
+离27号有两周，20号再塞一个也不奇怪，怀疑一些老粉前 ...</blockquote>
+啊对，之前的六协玛丽也是常驻。那就更不着急了，等着慢慢歪即可<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+产能上来是好事，顶多苦了全图册党，需要玩家自己把持住资源...
+
+另外月计可能真招人了，最近bug越来越少...希望hard二号线开了能再捞一笔补偿（误）
+
+*****
+
+####  Jamaisvu  
+##### 227#       发表于 2023-7-7 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61589780&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-7 20:14</a>
+
+屯了600个箱子等着换了
+
+要是夏活的人格和ego不能用箱子换我就去推上冲YJ
+
+索子哥出常驻三灯的 ...</blockquote>
+肯定能换的吧，3.5那俩不也能吗。
+
+反正到时候不能换的话，YJ也得被炎上到能换<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 228#       发表于 2023-7-7 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我原来屯了200抽所以能不能换我都还能接受
+
+但是前几天没忍住抽良秀EGO池全抽掉了，还一个没出，难顶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这赛季全图鉴应该还挺好搞的
+
+我现在还有600箱子，商店就箱子哥丢石头和浮浮电狼ego还有索子哥二赛季两灯没换了，这赛季感觉每天买两次体赛季末应该都能搬空
+
+*****
+
+####  囧十七  
+##### 229#       发表于 2023-7-7 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61589830&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-7 20:19</a>
+
+我猜20号会上个ego池子
+
+现在小辛还没HEego呢</blockquote>
+辛克莱记得还有个火柴卫星？感觉不是没可能
+
+其实在想YJ有没有出皮肤的想法，一些主线出现过的衣服还挺想要的，比如辛克莱校服，箱李的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 230#       发表于 2023-7-7 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61590218&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-7 20:50</a>
+
+啊对，之前的六协玛丽也是常驻。那就更不着急了，等着慢慢歪即可
+
+产能上来是好事，顶多苦了全图 ...</blockquote>
+小BUG还是一如既往的多，不过这种小BUG不特别影响体验所以在意的人就不是太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是hard镜牢，四阶，二号线这几个第二赛季大头还没出，不能盲目乐观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 231#       发表于 2023-7-7 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61590125&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2023-7-7 20:41</a>
+
+我记得还有符咒罗佳和玫瑰扳手小唐的卫星
+
+东朗ego人格要出的话应该在赛季末出，就是不知道会不会跟烤冷面一 ...</blockquote>
+我现在有点搞不懂卡面里的配角到底是卫星还是衬托世界观的角色了...
+
+犀牛最先出现是驯鹿玛丽初始卡面的虫叔，结果突然给了默尔索（还圆得像个屎壳郎）；
+
+妖精ego玛丽初始卡面里的希斯本来是狐雨ego，但当时卡池预览图却画得是符咒希斯（虽然明显是临时起意，不过也算是合理，毕竟就是身衣服）；
+
+另外K社世界貌似是同时有玫瑰罗佳和符咒ego罗佳的...（难道是无间道吗）
+
+月计，你是自由的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 232#       发表于 2023-7-7 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61590276&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-7 20:57</a>
+
+我原来屯了200抽所以能不能换我都还能接受
+
+但是前几天没忍住抽良秀EGO池全抽掉了，还一个没出，难顶 ...</blockquote>
+ego是1.3%概率而人格是2.9%概率呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+因为ego出了后就从卡池消失，我一般是以兑换为主，毕竟人格换了下次歪出来不就血亏350碎片...
+
+其实有氪金的话可以赌每日单抽出货，性价比最高的抽卡了...
+
+
+*****
+
+####  Yuzutea  
+##### 233#       发表于 2023-7-7 21:19
+
+我现在确实还在用每日单抽补池子看能不能出呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 现在开了通行证的话刷镜牢开箱子然后换碎片纺锤的体力比例比直接打纺锤本收益高，月计在改之前没考虑过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 234#       发表于 2023-7-7 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61590377&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-7 21:07</a>
+我现在有点搞不懂卡面里的配角到底是卫星还是衬托世界观的角色了...
+
+犀牛最先出现是驯鹿玛丽初始卡面的 ...</blockquote>
+其实我一直想说月亮锁头就是拿以前做单机买断制游戏的思路在做手游，各种机制都能脑袋一拍就改的，何况区区卡池
+
+
+*****
+
+####  囧十七  
+##### 235#       发表于 2023-7-10 17:31
+
+镜2hard新饼，以及还有跟着4阶一块的底层系统改动，改动有点大看着着实有点害怕额
+
+
+*****
+
+####  Yuzutea  
+##### 236#       发表于 2023-7-10 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这R默怎么像个纯低配版R兔啊
+
+*****
+
+####  Jamaisvu  
+##### 237#       发表于 2023-7-10 18:59
+
+新角色技能：
+
+<img src="https://img.saraba1st.com/forum/202307/10/185641x211136aqdc6oz61.jpg" referrerpolicy="no-referrer">
+
+<strong>1fbbb44b24655f006ff482ddb17e08f0b094b0fa_raw.jpg</strong> (472.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-10 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202307/10/185643fdj4goocgrjmbr2b.jpg" referrerpolicy="no-referrer">
+
+<strong>d433425d695edf71ffb4a04eac4e18583c6f8487_raw.jpg</strong> (378.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-10 18:56 上传
+
+牛默是流血+充能体系，Z罗是呼吸体系。
+
+可以看出月计也在慢慢给各个体系补强加人。我目前还处于谁强谁上XJBD的阶段，希望以后能玩到成熟的体系队伍吧...
+
+*****
+
+####  Jamaisvu  
+##### 238#       发表于 2023-7-10 19:03
+
+镜牢hard最好的一点改动就是可以丢弃饰品了，白棉花拜拜了您内<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  囧十七  
+##### 239#       发表于 2023-7-10 19:51
+
+到现在都不懂为什么必须削浮士德初始EGO，降SP到也还行，但是削成这样<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">只要有液袋，浮士德仍然是入队会优先考虑的角色，对于新玩家，如果BOX偏一点，浮士德的初始EGO的资源需求就不是很好攒。
+
+看好浮士德这波滑轨一下<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Yuzutea  
+##### 240#       发表于 2023-7-10 19:56
+
+ 本帖最后由 Yuzutea 于 2023-7-10 19:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61620491&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-10 19:51</a>
+
+到现在都不懂为什么必须削浮士德初始EGO，降SP到也还行，但是削成这样只要有液袋，浮士德仍然是入队 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浮浮这初始ego削的莫名其妙
+
+本来也就新手用用了，box全的来说肯定是用液袋，快速拼点的话现在强角的技能资源来说玩具熊也比放出仪资源好攒的多
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">初始ego真正比其他人强一档的是哪位yj不会想装作不知道吧
+
+
+*****
+
+####  囧十七  
+##### 241#       发表于 2023-7-10 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61620550&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-10 19:56</a>
+
+浮浮这初始ego削的莫名其妙
+
+本来也就新手用用了，box全的来说肯定是用液袋，快速拼点的话现在强角 ...</blockquote>
+月计不如多给其他罪人补一下其他有回血，回SP之类的有辅助功能的EGO，这改动感觉只能难为新手和得罪玩家<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 242#       发表于 2023-7-10 21:36
+
+我估计开发第四阶段的时候人格的理智值上限也会增加吧，现在三阶上限45，四阶可能60？
+
+不过浮士德初始ego被针对真让人反感，本来也没强到每局必放，结果又削弱又加消耗。
+
+之前明明说鼓励使用ego，所以镜牢2资源不减半，现在又拿理智卡人，单机游戏限制这么多有意思吗...
+
+（话说初始ego算神备吧，怎么还消耗理智？用多了会变扭曲？）
+
+等二号线这种高强度连战开了看月计会不会滑跪吧...感觉他们的平衡调控跟暴雪有一拼...
+
+
+*****
+
+####  囧十七  
+##### 243#       发表于 2023-7-10 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61621517&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-10 21:36</a>
+
+我估计开发第四阶段的时候人格的理智值上限也会增加吧，现在三阶上限45，四阶可能60？
+
+不过浮士德初始ego ...</blockquote>
+最不知道说啥的是他们已经决定通过4阶对初始弱势EGO进行补强了，还有一手削弱别的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+先看看熬夜测试测出来的hard镜牢把，还行的话二号线多996测试一下应该就没大问题
+
+
+*****
+
+####  Yuzutea  
+##### 244#       发表于 2023-7-13 12:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是延期之后的镜牢困难吗？
+
+
+*****
+
+####  Yuzutea  
+##### 245#       发表于 2023-7-13 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索子哥三个三灯没一个能用的是吧
+
+
+*****
+
+####  囧十七  
+##### 246#       发表于 2023-7-13 13:50
+
+都是常驻，玛厨可以睡个好觉了，索厨睡不着提前备战第三赛季了。不要求超模，出个中规中矩强度的就行结果有点惨额
+
+
+*****
+
+####  Yuzutea  
+##### 247#       发表于 2023-7-13 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三把困难打完了
+
+EGO之前没强化满现在还没灯泡的有难了！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 248#       发表于 2023-7-13 16:03
+
+作为最右边750cost还没点的咸鱼凹了一下最后三层关底BOSS还是打过去了，感觉能打，当然想稍微轻松一点那洗洗睡吧。虽然贴吧怨气满天，但估计这波不会滑轨了
+
+感觉苟资源和最后关底EGO的合理分配很重要，以及中间把0cost的二星和初始抓满挂被动，厨虫是天.jpg感觉以后出个技能数值一般但被动逆天的卡没准是个思路<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+以及高难本能不能只要是关底BOSS都能像异想体战那样就好了，如果能选择谁来打哪个骰子三关底的K社佬我就不用重开了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 249#       发表于 2023-7-13 16:28
+
+以及这次二号线该怎么操作，要上绿钟或者奥兹玛那种机制怪了吗<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 250#       发表于 2023-7-13 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61649870&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-13 16:03</a>
+作为最右边750cost还没点的咸鱼凹了一下最后三层关底BOSS还是打过去了，感觉能打，当然想稍微轻松一点那洗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是觉得难度对ego人格都全的老玩家应该是没啥的
+但是这一层出门的体验太差了，这要是商店没改还是之前那样上线我估计现在已经滑轨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yuzutea  
+##### 251#       发表于 2023-7-13 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外来说最后boss我三把打了两把电蜈蚣一把无我入定，难度完全不一样
+
+看贴吧剩下那几个boss难度明显是有分层在那的，烤冷面无相佛铜牛这三个是你全程ego都难拼得过的，太猛啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 252#       发表于 2023-7-13 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是
+
+我帮朋友打号铜牛第一回合四个EGO全都拼不过什么意思啊？
+
+
+*****
+
+####  哩子ayil  
+##### 253#       发表于 2023-7-13 20:31
+
+这困难全程都是灌铅大骰子啊，我狐雨和水袋全程连放，剩余的才让别人收割，四层遇到花菜五层烤冷面那是拼不过一点，花菜19烤冷面更是29，ego都给我打爆，最后还是l浮进侵蚀了加上铜币一直水袋吐水把烤冷面给打败了，队友被水袋和烤冷面连打
+
+麻溜地离开困难本
+
+
+*****
+
+####  ヒトニナル  
+##### 254#       发表于 2023-7-13 21:17
+
+滑跪倒计时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 255#       发表于 2023-7-13 21:51
+
+佛像还是好打的，镜轨的打法依然可以用，一回合强杀佛像，二回合集火沙锤，三回合集火虫子，然后打打大锤哥，最后佛像拼个两回合走判定
+
+滑轨感觉把三把收益和消耗并一把就行，再砍砍关底BOSS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最大的问题还是hard估摸月计看来定位是常驻高难，但普通玩家定位是高级资源本<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 256#       发表于 2023-7-13 22:59
+
+滑了，一周一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  法拉  
+##### 257#       发表于 2023-7-13 23:33
+
+这困难是给阳间人玩的？？？？？
+
+*****
+
+####  Jamaisvu  
+##### 258#       发表于 2023-7-13 23:37
+
+ 本帖最后由 Jamaisvu 于 2023-7-13 23:39 编辑 
+
+<img src="https://img.saraba1st.com/forum/202307/13/232829kxbgh2hbhownpxh2.jpg" referrerpolicy="no-referrer">
+
+<strong>20230713232425_1.jpg</strong> (265.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-13 23:28 上传
+
+打了两个半小时终于过了一把困难，异想体BOSS遇上了泪蛙、电狼、无头鱼和火铜牛。
+
+阵亡名单两名，7协良秀死于李箱的侵蚀狐雨——大意了，打到第五层发现资源殆尽才意识到理智和资源都不支持全程放主动侵蚀。
+
+N辛则是因为我放心大胆地让他拿30大骰去跟火牛40甚至70的骰子拼点，结果不知不觉就被踩成了肉泥，悲。
+
+打火牛时我人都麻了，全程拼不过...打法大概就是拼点的人上去抗揍，单方攻击的人刮痧刮出混乱大家再打团。
+
+其实跟高血量boss鏖战确实有种打轨道高难的快感，但纯粹数值碾压就很恶心了，还不如多做点有趣的机制boss...
+
+
+*****
+
+####  Yuzutea  
+##### 259#       发表于 2023-7-14 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61652990&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-13 21:51</a>
+
+佛像还是好打的，镜轨的打法依然可以用，一回合强杀佛像，二回合集火沙锤，三回合集火虫子，然后打打大锤哥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我拿自己号打的时候还没感觉
+
+拿朋友号四层打胖妖精五层打铜牛然后还一个补ego资源的ego没抓到的时候是真的痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yuzutea  
+##### 260#       发表于 2023-7-14 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钟于123  
+##### 261#       发表于 2023-7-14 00:26
+
+贴吧那写了个镜2困难阵容攻略 超高配充能队 [https://tieba.baidu.com/p/8502856411](https://tieba.baidu.com/p/8502856411)
+
+不评价难度，帮下想打的又有box的人。
+
+
+*****
+
+####  囧十七  
+##### 262#       发表于 2023-7-14 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61654192&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-14 00:09</a>
+
+我拿自己号打的时候还没感觉
+
+拿朋友号四层打胖妖精五层打铜牛然后还一个补ego资源的ego没抓到的时 ...</blockquote>
+我是仓鼠打法，在敌人混乱或者士气低下的时候只用会提供青蓝紫红ego资源的技能，其他技能全防御闪避掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）打boss看看情况用ego，五层道中罐头，符小兵之类的放一个aoe就够了
+
+缺点是打的慢，坐牢，优点是能带着30多的资源碎片进五层boss，足够拼点了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+轨道线2，说个鬼故事，那时候四阶开了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不过我也是希望比起数值怪多搞点机制怪出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 263#       发表于 2023-7-14 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是五协小唐，不按套路出牌啊
+
+
+*****
+
+####  Yuzutea  
+##### 264#       发表于 2023-7-14 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小唐也退出决赛圈了啊
+那感觉夏活三灯不是浮浮就是奥提斯了
+
+
+*****
+
+####  Jamaisvu  
+##### 265#       发表于 2023-7-14 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61662024&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-14 17:57</a>
+
+小唐也退出决赛圈了啊
+
+那感觉夏活三灯不是浮浮就是奥提斯了</blockquote>
+说不定是男的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说虫叔一直没新三星啊，要不是3.5有他一个二星我就全押他了...
+
+*****
+
+####  Jamaisvu  
+##### 266#       发表于 2023-7-14 18:43
+
+都市  帮派  协会  Cinq协会  #1
+
+- 专门负责处理个人单位间的决斗相关委托的协会。
+
+- 虽然并不频繁发生，但似乎在都市中依旧存在以堂堂正正的“决斗”来分清黑白是非的事情。
+
+- 总之，一旦接受决斗（或者需要发起决斗），但又必败无疑的情况下，他们貌似就会接到委托。应该就是所谓的决斗代理人吧。
+
+- 这也只是从Seven协会的人格口中听来的，我对此并非十分了解……
+
+由于工作并不多，所以他们貌似会与其他协会举办交流大会之类的活动。
+
+—————
+
+Cinq是法语的“五”，决斗也算是中世纪欧洲的一种社会现象，司法决斗、荣誉决斗什么的都很常见。
+
+对于小唐这种正义偏执狂来说应该很受用吧，决斗定输赢，胜者即正义。
+
+话说三个火枪手和唐吉诃德我都喜欢看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 267#       发表于 2023-7-14 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨虫做成那样我感觉4.5三灯要是虫叔的话八成也要被下毒了
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">犀牛索连个16点都不给我是真的想不通啊
+
+*****
+
+####  Jamaisvu  
+##### 268#       发表于 2023-7-14 18:49
+
+我看规划图写的是7月实装4.5章，那估计卡池和活动应该是7.27开始吧。一个月四个新池子，这产能也够厉害的...
+
+*****
+
+####  Yuzutea  
+##### 269#       发表于 2023-7-14 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61662563&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-14 18:49</a>
+
+我看规划图写的是7月实装4.5章，那估计卡池和活动应该是7.27开始吧。一个月四个新池子，这产能也够厉害的.. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前推特预告不是27号开活动吗
+
+跳票就去推上狠狠冲YJ
+
+
+*****
+
+####  Jamaisvu  
+##### 270#       发表于 2023-7-14 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61662542&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-14 18:47</a>
+
+厨虫做成那样我感觉4.5三灯要是虫叔的话八成也要被下毒了
+
+犀牛索连个16点都不给我是真的想不 ...</blockquote>
+哪怕像驯鹿玛丽和W唐那样不充满电有副作用、但是给个大点数也好啊，犀牛做得确实扣扣搜搜的...
+
+负数硬币有N辛、R公司有兔夫和鹿玛，好的设计珠玉在前，结果可能是为了控制数据膨胀？做出了狐夫和牛默这种怪东西...
+
+只能等到默尔索自己的章节看看能不能出个T0人格，我看一下哈...是第十章！任重而道远啊局外人！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 271#       发表于 2023-7-14 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">只要等到第十章出默尔索魔弹射手人格，一切一定都会好起来的
+
+
+*****
+
+####  ヒトニナル  
+##### 272#       发表于 2023-7-14 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得月计数值策划的小脑瓜里应该是没有下毒的概念的，单纯是蠢
+
+
+*****
+
+####  Yuzutea  
+##### 273#       发表于 2023-7-14 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61662864&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2023-7-14 19:19</a>
+
+我觉得月计数值策划的小脑瓜里应该是没有下毒的概念的，单纯是蠢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这很难解释前有七奥后有K宝还能给默第三个三灯这种数值的
+
+
+*****
+
+####  囧十七  
+##### 274#       发表于 2023-7-14 22:34
+
+夏活决赛圈缩小了越来越好奇到时候东朗人格会给谁了，浮士德还是奥提斯<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+以及这次小唐画的真好，大概是目前第二赛季新卡第二喜欢的。数值下毒也要去换一张了
+
+
+*****
+
+####  Jamaisvu  
+##### 275#       发表于 2023-7-15 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61665289&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-14 22:34</a>
+
+夏活决赛圈缩小了越来越好奇到时候东朗人格会给谁了，浮士德还是奥提斯
+
+以及这次小唐画的真好，大概 ...</blockquote><blockquote>奥德修斯不愿意受到征召前去参加特洛伊战争，所以当希腊人扎到奥德修斯让其参加特洛伊战争的时候奥德修斯佯装已经发疯，在田地里耕地，并且将盐播种到地里，但是奥德修斯的这一疯狂举动瞒得过别人却没有瞒过同样具有高超的智慧的帕拉墨得斯，帕拉墨得斯把包在襁褓里的忒勒玛科斯抱来放在奥德修斯要犁耕的垅沟中，于是奥德修斯只好停下来。装疯的把戏被识破了，他不得不参加希腊联军的远征。</blockquote>
+
+希腊神话的奥德修斯干过种田和装疯的事，而奥提斯也有着大奸似忠的气质，感觉东郎的老农民人格给她可能比较合适？
+
+
+*****
+
+####  Yuzutea  
+##### 276#       发表于 2023-7-15 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">每天买三次体力光靠镜牢根本打不完，脑啡肽越打越多，这版本属实是无限金箱子了
+
+
+*****
+
+####  囧十七  
+##### 277#       发表于 2023-7-17 20:07
+
+本来在想四破会消耗多少碎片没想到碎片不多这个纽吓死人了，所以夏活能不能多送点
+
+
+*****
+
+####  Yuzutea  
+##### 278#       发表于 2023-7-17 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">YJ知道HEego从0到四阶要100碎片加260灯泡是什么概念吗？
+
+
+*****
+
+####  囧十七  
+##### 279#       发表于 2023-7-17 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61697776&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-17 20:15</a>
+
+YJ知道HEego从0到四阶要100碎片加260灯泡是什么概念吗？
+
+我手头上是能换决斗小唐之后还有800箱子但 ...</blockquote>
+我是觉得月计感觉开新的进阶素材算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就怕以后五阶这么一叠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 280#       发表于 2023-7-17 20:44
+
+ 本帖最后由 Yuzutea 于 2023-7-17 20:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我是真心觉得YJ干脆也别等下版本了，直接后面再加补丁四阶能升40级开新经验本和纺本吧
+
+*****
+
+####  erratic璃月  
+##### 281#       发表于 2023-7-17 20:50
+
+he ego4破都要100碎也太离谱了吧，yj有想过waw和aleph4破要多少资源吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 282#       发表于 2023-7-17 20:54
+
+ 本帖最后由 Yuzutea 于 2023-7-17 20:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698107&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2023-7-17 20:50</a>
+
+he ego4破都要100碎也太离谱了吧，yj有想过waw和aleph4破要多少资源吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">有一说一，我觉得aleph很可能是罪人各自专属直接白送
+
+但是waw很有可能是YJ准备在几个之后拿来回收大量资源的，毕竟人格按YJ世界观三灯就到头了
+
+还有这问题更大的不是后面可能还会有五破六破吗，这才是吓人的地方
+
+
+*****
+
+####  Jamaisvu  
+##### 283#       发表于 2023-7-17 21:03
+
+这游戏的素材确实太贫乏了，优劣参半吧...
+
+灯泡等赛季转换太慢了，纽本以后每天直接扫荡三次得了...
+
+*****
+
+####  Jamaisvu  
+##### 284#       发表于 2023-7-17 21:05
+
+话说四阶升到满级吃的狗粮估计也是海量...该开新一轮的狗粮本和纽本了吧。
+
+
+*****
+
+####  erratic璃月  
+##### 285#       发表于 2023-7-17 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698203&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-17 21:05</a>
+
+话说四阶升到满级吃的狗粮估计也是海量...该开新一轮的狗粮本和纽本了吧。 ...</blockquote>
+等级和阶数互不影响吧，但这150纽的需求不开高阶纽本真的说不过去。现在的纽本还没镜牢效率高<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 286#       发表于 2023-7-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698361&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2023-7-17 21:24</a>
+
+等级和阶数互不影响吧，但这150纽的需求不开高阶纽本真的说不过去。现在的纽本还没镜牢效率高 ...</blockquote>
+狗粮其实现在更要命，纽还能换换碎片，狗粮没有每日加成也不能换，缺的其实更厉害
+
+月计这波菜的离谱，更新新进阶材料需求但不更新新材料本，不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 287#       发表于 2023-7-17 22:08
+
+这波更新是不是证明了月计终于摆脱了做单机游戏的思路，
+
+开始一步到位坠入氪金手游逼肝逼氪的无底深渊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 288#       发表于 2023-7-17 22:24
+
+<img src="https://img.saraba1st.com/forum/202307/17/222030gvput9zu3th367ff.png" referrerpolicy="no-referrer">
+
+<strong>1689603578068.png</strong> (470.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-17 22:20 上传
+
+话说周四同步上线的还有五协小唐呢，突刺专精，三个二硬币技能，伤害和速度相关...
+
+结合预告里展现的IV阶W默，也许是要推高速队？可以带上R兔之类的...
+
+嗯，反正大部分人都在等限定，五唐被四阶抢了风头也是情有可原的事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  囧十七  
+##### 289#       发表于 2023-7-17 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61698756&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-17 22:08</a>
+
+这波更新是不是证明了月计终于摆脱了做单机游戏的思路，
+
+开始一步到位坠入氪金手游逼肝逼氪的无底深渊[f:0 ...</blockquote>
+材料礼包也不更新一下，菜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yuzutea  
+##### 290#       发表于 2023-7-17 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五协唐我觉得不会弱的
+
+222还没重复机制的骰子怎么想都应该是强者，有没有可能会是巴士第一个乘值骰子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 291#       发表于 2023-7-17 22:53
+
+五协唐还挺有趣，被动直接变种的全体缪的技巧，搭配有束缚的EGO会很有意思，不知道技能数值和被动条件怎么样
+
+其实这次更新如果没有四阶情报是有不少可以讨论的，但是把<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 292#       发表于 2023-7-20 18:22
+
+四阶强化的效果貌似都还不错？我看R鹿突破完好像挺强的，一技能全中6充能，二技能7充能，三技能8充能就能用。
+
+不过说实话，有些改动与其说是强化，不如说是早该如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 293#       发表于 2023-7-20 19:01
+
+4阶最尴尬的是那么大的花费强力三灯基本上毛毛雨，突出一个升阶干啥，不如开点强化本得了
+
+
+*****
+
+####  久井路路  
+##### 294#       发表于 2023-7-21 09:58
+
+开个收益更多的纽本就可以（
+
+反正现在还没有到非开不可的程度。有骑空士经验的人对这种有耐性（
+
+
+*****
+
+####  囧十七  
+##### 295#       发表于 2023-7-21 17:11
+
+玛玛三灯，辛克莱二灯，ego良秀和宝子，所有人都没想到的结果
+
+
+*****
+
+####  久井路路  
+##### 296#       发表于 2023-7-21 17:46
+
+比起二灯人格倒是更想要个HE级的辛克莱EGO（
+
+短时间内应该不会出浮浮的新卡的话，倒是能放心用一点碎片去四破（
+
+
+*****
+
+####  ヒトニナル  
+##### 297#       发表于 2023-7-21 18:04
+
+水着イベントだぞ、喜べよ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+玛玛穿潜水衣是预料之中，倒是辛克莱完全变成你游卖肉担当了
+浮浮最后不会拿个东朗ego人格吧，上赛季拿了癫婆这赛季继续拿boss？
+
+*****
+
+####  奇想楠木  
+##### 298#       发表于 2023-7-21 18:10
+
+月计这出卡，有的人啥都没有，有的人三灯连发，有的人ego连发。有点emmmm
+
+
+*****
+
+####  囧十七  
+##### 299#       发表于 2023-7-21 18:15
+
+我本来以为常驻是补角色池子用的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  erratic璃月  
+##### 300#       发表于 2023-7-21 18:20
+
+不愧是自由的yj，虽然有6玛和4破骗玛玛碎片的嫌疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 301#       发表于 2023-7-21 18:45
+
+ 本帖最后由 Yuzutea 于 2023-7-21 18:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我草，🦞人ego
+良秀和玛玛怎么连发的啊
+
+这赛季东郎人格不会又是给浮吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 302#       发表于 2023-7-21 19:03
+
+靠！我刚给六玛和R鹿升了四阶，碎片正好剩三百多...故意的吧...希望二赛季三星十连能出new...
+
+*****
+
+####  Jamaisvu  
+##### 303#       发表于 2023-7-21 19:04
+
+<blockquote>Yuzutea 发表于 2023-7-21 18:45
+我草，🦞人ego
+
+良秀和玛玛怎么连发的啊
+</blockquote>
+大胆一点，东郎神备也给李箱。
+
+*****
+
+####  Jamaisvu  
+##### 304#       发表于 2023-7-21 19:05
+
+<blockquote>囧十七 发表于 2023-7-21 18:15
+我本来以为常驻是补角色池子用的既然是纯填档期的话不如赛季一开始就更新，然后挑长草期一周一up， ...</blockquote>
+可能是希望骗氪提高流水？毕竟一开始更新的话说不定有的人就拿碎片箱子都换了，之后几个卡池也不再碰？
+
+当然也有可能是产能的问题...一周做俩角色没问题，厚积薄发全部实装就难了...
+
+
+*****
+
+####  Jamaisvu  
+##### 305#       发表于 2023-7-21 19:18
+
+话说宝子的汽水ego是teth级，但命名和良秀的zayin级一样，都是soda...
+
+提高异想体等级好歹和赤瞳那样改个后缀吧，比如zayin美味苏打，teth美味苏打（开盖）。
+
+*****
+
+####  Yuzutea  
+##### 306#       发表于 2023-7-21 19:22
+
+ 本帖最后由 Yuzutea 于 2023-7-21 19:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61743386&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-21 19:18</a>
+话说宝子的汽水ego是teth级，但命名和良秀的zayin级一样，都是soda...
+
+提高异想体等级好歹和赤瞳那样改个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铜牛，电蜈蚣，狐雨不都是等级不一样名字没改吗
+YJ估计是只有同一个人的相同异想体的不同阶ego才会改名字来体现阶段了
+
+
+*****
+
+####  Jamaisvu  
+##### 307#       发表于 2023-7-21 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61743403&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-21 19:22</a>
+
+铜牛，电蜈蚣，狐雨不都是等级不一样名字没改吗
+
+YJ估计是只有同一个人的相同异想体的不同阶ego才 ...</blockquote>
+哦对，我刚才想的参照物是电狼和炖鸡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玛丽的火牛是teth的，和红炎杀相性很好，但是默尔索的火牛却变成HE，被执行挤压得没有出场率...
+
+月计果然是自由的啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  囧十七  
+##### 308#       发表于 2023-7-21 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61743265&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-21 19:05</a>
+
+可能是希望骗氪提高流水？毕竟一开始更新的话说不定有的人就拿碎片箱子都换了，之后几个卡池也不再碰？
+
+ ...</blockquote>
+赛季开始没多少人会去换常驻的，都会留着等限定连发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+骗氪倒是没啥只希望他能卖相整好看点，考虑一下整个赛季的人格池子安排<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">给月计飞邮件去了
+
+说点其他的，看到蓝鸟和国内都有人觉得新角色可能是臼齿事务所，也许第一批图书馆的老熟人们要开始亮相了？
+
+
+*****
+
+####  Jamaisvu  
+##### 309#       发表于 2023-7-22 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61745318&amp;ptid=2120922" target="_blank">囧十七 发表于 2023-7-21 22:42</a>
+
+赛季开始没多少人会去换常驻的，都会留着等限定连发
+
+骗氪倒是没啥只希望他能卖相整好看点，考虑一 ...</blockquote>
+很有可能啊，3.5的限定角色就是图书馆的皮埃尔大肉派，这种限定活动出点老熟人卖卖情怀挺好的。
+
+不知道以后有没有可能出都星等级的人物，现在都是各种小打小闹的势力...
+
+感觉小唐这种正义癫婆挺适合加入食指的，指令即正义<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+另外如果出特色人格的话，我推举希斯克利夫当漆黑缄默<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+（鳏夫嘛，有先天优势<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  囧十七  
+##### 310#       发表于 2023-7-24 16:01
+
+今天一大堆其他的滑轨不说了，不知道过了7月他游能不能平静点
+
+最懵逼的是韩国人在猛冲玛玛没有泳装，辛克莱裸露，该说终于见识到韩国人神奇脑回路了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 311#       发表于 2023-7-24 21:23
+
+ 本帖最后由 Jamaisvu 于 2023-7-24 21:27 编辑 
+
+搬一下新人格和EGO：
+
+<img src="https://img.saraba1st.com/forum/202307/24/211911cmqcktk1gcv94cya.jpg" referrerpolicy="no-referrer">
+
+<strong>4104CA1CB4A3307F85390DBBA4555AE0.jpg</strong> (448.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-24 21:19 上传
+
+<img src="https://img.saraba1st.com/forum/202307/24/211912oqunmkaydk18yjyz.jpg" referrerpolicy="no-referrer">
+
+<strong>5CCD93303F166E8CE4ED8C50F8A81291.jpg</strong> (432.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-24 21:19 上传
+
+<img src="https://img.saraba1st.com/forum/202307/24/211910lm4qrr9p3rnptzt4.jpg" referrerpolicy="no-referrer">
+
+<strong>362C59F6E31195E33091E9F399BFF821.jpg</strong> (427.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-24 21:19 上传
+
+<img src="https://img.saraba1st.com/forum/202307/24/212545y0zee4941tttve4c.jpg" referrerpolicy="no-referrer">
+
+<strong>11A5E1683FFF5D83A75D0038DAD2D256.jpg</strong> (411.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-24 21:25 上传
+
+潜水玛丽有振动特攻，和花箱、玫瑰罗相性良好，纯穿刺人格，硬币223，看着还行，玛玛应该算三星人格平均质量最好的角色了，希望这次保持下去...
+
+宝子的汽水ego看着效果和浮士德的水袋差不多，可惜是单体...2号线估计能用。
+
+有人对照图书馆臼齿事务所的卡牌，和辛克莱技能图标差不多，估计就是一拨人了，从图书馆出来后过上了三天打鱼两天晒网的好日子？
+
+
+*****
+
+####  囧十七  
+##### 312#       发表于 2023-7-24 21:49
+
+臼齿事务所魂兮归来了，希望4.5就杀青吧别跟着进第五章了，别又死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+反正宝子哥的teth就一个没啥用的粉舞鞋，换成一个奶挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+良秀的EGO是拿资源碎片，看上去还挺美好的，ZAYIN级，又一个初始EGO要失业了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+讲起来贴吧老哥根据攻击类型分析这次BOSS可能弱穿刺<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yuzutea  
+##### 313#       发表于 2023-7-24 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">良秀这EGO不会又是四破解锁关键性能吧
+
+
+*****
+
+####  白首如新  
+##### 314#       发表于 2023-7-26 06:51
+
+0氪萌新入坑第五天，刷了个7金初始，一路自动P平推，现在卡4-48，
+
+请问我这box平均多少级能过？必须要30？体力全刷狗粮本升级吗？
+
+镜牢二没开是不是只用每周刷三次就行？
+<img src="https://img1.imgtp.com/2023/07/26/yLm9j50H.png" referrerpolicy="no-referrer"> 
+<img src="https://img1.imgtp.com/2023/07/26/gwiylMhy.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 315#       发表于 2023-7-26 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790060&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-7-26 06:51</a>
+
+0氪萌新入坑第五天，刷了个7金初始，一路自动P平推，现在卡4-48，
+
+请问我这box平均多少级能过？必须要30？ ...</blockquote>
+最好是主力都30级以上再打，因为你这队伍好像没有回血续航，不速战速决的话感觉后期打不了持久战...
+
+4-48的迷宫有几个异想体战，带上好的ego拼点可能容易些。现在入坑估计第一、二赛季的赠送ego也不齐呢，基础ego上次更新都被削了...也不用太着急打。
+
+日常狗粮本和纽本其实都有点过时了，虽然狗粮本是经验书少数来源之一，但我个人认为在取消每日加成后刷那玩意确实有点亏...周四就开4.5活动了，现在官方滑跪的这么诚恳，间章不至于设计得太阴间吧...建议先等等活动，应该会发不少资源。
+
+P不过去的情况下手动可以提升战力，推图时多点开敌人信息看看弱体，拼不过的话切防御闪避也行。如果操作翻车了直接退出不会造成人员伤亡，可以重开再打。
+
+因为开了镜牢2后刷箱子的效率更高，所以我个人觉得新手还是做日常为主，存着体力等能进镜牢2再刷箱子更好，不是特别急的情况下还是别浪费箱子在低收益副本里...
+
+（PS：剑契李箱不好用的话，在没有檀香梅李箱的情况下可以试试seven协会李箱...）
+
+另外编队时也要考虑支援被动，不上场又没升三阶的角色可以在队伍里换成初始人格，有个生效的支援被动也算是一种buff...比如初始格里高利能帮着回血。
+
+
+*****
+
+####  白首如新  
+##### 316#       发表于 2023-7-26 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790374&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-7-26 08:22</a>
+
+最好是主力都30级以上再打，因为你这队伍好像没有回血续航，不速战速决的话感觉后期打不了持久战...
+
+4-48 ...</blockquote>
+感谢大佬回复，就是因为马上开活动了才着急推图，不然可以每天做做日常就下线，摆烂慢慢养成了。
+
+感觉4.5章和3.5章一样要推完前面章节才能开启吧？还是说活动期间直接开启？
+
+EGO确实几乎没有，现在手头只有李箱的祈愿石和奥提斯的空即是色。
+
+推图时候就是借的满级花箱一路P过来的，推图给的狂气也全部抽花箱了，结果90抽都没出，估计只能换了。
+
+顺便问一下换卡推荐，拿到花箱之后我还继续换角色吗？比如说接下来的新卡？还是换一些强力EGO更好一些呢？
+
+
+*****
+
+####  Jamaisvu  
+##### 317#       发表于 2023-7-26 10:01
+
+ 本帖最后由 Jamaisvu 于 2023-7-26 10:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790934&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-7-26 09:23</a>
+
+感谢大佬回复，就是因为马上开活动了才着急推图，不然可以每天做做日常就下线，摆烂慢慢养成了。
+
+感觉4.5 ...</blockquote>
+抱歉，记错了，新活动是要通关4-54的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那难度估计也不会低...正常游戏开活动都是培养新人，就月计在这折磨老粉...
+
+（另外3.5地狱鸡的活动人格/ego增加的是通关奖励，4.5巴士改造的活动人格/ego增加的是稀有素材掉率...四个带满的情况是+100%，不过本质上还是看脸吧？不太乐观...）
+
+本来我想说有条件的话充个月卡每日13狂气单抽补碎片赌三星，不过现在月亮计划公司好像在本土被拳法家冲了，所以只能暂时观望...
+
+（完全不氪金的话其实可以狂气换体力，碎片换人格，不过非常非常肝。）
+
+人格的话，每个角色有一个能打的就行。
+
+W浮和SEVEN良四破后都挺强的，但新人估计没那么多资源...不过七协良三破也不错，骰子够大，浮士德只养三破可以试试L浮。
+
+默尔索目前没有强力人格，放队里蹭支援被动即可。boss关可以让初始上去给对面上他人之锁ego的debuff。
+
+罗佳的小锤算是N社体系卡，不过N社最强的N辛其实单走也行...
+
+鸿路的二星黑云会人格不亚于三星，二技能经常稳定砍四刀，有的话可以练一下。
+
+格里高利有金苹果ego可以进队，没有的话当支援回血就行了...
+
+你目前的三星人格除了剑箱都能用，先升级提到关卡推荐等级吧...另外可以试着手操打一下镜牢里的异想体boss，不容易翻车还能学一学操作思路，自动P有时候挺坑的...
+
+ego比较推荐浮士德的液袋，回血回理智，跟L浮的技能适配也不错。
+
+格里高利的金苹果是便宜好用的打击AOE，有W唐的话可以考虑换她的电狼，没有就不需要。
+
+（感觉好用的ego大部分都塞进赛季奖励了）
+
+第四章其实也不算太难，没到hard镜牢这种不用ego拼点就赢不过去的地步。
+
+这几天加油练一下吧，推迟几天进活动关卡应该也能拿完奖励...
+
+放松心态，适度娱乐<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">希望你能抽到活动人格。
+
+
+*****
+
+####  Jamaisvu  
+##### 318#       发表于 2023-7-26 10:14
+
+ 本帖最后由 Jamaisvu 于 2023-7-26 10:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790934&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-7-26 09:23</a>
+
+感谢大佬回复，就是因为马上开活动了才着急推图，不然可以每天做做日常就下线，摆烂慢慢养成了。
+
+感觉4.5 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202307/26/101300qgcuyeoeizkyziog.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20230726_101210.jpg</strong> (595.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-26 10:13 上传
+
+搬一个贴吧的三星强度排行，不过是没考虑四破的。但四破好像就强抬了R鹿玛丽...
+
+强的适度抽取兑换，弱的避雷即可。
+
+
+*****
+
+####  Yuzutea  
+##### 319#       发表于 2023-7-26 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790934&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-7-26 09:23</a>
+感谢大佬回复，就是因为马上开活动了才着急推图，不然可以每天做做日常就下线，摆烂慢慢养成了。
+
+感觉4.5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动如果和之前活动难度差不多的话那就是手动打没啥难度的
+不过现在这攻击系统我建议是体力先刷经验本至少一队30级，不然拼点太亏了，不用升35，30就行
+
+EGO的话浮士德液袋这版本是必须要有的，其次是金苹果，其他的不急着换
+人格的话常驻池子你这七奥R兔都有了那也没啥必须换的了，二赛季人格可以优先考虑先换花箱和活动点数加成的新玛丽三灯
+
+
+*****
+
+####  白首如新  
+##### 320#       发表于 2023-7-26 11:51
+
+看来还是得刷狗粮本，只能先把常用的都练到30级再说，
+
+黑云宝确实没有，玛鹿我倒是也有，只不过四破太遥远了，并且她好像还会杀队友的？
+
+其实要不是之前月计被冲了发的一堆资源，我本来只有两个三破，卡在三图还，那就可以安心咸过这次活动，
+
+结果资源一领，主力都三破了，卡在四图最后几关缺练度，不够30级拼点都拼不过，不上不下反而更难受了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+至于氪金，好像是季卡性价比最高吧，不过这都半个赛季过去了，并且别的游戏氪金省肝，这游戏氪金就得住在镜牢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，
+
+啥时候这游戏也有像隔壁粥MAA这种好用又不会封号的脚本，在考虑这个问题吧。
+
+
+*****
+
+####  Jamaisvu  
+##### 321#       发表于 2023-7-26 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61793019&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-7-26 11:51</a>
+
+看来还是得刷狗粮本，只能先把常用的都练到30级再说，
+
+黑云宝确实没有，玛鹿我倒是也有，只不过四破太遥远 ...</blockquote>
+R鹿以前三阶是一技能4充能、二技能5充能，三技能10充能以下用的话攻击目标随机且使用会消耗所有充能。
+
+四阶后变为一技能6充能、二技能7充能，三技能8充能以下随机攻击、使用后消耗8充能。
+
+...不过虽然质变的很彻底，但依然不能P，毕竟月计的非人知性体技术很不过关，而且以前闪电四连鞭顶多把队友打懵，现在是直接打死...
+
+脚本就不用考虑了，之前封过一批。
+
+镜牢能脚本的话这游戏就真变成电子小说了...
+
+甚至日常本扫荡也是后加的，以前狗粮本、纽本每天都有三次加成，全打完需要3x2x2=12个箱子，也就是一天24小时的体力转换正好打完加成日常本<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">而且还得留出打镜牢的箱子...
+
+可以先攒点资源，以限定角色到手为主。万一新潜水服玛丽很强，拿到后正好打通第四章就好了...
+
+
+*****
+
+####  久井路路  
+##### 322#       发表于 2023-7-27 11:06
+
+草。要下5.43G还行
+
+这下12点之前能不能搞定都不好说了（
+
+
+*****
+
+####  erratic璃月  
+##### 323#       发表于 2023-7-27 11:26
+
+看来yj真被这波节奏整的焦头烂额，胶衣玛的卡池连个动画预览都没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 324#       发表于 2023-7-27 11:54
+
+ 本帖最后由 Yuzutea 于 2023-7-27 11:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">YJ怎么把饱和度改了
+
+现在这也太亮了
+
+这新玛玛面板也太高了，不会是紧急加强的吧
+
+
+*****
+
+####  白首如新  
+##### 325#       发表于 2023-7-27 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61805872&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-27 11:54</a>
+
+YJ怎么把饱和度改了
+
+现在这也太亮了
+
+这新玛玛面板也太高了，不会是紧急加强的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">，池子里剩下那个也要抽出来吗？
+
+*****
+
+####  囧十七  
+##### 326#       发表于 2023-7-27 12:12
+
+当初还是胶衣节奏版本的时候好像就有看到说开始闹胶衣其实是浮士德ego开始，各种不满累积月计还没有回应直接暴走了，只能说，emmmm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 327#       发表于 2023-7-27 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61806024&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-7-27 12:07</a>
+送的十连直接出了，我要优先练吗？感觉不到全队30级还是会卡关，池子里剩下那个也要抽出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">练吧 三破10 15/17 18/21的面板，算是人格最好的那一批面板了
+
+宝子ego目前看来没啥用 你不想贪那活动加成可以不换
+
+*****
+
+####  白首如新  
+##### 328#       发表于 2023-7-27 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61806119&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-27 12:14</a>
+
+练吧 三破10 15/17 18/21的面板，算是人格最好的那一批面板了
+
+宝子ego目前看来没啥用 你不想贪那 ...</blockquote>
+我都进不去活动明明<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">，活动结束之前都够呛能全队30，
+
+箱子全换李箱碎片了，还差20个碎片就能换花箱，新EGO估计拿不到了。
+
+
+*****
+
+####  Jamaisvu  
+##### 329#       发表于 2023-7-27 12:58
+
+ 本帖最后由 Jamaisvu 于 2023-7-27 13:00 编辑 
+
+潜水玛丽三技能这个翻转视角挺有意思的，大概是把敌人翻了个个？
+
+活动关卡有的可以用一个脑啡肽模组进，有的非得要20体力，不知道怎么想的...
+
+螃蟹们都弱突刺，久违的把黑云良秀拿出来练练手<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 330#       发表于 2023-7-27 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61805872&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-7-27 11:54</a>
+
+YJ怎么把饱和度改了
+
+现在这也太亮了
+
+这新玛玛面板也太高了，不会是紧急加强的吧</blockquote>
+饱和度确实过于鲜艳，不过犹豫和傲慢也更好分辨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  久井路路  
+##### 331#       发表于 2023-7-27 13:58
+
+该怎么说呢
+
+<img src="https://img.saraba1st.com/forum/202307/27/135719ffkd3z6oldzdw7w8.png" referrerpolicy="no-referrer">
+
+<strong>21.png</strong> (83.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 13:57 上传
+
+我们边狱的夏天可真是太清爽了，小夫身上差点被玛玛整出一个通风口（
+
+
+*****
+
+####  奇想楠木  
+##### 332#       发表于 2023-7-27 14:05
+
+小唐的哀嚎真的可爱捏！
+
+
+*****
+
+####  Yuzutea  
+##### 333#       发表于 2023-7-28 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这活动打完感觉很明显奥提斯的赛季剧情人物人格会是下一赛季的亚哈船长了
+
+这赛季的东朗人格感觉会给浮浮或者小唐了啊
+
+
+*****
+
+####  奇想楠木  
+##### 334#       发表于 2023-7-28 21:58
+
+月计这抽卡，4%的出率不是吗，为啥我投了80抽结果一个金的都没看见，草了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
