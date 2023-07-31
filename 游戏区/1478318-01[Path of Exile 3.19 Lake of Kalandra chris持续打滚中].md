@@ -299,3 +299,138 @@ MAP天赋树收益这方面只能靠堆时间去熟悉了,  绝对最优解不
 
 毒雨刮到t16也不是不能打，就是抗不住物理攻击老暴毙
 
+*****
+
+####  妹控使徒  
+##### 1349#         楼主| 发表于 2023-7-28 23:40
+
+ 本帖最后由 妹控使徒 于 2023-7-28 23:45 编辑 
+
+<strong>[PV](https://www.youtube.com/watch?time_continue=110&amp;v=TGn5NzGwqKw&amp;embeds_euri=https%3A%2F%2Fwww.pathofexile.com%2F&amp;feature=emb_logo)
+[主题页](https://www.pathofexile.com/crucible)
+[Patch Notes](https://www.pathofexile.com/forum/view-thread/3361403)
+</strong>
+<[strong>New and Changed Gems</strong>](https://www.pathofexile.com/forum/view-thread/3362286)  
+<[strong>Crucible Item Filter Information</strong>](https://www.pathofexile.com/forum/view-thread/3362077)
+
+<strong>GGPK预载</strong><strong>magnet:?xt=urn:btih:KMWV2Q2AIM4OEXHLP7SZWHJQ5PB4PMUF</strong>
+
+<strong>S1 POE群
+
+13481013</strong>
+<strong>the Crucible league</strong>
+
+在 Crucible赛季中，你将了解到曾经塑造了瓦拉克特原始表面的古代泰坦。如果你足够强大，你将获得将他们的力量锻造到你的武器上的能力。
+
+我们的四月资料片引入了 Crucible挑战联赛，9个新的瓦尔技能，阿特拉斯之门，超过10个新的独特物品和改进的突破，深渊，被动树精通，破坏者，探路者，无情和更多!
+
+坩埚熔炉散布在整个Wraeclast。当你找到一个，选择一个你的武器，引导古代泰坦的力量来产生一个具有挑战性的遭遇战。你引导的时间越长，熔化的怪物就会融合在一起，形成更可怕的敌人。你可以控制这些遭遇战的难度和奖励。
+
+你的武器现在可以被灌输强大的被动技能树自己。在Crucible锻场的遭遇战给予你经验，让你发现武器上的树，并逐渐通过它的技能进步。你只能从每一层分配一个技能，所以仔细选择你的路径通过每个坩埚被动树。如果你幸运的话，你会发现某些技能，当你分配这些技能时，在卖给供应商时就会变成有价值的货币或独特的物品
+
+<img src="https://img.saraba1st.com/forum/202307/28/234527a95httr3d4zr3h1j.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (506.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:45 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/234527hz3h227g2b7kzcee.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (472.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:45 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/234526rnxnn6e0cbc004c0.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (670.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:45 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/234526l6bptb5tbpwee566.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (69.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:45 上传
+
+Crucible的终局游戏发生在The Forge of The Titans，这是一个蕴藏着古老力量:熔化武器的能力的危险区域，将其Crucible被动树与另一种武器的被动树合并。这个过程产生了不可预测的结果，包含了每棵树的元素以及随机的升级、降级和更改。通过仔细使用锻造，可以在你的武器上制作一些令人难以置信的强大技能树。
+
+<strong>Atlas Gateways</strong>
+
+在其他的游戏改进中，Crucible引入了阿特拉斯网关-阿特拉斯被动树上的节点，允许在两个地点之间即时移动。有三对网关，每个网关允许从树的左边到右边，反之亦然。网关的每一端都消耗一个Atlas技能点来分配，但使用它们可以轻松地参与你想要玩的所有内容，而不管它在树的哪一边。 
+
+<img src="https://img.saraba1st.com/forum/202307/28/234446e8omnkvw3jnjwynj.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (41.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/234446kajt0fsghlbgubaa.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (89.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:44 上传
+
+<strong>Breach Rework</strong>
+
+我们在很多方面都在改造裂隙。普通裂隙石现在等级更高，完全取代充能裂隙石，纯裂隙石和强化裂隙石。无瑕裂隙现在可以用祝福升级，或者从阿特拉斯树被动中获得。裂隙怪物的节奏和密度得到了改善，因此压力和奖励在整个遭遇战中是一致的。我们还调整了裂隙圣甲虫，不朽研究安全屋，基拉克任务的裂隙石，裂隙收获锻造选项，碎片隐藏标签，占卜卡，突破独特的物品，阿特拉斯被动等等。
+
+<strong>Abyssal Rework</strong>
+
+深渊坑洞现在总是包含一个深渊巫妖。深渊有机会产生一个冥塔来代替他们的奖励箱，它会掉落深渊腰带，珠宝和其他物品。你现在保证总是得到一个蔓延4次的深渊坑洞，而不是只有一个洞。我们也更新了阿特拉斯树的深渊被动，深渊巫妖遭遇平衡，深渊独品和深渊圣甲虫。
+<strong>
+</strong><strong>Ascendancy Rework</strong>
+
+<img src="https://img.saraba1st.com/forum/202307/28/234410cooc3gnzbj35nzg8.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (677.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/234410x0nrmulbgl009uui.jpg" referrerpolicy="no-referrer">
+
+<strong>12.jpg</strong> (612.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:44 上传
+
+
+*****
+
+####  妹控使徒  
+##### 1350#         楼主| 发表于 2023-7-28 23:59
+
+另外twitch drop的皮肤长这样    得足够残忍的build才能驾驭
+
+QQ图片20230728130604.png
+(47.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/235918gjd00gfuf7u0tuu0.png" referrerpolicy="no-referrer">
+
+QQ图片20230728130616.png
+(54.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-28 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202307/28/235919i92l2xxxk88yogkv.png" referrerpolicy="no-referrer">
+
