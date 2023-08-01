@@ -13890,3 +13890,246 @@ https://www.bilibil ...</blockquote>
 
 b站上，有人在翻译手游各团的第一话剧情
 
+*****
+
+####  渡鸦骑士  
+##### 1137#       发表于 2023-7-22 10:36
+
+手游请了PEKO做工商啊。
+不知道能不能好好冲一波人气，确实绚烂色彩的风格是更适合这边<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜灵  
+##### 1138#       发表于 2023-7-22 13:52
+
+兔子啊，三期老阿姨了，不知道能不能带一波货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 1139#       发表于 2023-7-22 19:59
+
+ 本帖最后由 渡鸦骑士 于 2023-7-22 20:02 编辑 
+
+看工商，这个剧情是专门做了模型演出的啊。动画里的辉夜公主有完整的六话还行。
+虽然感觉服装还是有点糙，但是动作看起来倒是还行。
+所以选择演剧也是试图用3D演出作为手游的卖点嘛。
+倒也行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+音游的画面倒是过于啤酒烧烤。
+所以是为了音游内容才硬在剧里面塞歌的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒜灵  
+##### 1140#       发表于 2023-7-24 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61752722&amp;ptid=2105133" target="_blank">渡鸦骑士 发表于 2023-7-22 19:59</a>
+看工商，这个剧情是专门做了模型演出的啊。动画里的辉夜公主有完整的六话还行。
+虽然感觉服装还是有点糙， ...</blockquote>
+工商效果咋样？
+
+
+*****
+
+####  凤心菜  
+##### 1141#       发表于 2023-7-24 20:35
+
+<img src="https://p.sda1.dev/12/2a5165c57ae9bdf2152b15c958c2e335/IMG_CMP_39304034.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 1142#       发表于 2023-7-25 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61768620&amp;ptid=2105133" target="_blank">蒜灵 发表于 2023-7-24 12:23</a>
+工商效果咋样？</blockquote>
+这得游戏出了看流水吧。
+直播看不出效果的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北野苍术  
+##### 1143#       发表于 2023-7-26 12:44
+
+开服了，新手任务送饭桶kokona的卡<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  堆雪若叶  
+##### 1144#       发表于 2023-7-26 16:46
+
+■法人共通各巻特典
+
+公演チケット風カード （※各巻ごとに異なるデザインとなります）
+<img src="https://p.sda1.dev/12/fab7b174aac9d32cbe5aef80f4743d20/07-2.jpg" referrerpolicy="no-referrer">
+
+想过大概率红白小概率红蓝三人行属实是没想到，全成八惠的翅膀了。
+
+
+*****
+
+####  forgetit  
+##### 1145#       发表于 2023-7-26 18:31
+
+原来手游已经开服了
+
+
+*****
+
+####  蒜灵  
+##### 1146#       发表于 2023-7-26 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61796350&amp;ptid=2105133" target="_blank">堆雪若叶 发表于 2023-7-26 16:46</a>
+■法人共通各巻特典
+
+公演チケット風カード （※各巻ごとに異なるデザインとなります）</blockquote>
+八惠后宫王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kos_mos  
+##### 1147#       发表于 2023-7-26 20:36
+
+这也太般配了吧！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202307/26/203626e1kks1olvcoif11k.jpg" referrerpolicy="no-referrer">
+
+<strong>F1dAGjdacAA2Wn1.jpg</strong> (204.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-26 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202307/26/203637xefnz7rt2477qrrr.jpg" referrerpolicy="no-referrer">
+
+<strong>F14Jxy-acAAsxKr.jpg</strong> (397.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-26 20:36 上传
+
+
+*****
+
+####  御幸一也  
+##### 1148#       发表于 2023-7-27 17:32
+
+[https://drive.google.com/drive/f ... 45N4OUx?usp=sharing](https://drive.google.com/drive/folders/1Mmrbk1KsIP-BAz-YbNYkXpJca45N4OUx?usp=sharing)
+
+遊戲的一些圖片資源我解包出來了，感興趣可以看。
+
+本來是想去挖石見和長谷川的語音，但那個弄起來比想像中要麻煩，總之先把圖片拆出來。
+
+
+*****
+
+####  堆雪若叶  
+##### 1149#       发表于 2023-7-27 17:53
+
+[https://twitter.com/world_dai_star/status/1684428403544317952](https://twitter.com/world_dai_star/status/1684428403544317952)
+
+⭐️•★•☆•━━━━
+
+11月12日（日）開催🌠
+
+#ワールドダイスター 
+
+ 劇団シリウス主催 合同公演
+
+in 豊洲PIT Wanna Be A Star
+
+💿Blu-ray第1巻封入シリアル
+
+最速先行抽選開始📣
+
+━━━━•☆•★•⭐️
+
+#まじろ さん描き下ろしライブキービジュアルが公開✨
+<img src="https://p.sda1.dev/12/cec3c9785086f96f95dafd1f143fed20/07-2.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ReginaldMorgan  
+##### 1150#       发表于 2023-7-28 01:36
+
+试着打了打28，手腕直接顶不住，感觉搓条有点累了
+
+深刻认识到自己逐渐玩不来音游了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  百合厨厨  
+##### 1151#       发表于 2023-7-28 09:53
+
+[https://tieba.baidu.com/p/8524683551](https://tieba.baidu.com/p/8524683551)
+
+你们的能力是不是有点太夸张了
+
+
+*****
+
+####  diggersun  
+##### 1152#       发表于 2023-7-29 12:44
+
+<img src="https://img.saraba1st.com/forum/202307/29/124256eh18fk4xekfefokz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_8730.jpg</strong> (297.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 12:42 上传
+
+我就是来看这个的我就是来看这个的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+养成好慢，不知道还要几天才能解锁masquerade
+
+
+*****
+
+####  北野苍术  
+##### 1153#       发表于 2023-7-29 20:31
+
+手游更新了天狼星的第二章，剧情接动画，要演小美人鱼
+
+按角色卡和海报看选角应该卡女士是美人鱼，可可娜是王子的样子
+
+另外，第一个活动也公布了，看简介是3次天狼星落选的大黑加入eden的故事
+
+这手游意外还挺有趣的，真没人去手游区建个楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://pbs.twimg.com/media/F2MFJPxawAA1A7G?format=png&amp;name=900x900" id="aimg_F5SMQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/F2MGDAebsAAf_NW?format=png&amp;name=900x900" id="aimg_nXvv6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/F2M9IyPaoAAWWr7?format=png&amp;name=900x900" id="aimg_MxNTB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  kos_mos  
+##### 1154#       发表于 2023-7-29 22:35
+
+所以世界大明星是一种网球王子。
+
+*****
+
+####  蒜灵  
+##### 1155#       发表于 2023-7-29 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61816943&amp;ptid=2105133" target="_blank">百合厨厨 发表于 2023-7-28 09:53</a>
+
+https://tieba.baidu.com/p/8524683551
+
+你们的能力是不&amp;#x662F ...</blockquote>
+怎么一堆概念级的能力啊，离谱了
+
