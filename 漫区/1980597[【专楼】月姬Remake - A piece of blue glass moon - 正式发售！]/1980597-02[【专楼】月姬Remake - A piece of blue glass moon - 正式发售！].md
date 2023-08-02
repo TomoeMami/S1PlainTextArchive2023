@@ -631,3 +631,230 @@ mb赶紧加新角色
 官中还有机会吗</blockquote>
 明年初出英文版的话，估计官中也是同期吧，要出肯定一块出
 
+*****
+
+####  岸浪白野  
+##### 1578#       发表于 2023-7-25 23:29
+
+<img src="https://img.saraba1st.com/forum/202307/25/232854xo6allrrnoanhxob.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230725232318.jpg</strong> (355.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-25 23:28 上传
+
+PC版有消息了
+
+
+*****
+
+####  oi99o  
+##### 1579#       发表于 2023-7-26 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61788379&amp;ptid=1980597" target="_blank">岸浪白野 发表于 2023-7-25 23:29</a>
+
+PC版有消息了</blockquote>
+所以外国语版到底有没有中文？
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 1580#       发表于 2023-7-26 00:45
+
+菌圣以前说上pc会做中英文版
+
+*****
+
+####  岸浪白野  
+##### 1581#       发表于 2023-7-26 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61788966&amp;ptid=1980597" target="_blank">oi99o 发表于 2023-7-26 00:21</a>
+
+所以外国语版到底有没有中文？</blockquote>
+再多消息也要等之前在海外说的2024年了，现在还在藏，主要这宣传海外版，如果不包含中文用这个词感觉有点
+
+*****
+
+####  oi99o  
+##### 1582#       发表于 2023-7-26 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61789200&amp;ptid=1980597" target="_blank">岸浪白野 发表于 2023-7-26 00:47</a>
+再多消息也要等之前在海外说的2024年了，现在还在藏，主要这宣传海外版，如果不包含中文用这个词感觉有点 ...</blockquote>
+所以今天的消息就这一张图了吗，剩下的都是访谈？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  岸浪白野  
+##### 1583#       发表于 2023-7-26 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61789209&amp;ptid=1980597" target="_blank">oi99o 发表于 2023-7-26 00:49</a>
+
+所以今天的消息就这一张图了吗，剩下的都是访谈？
+
+论坛助手,iPhone</blockquote>
+然后就是长谷川访谈没了
+
+
+*****
+
+####  岸浪白野  
+##### 1584#       发表于 2023-7-26 02:43
+
+长谷川的访谈也提了下自己公主试音被选上的意义很大如果不行就打算考虑不干声优了
+
+
+*****
+
+####  550616  
+##### 1585#       发表于 2023-7-26 03:53
+
+等整合版，里线应该精彩很多
+
+我每次看到琥珀笑就遭不住
+
+
+*****
+
+####  蓮華  
+##### 1586#       发表于 2023-7-26 08:27
+
+我是非常满意长谷川CV的公主的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天下何人  
+##### 1587#       发表于 2023-7-26 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61543229&amp;ptid=1980597" target="_blank">吴怀在 发表于 2023-7-4 11:51</a>
+
+里线+表线就是完全版了吧？
+
+估计肯定会再合起来卖一次</blockquote>
+路人问一句，有五月线了吗？
+
+
+*****
+
+####  蓮華  
+##### 1588#       发表于 2023-7-26 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790700&amp;ptid=1980597" target="_blank">天下何人 发表于 2023-7-26 09:02</a>
+路人问一句，有五月线了吗？</blockquote>
+必有，可以去看下表线全结局通关后给的里线预告pv
+
+*****
+
+####  吴怀在  
+##### 1589#       发表于 2023-7-26 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61790700&amp;ptid=1980597" target="_blank">天下何人 发表于 2023-7-26 09:02</a>
+路人问一句，有五月线了吗？</blockquote>
+我也是路人啊，就没打过月姬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三杉酸宁碱  
+##### 1590#       发表于 2023-7-26 10:05
+
+官中质量不会跟魔夜差不多吧……
+
+
+*****
+
+####  gpx234mqx  
+##### 1591#       发表于 2023-7-26 10:11
+
+里线四女主，工作量还够吗
+
+*****
+
+####  Piano-Forest  
+##### 1592#       发表于 2023-7-26 10:19
+
+<img src="https://p.sda1.dev/12/5371dcc701b4786cfed36e4919590d01/20230726_015059.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9179e1540b0fe5b079c1c084c43d2052/embed0077_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/ee438f1e69ca33c62ee712f911ed7c2a/embed0078_HD.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  forgetit  
+##### 1593#       发表于 2023-7-26 19:45
+
+pc版终于要出了
+
+
+*****
+
+####  cybernetics31  
+##### 1594#       发表于 2023-7-27 11:51
+
+帖个访谈翻译：[http://b23.tv/feqmYGA](http://b23.tv/feqmYGA) 不得不感慨下公主这个角色对长谷川的重要性
+
+
+*****
+
+####  Evomenon  
+##### 1595#       发表于 2023-7-27 12:41
+
+那我缺的公主GE这一块的，啥时候给我补啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蓮華  
+##### 1596#       发表于 2023-7-30 09:43
+
+<img src="https://img.saraba1st.com/forum/202307/30/094327qnoyzx5qsvspsl5p.jpg" referrerpolicy="no-referrer">
+
+<strong>F2P0nPDbUAAueuB.jpg</strong> (227.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-30 09:43 上传
+
+<img src="https://img.saraba1st.com/forum/202307/30/094327nal0yzqcxs05dlz8.jpg" referrerpolicy="no-referrer">
+
+<strong>F2P0nPFagAARML8.jpg</strong> (230.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-30 09:43 上传
+
+<img src="https://img.saraba1st.com/forum/202307/30/094327t9sm7czp0ms7nmn6.jpg" referrerpolicy="no-referrer">
+
+<strong>F2P0nPEaQAA48Xu.jpg</strong> (238.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-30 09:43 上传
+
+
+*****
+
+####  蓮華  
+##### 1597#       发表于 2023-7-30 10:15
+
+<img src="https://img.saraba1st.com/forum/202307/30/101533jabf68bb84czenc9.jpg" referrerpolicy="no-referrer">
+
+<strong>F2PoH1GWMAANKGB.jpg</strong> (89.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-30 10:15 上传
+
+
+*****
+
+####  兰开夏  
+##### 1598#       发表于 2023-7-30 21:44
+
+啊公主啊
+
