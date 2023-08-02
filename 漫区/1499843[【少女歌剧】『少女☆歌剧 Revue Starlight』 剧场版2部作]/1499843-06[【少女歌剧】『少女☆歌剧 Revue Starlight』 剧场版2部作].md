@@ -16178,3 +16178,217 @@ Meta 味的对白有点带富野电波的战姬绝唱构文的感觉，真让人
 
 手滑打错了
 
+*****
+
+####  无聊者X  
+##### 8873#       发表于 2023-7-27 20:22
+
+<img src="https://img.saraba1st.com/forum/202307/27/202159h5rb4d46sdzpgqyd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (96.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 20:21 上传
+
+[少女☆歌劇 レヴュースタァライト @revuestarlight](https://twitter.com/revuestarlight)
+
+*****
+
+####  forgetit  
+##### 8874#       发表于 2023-7-27 20:27
+
+原来是游戏消息
+
+*****
+
+####  稀勢のささ  
+##### 8875#       发表于 2023-7-27 20:28
+
+这下到下一个舞台了
+
+*****
+
+####  ardito  
+##### 8876#       发表于 2023-7-27 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是不是剧场版里阿恋排练的那个？
+
+
+*****
+
+####  nh_zzz  
+##### 8877#       发表于 2023-7-27 20:44
+
+标题决定
+
+积极制作中 Starlight主机游戏标题决定了
+
+「少女☆歌剧 Revue Starlight　舞台奏像剧　遥远的黄金乡」
+
+必须要征服那片大海
+
+<img src="https://img.saraba1st.com/forum/202307/27/204326e1r05us915l5t560.png" referrerpolicy="no-referrer">
+
+<strong>)PY_7$Q6R{C)AN3NMGXIU.png</strong> (15.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202307/27/204331rpj31oolokhz3ekd.bmp" id="aimg_1384071" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>`[TX`_9NMX$(SI]A~69NU.bmp</strong> (34.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202307/27/204334zzxbw4ztmmm0ygbq.bmp" id="aimg_1384072" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>$_[][3L(Y3NNJ95F(%}D}6T.bmp</strong> (55.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 20:43 上传
+
+<img src="https://img.saraba1st.com/forum/202307/27/204338vvynn1vi666l6v5y.bmp" id="aimg_1384073" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>(7~)L9I`W%L]O)A}F@RE]6S.bmp</strong> (242.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 20:43 上传
+
+对比用
+
+<img src="https://img.saraba1st.com/forum/202307/27/204403lhgitg3xvdbx8ets.png" referrerpolicy="no-referrer">
+
+<strong>M1Q0JO(HB[9MD5)PT4W@6WW.png</strong> (5.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 20:44 上传
+
+*****
+
+####  Alicest  
+##### 8878#       发表于 2023-7-27 20:45
+
+是不是剧场版开头恋纯排练&amp;新国立上映的那个
+
+*****
+
+####  nh_zzz  
+##### 8879#       发表于 2023-7-27 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61812073&amp;ptid=1499843" target="_blank">ardito 发表于 2023-7-27 20:28</a>
+
+这是不是剧场版里阿恋排练的那个？</blockquote>
+是，刚刚好是纯和光的台词
+
+
+*****
+
+####  HANDAIYV  
+##### 8880#       发表于 2023-7-27 21:01
+
+看样子应该是剧场版的日后谈？总之已经等不及了
+
+
+*****
+
+####  nh_zzz  
+##### 8881#       发表于 2023-7-27 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61812365&amp;ptid=1499843" target="_blank">HANDAIYV 发表于 2023-7-27 21:01</a>
+看样子应该是剧场版的日后谈？总之已经等不及了</blockquote>
+有可能是光的视角
+
+
+*****
+
+####  Buttercry  
+##### 8882#       发表于 2023-7-27 21:51
+
+<blockquote>无聊者X 发表于 2023-7-27 20:22
+少女☆歌劇 レヴュースタァライト @revuestarlight</blockquote>
+歪个楼：这什么插件啊，片假名太烦了
+
+
+*****
+
+####  无聊者X  
+##### 8883#       发表于 2023-7-27 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61812987&amp;ptid=1499843" target="_blank">Buttercry 发表于 2023-7-27 21:51</a>
+
+歪个楼：这什么插件啊，片假名太烦了</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1929617-1-1.html](https://bbs.saraba1st.com/2b/thread-1929617-1-1.html)
+
+
+*****
+
+####  nh_zzz  
+##### 8884#       发表于 2023-7-29 20:51
+
+猜谜环节到
+
+<img src="https://img.saraba1st.com/forum/202307/29/205126oyd4e3klddkdwxhx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 20:51 上传
+
+
+*****
+
+####  Alicest  
+##### 8885#       发表于 2023-7-29 20:53
+
+ 本帖最后由 Alicest 于 2023-7-29 20:58 编辑 
+
+光的再生产<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">海边出发停在沙漠的tv星之塔，正好接上恋的沙漠风暴
+相反也可能，从tv沙漠的摘星之塔出发，引擎掀起风暴，冲入海洋变成船
+
+
+*****
+
+####  nh_zzz  
+##### 8886#       发表于 2023-7-29 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61835021&amp;ptid=1499843" target="_blank">Alicest 发表于 2023-7-29 20:53</a>
+
+光的再生产类比恋，只是从船上下来(剧场版片段就是萨瓦尔多要下船，而光此时确实润了伦敦)海边出发 ...</blockquote>
+💨dashing away是一个人或物体快速移动或消失在一缕烟雾中的象征。它通常用来表达一种快速、紧急或突然离开的感觉。这个表情符号可以在各种情况下使用，从表达兴奋或热情到描述匆忙或意外的退出。
+
+机翻的（），不过确实有人润了/热情退却
+
+
+*****
+
+####  上杉打老虎  
+##### 8887#       发表于 2023-7-30 02:30
+
+希望能有昼光糖
+
+但如果是剧场版之后的故事话，这俩人应该不会再有太大交集了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wly  
+##### 8888#       发表于 2023-7-30 14:07
+
+四个emo连起来看无非就是从沙漠开到了海，基本确定游戏是剧场版后了吧。
+
+
+*****
+
+####  爱丁堡official  
+##### 8889#       发表于 2023-7-30 14:30
+
+剧场版pv1里海的意象在剧场版没怎么用上，不知道这里会不会补。
+
