@@ -2748,3 +2748,50 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 看完熟肉了，还是平平淡淡的一集
 
+*****
+
+####  灼眼的夏娜酱  
+##### 243#       发表于 2023-7-29 11:27
+
+第五集好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 244#       发表于 2023-7-30 22:14
+
+怎么梨子也是自闭狂魔了。
+
+还有是我的错觉还是什么，很多角色的表情会突然画的很sexy，梨子看向露比的表情，mari自闭前的表情。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 245#         楼主| 发表于 2023-7-30 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61846760&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-7-30 22:14</a>
+怎么梨子也是自闭狂魔了。
+
+还有是我的错觉还是什么，很多角色的表情会突然画的很sexy，梨子看向露比的表情 ...</blockquote>
+大概因为都是guilty kiss吧
+
+
+*****
+
+####  flynnei  
+##### 246#       发表于 2023-7-30 23:33
+
+有点无聊到看不下去了，攒点弹幕再看
+
+
+*****
+
+####  挖坑毕挺尸  
+##### 247#       发表于 2023-7-31 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还好没一冲动在圆盘消息出来的时候就直接订一套，就这剧情实在是有点浪费人设<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
