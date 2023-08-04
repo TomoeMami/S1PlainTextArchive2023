@@ -1163,3 +1163,136 @@ CODExGEASS
 
 好好好，真没想到啊居然有能用的一天
 
+*****
+
+####  rgauss  
+##### 929#         楼主| 发表于 2023-7-29 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">这白嫖200抽除了双子都没用
+除了双子我都是2命以上
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  wcorvo  
+##### 930#       发表于 2023-7-29 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在零氪买初始入坑的话是选国服还是台服，短时间内这游戏应该不会暴毙吧
+
+
+*****
+
+####  rgauss  
+##### 931#         楼主| 发表于 2023-7-29 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61832702&amp;ptid=2028054" target="_blank">wcorvo 发表于 2023-7-29 16:59</a>
+现在零氪买初始入坑的话是选国服还是台服，短时间内这游戏应该不会暴毙吧 ...</blockquote>
+我肯定推荐国服
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 932#         楼主| 发表于 2023-7-29 23:18
+
+你说得对，这就是库里安，血量6w9，攻击1w2，命中2k7的士兵，自带霸体不怕龟船艾米，血厚护盾不怕飞刀警车，特殊技一枪眩晕加击退还给攻速，冷却只要25秒，场上人一多还给额外减CD，然后必杀技发动还能再刷新两个小兵，场上人一多还能缩短CD，然后还有必中和加射程，必杀技一开骑着马就往前狂冲啊啊啊啊啊啊啊啊啊啊！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  要嗝屁了  
+##### 933#       发表于 2023-7-29 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">可惜这周小兵队已经无法无天了 哪个都没吃ban 
+
+懒得改阵容了 不缺这点输出 就是要亡灵+海量杂兵淹没对面
+
+
+*****
+
+####  rgauss  
+##### 934#         楼主| 发表于 2023-7-29 23:39
+
+不行了 我做个花小孩再武装来对抗骑马boy 策划为啥要加骑马boy的生存啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 935#         楼主| 发表于 2023-7-31 13:59
+
+<img src="https://p.sda1.dev/12/d294826386f1f032904c7bb8d83980e8/CMP_20230731135850550.jpg" referrerpolicy="no-referrer">老婆好温柔
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  wcorvo  
+##### 936#       发表于 2023-8-1 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61836643&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-7-29 23:16</a>
+
+我肯定推荐国服
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+我看了下国服号只有一家在卖的，明码标价50一个觉醒<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+台服号倒是一大堆商家，还便宜很多，怎么这样的呢
+
+
+*****
+
+####  rgauss  
+##### 937#         楼主| 发表于 2023-8-1 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61868347&amp;ptid=2028054" target="_blank">wcorvo 发表于 2023-8-1 16:17</a>
+我看了下国服号只有一家在卖的，明码标价50一个觉醒
+
+台服号倒是一大堆商家，还便宜很多，怎么这样 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国服比台服福利好 想不到吧。50也太贵了，这都跟韩服一个价了，之前也就30吧，直接弃坑号可能都好点。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rgauss  
+##### 938#         楼主| 发表于 2023-8-1 17:39
+
+<img src="https://p.sda1.dev/12/357af2a2fef8d12e24d22cbe6bd292be/CMP_20230801173845811.jpg" referrerpolicy="no-referrer">广域轰炸来喽
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wcorvo  
+##### 939#       发表于 2023-8-1 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61869601&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-8-1 17:38</a>
+
+国服比台服福利好 想不到吧。50也太贵了，这都跟韩服一个价了，之前也就30吧，直接弃坑号可能都好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">弃坑号全是那种什么一大堆全毕业的四位数以上，感觉太贵了
+
+而且买回来也不知道玩啥
+
+
+*****
+
+####  rgauss  
+##### 940#         楼主| 发表于 2023-8-1 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61869621&amp;ptid=2028054" target="_blank">wcorvo 发表于 2023-8-1 17:39</a>
+弃坑号全是那种什么一大堆全毕业的四位数以上，感觉太贵了
+
+而且买回来也不知道玩啥 ...</blockquote>
+看剧情。
+新人跟着进阶任务走，能够获取大量资源，当然pvp和部分剧情关卡在半年内都不要想了。佛系心态可以自建号从头体验，喜欢卷就要买成品号了，不然装备你都得做一年，这游戏剧情还是不错的。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
