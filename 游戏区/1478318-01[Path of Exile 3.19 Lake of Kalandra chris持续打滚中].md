@@ -434,3 +434,51 @@ QQ图片20230728130616.png
 
 <img src="https://img.saraba1st.com/forum/202307/28/235919i92l2xxxk88yogkv.png" referrerpolicy="no-referrer">
 
+*****
+
+####  an0nymous  
+##### 1351#       发表于 2023-8-1 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61826633&amp;ptid=1478318" target="_blank">妹控使徒 发表于 2023-7-28 23:59</a>
+ 另外twitch drop的皮肤长这样    得足够残忍的build才能驾驭</blockquote>
+这游戏整的过于复杂，竟然还有人提供花钱配装的服务，老玩家嘴里的每天多少多少收益，整的跟上班一样
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 1352#       发表于 2023-8-1 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61862777&amp;ptid=1478318" target="_blank">an0nymous 发表于 2023-8-1 08:27</a>
+
+这游戏整的过于复杂，竟然还有人提供花钱配装的服务，老玩家嘴里的每天多少多少收益，整的跟上班一样 ...</blockquote>
+谈xx收益，主要乐趣在于制订策略，然后游戏内验证。纯抄作业的确像上班坐牢
+
+不过不少人的确是上班，真的靠这游戏挣奶粉钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lyjssj  
+##### 1353#       发表于 2023-8-1 10:03
+
+ 本帖最后由 lyjssj 于 2023-8-1 10:06 编辑 
+<blockquote>an0nymous 发表于 2023-8-1 08:27
+这游戏整的过于复杂，竟然还有人提供花钱配装的服务，老玩家嘴里的每天多少多少收益，整的跟上班一样 ...</blockquote>
+。。乐趣就是在于自己钻研bd和伐木策略，真要我晚上坐电脑前伐木，两小时就想睡觉了，我也不太懂居然有人花钱让别人帮你玩最有趣的部分
+
+关键你花钱配完装甚至买完神装不也是刷么，神装是终点而不是起点，我好几个赛季农出法血就弃坑了
+
+
+*****
+
+####  突发性哮喘病患  
+##### 1354#       发表于 2023-8-2 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61862777&amp;ptid=1478318" target="_blank">an0nymous 发表于 2023-8-1 08:27</a>
+这游戏整的过于复杂，竟然还有人提供花钱配装的服务，老玩家嘴里的每天多少多少收益，整的跟上班一样 ...</blockquote>
+不赚奶粉钱，不谈法血猎手，能有啥在意收益的呢？
+你瓷游的核心玩家都是第一天90级只睡3小时的强者，而且连续三天这样，和这些人比没意思，游玩时间拉长到一个月，保证你会快乐
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
