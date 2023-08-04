@@ -14133,3 +14133,15 @@ https://tieba.baidu.com/p/8524683551
 你们的能力是不&amp;#x662F ...</blockquote>
 怎么一堆概念级的能力啊，离谱了
 
+*****
+
+####  先日日  
+##### 1156#       发表于 2023-8-2 01:33
+
+美国为了不输给欧洲和中国挖角eden的演员<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/aad65c2cd96efda10476c7f6dcc0cce3/CMP_20230802011829309.jpg" referrerpolicy="no-referrer">
+这就是wds的大演剧时代的世界观吗？
+然而德国芬兰中国妹还是要来日本朝圣，这波是日&gt;欧=中&gt;美
+
+—— 来自 samsung SM-T733, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
