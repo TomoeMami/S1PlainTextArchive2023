@@ -667,3 +667,185 @@ helck都说清楚了，世界的意志就是单纯毁灭旧世界诞生一个不
 
 <img src="https://p.sda1.dev/12/a6aa1394003fd66a5322bb63a383603f/CMP_20230725172928655.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Ditfran  
+##### 1107#       发表于 2023-7-29 22:19
+
+ 本帖最后由 Ditfran 于 2023-7-29 22:22 编辑 
+
+看了前两集动画挺对胃口，于是一口气把漫画全都看完了，抛开最终战各种疯狂追加设定和机械降神外，算是一部久违的看了之后惆怅若失陷入空虚的作品。
+
+爬了一下专楼貌似挺多人对朋友卡结局不太满意，我看完之后倒是可以接受，可能是工业糖精的作品已经看得太多了，现在再看到安小姐和赫鲁库这种相互信任、相互支持的纯粹的友谊不由得感到清爽。
+
+看着最后安小姐在田野里回忆着与赫鲁库的点点滴滴后挥手告别的一幕忍不住落下了眼泪，安小姐的塑造真是近几年作品里最喜欢的（之一）了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202307/29/222139pbh8qpwppyt2vz66.jpg" referrerpolicy="no-referrer">
+
+<strong>284.jpg</strong> (177.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202307/29/222139suu8p0tz8dvde8ut.jpg" referrerpolicy="no-referrer">
+
+<strong>285.jpg</strong> (112.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 22:21 上传
+
+<img src="https://img.saraba1st.com/forum/202307/29/222212zp52kv5xy8qgmgp2.jpg" referrerpolicy="no-referrer">
+
+<strong>286.jpg</strong> (181.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 22:22 上传
+
+<img src="https://img.saraba1st.com/forum/202307/29/222139ypf2gmgfp3ry838g.jpg" referrerpolicy="no-referrer">
+
+<strong>287.jpg</strong> (189.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 22:21 上传
+
+
+*****
+
+####  pure_liquid  
+##### 1108#       发表于 2023-8-1 17:11
+
+这个评论说是真的吗？副团长被救了？
+
+<img src="https://img.saraba1st.com/forum/202308/01/171023gstn46dhpbquphou.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230801_170606.jpg</strong> (39.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-1 17:10 上传
+
+*****
+
+####  pure_liquid  
+##### 1109#       发表于 2023-8-1 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61765703&amp;ptid=1047361" target="_blank">瓦米里奥 发表于 2023-7-24 08:27</a>
+
+汉化已出，女王果然认识瓦尔提欧，以及琥珀主召唤兽果然是白虎，最后一格虽然很帅不过基友和琥珀应该还是会 ...</blockquote>
+为什么说“果然是白虎”？
+
+前面哪里提到过吗？
+
+
+*****
+
+####  推之空  
+##### 1110#       发表于 2023-8-1 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61836078&amp;ptid=1047361" target="_blank">Ditfran 发表于 2023-7-29 22:19</a>
+
+看了前两集动画挺对胃口，于是一口气把漫画全都看完了，抛开最终战各种疯狂追加设定和机械降神外，算是一部 ...</blockquote>
+这朋友卡我不服<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 1111#       发表于 2023-8-1 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了 有啥不服 从头到尾也没爱情内容啊
+
+*****
+
+####  小黑鱼  
+##### 1112#       发表于 2023-8-1 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61869184&amp;ptid=1047361" target="_blank">pure_liquid 发表于 2023-8-1 17:12</a>
+
+为什么说“果然是白虎”？
+
+前面哪里提到过吗？</blockquote>
+琥珀名字拆来看=白虎天王，本来四天王就对应四象，所以大家都猜琥珀代表白虎
+
+最新话召唤兽白虎对应安妮的朱雀，也算基本实锤了
+
+
+*****
+
+####  TR4835  
+##### 1113#       发表于 2023-8-1 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61869184&amp;ptid=1047361" target="_blank">pure_liquid 发表于 2023-8-1 17:12</a>
+为什么说“果然是白虎”？
+
+前面哪里提到过吗？</blockquote>
+コハク　虎白
+アズドラ　Azure Dragon
+ヴァミリオ　Vermillion
+
+
+*****
+
+####  天下何人  
+##### 1114#       发表于 2023-8-1 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61869672&amp;ptid=1047361" target="_blank">TR4835 发表于 2023-8-1 17:42</a>
+
+コハク　虎白
+
+アズドラ　Azure Dragon
+
+ヴァミリオ　Vermillion</blockquote>
+阿祖是东之四天王，安妮是南，以此类推琥珀就是西了。
+
+当初阿祖分析觉醒人类威胁度时帝国西边的威胁是什么来着？
+
+
+*****
+
+####  TR4835  
+##### 1115#       发表于 2023-8-1 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61869956&amp;ptid=1047361" target="_blank">天下何人 发表于 2023-8-1 18:02</a>
+阿祖是东之四天王，安妮是南，以此类推琥珀就是西了。
+
+当初阿祖分析觉醒人类威胁度时帝国西边的威胁是什 ...</blockquote>
+这个？
+
+<img src="https://p.sda1.dev/12/a87bd9cbc0dc92aa254593c6d5a02371/CMP_20230801180828132.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sakilin2013  
+##### 1116#       发表于 2023-8-1 19:58
+
+帝国北方SSS级大boss都还没透露过什么内容，估计要跟以后作品皇帝故事一起说吧？
+
+这帝国穷山恶水内忧外患还是那么民风淳朴万众一心才是最厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  pure_liquid  
+##### 1117#       发表于 2023-8-1 21:09
+
+小安妮自己需要负责应对的南方威胁有具体提过吗？好像也没有？
+
+
+*****
+
+####  jy000129  
+##### 1118#       发表于 2023-8-1 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61872176&amp;ptid=1047361" target="_blank">pure_liquid 发表于 2023-8-1 21:09</a>
+
+小安妮自己需要负责应对的南方威胁有具体提过吗？好像也没有？</blockquote>
+C级左右的威胁，一般当地魔王就足够镇压了，赫鲁库里属于人族被世界意志乘隙入侵导致的战斗力飙升才干掉魔王
+
