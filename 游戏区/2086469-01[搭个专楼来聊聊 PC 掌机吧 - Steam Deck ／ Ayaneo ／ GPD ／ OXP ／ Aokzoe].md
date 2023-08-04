@@ -2651,3 +2651,26 @@ Ayaneo是真能出新机型啊, 几年后看看能不能白菜价买那个滑盖
 </blockquote>
 新东西买多后我的结论就是，不要买小众产品，特别是这种软硬件结合，要求较高的产品
 
+*****
+
+####  ultraseven  
+##### 797#       发表于 2023-8-1 07:07
+
+Windows Central 新闻 联想在开发名称为 Legion Go 的PC游戏掌机
+[EXCLUSIVE: Lenovo is working on a Windows PC gaming handheld called the 'Legion Go'](https://www.windowscentral.com/gaming/pc-gaming/exclusive-lenovo-is-working-on-a-pc-gaming-handheld-called-the-legion-go)
+
+要点：8英寸屏幕；搭载AMD Phoenix 处理器、样子和之前的 Lenovo Legion Play 很像
+
+
+*****
+
+####  bypass  
+##### 798#         楼主| 发表于 2023-8-1 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61862407&amp;ptid=2086469" target="_blank">ultraseven 发表于 2023-8-1 07:07</a>
+
+Windows Central 新闻 联想在开发名称为 Legion Go 的PC游戏掌机
+
+EXCLUSIVE: Lenovo is working on a Windo ...</blockquote>
+快让小米也弄一台 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 定价 2999
+
