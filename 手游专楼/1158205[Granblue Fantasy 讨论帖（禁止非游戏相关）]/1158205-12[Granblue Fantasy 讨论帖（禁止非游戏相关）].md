@@ -1736,3 +1736,49 @@ JB比较复杂，总之是准备这次泳装月中下个一两井再砸光老王
 
 现在6个沙漏，是干脆巴凸到底还是再等3个凸路到230？或者路凸个210也能用？
 
+*****
+
+####  柊沢  
+##### 17401#       发表于 2023-7-22 12:32
+
+带圣诞olb除第一回合也可以无限4c了还挺好玩
+
+然后发现比一直毛1慢了两回合，还是选择了毛<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+去年只有1308怎么打都有点不爽，今年1508纯打桩了，1503做了完全没用上<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  欠陷制品  
+##### 17402#       发表于 2023-7-31 13:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">小福这个泳装池子玩这么大结果狠狠下毒是何意啊
+
+
+*****
+
+####  windhawind2  
+##### 17403#       发表于 2023-7-31 18:25
+
+小福为了流水一个池子放5个泳限是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好我是个只要power足够高就给戒指的强度党 可以空过了
+
+
+*****
+
+####  shinitakute  
+##### 17404#       发表于 2023-7-31 18:34
+
+距离我的水暗龙（氵音龙）还有51金月亮
+
+希望白嫖多来点月亮，或者让我白嫖个）做梦
+
+
+*****
+
+####  Aureth  
+##### 17405#       发表于 2023-8-2 20:46
+
+野蛮最好的地方就是打啥都可以fa<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">机神fajb继续fa，太适合我这种懒人了，土光人换之前还小纠结了一下，现在可爽了
+
+—— 来自 OnePlus KB2000, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

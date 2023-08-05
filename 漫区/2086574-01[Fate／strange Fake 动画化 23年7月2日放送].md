@@ -3693,3 +3693,16 @@ TV出啥</blockquote>
 第9卷收尾了！
 <img src="https://p.sda1.dev/12/53758002a54eb02b61d02fd0c20998f9/CMP_20230729080938501.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  kuarwbwe  
+##### 355#       发表于 2023-8-2 21:21
+
+今天刚看完，挺爽的。最早只是觉得这个系列搞的闪恩战很有噱头，现在做成动画发现像横飞姬，还有狂信子的master这些角色人设也挺酷的。
+
+再有就是，我看到saber就控制不住想乐。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是现在动画这情况其实也算复刻原作了，本来是愚人节企划，噱头拉满，但就是看不到出的希望。一度也是月球有生之年之一。之后在14年放出预告，成田要继续写。结果本人又因为身体原因拖到现在。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便吐个槽，以前一直不理解啥叫给两条狗打架配上这配乐也能配出史诗感。现在看了fsf动画，我懂了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
