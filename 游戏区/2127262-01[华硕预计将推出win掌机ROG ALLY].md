@@ -4459,3 +4459,88 @@ ally不可能有4h，我sd最低整机功耗是7w（tdp3w），基本就是屏�
 
 到底怎么样才能原价抢到？
 
+*****
+
+####  ultraseven  
+##### 427#       发表于 2023-7-31 03:01
+
+两周的新闻了
+
+[华硕 ROG Ally 销量接近 50 万台](https://retroresolve.com/asus-rog-ally-closing-in-on-500k-units-sold/) <blockquote>The recently released ROG Ally handheld gaming console from Asustek Computer has garnered popularity and generated estimated quarterly sales of up to NT$10 billion (US$318.6 million), according to company sources.</blockquote>
+该网站是拿简单的销售额/美区价格算的，但因为美区价格全球算便宜的，估计现在在40万台左右吧。华硕应该是挺赚的
+
+
+*****
+
+####  阿斯蓝  
+##### 428#       发表于 2023-7-31 16:25
+
+<blockquote>monikaca 发表于 2023-7-26 10:34
+被耍猴了，倒不是出不起几百块，就是觉得多送几百块给黄牛不爽。
+
+到底怎么样才能原价抢到？
+
+ ...</blockquote>
+快要不用抢了，商家现在5100包顺丰大量甩货，看来卖不动了
+
+
+*****
+
+####  那由  
+##### 429#       发表于 2023-8-2 11:36
+
+今日狗东放货随便买了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SergeGlenn  
+##### 430#       发表于 2023-8-2 11:56
+
+点进去看了下可以直接买。。。
+
+
+*****
+
+####  时空之旅  
+##### 431#       发表于 2023-8-2 12:03
+
+喷了，试了试还真随便买了，之前根本不可能到12点还有货给你抢
+
+
+*****
+
+####  Cielflame  
+##### 432#       发表于 2023-8-2 12:16
+
+啊？你们都是狗东看的么？我刚打开狗东看了下还是显示没货。。。
+
+
+*****
+
+####  苍瞳凯  
+##### 433#       发表于 2023-8-2 12:25
+
+ally居然真现货随便买了，不过还是提醒一下没有下定决心购买的人，现在无论是ally还是sd，这种X86掌机可以说几乎唯一的优点就是能用steam直接游玩720p/1080P低画质不到60帧的传统3A以及没有登陆switch的独立游戏，除此之外几乎哪哪都是槽点，几乎丧失便携性的重量和体积，玩3A只能一两个小时的续航，数倍于lite的价格，目前来说这类产品与其说是掌机，不如说是一台7840U的小笔电+手柄，不过以我身边观察，真正买类硬件的，几乎都有性能过得去的PC和switch，手里有闲钱想尝尝鲜的小富哥，把他当个大玩具尝尝鲜折腾折腾显然是没问题的
+
+
+*****
+
+####  时空之旅  
+##### 434#       发表于 2023-8-2 13:00
+
+<blockquote>Cielflame 发表于 2023-8-2 12:16
+啊？你们都是狗东看的么？我刚打开狗东看了下还是显示没货。。。</blockquote>
+只能说你那个地方的仓库没货吧，换个地址试试看呢
+
+
+*****
+
+####  Cielflame  
+##### 435#       发表于 2023-8-2 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879009&amp;ptid=2127262" target="_blank">时空之旅 发表于 2023-8-2 13:00</a>
+
+只能说你那个地方的仓库没货吧，换个地址试试看呢</blockquote>
+确实，随便换了几个地址试了试，感觉就北京没货<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
