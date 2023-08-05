@@ -596,3 +596,40 @@ ARISE男女主CV只有DAY1来，DAY1没有就是真没有了
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  司马千晶  
+##### 6248#       发表于 2023-7-31 10:34
+
+这游戏空中跳的位移速度应该受一点移速加成词条影响，怪不得以前有个段子怎么都出不来，原来堆了移速110<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">新的无用知识get。
+
+
+*****
+
+####  qiyu1234  
+##### 6249#       发表于 2023-8-2 20:29
+
+万代南梦宫德国 官推发表了一个连字游戏
+
+看看你能从图中找到多少部TALES OF 系列的标题(横向、竖向、斜向均可)
+
+他们之前公布了科隆展将会公布些新东西，也许会有TALES新作消息
+
+<img src="https://img.saraba1st.com/forum/202308/02/202927dptipunaqeqlieuh.jpg" referrerpolicy="no-referrer">
+
+<strong>1.JPG</strong> (302.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 20:29 上传
+
+网友答案
+
+<img src="https://img.saraba1st.com/forum/202308/02/202934nmk9kmgm97nogtgm.jpg" referrerpolicy="no-referrer">
+
+<strong>2.JPG</strong> (216.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 20:29 上传
+
