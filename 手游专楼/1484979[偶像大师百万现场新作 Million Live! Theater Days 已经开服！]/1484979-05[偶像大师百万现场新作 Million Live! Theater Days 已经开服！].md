@@ -1585,3 +1585,163 @@ SHS白嫖只出了个新惠美，不过券出了贵音和雪步的异色，不�
 
 杏奈婚纱的正确用法是竖屏单人模式<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+*****
+
+####  s7syphus  
+##### 7202#       发表于 2023-7-29 18:38
+
+平时很爱在睿站看你游的mv，但是又不想入坑，想问下有哪个音乐平台尽可能全的听你游歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7203#       发表于 2023-7-29 21:10
+
+apple music? 听说挺全的，或者就下载了
+
+
+*****
+
+####  镜hinata  
+##### 7204#       发表于 2023-7-29 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61833485&amp;ptid=1484979" target="_blank">s7syphus 发表于 2023-7-29 18:38</a>
+
+平时很爱在睿站看你游的mv，但是又不想入坑，想问下有哪个音乐平台尽可能全的听你游歌啊 ...</blockquote>
+apple music/sotify,除了会场限定CD的solo版都有
+
+新歌只要CD发售了隔了一个月就会上
+
+
+*****
+
+####  liyropen  
+##### 7205#       发表于 2023-7-29 23:39
+
+Apple Music
+ｓpotify
+
+LINE MUSIC
+
+Amazon Music Unlimited
+
+YouTube Music
+
+
+*****
+
+####  z6226618  
+##### 7206#       发表于 2023-7-30 03:55
+
+ 本帖最后由 z6226618 于 2023-7-30 04:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61833485&amp;ptid=1484979" target="_blank">s7syphus 发表于 2023-7-29 18:38</a>
+平时很爱在睿站看你游的mv，但是又不想入坑，想问下有哪个音乐平台尽可能全的听你游歌啊 ...</blockquote>
+我说一个比较找打的回答：网易云音乐
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+收录得确实不如官方授权的平台完整，比如电台的四张专辑少两张，以及一些专辑只有网络配信track（缺广播剧）；但是南斗，竟然存有一部分会场限定的soloCD
+对于单纯听歌的非本格百万P，依靠这些用户自主上传的内容我认为完全足够了
+
+分享一个歌单「Million Live! 专辑目录」，这些专辑涵盖了百万绝大部分的歌曲，可以按照简介的序号寻找相应的专辑: 
+[https://music.163.com/#/playlist?id=7779612251](https://music.163.com/#/playlist?id=7779612251)
+
+当然，有条件的话还请尽量支持正版<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BQlin  
+##### 7207#       发表于 2023-7-30 11:13
+
+天才服装设计师，最开始来个编织袋，中间正常了一阵子，这回来了个挡雨布，又开始发病了是吧
+
+
+*****
+
+####  super_uni  
+##### 7208#       发表于 2023-7-30 21:53
+
+12月份居然要和lovelive搞pvp，服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  吉诺爱比利  
+##### 7209#       发表于 2023-7-30 23:17
+
+《M@STERPIECE》终于要上了，泪目
+
+
+*****
+
+####  薰风Fww  
+##### 7210#       发表于 2023-7-30 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61847633&amp;ptid=1484979" target="_blank">吉诺爱比利 发表于 2023-7-30 23:17</a>
+
+《M@STERPIECE》终于要上了，泪目</blockquote>
+mv的还原度真高 这首真是拖了太久了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Muteki_Link  
+##### 7211#       发表于 2023-7-31 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61847813&amp;ptid=1484979" target="_blank">薰风Fww 发表于 2023-7-30 23:29</a>
+
+mv的还原度真高 这首真是拖了太久了</blockquote>
+昨天看到mv激动的把截图转到群里，得到了统一的队形回复：
+
+“终于要关服了？”
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7212#       发表于 2023-7-31 14:20
+
+石头又抽光了，90连0ssr<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+我的艾米莉<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 7213#       发表于 2023-8-1 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61852168&amp;ptid=1484979" target="_blank">Muteki_Link 发表于 2023-7-31 11:17</a>
+
+昨天看到mv激动的把截图转到群里，得到了统一的队形回复：
+
+“终于要关服了？”
+
+ ...</blockquote>
+为什么要去自讨没趣<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不关心的人和黑子哪知道为什么实装大师片
+
+
+*****
+
+####  Muteki_Link  
+##### 7214#       发表于 2023-8-2 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61872180&amp;ptid=1484979" target="_blank">枫紫 发表于 2023-8-1 21:09</a>
+
+为什么要去自讨没趣不关心的人和黑子哪知道为什么实装大师片</blockquote>
+没有，都是p圈都知道情况，就是口嗨过瘾。
+
+我理解应该主要是有对万南的不满在里面。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花开安菲路  
+##### 7215#       发表于 2023-8-2 15:40
+
+这次活动应该也是热门吧，上次活动18WPT2400+名，这次档线难道要上20W？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+石头都用来抽艾米莉了，个人剧情的矿都挖完了还没抽到，这活动纠结要不要打彩牌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
