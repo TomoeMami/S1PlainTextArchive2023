@@ -1561,3 +1561,73 @@ syl，新翻唱数据好猛
 
 上电视台节目了
 
+*****
+
+####  stedckk  
+##### 14653#       发表于 2023-7-31 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">感觉现在绫总的直播水平是全社最低的，调个声音都调不来。
+
+
+*****
+
+####  寺川愛美  
+##### 14654#       发表于 2023-7-31 21:49
+
+我來幫綾總說好話，這個啊，設備問題是比較難調整，我昨天直播，播著播著突然有人說我聲音輸出炸了
+
+麥克風沒炸，就是遊戲全損音質，我又調聲道又調編碼，整得滿頭大汗都沒整好，最後靜音把遊戲打完恥辱下播了
+
+
+*****
+
+####  stedckk  
+##### 14655#       发表于 2023-7-31 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但绫总出问题的几率也太高了，同事们也没有像她这样频繁事故。
+
+
+*****
+
+####  寺川愛美  
+##### 14656#       发表于 2023-7-31 22:22
+
+那確實，大概未來也會壞下去，大伙要享受這個過程<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 14657#       发表于 2023-8-3 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绫总尽力了，队友cba
+
+*****
+
+####  Fami水  
+##### 14658#       发表于 2023-8-3 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苦呀西了
+
+
+*****
+
+####  寺川愛美  
+##### 14659#       发表于 2023-8-3 23:45
+
+打滿3局2.0KD，然後輸比賽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我懂了，這波是過去的zywoo附身了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Map-2  
+##### 14660#       发表于 2023-8-4 02:38
+
+补了一下半仙昨天的占卜
+结果好几个人都哭麻了啊，实质心理咨询室
+
+比较有意思的是给吉成的建议是不要休息太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+吉成正在学塔罗牌占卜啊，这mio半仙的拿手好戏也要拷贝过去的话就有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
