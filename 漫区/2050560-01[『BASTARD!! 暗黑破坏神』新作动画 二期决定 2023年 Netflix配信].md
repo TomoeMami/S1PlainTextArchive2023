@@ -5901,3 +5901,623 @@ C734A85C-8779-461D-B9A6-D258FB654ED5.png
 
 7/31
 
+*****
+
+####  gpx234mqx  
+##### 457#       发表于 2023-7-31 20:10
+
+看到正精彩
+
+到邪神群复活就完了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+2023-07-31 200637.png
+(105.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-31 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202307/31/201011pt2igvchpgdwvivi.png" referrerpolicy="no-referrer">
+
+2023-07-31 200715.png
+(92.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-31 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202307/31/201011v29nwzjjzj92l31w.png" referrerpolicy="no-referrer">
+
+2023-07-31 200746.png
+(95.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-31 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202307/31/201012lt08kzvip6uneyvn.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nage560  
+##### 458#       发表于 2023-7-31 20:15
+
+邪神复活就完了？我以为起码做到方舟之战。
+
+*****
+
+####  未向heart  
+##### 459#       发表于 2023-7-31 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">求资源
+
+
+*****
+
+####  gpx234mqx  
+##### 460#       发表于 2023-7-31 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61859327&amp;ptid=2050560" target="_blank">未向heart 发表于 2023-7-31 20:17</a>
+
+求资源</blockquote>
+看上面图上文件名，谷歌下就有了
+
+
+*****
+
+####  gpx234mqx  
+##### 461#       发表于 2023-7-31 21:59
+
+这次算是加了不少细节
+
+比如给孙子讲故事的爷爷身份，是梅塔利卡那王国元大臣，退下来带着一家人住到久达斯王国边境
+
+
+*****
+
+####  gpx234mqx  
+##### 462#       发表于 2023-7-31 22:24
+
+话说真做到奥特曼七兄弟出来，圆谷会不会跳脚啊
+
+
+*****
+
+####  苇名一心  
+##### 463#       发表于 2023-8-1 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61859327&amp;ptid=2050560" target="_blank">未向heart 发表于 2023-7-31 20:17</a>
+求资源</blockquote>
+Netflix平台的动画去nyaa找就有了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 464#       发表于 2023-8-1 01:10
+
+ 本帖最后由 gpx234mqx 于 2023-8-1 01:15 编辑 
+
+shen死老婆这段是游戏剧情，不过这次把老婆样子画出来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过还好没把这兄弟和青梅老婆的三角关系给画全，不然又得拖半集<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+2023-08-01 010852.png
+(169.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-1 01:10 上传
+
+<img src="https://img.saraba1st.com/forum/202308/01/011031gsl136xa0qqj1aqv.png" referrerpolicy="no-referrer">
+
+2023-08-01 010921.png
+(185.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-1 01:10 上传
+
+<img src="https://img.saraba1st.com/forum/202308/01/011033w9g117w474yu92qs.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alucardcz  
+##### 465#       发表于 2023-8-1 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61859327&amp;ptid=2050560" target="_blank">未向heart 发表于 2023-7-31 20:17</a>
+
+求资源</blockquote>
+大马哈鱼上有人搬了
+
+————-
+
+话说一共15集？没了还是还有下半
+
+
+*****
+
+####  gpx234mqx  
+##### 466#       发表于 2023-8-1 07:29
+
+<blockquote>alucardcz 发表于 2023-8-1 01:47
+大马哈鱼上有人搬了
+
+————-
+
+</blockquote>
+没了
+
+方舟之战是罪与罚篇
+
+
+*****
+
+####  寒蝉  
+##### 467#       发表于 2023-8-1 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61861901&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-1 01:10</a>
+
+shen死老婆这段是游戏剧情魔改，本来没遗言，只有尸体，不过这次把老婆样子画出来了
+
+不过还好没把 ...</blockquote>
+这帽子有点眼熟····一眼过去我还以为魔战将军那个虫男怎么动画大整容了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exam00  
+##### 468#       发表于 2023-8-1 09:16
+
+没意思，日产的话还能BD看点15X。
+
+
+*****
+
+####  gpx234mqx  
+##### 469#       发表于 2023-8-1 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61863180&amp;ptid=2050560" target="_blank">寒蝉 发表于 2023-8-1 09:12</a>
+
+这帽子有点眼熟····一眼过去我还以为魔战将军那个虫男怎么动画大整容了 ...</blockquote>
+遮雨的，毕竟大雨天出来
+
+
+*****
+
+####  tansapple  
+##### 470#       发表于 2023-8-1 15:48
+
+居然出第二季了，有机会出到大战天使吗？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 471#       发表于 2023-8-1 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61867987&amp;ptid=2050560" target="_blank">tansapple 发表于 2023-8-1 15:48</a>
+
+居然出第二季了，有机会出到大战天使吗？</blockquote>
+奥特曼这个会有问题吧
+
+
+*****
+
+####  绿茶与猫  
+##### 472#       发表于 2023-8-1 22:34
+
+ 本帖最后由 绿茶与猫 于 2023-8-1 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61870198&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-1 18:21</a>
+奥特曼这个会有问题吧</blockquote>
+眼魔加手脚就能过，看这羽毛大翅膀和那些肌肉瘤子，再把外皮加点肉质感或者金属质感，下巴修修不就烂大街的雕像脸，魔神不也改造型了，只要想出总有办法
+
+
+*****
+
+####  gpx234mqx  
+##### 473#       发表于 2023-8-2 00:19
+
+ 本帖最后由 gpx234mqx 于 2023-8-2 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61873073&amp;ptid=2050560" target="_blank">绿茶与猫 发表于 2023-8-1 22:34</a>
+
+眼魔加手脚就能过，看这羽毛大翅膀和那些肌肉瘤子，再把外皮加点肉质感或者金属质感，下巴修修不就烂大街 ...</blockquote>
+更重要的是奥特曼的招牌必杀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+这个一出完全就暴露了啊
+
+2023-08-02 002152.png
+(369.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202308/02/002215ciliqheuwubluuiq.png" referrerpolicy="no-referrer">
+
+2023-08-02 002042.png
+(91.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 00:22 上传
+
+<img src="https://img.saraba1st.com/forum/202308/02/002216m79e1v5bbv7ed5ks.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nage560  
+##### 474#       发表于 2023-8-2 01:14
+
+看第二季才知道原来人类社会才占整个大陆的十分之一吗？所以破坏神的封印竟然都让人类保管就离谱。
+
+
+*****
+
+####  gpx234mqx  
+##### 475#       发表于 2023-8-2 07:36
+
+ 本帖最后由 gpx234mqx 于 2023-8-2 07:42 编辑 
+<blockquote>nage560 发表于 2023-8-2 01:14
+看第二季才知道原来人类社会才占整个大陆的十分之一吗？所以破坏神的封印竟然都让人类保管就离谱。 ...</blockquote>
+不是，四大王国所在是原欧亚大陆东面
+
+这片地方从80年前开始就是DS军团和五大王国抗争
+
+更之前DS在别的地方
+
+还有西面和美洲和非洲呢
+
+
+*****
+
+####  nage560  
+##### 476#       发表于 2023-8-2 13:03
+
+<img src="https://img.saraba1st.com/forum/202308/02/130235q2u2hsza212hh1hh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230802130140.png</strong> (96.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 13:02 上传
+
+<img src="https://img.saraba1st.com/forum/202308/02/130247wnnyy3d2cznq3z5p.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230802130147.png</strong> (58.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 13:02 上传
+
+漫画好像没有这两句话，是动画新加的吗？原来卡尔真是DS的儿子啊。
+
+
+*****
+
+####  gpx234mqx  
+##### 477#       发表于 2023-8-2 13:38
+
+ 本帖最后由 gpx234mqx 于 2023-8-2 13:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879040&amp;ptid=2050560" target="_blank">nage560 发表于 2023-8-2 13:03</a>
+
+漫画好像没有这两句话，是动画新加的吗？原来卡尔真是DS的儿子啊。</blockquote>
+的确是的
+
+不过他爷爷竟然不知道DS的事情就很怪，啥鸟不生蛋地方的部落土鳖
+
+
+*****
+
+####  nage560  
+##### 478#       发表于 2023-8-2 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879523&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-2 13:38</a>
+
+的确是的
+
+不过他爷爷竟然不知道DS的事情就很怪，啥鸟不生蛋地方的部落土鳖 ...</blockquote>
+爷爷不知道就当剧情需要了，DS真是罪孽深重啊，只管打炮不管养<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 479#       发表于 2023-8-2 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879589&amp;ptid=2050560" target="_blank">nage560 发表于 2023-8-2 13:43</a>
+
+爷爷不知道就当剧情需要了，DS真是罪孽深重啊，只管打炮不管养</blockquote>
+因为不知道，都生不出来的谁知道卡鲁斯他妈那么会生，而且不跟在DS身边跑回老家去了
+
+*****
+
+####  nage560  
+##### 480#       发表于 2023-8-2 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879778&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-2 13:55</a>
+
+因为不知道，都生不出来的谁知道卡鲁斯他妈那么会生，而且不跟在DS身边跑回老家去了 ...</blockquote>
+忘了他不能生的设定了，卡尔妈是什么种族萩原有交代吗？竟然能怀DS的孩子，还会用冰魔法。
+
+
+*****
+
+####  gpx234mqx  
+##### 481#       发表于 2023-8-2 14:12
+
+ 本帖最后由 gpx234mqx 于 2023-8-2 14:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879869&amp;ptid=2050560" target="_blank">nage560 发表于 2023-8-2 14:03</a>
+
+忘了他不能生的设定了，卡尔妈是什么种族萩原有交代吗？竟然能怀DS的孩子，还会用冰魔法。 ...</blockquote>
+守护冰魔剑的战士一族，也就是啥鸟不生蛋的边境村子
+
+这件事八成是唯一神设计好的，因为卡鲁斯是预言者以利亚
+
+
+*****
+
+####  nage560  
+##### 482#       发表于 2023-8-2 15:05
+
+动画里公主解除封印没有像原著那样断成两截了（原著断两截了为什么还能活着？），动画staff们真的好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  y2w80  
+##### 483#       发表于 2023-8-2 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61879040&amp;ptid=2050560" target="_blank">nage560 发表于 2023-8-2 13:03</a>
+
+漫画好像没有这两句话，是动画新加的吗？原来卡尔真是DS的儿子啊。</blockquote>
+漫画有这两句的，印象很深。
+
+但我始终觉得卡鲁斯和DS有一腿，毕竟妮尔本能的讨厌卡鲁斯来分DS的爱。
+
+*****
+
+####  nage560  
+##### 484#       发表于 2023-8-2 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61880878&amp;ptid=2050560" target="_blank">y2w80 发表于 2023-8-2 15:17</a>
+
+漫画有这两句的，印象很深。
+
+但我始终觉得卡鲁斯和DS有一腿，毕竟妮尔本能的讨厌卡鲁斯来分DS的爱。 ...</blockquote>
+不至于不至于，DS这种古早纯种瑟魔不会搞gay的，妮尔和卡尔就是单纯的姐弟争宠之间的矛盾。
+
+
+*****
+
+####  y2w80  
+##### 485#       发表于 2023-8-2 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61880949&amp;ptid=2050560" target="_blank">nage560 发表于 2023-8-2 15:22</a>
+
+不至于不至于，DS这种古早纯种瑟魔不会搞gay的，妮尔和卡尔就是单纯的姐弟争宠之间的矛盾。 ...</blockquote>
+不不，原作漫画里妮尔那啥冰火虽然对立，可也互相强烈吸引外加上在破坏神控制下卡鲁斯内心的独白，简直腐得不能再腐了。
+
+*****
+
+####  nage560  
+##### 486#       发表于 2023-8-2 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61881015&amp;ptid=2050560" target="_blank">y2w80 发表于 2023-8-2 15:27</a>
+
+不不，原作漫画里妮尔那啥冰火虽然对立，可也互相强烈吸引外加上在破坏神控制下卡鲁斯内心的独白，简直腐 ...</blockquote>
+这段我感觉就是萩原看了clamp大妈的X战记后随兴发挥，不用深究，最多就是卡尔有点gay，ds肯定不是。
+
+
+*****
+
+####  gpx234mqx  
+##### 487#       发表于 2023-8-2 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61880949&amp;ptid=2050560" target="_blank">nage560 发表于 2023-8-2 15:22</a>
+
+不至于不至于，DS这种古早纯种瑟魔不会搞gay的，妮尔和卡尔就是单纯的姐弟争宠之间的矛盾。 ...</blockquote>
+卡鲁斯就是个弟弟啊
+
+
+*****
+
+####  nage560  
+##### 488#       发表于 2023-8-2 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61883078&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-2 17:54</a>
+
+卡鲁斯就是个弟弟啊
+
+还有都120岁了，哪有gay不gay的，很久很久以前有喜欢女人的</blockquote>
+嗯，本篇漫画也有个喜欢他的迷妹魔战将军。
+
+
+*****
+
+####  gulant  
+##### 489#       发表于 2023-8-2 21:54
+
+借楼问一句，现在的完全被漫画素质有完全版二这样的重画素质吗？
+
+
+*****
+
+####  gpx234mqx  
+##### 490#       发表于 2023-8-2 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61885828&amp;ptid=2050560" target="_blank">gulant 发表于 2023-8-2 21:54</a>
+
+借楼问一句，现在的完全被漫画素质有完全版二这样的重画素质吗？</blockquote>
+只有1是完全重画的
+
+
+*****
+
+####  寒蝉  
+##### 491#       发表于 2023-8-2 22:33
+
+白发蓝眼，大得离谱的魔力天赋，还没爹，这当初漫画一看就觉得明摆着的暗示他老爸是谁了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gulant  
+##### 492#       发表于 2023-8-2 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61886074&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-2 22:23</a>
+
+只有1是完全重画的，2也不是全部重画
+
+之后就偷懒了</blockquote>
+这么多年还是这样啊orz，感谢更新情报。
+
+
+*****
+
+####  gpx234mqx  
+##### 493#       发表于 2023-8-3 00:27
+
+ 本帖最后由 gpx234mqx 于 2023-8-3 00:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61886141&amp;ptid=2050560" target="_blank">寒蝉 发表于 2023-8-2 22:33</a>
+
+白发蓝眼，大得离谱的魔力天赋，还没爹，这当初漫画一看就觉得明摆着的暗示他老爸是谁了四天王的设 ...</blockquote>
+只有这届四天王都是善良守序，很谐很家庭
+
+前一届4个里3个是混乱邪恶<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cowgp01  
+##### 494#       发表于 2023-8-3 00:31
+
+认回卡鲁斯后,ds基本变回傲娇老爹了
+
+
+*****
+
+####  nage560  
+##### 495#       发表于 2023-8-3 08:10
+
+<blockquote>gpx234mqx 发表于 2023-8-3 00:27
+只有这届四天王都是善良守序，很谐很家庭
+
+前一届4个里3个是混乱邪恶女同半恶魔，暗杀公会会长，整 ...</blockquote>
+前代的故事漫画无说啊，是小说有他们的剧情吗？
+
+
+*****
+
+####  gpx234mqx  
+##### 496#       发表于 2023-8-3 08:41
+
+<blockquote>nage560 发表于 2023-8-3 08:10
+前代的故事漫画无说啊，是小说有他们的剧情吗？</blockquote>
+小说剧情，还有游戏回忆剧情
+
+
+*****
+
+####  nage560  
+##### 497#       发表于 2023-8-3 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61888359&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-3 08:41</a>
+
+小说剧情，还有游戏回忆剧情</blockquote>
+哦，可惜小说没有中文版翻译，不然也想看看。
+
+
+*****
+
+####  gpx234mqx  
+##### 498#       发表于 2023-8-3 21:56
+
+<blockquote>nage560 发表于 2023-8-3 08:51
+哦，可惜小说没有中文版翻译，不然也想看看。</blockquote>
+没人翻译哈哈
+
+四本很老了
+
+*****
+
+####  gpx234mqx  
+##### 499#       发表于 2023-8-3 21:58
+
+之前没想到，大神官说17年前卡兹和DS决战那天天也是金色的，以为是龙战士特效，但其实那天正是路西法转世，都计算好的
+
+
+*****
+
+####  kiralzb  
+##### 500#       发表于 2023-8-3 22:12
+
+漫画后面登场看似很傲的妖精王女的母亲也是和DS有瓜葛来着，虽然这部我收了完全版同人QA啥的收藏，但一方面烂尾，二是后宫得不彻底老是提醒你老子要纯爱，特别是雷帝那开始搞爱人+女儿设定，然后加入忍者拉扯，最后忍者又自己小说快活去，雷帝成了纯女儿和儿子玩兄弟情，我是不能接受的，同人本来来去去还是那几个，没意思
+
+
+*****
+
+####  gpx234mqx  
+##### 501#       发表于 2023-8-3 22:33
+
+ 本帖最后由 gpx234mqx 于 2023-8-3 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61898345&amp;ptid=2050560" target="_blank">kiralzb 发表于 2023-8-3 22:12</a>
+
+漫画后面登场看似很傲的妖精王女的母亲也是和DS有瓜葛来着，虽然这部我收了完全版同人QA啥的收藏，但一方面 ...</blockquote>
+DS带过200年前还是小屁孩的皇女，去精灵王国玩的时候
+
+所以DS会照顾小孩啊，不然也不能把两小孩拉扯大
+
+*****
+
+####  kiralzb  
+##### 502#       发表于 2023-8-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61898641&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-3 22:33</a>
+DS带过200年前还是小屁孩的皇女，去精灵王国玩的时候
+
+所以DS会照顾小孩啊，不然也不能把两小孩拉扯大 ...</blockquote>
+大概是因为蓝图撒旦老父亲吧，以前缺心的DS就是照顾人也是挺混沌的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  绿茶与猫  
+##### 503#       发表于 2023-8-3 22:39
+
+ 本帖最后由 绿茶与猫 于 2023-8-3 22:41 编辑 
+
+草，看到突然来句攻壳机动剑，才意识到凯这造型是素子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看漫画的时候都没注意到
+
+
+*****
+
+####  kiralzb  
+##### 504#       发表于 2023-8-3 22:44
+
+那些咒文看漫画汉字挺帅的，一读出来就破功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kiralzb  
+##### 505#       发表于 2023-8-3 22:45
+
+万圣节是真的喷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  gpx234mqx  
+##### 506#       发表于 2023-8-3 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61898736&amp;ptid=2050560" target="_blank">绿茶与猫 发表于 2023-8-3 22:39</a>
+
+草，看到突然来句空壳机动剑，原来这造型是素子啊看漫画的时候都没注意到 ...</blockquote>
+还天空之城拉普达呢
+
+比高达更强
+
