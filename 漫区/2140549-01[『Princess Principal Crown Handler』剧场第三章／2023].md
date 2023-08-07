@@ -889,3 +889,31 @@ control那边派来接头的飞艇都被王国劫持了，实在想不出control
 
 最后公主还能做间谍应该算主角光环了吧，共和国方面不可能没有察觉到公主已经被控制了
 
+*****
+
+####  jajajzz  
+##### 90#       发表于 2023-8-4 22:18
+
+看完才意识到原来大河内你打算讲完的阿，本来以为和TV一样闹闹解除危机就完事了。
+
+
+*****
+
+####  aptx8285144  
+##### 91#       发表于 2023-8-4 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61910759&amp;ptid=2140549" target="_blank">jajajzz 发表于 2023-8-4 22:18</a>
+
+看完才意识到原来大河内你打算讲完的阿，本来以为和TV一样闹闹解除危机就完事了。 ...</blockquote>
+从tv最后两话开始已经没有大河内了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  璇瑢子R  
+##### 92#       发表于 2023-8-5 02:33
+
+带英闹成这样怎么一点法国影子都没有呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
