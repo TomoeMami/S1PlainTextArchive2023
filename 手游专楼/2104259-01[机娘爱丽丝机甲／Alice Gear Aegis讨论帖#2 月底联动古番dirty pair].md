@@ -4771,3 +4771,651 @@ fa狗子和老婆楓怎么不复刻一下
 
 我想知道为什么有时候我10连下去连三星都没抽到
 
+*****
+
+####  孫光龍  
+##### 576#       发表于 2023-7-19 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61664947&amp;ptid=2104259" target="_blank">regular 发表于 2023-7-14 22:08</a>
+
+我想知道为什么有时候我10连下去连三星都没抽到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为这个游戏是10连出11个，多给你出一个，但不是像一般游戏那样必出sr
+
+
+*****
+
+####  regular  
+##### 577#       发表于 2023-7-20 02:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61720870&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-7-19 20:48</a>
+
+因为这个游戏是10连出11个，多给你出一个，但不是像一般游戏那样必出sr ...</blockquote>
+我看了看，不是说10+1スカウト 3星以上一人 吗？
+
+难道有些池子没有？
+
+
+*****
+
+####  Picavian  
+##### 578#       发表于 2023-7-20 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61720870&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-7-19 20:48</a>
+
+因为这个游戏是10连出11个，多给你出一个，但不是像一般游戏那样必出sr ...</blockquote>
+其实是必出三星的。
+
+现在的算法是如果每次十一连出现全二星，则后台重抽至出现三星。
+
+因此如果真的出现十一连全二星的情况应该是出了bug（当然看到十一个蓝点是正常的），否则就是看错了。
+
+*****
+
+####  Picavian  
+##### 579#       发表于 2023-7-20 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61723692&amp;ptid=2104259" target="_blank">regular 发表于 2023-7-20 02:16</a>
+
+我看了看，不是说10+1スカウト 3星以上一人 吗？
+
+难道有些池子没有？</blockquote>
+建议保存截图，现在如果真的全二星就是bug，可以反映给阿金的。
+
+
+*****
+
+####  江戸前ルナ  
+##### 580#         楼主| 发表于 2023-7-20 19:42
+
+元老组攻势连发。FA阿星和文文来了
+
+
+*****
+
+####  江戸前ルナ  
+##### 581#         楼主| 发表于 2023-7-20 21:19
+
+最大的算是初音联动了，不知道是啥形式就是。RPGmaker联动不知道除了活动外还会怎么搞。还有小结的AN装。另外舞的修正三星新便服谁要啊，退钱！
+
+
+*****
+
+####  alialex  
+##### 582#       发表于 2023-7-20 23:20
+
+哪里有直播内容总结的中文版吗
+
+
+*****
+
+####  江戸前ルナ  
+##### 583#         楼主| 发表于 2023-7-20 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61734016&amp;ptid=2104259" target="_blank">alialex 发表于 2023-7-20 23:20</a>
+
+哪里有直播内容总结的中文版吗</blockquote>
+贴吧
+
+*****
+
+####  江戸前ルナ  
+##### 584#         楼主| 发表于 2023-7-20 23:41
+
+『Alice・Gear・Aegis』宣传PV第3弹-哔哩哔哩】 [https://b23.tv/Dy16aH0](https://b23.tv/Dy16aH0)
+
+钱没拿去多少做动画大概都去这里了。不过部分场景的这利维坦级的大小不对吧
+
+
+*****
+
+####  杂灰  
+##### 585#       发表于 2023-7-20 23:53
+
+虚假宣传过多 利维坦级这就被两人爆了，一定是aegis的自欺欺人宣传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枫：fa大招 狗都不用
+
+
+*****
+
+####  孫光龍  
+##### 586#       发表于 2023-7-21 08:01
+
+这游戏其实还挺合适联动初音的，近未来风格的gear随便设计一套就能很好看
+没想到设么多年了才有第一次
+
+
+*****
+
+####  不灭的旋律  
+##### 587#       发表于 2023-7-21 09:01
+
+你游又是性又是暴力的，初音能不能进卡池还很难说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有金字塔真不会赚钱，比基尼装甲出全员份的队长岂不是氪爆？结果才新出两件
+
+
+*****
+
+####  madcow  
+##### 588#       发表于 2023-7-21 10:44
+
+初音联动是不是直接拔了飞燕hd的手脚就上天
+
+
+*****
+
+####  hl7424994  
+##### 589#       发表于 2023-7-21 15:09
+
+也不排除像新干线那样弄个读音一样但名字写法不同的人物出来做代理打手？
+
+
+*****
+
+####  冰风血羽  
+##### 590#       发表于 2023-7-21 16:27
+
+我屮，初音未来
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  alialex  
+##### 591#       发表于 2023-7-21 16:29
+
+没看时间还以为今天是开文曲星fa池子<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+初音是不是还不知道联动时间呀
+
+*****
+
+####  madcow  
+##### 592#       发表于 2023-7-21 16:41
+
+话说这么看fa半年加两个？下次得明年了？
+
+
+*****
+
+####  冰风血羽  
+##### 593#       发表于 2023-7-21 19:04
+
+啊这，萌华上次复刻才换了兔女郎装，这次怎么就送了……浪费啊
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  regular  
+##### 594#       发表于 2023-7-21 20:09
+
+200水来了个涛哥，感觉不太好<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 595#       发表于 2023-7-21 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61741610&amp;ptid=2104259" target="_blank">madcow 发表于 2023-7-21 16:41</a>
+
+话说这么看fa半年加两个？下次得明年了？</blockquote>
+AN都快出完了，下半年再怎么疯狂联动复刻，不出4~6个FA我看是撑不下去的。
+
+PS：初音生日8/31，按理说联动应该是8月底。DTA发售后应该也有个复刻
+
+*****
+
+####  杂灰  
+##### 596#       发表于 2023-7-21 20:38
+
+你游整模特组营业还特地找个百合画师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 597#       发表于 2023-7-21 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61744033&amp;ptid=2104259" target="_blank">杂灰 发表于 2023-7-21 20:38</a>
+
+你游整模特组营业还特地找个百合画师找个别的我都当营业算了 找个一点进首页就是百合的我就不得不怀 ...</blockquote>
+就是前几期画马鞭草漫画那位。不过他在接到活之前好像就没发过AGA相关的推这人选确实奇怪。你游一直是从推特上找那些长期画AGA的壮丁抓的。
+
+*****
+
+####  杂灰  
+##### 598#       发表于 2023-7-21 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61744199&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-7-21 20:54</a>
+
+就是前几期画马鞭草漫画那位。不过他在接到活之前好像就没发过AGA相关的推这人选确实奇怪。你游一直是从 ...</blockquote>
+阿金该反思下长期画aga的怎么那么多豚豚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 599#       发表于 2023-7-21 21:05
+
+这短篇阿唯画的真可爱 全是表情<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  granly  
+##### 600#       发表于 2023-7-21 21:28
+
+天天盼fa爱花结果就是一直没来
+
+
+*****
+
+####  不灭的旋律  
+##### 601#       发表于 2023-7-21 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61744587&amp;ptid=2104259" target="_blank">granly 发表于 2023-7-21 21:28</a>
+
+天天盼fa爱花结果就是一直没来</blockquote>
+爱花肯定和睦海打包，但是睦海声优抑郁休养中肯定是没戏的。我也想要FA睦海爱花但是现在也不屯票了疯狂抽，就是知道现在不会出。
+
+
+*****
+
+####  LEOKO~  
+##### 602#       发表于 2023-7-21 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61735843&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-7-21 09:01</a>
+
+你游又是性又是暴力的，初音能不能进卡池还很难说
+
+还有金字塔真不会赚钱，比基尼装甲出全员份的队长 ...</blockquote>
+碧蓝档案
+
+*****
+
+####  LEOKO~  
+##### 603#       发表于 2023-7-21 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61737277&amp;ptid=2104259" target="_blank">madcow 发表于 2023-7-21 10:44</a>
+
+初音联动是不是直接拔了飞燕hd的手脚就上天</blockquote>
+狗屋不要面子的啊？何况狗屋的初音也是岛田画的
+
+
+*****
+
+####  alialex  
+##### 604#       发表于 2023-7-24 11:18
+
+拖延症到最后才补完动画联动剧情
+
+阿金出息了啊后半全语音...欺负人新人声优便宜是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+结局穿越错了地方也很有老害那味
+
+
+*****
+
+####  冰风血羽  
+##### 605#       发表于 2023-7-25 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">请问兑换那边那些奖牌是怎么搞到的，想多换几个饰品都不行
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  孫光龍  
+##### 606#       发表于 2023-7-25 06:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61776759&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-7-25 00:37</a>
+请问兑换那边那些奖牌是怎么搞到的，想多换几个饰品都不行
+
+—— 来自 realme RMX3706, Android 13 ...</blockquote>
+这个就是限制的
+周年或者半周年给你每样发一个
+
+
+*****
+
+####  冰风血羽  
+##### 607#       发表于 2023-7-25 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61777494&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-7-25 06:17</a>
+这个就是限制的
+周年或者半周年给你每样发一个</blockquote>
+原来如此，真爱兑换物品了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  江戸前ルナ  
+##### 608#         楼主| 发表于 2023-7-25 23:57
+
+[https://www.bilibili.com/video/BV1Jx4y197dR/](https://www.bilibili.com/video/BV1Jx4y197dR/)
+
+[中字]Alice Gear Aegis 3.5周年直播短剧：新谷芹菜、伊户仓音绪、下落合桃歌篇
+
+这位大佬把生放所有短剧拷熟肉了，牛逼
+
+
+*****
+
+####  冰风血羽  
+##### 609#       发表于 2023-7-26 21:27
+
+这个调查刷装备也搞人心态啊，好不容易刷出一个ユキ的贝壳开出来还是已经有的部件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 610#         楼主| 发表于 2023-7-26 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61799941&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-7-26 21:27</a>
+
+这个调查刷装备也搞人心态啊，好不容易刷出一个ユキ的贝壳开出来还是已经有的部件
+
+顺便问下贝壳爆仓 ...</blockquote>
+满仓不影响彩贝掉落，但严重影响彩贝掉率，这个WIKI已经有大数据验证很久了。满仓彩贝掉率大概会降到原来的1/8到1/10
+
+
+*****
+
+####  冰风血羽  
+##### 611#       发表于 2023-7-26 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61800621&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-7-26 22:26</a>
+满仓不影响彩贝掉落，但严重影响彩贝掉率，这个WIKI已经有大数据验证很久了。满仓彩贝掉率大概会降到原来 ...</blockquote>
+谢谢，还好打了几次觉得不对劲就没继续了，快速**一次要等半小时，防沉迷啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  江戸前ルナ  
+##### 612#         楼主| 发表于 2023-7-26 23:50
+
+<img src="https://img.saraba1st.com/forum/202307/26/235024t878ka2fifaci8u7.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230726191003.jpg</strong> (140.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-26 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202307/26/235025ti0ywiv2iii1ic0f.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230726191025.jpg</strong> (126.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-26 23:50 上传
+
+<img src="https://img.saraba1st.com/forum/202307/26/235026tf17ccctfch1r6gi.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230726191030.jpg</strong> (142.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-26 23:50 上传
+
+大而美，又优雅<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 613#       发表于 2023-7-27 00:46
+
+确实好看哪天抽到四星就换<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 614#       发表于 2023-7-27 16:15
+
+<img src="https://img.saraba1st.com/forum/202307/27/161537jhzty118678yy6mr.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230727161518.jpg</strong> (319.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-27 16:15 上传
+
+、
+
+可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孫光龍  
+##### 615#       发表于 2023-7-27 16:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蚊香fa来了，最后的史诗级加强，到货了吗
+
+
+*****
+
+####  madcow  
+##### 616#       发表于 2023-7-27 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没去FA池，往神南池子里丢了个十连刚好补到想要的普通神婆（（
+
+
+*****
+
+####  江戸前ルナ  
+##### 617#         楼主| 发表于 2023-7-27 20:31
+
+试了下文嘉的盘子和性能
+
+先说FA。FA的着装SP有下滑目押，目押成功后能接原来的平砍3连，伤害从5000 6000 12000上升到7000 8000 15000，附带的追击的伤害没变化。盘子技能有个开SP加耐性和近战伤害的，配上举剑金身+着装耐性+技能耐性应该还行，是一套搭配，但是一套下来的时间并不短。所以我为什么不带另一个SP，无敌13秒的带球撞人用胶剑爆输出呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+盘子技能方向，因为SP获得率可以说是大强化的关系，所以要么是频繁带球撞人SP要么是满血回全队血安心当奶两个方向吧。射击系就算了，文嘉的筒子虽说是派生但由于太早第一件其实就是后来的白板专属标配，整体道中对杂性能依然尴尬。顺带一提那个强化腿技能加射击的很鸡肋，作为长时间BUFF就放的时候加个两轮齐射，伤害一般，根本没个卵用。都这种弹数和CD了配合gear打开书这个设定给个类似天狐或阿唯的持续射击不行吗，如果给了起码道中能力能**提升了。现在大概，文嘉比以前多了近战爆发打法，对比自己的话输出进步很大。大概有新出的单棍机输出水准（但是文文你已经是三合一没进步空间了哦），但是跟几个合体神棍比差太远了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  soyae  
+##### 618#       发表于 2023-7-28 05:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61812109&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-07-27 20:31:59</a></blockquote>三合一喜塔腊呢？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  江戸前ルナ  
+##### 619#         楼主| 发表于 2023-7-28 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61815533&amp;ptid=2104259" target="_blank">soyae 发表于 2023-7-28 05:47</a>
+
+三合一喜塔腊呢？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+抽到还没看，阿星我极少用。不过翻推特，大概感想是长枪型+SP，可以搞近战特化
+
+
+*****
+
+####  江戸前ルナ  
+##### 620#         楼主| 发表于 2023-7-29 19:30
+
+这活动剧情，1年多前的成子坂。上班认真的阿星，靠谱的开朗前辈四谷，究竟是经过什么样的事才会变成 “每天上班一有摸鱼机会就打机的熊孩子阿星见到四谷就喊BBA”这种场景的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 621#       发表于 2023-7-29 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">破冰之前是这样的
+这部分剧情还挺有趣的
+
+
+*****
+
+####  madcow  
+##### 622#       发表于 2023-7-29 22:56
+
+<img src="https://img.saraba1st.com/forum/202307/29/225617vqqnj8ipywojwjns.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230729225534.jpg</strong> (197.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 22:56 上传
+
+这裙子开线了啊（
+
+还有怎么看起来上下半身跟错位了似的（
+
+*****
+
+####  江戸前ルナ  
+##### 623#         楼主| 发表于 2023-7-29 22:59
+
+ 本帖最后由 江戸前ルナ 于 2023-7-29 23:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61834400&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-7-29 20:02</a>
+
+破冰之前是这样的，但是阿星难道不是第一天就开始看bba不顺眼了么（
+
+这部分剧情还挺有趣的 ...</blockquote>
+不是不顺眼，而是本质玻璃心有点自卑的阿星有点顶不住外表看上去开朗可靠所以耀眼的前辈大姐姐四谷<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 624#       发表于 2023-7-30 18:05
+
+再来200水，桃歌an，难道这是桃歌专场吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 625#         楼主| 发表于 2023-7-31 20:09
+
+活动剧情这就没了，还是没写BBA怎么在阿星眼中塌房的原因，太遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+阿星和文嘉FA的剧情都无关主线。文嘉着重于写与阿星现在的关系，阿星的则是配合新CD的象之歌，说了一下她小时候以及家人的事，然后借着舞一大段说明来描写阿星的心情~
+
+
+*****
+
+####  soyae  
+##### 626#       发表于 2023-8-1 08:54
+
+微博的蔓延蔓延还更不更新评价表了啊，上次更新都是半年前了😭
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  孫光龍  
+##### 627#       发表于 2023-8-1 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然节奏榜最后的终点都是坑掉么...
+
+
+*****
+
+####  alialex  
+##### 628#       发表于 2023-8-1 15:19
+
+早就说了五周年都过了的阿嘎搞节奏榜是没意义的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 629#       发表于 2023-8-1 16:38
+
+跳舞动作有点一言难尽啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wilkyway  
+##### 630#       发表于 2023-8-2 14:23
+
+这新fa给长枪特化还挺有意思的 sp效率直接拉满基本可以爪子sp爪子sp全程覆盖了 强不强另说反正调查效率大up<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 631#       发表于 2023-8-3 16:12
+
+50张票抽不到，只能氪金强娶寡妇了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  冰风血羽  
+##### 632#       发表于 2023-8-4 04:45
+
+<img src="https://img.saraba1st.com/forum/202308/04/044210j9tt3kaa2snp3brj.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230804044140.jpg</strong> (223.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-4 04:42 上传
+
+刚把深沙希娶进门又来个我想要的妮娜池。。。为了备战初音，手头也不想投入太多，是不是可以等妮娜在下一次自选里
+
+*****
+
+####  希望之花  
+##### 633#       发表于 2023-8-4 04:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥想抽的 攒石头等哪天我龙AN落地了
+
+
+*****
+
+####  江戸前ルナ  
+##### 634#         楼主| 发表于 2023-8-4 19:47
+
+[https://campaign.dmm.com/event/dmmpointfestival/](https://campaign.dmm.com/event/dmmpointfestival/)
+
+DMM有消费点数返还的活动。最多返还4000点（即消费20000点）
+
+1，是消费而不是单纯就充值；
+
+2，记得先点参加活动再消费。
+
+*****
+
+####  江戸前ルナ  
+##### 635#         楼主| 发表于 2023-8-4 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61900639&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-8-4 04:45</a>
+
+刚把深沙希娶进门又来个我想要的妮娜池。。。为了备战初音，手头也不想投入太多，是不是可以等妮娜在下一 ...</blockquote>
+周年有自选an。过了8月的an都不能进今年的自选了，没其他心仪的可以等。
+
+
+*****
+
+####  冰风血羽  
+##### 636#       发表于 2023-8-5 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61909059&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-8-4 19:47</a>
+
+周年有自选an。过了8月的an都不能进今年的自选了，没其他心仪的可以等。</blockquote>
+谢谢，我慢慢等了
+
