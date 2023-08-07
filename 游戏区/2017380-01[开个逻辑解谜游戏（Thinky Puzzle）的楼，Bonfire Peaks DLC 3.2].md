@@ -2154,3 +2154,23 @@ fractalfactory如果能有个像opus magnum一样的进度条就好了，老有�
 New Adventures总共一百六十多关，其中只有六关是3D。从任何角度来看都不能说是“很多”。 ...</blockquote>
 连续玩到好几个，体感感觉很多吧，当时就有点烦躁了。
 
+*****
+
+####  weiyun  
+##### 142#         楼主| 发表于 2023-8-1 10:18
+
+[https://store.steampowered.com/app/2486430/Bilattice/](https://store.steampowered.com/app/2486430/Bilattice/)
+
+类见证者
+
+8.3Steam会有Cerebral Puzzle Showcase
+
+
+*****
+
+####  叶雾  
+##### 143#       发表于 2023-8-4 10:12
+
+把抓兔子买了，还没玩
+[https://store.steampowered.com/a ... own_the_Bunburrows/](https://store.steampowered.com/app/1628610/Paquerette_Down_the_Bunburrows/)
+
