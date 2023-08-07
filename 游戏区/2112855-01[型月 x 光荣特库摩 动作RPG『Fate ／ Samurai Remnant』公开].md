@@ -2432,3 +2432,965 @@ NGA是真敢问，话说国内评价动作要素时“各打各的”这四个�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了PS5的试玩，还算有点购买欲，比之前的掉帧反向宣传片是好多了
 
+*****
+
+####  恋叶梦境  
+##### 229#       发表于 2023-7-25 23:26
+
+从者中弓和杀的立绘，术还是黑影就不贴了（
+
+<img src="https://img.saraba1st.com/forum/202307/25/232642k4s3pikx4j4ccjge.jpg" referrerpolicy="no-referrer">
+
+<strong>弓.jpg</strong> (325.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-25 23:26 上传
+
+<img src="https://img.saraba1st.com/forum/202307/25/232642a0x3vronn8keefo9.jpg" referrerpolicy="no-referrer">
+
+<strong>杀.jpg</strong> (344.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-25 23:26 上传
+
+
+*****
+
+####  Piano-Forest  
+##### 230#         楼主| 发表于 2023-7-25 23:45
+
+<img src="https://p.sda1.dev/12/a89e6ca1d83816cefb4c3b8115eda3e5/20230725_234447.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9ef43650abb473ceca36e5b2a6fba63a/20230725_234452.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忧郁  
+##### 231#       发表于 2023-7-26 00:10
+
+psn港服预购出了，普通528，限定880
+
+
+*****
+
+####  浅井惠  
+##### 232#       发表于 2023-7-26 01:46
+
+看staff，剧本应该主要还是樱井光和东出，上次蘑菇主笔的游戏还是extella吧...
+
+
+*****
+
+####  Sissii  
+##### 233#       发表于 2023-7-26 09:07
+
+这Archer，盲猜一个李广
+
+
+*****
+
+####  wyy123  
+##### 234#       发表于 2023-7-26 09:18
+
+豪华版机票带的dlc要明年4月前出第一个，推出时间跨度太长了。
+
+*****
+
+####  wyy123  
+##### 235#       发表于 2023-7-26 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61788800&amp;ptid=2112855" target="_blank">忧郁 发表于 2023-7-26 00:10</a>
+
+psn港服预购出了，普通528，限定880</blockquote>
+豪华版定价越来越贵了，卧龙豪华版711港币，这个直接上800港币了
+
+
+*****
+
+####  zakki  
+##### 236#       发表于 2023-7-26 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61789575&amp;ptid=2112855" target="_blank">浅井惠 发表于 2023-7-26 01:46</a>
+看staff，剧本应该主要还是樱井光和东出，上次蘑菇主笔的游戏还是extella吧... ...</blockquote>
+这仨人都是监修，剧情说是光荣负责火纹三房剧情的那波人写的
+
+
+*****
+
+####  ナルバレック  
+##### 237#       发表于 2023-7-26 09:34
+
+主笔团队是风花雪月组
+
+*****
+
+####  ナルバレック  
+##### 238#       发表于 2023-7-26 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61513279&amp;ptid=2112855" target="_blank">被子十三 发表于 2023-7-2 12:21</a>
+
+这gameplay，基本可以确定是雷了。时代背景我也不喜欢，看在黑贞份上等骨折入一个
+
+— from OnePlus KB2005 ...</blockquote>
+FE微微一笑，游戏性不如80年代的那些游戏，石头剪刀布，也能卖个十万，蘑菇还难以理喻的特喜欢FE
+
+
+*****
+
+####  character  
+##### 239#       发表于 2023-7-26 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61791073&amp;ptid=2112855" target="_blank">ナルバレック 发表于 2023-7-26 09:35</a>
+FE微微一笑，游戏性不如80年代的那些游戏，石头剪刀布，也能卖个十万，蘑菇还难以理喻的特喜欢FE ...</blockquote>
+fate衍生作品一大堆，只有fe的世界观是蘑菇自己写，亲生的能不喜欢吗
+
+
+*****
+
+####  洛克萨斯  
+##### 240#       发表于 2023-7-26 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓兵我看贴吧那边说日本人觉得那是后羿？
+
+
+*****
+
+####  ナルバレック  
+##### 241#       发表于 2023-7-26 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61791615&amp;ptid=2112855" target="_blank">洛克萨斯 发表于 2023-7-26 10:13</a>
+
+弓兵我看贴吧那边说日本人觉得那是后羿？</blockquote>
+后羿的可能性基本是零，后羿强调忠义啥的作甚，薛仁贵岳飞之类的有可能，日本射腚党不如扶她吧射腚党专业，当初扶她吧有人去蓝鸟把日本射腚党说的一愣一愣的，专业程度很高
+
+*****
+
+####  洛克萨斯  
+##### 242#       发表于 2023-7-26 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61791790&amp;ptid=2112855" target="_blank">ナルバレック 发表于 2023-7-26 10:25</a>
+
+后羿的可能性基本是零，后羿强调忠义啥的作甚，薛仁贵岳飞之类的有可能，日本射腚党不如扶她吧射腚党专业 ...</blockquote>
+看描述应该是武将系的，人物画法应该是女人，就不知道是真女人还是被切了鸡儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 243#         楼主| 发表于 2023-7-26 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61788551&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2023-7-25 23:45</a></blockquote>
+<img src="https://p.sda1.dev/12/88a934eceb0f4a715f51e916d20ef841/embed0029_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/1c1923e36f9d0386657f99f5e88e171c/embed0030_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/d8f73c978509cc1ed5942302f4fa3d39/embed0031_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/03811b998e51e0b90a2e13a4d3314cb5/embed0032_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/04ed6e127d0f7a61234052cd212f2868/embed0033_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/6c0f9cd92baaae0853f3345fe89c6085/embed0034_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/94c37478ef3f0a953880111d3307d1ab/9d0d09ably1hga0mhev5vj223e1hcx6p.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/666eeb31b6775c8feac43d6e3d12a2b2/embed0035_HD.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/1ed758f34e2e3dbd8a777b2e4578c184/embed0036_HD.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 244#       发表于 2023-7-26 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61791849&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2023-7-26 10:30</a></blockquote>
+KT真正的老板....涩泽光（大雾）
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 245#       发表于 2023-7-26 10:39
+
+社长味有点重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后能不能都找kt做
+
+
+*****
+
+####  空集  
+##### 246#       发表于 2023-7-26 10:46
+
+尼玛 还能抢灵脉的 虽然在游戏里是烂大街的庸俗设定但是套了型月设定的壳子马上就觉得好好玩了 我怎么回事
+
+*****
+
+####  6030sylar  
+##### 247#       发表于 2023-7-26 10:47
+
+团长那组又是外星人吧
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kisskick  
+##### 248#       发表于 2023-7-26 12:37
+
+<blockquote>洛克萨斯 发表于 2023-7-26 10:13
+弓兵我看贴吧那边说日本人觉得那是后羿？</blockquote>
+不是日本人，是鬼佬。主要原因可能是他们只认识后羿
+
+
+*****
+
+####  洛克萨斯  
+##### 249#       发表于 2023-7-26 13:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fate无双直接让kt接手不就行了
+
+
+*****
+
+####  火焰的攻击  
+##### 250#       发表于 2023-7-26 13:56
+
+规格好高，光荣这么重视？
+
+
+*****
+
+####  Muteki_Link  
+##### 251#       发表于 2023-7-26 14:22
+
+“关于装备的部分，以主人公来说，他的刀可以分成4个不同的零件，比如说像刀鞘、刀锷等等。每一个不同的部件会有不同的数值，或带来一些特殊效果，是可以自己做更换和组合的。”
+
+什么刀匠系统，给我来一份战术刀鄂+加长刀刃+浪客缠布+龙息刀鞘+双持技能的和泉守藤原兼定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wlgdc  
+##### 252#       发表于 2023-7-26 14:39
+
+难得无双还做了个主城。
+
+*****
+
+####  洛克萨斯  
+##### 253#       发表于 2023-7-26 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61794308&amp;ptid=2112855" target="_blank">火焰的攻击 发表于 2023-7-26 13:56</a>
+
+规格好高，光荣这么重视？</blockquote>
+但是看建模感觉很廉价
+
+
+*****
+
+####  死宅真恶心  
+##### 254#       发表于 2023-7-26 16:30
+
+880港币……
+
+
+*****
+
+####  被雨困住的城市  
+##### 255#       发表于 2023-7-26 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61791849&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2023-7-26 10:30</a></blockquote>
+楼主你发的图我经常刷不出来啊T T
+
+*****
+
+####  被雨困住的城市  
+##### 256#       发表于 2023-7-26 22:27
+
+steam普通版350，豪华版590
+
+
+*****
+
+####  廖化  
+##### 257#       发表于 2023-7-26 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61791849&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2023-7-26 10:30</a></blockquote>
+废狗能活到现在光荣你也有责任.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火焰的攻击  
+##### 258#       发表于 2023-7-26 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61800632&amp;ptid=2112855" target="_blank">被雨困住的城市 发表于 2023-7-26 22:27</a>
+
+楼主你发的图我经常刷不出来啊T T</blockquote>
+把图床的 p.sda1.dev 加到梯子的 direct 规则下
+
+
+*****
+
+####  rgauss  
+##### 259#       发表于 2023-7-27 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑丝?
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zakki  
+##### 260#       发表于 2023-7-27 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61794821&amp;ptid=2112855" target="_blank">wlgdc 发表于 2023-7-26 14:39</a>
+难得无双还做了个主城。</blockquote>
+访谈都说了好几遍了不是无双，是arpg
+
+
+*****
+
+####  被雨困住的城市  
+##### 261#       发表于 2023-7-27 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61801372&amp;ptid=2112855" target="_blank">火焰的攻击 发表于 2023-7-26 23:58</a>
+把图床的 p.sda1.dev 加到梯子的 direct 规则下</blockquote>
+谢谢，但是我没开梯子，图就是出不来
+
+
+*****
+
+####  1a不解释  
+##### 262#       发表于 2023-7-27 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61801427&amp;ptid=2112855" target="_blank">rgauss 发表于 2023-7-27 00:05</a>
+黑丝?
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+好肉的腿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  岸浪白野  
+##### 263#       发表于 2023-7-29 10:59
+
+<img src="https://img.saraba1st.com/forum/202307/29/105940gae0vz3m0gtwzt08.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230729105623.png</strong> (239.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202307/29/105948a4bqffygztgygfto.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230729105758.jpg</strong> (499.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 10:59 上传
+
+<img src="https://img.saraba1st.com/forum/202307/29/105948fbetmpeinilmmi1t.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230729105628.png</strong> (12.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-29 10:59 上传
+
+劳模狗和玉藻亚里亚
+
+*****
+
+####  恋叶梦境  
+##### 264#       发表于 2023-7-29 11:01
+
+大狗和玉藻アリア作为无主从者，可加入战斗
+<img src="https://p.sda1.dev/12/a554e2944dff39fb87489a3b7484f2ec/CMP_20230729110048797.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 265#         楼主| 发表于 2023-7-29 11:06
+
+<img src="https://p.sda1.dev/12/9ec6d1c28f0a508108b8dde4a5855bf0/20230729_110500.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 266#       发表于 2023-7-29 13:08
+
+有野生从者，这是亚种平行世界吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这届圣杯战争也完蛋了，能让野生的出来
+
+*****
+
+####  gpx234mqx  
+##### 267#       发表于 2023-7-29 13:09
+
+狐狸比不过龙娘，现在才术剑枪狂四种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火焰的攻击  
+##### 268#       发表于 2023-7-29 13:13
+
+感觉 fate 这边衍生作给人比 gbf 大方一些？
+
+
+*****
+
+####  里村紅葉  
+##### 269#       发表于 2023-7-29 13:18
+
+港真，狗哥有点看腻了，到哪都是你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 270#       发表于 2023-7-29 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61830787&amp;ptid=2112855" target="_blank">里村紅葉 发表于 2023-7-29 13:18</a>
+
+港真，狗哥有点看腻了，到哪都是你</blockquote>
+有狗说不定有红A<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">啊
+
+
+*****
+
+####  gpx234mqx  
+##### 271#       发表于 2023-7-29 13:25
+
+等下，这些DLC不就可以源源不断的出了，不限定正常圣杯战争的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sandro  
+##### 272#       发表于 2023-7-29 13:39
+
+狗真看腻了
+
+*****
+
+####  恋叶梦境  
+##### 273#       发表于 2023-7-29 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61830694&amp;ptid=2112855" target="_blank">gpx234mqx 发表于 2023-7-29 13:09</a>
+
+狐狸比不过龙娘，现在才术剑枪狂四种</blockquote>
+这是rider（
+
+
+*****
+
+####  廖化  
+##### 274#       发表于 2023-7-29 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61830787&amp;ptid=2112855" target="_blank">里村紅葉 发表于 2023-7-29 13:18</a>
+
+港真，狗哥有点看腻了，到哪都是你</blockquote>
+反正都是光荣宇宙，你当他是拿枪的曹丕就完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bgmilk  
+##### 275#       发表于 2023-7-29 18:10
+
+   狗哥有点离谱了，fate作品全勤了吧，呆毛红a都没有全勤。日本出名的枪兵不少了 怎么还在薅狗。
+
+*****
+
+####  宵神乐  
+##### 276#       发表于 2023-7-29 18:11
+
+背着刀是rider 草
+
+
+*****
+
+####  zakki  
+##### 277#       发表于 2023-7-29 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61833238&amp;ptid=2112855" target="_blank">bgmilk 发表于 2023-7-29 18:10</a>
+狗哥有点离谱了，fate作品全勤了吧，呆毛红a都没有全勤。日本出名的枪兵不少了 怎么还在薅狗。 ...</blockquote>
+狗哥只是游戏全勤而已，fe一堆，fgo，fsr。小说的话不如闪
+
+
+*****
+
+####  恋叶梦境  
+##### 278#       发表于 2023-7-30 15:51
+
+闪似乎也来了
+
+
+*****
+
+####  rgauss  
+##### 279#       发表于 2023-7-30 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周瑜还是没能保住自己的下半身
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  恋叶梦境  
+##### 280#       发表于 2023-7-30 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61842718&amp;ptid=2112855" target="_blank">rgauss 发表于 2023-7-30 16:10</a>
+周瑜还是没能保住自己的下半身
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+看讨论也有人说是男cv
+确定了，是小野贤章
+
+*****
+
+####  rgauss  
+##### 281#       发表于 2023-7-30 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61842739&amp;ptid=2112855" target="_blank">恋叶梦境 发表于 2023-7-30 16:13</a>
+看讨论也有人说是男cv
+确定了，是小野贤章</blockquote>
+这么女性化的装扮竟然是个男孩子<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恋叶梦境  
+##### 282#       发表于 2023-7-30 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61842760&amp;ptid=2112855" target="_blank">rgauss 发表于 2023-7-30 16:16</a>
+
+这么女性化的装扮竟然是个男孩子
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2. ...</blockquote>
+其实也不太女性化吧除了头发长点，现在只能说通过画师的眼睛画法来辨认目前的性别看来是没问题的
+
+*****
+
+####  奥F特  
+##### 283#       发表于 2023-7-30 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪闪大狗都来了 某个红色弓兵没有说不过去吧
+
+
+*****
+
+####  忧郁  
+##### 284#       发表于 2023-7-30 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">金先生又加班笑死
+
+
+*****
+
+####  Piano-Forest  
+##### 285#         楼主| 发表于 2023-7-30 16:34
+
+PV2：[https://youtu.be/fjgXKGBQ9ac](https://youtu.be/fjgXKGBQ9ac)
+
+*****
+
+####  黑上シグマ  
+##### 286#       发表于 2023-7-30 16:36
+
+弓兵周瑜？
+
+
+*****
+
+####  厄神之息  
+##### 287#       发表于 2023-7-30 16:45
+
+说不定是庞统呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  廖化  
+##### 288#       发表于 2023-7-30 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61843016&amp;ptid=2112855" target="_blank">厄神之息 发表于 2023-7-30 16:45</a>
+
+说不定是庞统呢</blockquote>
+庞士元哪有这么好看朋友你想多了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KL25001  
+##### 289#       发表于 2023-7-30 16:50
+
+看pv比预期规模大上不少啊，希望不要因为加太多系列要素，导致新作登场这些角色的故事线被压缩
+
+这些老面孔只是支线登场就挺好了
+
+
+*****
+
+####  恋叶梦境  
+##### 290#       发表于 2023-7-30 17:03
+
+无主从者都可以自己打一场圣杯战争了
+
+
+*****
+
+####  Jamaisvu  
+##### 291#       发表于 2023-7-30 17:24
+
+<img src="https://img.saraba1st.com/forum/202307/30/172525lvqdvtrr98uaruww.jpg" referrerpolicy="no-referrer">
+
+<strong>1690709107876.jpg</strong> (64.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-30 17:25 上传
+
+无主saber会是谁呢？白盔甲...也许是源家的人？讨伐恶鬼的话，男性源赖光？
+
+*****
+
+####  GuDaZi  
+##### 292#       发表于 2023-7-30 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61843333&amp;ptid=2112855" target="_blank">Jamaisvu 发表于 2023-7-30 17:24</a>
+无主saber会是谁呢？白盔甲...也许是源家的人？讨伐恶鬼的话，男性源赖光？ ...</blockquote>
+木曾义仲，巴御前老公
+
+
+*****
+
+####  Jamaisvu  
+##### 293#       发表于 2023-7-30 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61843377&amp;ptid=2112855" target="_blank">GuDaZi 发表于 2023-7-30 17:29</a>
+
+木曾义仲，巴御前老公</blockquote>
+考据党的效率真是太高了...至少源氏这点没猜错<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 294#       发表于 2023-7-30 17:35
+
+这个pv看着卖相挺不错的
+
+
+*****
+
+####  kuarwbwe  
+##### 295#       发表于 2023-7-30 17:48
+
+这作卖的好说不定下作老演员就能少点了（然后下一作塞了呆毛进去）。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leliel  
+##### 296#       发表于 2023-7-30 17:49
+
+这个铠甲武士一出来又是一股鬼刑部的味儿，光荣你还是那么的爱fs
+
+*****
+
+####  kuarwbwe  
+##### 297#       发表于 2023-7-30 17:49
+
+哦，木曾义仲这身盔甲真是帅的批爆。能扒了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  livelive  
+##### 298#       发表于 2023-7-30 17:50
+
+国姓爷和美洲狼都擅长水战，那不应该是Raider吗？跟"弓兵"有啥关系(￣▽￣)
+
+
+*****
+
+####  狗屁不通  
+##### 299#       发表于 2023-7-30 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61843548&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-7-30 17:48</a>
+这作卖的好说不定下作老演员就能少点了（然后下一作塞了呆毛进去）。 ...</blockquote>
+卖得好说明要加大力度，下一作再多塞点
+
+
+*****
+
+####  angelooo  
+##### 300#       发表于 2023-7-30 18:58
+
+153漫画里义仲是个大帅哥，人设是同一个的话面具下的颜值没问题了吧
+
+
+*****
+
+####  谢枫华  
+##### 301#       发表于 2023-7-30 23:50
+
+三国的话我觉得太史慈不是比周瑜更合适吗？忠勇义烈，善用弓箭，抱憾而终。
+
+
+*****
+
+####  格林卡罗尔  
+##### 302#       发表于 2023-7-31 01:25
+
+不太对啊，主角saber的特典服装完全是女人
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 303#       发表于 2023-7-31 01:29
+
+之前看下睫毛说archer是女人
+
+现在看来下睫毛不靠谱那saber性别也不好说了
+
+
+*****
+
+####  Muteki_Link  
+##### 304#       发表于 2023-7-31 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61843377&amp;ptid=2112855" target="_blank">GuDaZi 发表于 2023-7-30 17:29</a>
+
+木曾义仲，巴御前老公</blockquote>
+坏了，以后要是落地迦勒底就不好在巴御前面前当自己是义仲了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  极速再生  
+##### 305#       发表于 2023-7-31 10:20
+
+所以周瑜几把保住了没有
+
+
+*****
+
+####  Piano-Forest  
+##### 306#         楼主| 发表于 2023-7-31 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61842925&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2023-7-30 16:34</a>
+
+PV2：https://youtu.be/fjgXKGBQ9ac</blockquote>
+中字：[https://b23.tv/oJoBGwC](https://b23.tv/oJoBGwC)
+
+*****
+
+####  洛克萨斯  
+##### 307#       发表于 2023-7-31 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61851245&amp;ptid=2112855" target="_blank">极速再生 发表于 2023-7-31 10:20</a>
+
+所以周瑜几把保住了没有</blockquote>
+大概率保住了，而且是很罕见的非套皮，非撞脸，和原典性别一致，卡面还不错的从者
+
+*****
+
+####  kuarwbwe  
+##### 308#       发表于 2023-7-31 10:31
+
+我一看pv那声线基本就能确定周瑜是男的了，比女声和少年音粗太多了。结果看论坛都在说公瑾的鸡儿没了，还以为是别人看了我不知道的设定。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  极速再生  
+##### 309#       发表于 2023-7-31 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61851408&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-7-31 10:31</a>
+我一看pv那声线基本就能确定周瑜是男的了，比女声和少年音粗太多了。结果看论坛都在说公瑾的鸡儿没了，还以 ...</blockquote>
+我开始没开声音单纯问问
+
+*****
+
+####  kuarwbwe  
+##### 310#       发表于 2023-7-31 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61851483&amp;ptid=2112855" target="_blank">极速再生 发表于 2023-7-31 10:36</a>
+
+我开始没开声音单纯问问</blockquote>
+没开声音那不清楚还挺正常的。不过我说的是在别的地看的，那边特别肯定的说周瑜鸡儿没保住。
+
+
+*****
+
+####  duraa  
+##### 311#       发表于 2023-7-31 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61848114&amp;ptid=2112855" target="_blank">谢枫华 发表于 2023-7-30 23:50</a>
+三国的话我觉得太史慈不是比周瑜更合适吗？忠勇义烈，善用弓箭，抱憾而终。 ...</blockquote>
+光荣私货，某代三国志里郑成功唯一好感武将就是周瑜<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 312#       发表于 2023-7-31 10:47
+
+看访谈主角主从不会发展恋爱关系，那saber究竟是怎么回事，难道有男扮女装的逸话吗
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  hu14againagain  
+##### 313#       发表于 2023-7-31 10:56
+
+<blockquote>格林卡罗尔 发表于 2023-7-31 10:47
+看访谈主角主从不会发展恋爱关系，那saber究竟是怎么回事，难道有男扮女装的逸话吗
+
+—— 来自 Xiaomi M201 ...</blockquote>
+大和武尊确实有男扮女装的事迹
+
+
+*****
+
+####  不垃圾屌丝  
+##### 314#       发表于 2023-7-31 11:11
+
+<img src="https://p.sda1.dev/12/47ff0735fe8d41eaf3adbb389ff92216/下载.jpeg" referrerpolicy="no-referrer">
+这个周瑜放完宝具会挂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  极速再生  
+##### 315#       发表于 2023-7-31 11:26
+
+其实想想，同样是放火的，忠勇义烈是不是陆逊更好一点。
+
+*****
+
+####  DARKGRAY  
+##### 316#       发表于 2023-7-31 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61852322&amp;ptid=2112855" target="_blank">极速再生 发表于 2023-7-31 11:26</a>
+
+其实想想，同样是放火的，忠勇义烈是不是陆逊更好一点。</blockquote>
+晚年经历不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 317#       发表于 2023-7-31 11:35
+
+放火的不是朱然吗
+
+
+*****
+
+####  gary76  
+##### 318#       发表于 2023-7-31 14:14
+
+<blockquote>引用第312楼hu14againagain于2023-07-31 10:56发表的  :
+
+引用:格林卡罗尔 发表于 2023-7-31 10:47看访谈主角主从不会发展恋爱关系，那saber......</blockquote>
+@hu14againagain
+
+而且還是男扮女裝進新房殺新郎<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 13](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  gary76  
+##### 319#       发表于 2023-7-31 14:18
+
+<blockquote>引用第213楼gpx234mqx于2023-07-02 13:51发表的  :
+
+本帖最后由 gpx234mqx 于 2023-7-2 13:58 编辑 贴吧在吹saber是日本武尊......</blockquote>
+@gpx234mqx
+
+日本從東漢就大量進口漢鏡，順便進口環首刀也很合理吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-DQ72,Android 13](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  gpx234mqx  
+##### 320#       发表于 2023-7-31 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61843566&amp;ptid=2112855" target="_blank">livelive 发表于 2023-7-30 17:50</a>
+
+国姓爷和美洲狼都擅长水战，那不应该是Raider吗？跟"弓兵"有啥关系(￣▽￣)</blockquote>
+你看周瑜让亮哥借了那么多箭，当然是用来射的
+
+弓兵没问题
+
+*****
+
+####  gpx234mqx  
+##### 321#       发表于 2023-7-31 16:29
+
+ 本帖最后由 gpx234mqx 于 2023-7-31 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61854662&amp;ptid=2112855" target="_blank">gary76 发表于 2023-7-31 14:18</a>
+
+@gpx234mqx
+
+日本從東漢就大量進口漢鏡，順便進口環首刀也很合理吧</blockquote>
+哦，看介绍曹魏给邪马台输出过首环刀
+
+62021E74-A522-4AC6-9F46-D87E7666AEC4.jpeg
+(167.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-31 16:33 上传
+
+<img src="https://img.saraba1st.com/forum/202307/31/163301xdv7aliskonorj5z.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  miro112233  
+##### 322#       发表于 2023-8-1 13:54
+
+没想到奶了这么久的第一个中华弓鲭竟然是周瑜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没切吉尔没变成缝合素材，153这画师卡面也有保证，已经赢了月球诸葛亮和司马懿太多了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 323#       发表于 2023-8-4 11:02
+
+[https://www.bilibili.com/opus/825819131809890345](https://www.bilibili.com/opus/825819131809890345)
+
+和社长的访谈汉化出来了
+
+
+*****
+
+####  无色辉火  
+##### 324#       发表于 2023-8-4 11:17
+
+这作是不是还没确认登录XBOX啊，想玩但我不想在ns上玩糊糊的啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roxassix  
+##### 325#       发表于 2023-8-4 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61902961&amp;ptid=2112855" target="_blank">无色辉火 发表于 2023-8-4 11:17</a>
+这作是不是还没确认登录XBOX啊，想玩但我不想在ns上玩糊糊的啊</blockquote>
+日厂二刺猿题材别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
