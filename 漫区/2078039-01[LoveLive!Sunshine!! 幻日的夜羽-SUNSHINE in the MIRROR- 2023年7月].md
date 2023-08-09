@@ -2795,3 +2795,52 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还好没一冲动在圆盘消息出来的时候就直接订一套，就这剧情实在是有点浪费人设<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  灼眼的夏娜酱  
+##### 248#       发表于 2023-8-5 14:06
+
+剧情太平淡，虽然不是看不下去，但是有点可惜山本由美子的人设<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flynnei  
+##### 249#       发表于 2023-8-6 23:10
+
+完全不用介绍大家是怎么认识的吗……这也太自来熟了点；叙事节奏也感觉怪怪的
+
+最后还是9个人一起唱歌，那努玛梓和沼津究竟有什么区别？
+
+既没有异世界的神秘/整活，又没有偶像番的梦想/团结，完全不懂监督想要表达什么
+
+
+*****
+
+####  ads147147  
+##### 250#       发表于 2023-8-6 23:13
+
+又怪又乐，一个夏日祭瞬间把夜羽变成孤独摇滚，而且夜羽的狗狗依存症更重了，这要是刀狗狗。。这戏也来不及了吧。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  wsdbyh  
+##### 251#       发表于 2023-8-6 23:24
+
+幻日现在基本上剩下的爆点只有给狗子递刀子了吧
+
+
+*****
+
+####  NeloAngelo  
+##### 252#       发表于 2023-8-6 23:54
+
+狗子有种幕后黑手的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">  
+主要这低魔(?)世界观并不是很异世界的感觉.  所以, 更像PA式的原创故事吧(工作中的女孩).
+其实我觉得也还挺好看的<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -14145,3 +14145,34 @@ https://tieba.baidu.com/p/8524683551
 
 —— 来自 samsung SM-T733, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+*****
+
+####  蒜灵  
+##### 1157#       发表于 2023-8-6 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61874507&amp;ptid=2105133" target="_blank">先日日 发表于 2023-8-2 01:33</a>
+美国为了不输给欧洲和中国挖角eden的演员
+
+这就是wds的大演剧时代的世界观吗？</blockquote>
+有中文了？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  先日日  
+##### 1158#       发表于 2023-8-6 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61924485&amp;ptid=2105133" target="_blank">蒜灵 发表于 2023-8-6 12:49</a>
+有中文了？</blockquote>
+没有，机翻的
+
+
+*****
+
+####  蒜灵  
+##### 1159#       发表于 2023-8-7 00:08
+
+[https://tieba.baidu.com/p/8537413649](https://tieba.baidu.com/p/8537413649)
+
+在意想不到的地方看到了wds<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
