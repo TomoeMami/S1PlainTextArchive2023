@@ -6396,3 +6396,401 @@ B1t：你们在聊什么呀？<img src="https://static.saraba1st.com/image/smile
 
 今年年底是iem悉尼吧
 
+*****
+
+####  Rainwedell  
+##### 3850#       发表于 2023-7-29 01:56
+
+kz跳了几个小时回来一看液体和黑豹都g了，打的啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DICE20  
+##### 3851#       发表于 2023-7-29 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">19柏林不拆包也是打A队现在来个不下包是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  heseran  
+##### 3852#       发表于 2023-7-29 23:59
+
+笑傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以一个极其抽象的方式输掉了比赛，赶紧回家吧G2。
+
+
+*****
+
+####  heseran  
+##### 3853#       发表于 2023-8-1 00:04
+
+今天的G2好陌生。
+
+
+*****
+
+####  曼陀罗肥  
+##### 3854#       发表于 2023-8-1 05:25
+
+明天又是欧陆风云，这俩队怎么老碰上
+
+
+*****
+
+####  zpl123  
+##### 3855#       发表于 2023-8-1 23:28
+
+G2是真的抽象啊
+
+
+*****
+
+####  heseran  
+##### 3856#       发表于 2023-8-2 00:41
+
+竟然能进图三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩队都挺抽象的
+
+
+*****
+
+####  Niyah  
+##### 3857#       发表于 2023-8-2 02:06
+
+ 本帖最后由 Niyah 于 2023-8-2 02:09 编辑 
+
+老八！真有点感动了，有些舍不得，这样实力的队伍里有个这种哥们还是挺有看点的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 3858#         楼主| 发表于 2023-8-2 04:04
+
+加！
+
+
+*****
+
+####  dev2ce  
+##### 3859#       发表于 2023-8-2 21:50
+
+老a队的科隆还是有点玄学的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  曼陀罗肥  
+##### 3860#       发表于 2023-8-3 02:32
+
+阿乐来咯，小蜜蜂真打不了一点吧，本来能研究一下八神，结果人皇来了。
+
+
+*****
+
+####  ispep  
+##### 3861#       发表于 2023-8-3 15:11
+
+a队好起来了？虽然打的几个也是菜鸡，但是小将好像有点发挥了
+
+
+*****
+
+####  zpl123  
+##### 3862#       发表于 2023-8-4 11:07
+
+V社在8月3号，发布了一篇有关未来CS2赛事举办的声明  原文[链接]：https://steamcommunity.com/games/CSGO/announcements/detail/3677802763035982970  简单概括一下要点： 1.赛事主办方和参加旗下的赛事的CS战队，将不被允许利益绑定 2.赛事主办方需要根据V社自己推出的Ranking System从而决定邀请战队名额，或者赛事举办需要举办公开预选赛-Open qualifiers, 进而选拔 3.赛事主办方需要把收益分红如何分配给每支参赛战队(包括比赛奖金在内的任何分红)公开，让每一位CS社区参与者都能接触到该文件 4.以上三条将于2025年1月份之后的CS2赛事永久生效
+
+
+*****
+
+####  dev2ce  
+##### 3863#       发表于 2023-8-4 14:23
+
+新规说白了就是给二线和新队出头机会，特别啥比blast春秋决，小组赛又臭又长，合作战队比赛全输还能去打showdown<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，esl二线比赛至少给epl名额，blast就给个showdown名额
+至于💰的问题，一个战队打进major贴纸分成就有六位数七位数美刀了，主办方能赚不到钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpl123  
+##### 3864#       发表于 2023-8-5 00:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿乐科隆一日游了
+
+
+*****
+
+####  朔方原的星  
+##### 3865#         楼主| 发表于 2023-8-5 01:59
+
+a队打x队这半场打得还挺好看
+buzz也爆种致敬了一个阿汤哥的经典集锦
+a队四个人状态都不错（虽然blamef还是臭老六）
+除了瞄准高手拉了之外之后挺有搞头
+
+不过话是这么说要赢还是很难，打状态不好的x队遗迹当警这个吃力的比分，感觉还是输啊
+
+
+*****
+
+####  朔方原的星  
+##### 3866#         楼主| 发表于 2023-8-5 02:19
+
+我操，这a队打的也太好了，不敢相信
+
+
+*****
+
+####  ispep  
+##### 3867#       发表于 2023-8-5 03:17
+
+什么情况，刚下机看到a队先下一局？高兴
+c9笑死 阿乐一日游啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ispep  
+##### 3868#       发表于 2023-8-5 03:19
+
+真想看到汤能带新a队就是，第二个王朝就不敢想象了，就是能进争冠行列都好啊。跑回来a队结果队伍是这个配置太唏嘘了
+
+
+*****
+
+####  朔方原的星  
+##### 3869#         楼主| 发表于 2023-8-5 03:45
+
+八神我操，今晚看得值了
+
+*****
+
+####  ispep  
+##### 3870#       发表于 2023-8-5 03:46
+
+派buzz杀光然后转a的战术笑死了
+八神加油啊
+
+
+*****
+
+####  朔方原的星  
+##### 3871#         楼主| 发表于 2023-8-6 00:50
+
+好狠的ENCE，a队真是四强唯一指定彩笔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  laputah  
+##### 3872#       发表于 2023-8-6 01:12
+
+ENCE！
+
+*****
+
+####  dev2ce  
+##### 3873#       发表于 2023-8-6 01:12
+
+拆能赢的阵容是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3874#       发表于 2023-8-6 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61921495&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2023-8-6 00:50</a>
+好狠的ENCE，a队真是四强唯一指定彩笔了</blockquote>
+你a的科隆玄学的，决赛死都进不去，提前恭喜G2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三千珈蓝  
+##### 3875#       发表于 2023-8-6 01:17
+
+拿成绩就换人有说法的来自: iPhone客户端
+
+
+*****
+
+####  DICE20  
+##### 3876#       发表于 2023-8-6 01:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">Aerial当年是不是记错id了啊这个太阳神引入了才能世界第一那个nuke跳楼太阳神不行的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  dev2ce  
+##### 3877#       发表于 2023-8-6 06:24
+
+果然，G2这不随便赢，snappi太容易上头了，科隆决赛压力不用说
+
+
+*****
+
+####  ispep  
+##### 3878#       发表于 2023-8-6 08:19
+
+感觉sunpayus太稳健了，对位已经爆了载了随便爆赶森超载吧
+
+
+*****
+
+####  朔方原的星  
+##### 3879#         楼主| 发表于 2023-8-6 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61921620&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-8-6 01:13</a>
+你a的科隆玄学的，决赛死都进不去，提前恭喜G2了</blockquote>
+打x队基本就是这支a队的绝对上限了，别说科隆了感觉拿啥冠军都费劲
+
+
+*****
+
+####  曼陀罗肥  
+##### 3880#       发表于 2023-8-6 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61922460&amp;ptid=1857369" target="_blank">ispep 发表于 2023-8-6 08:19</a>
+感觉sunpayus太稳健了，对位已经爆了载了随便爆赶森超载吧</blockquote>
+太阳神一打载物就来劲，说实话载物这种不喜欢起狙的习惯让那些侵略性强的狙击手打得很舒服，时不时就出来抽一下，队友都给偷麻了
+
+
+*****
+
+####  奈纪亚美  
+##### 3881#       发表于 2023-8-6 20:23
+
+ence图池这么妖，居然不打小镇
+
+
+*****
+
+####  Rainwedell  
+##### 3882#       发表于 2023-8-6 20:39
+
+图池其实是ENCE吃死g2的，不过看决赛发挥了
+
+
+*****
+
+####  heseran  
+##### 3883#       发表于 2023-8-6 22:15
+
+好猛的jks
+
+
+*****
+
+####  dev2ce  
+##### 3884#       发表于 2023-8-6 22:42
+
+G2随便宰宰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dev2ce  
+##### 3885#       发表于 2023-8-6 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61931541&amp;ptid=1857369" target="_blank">dev2ce 发表于 2023-8-6 22:42</a>
+G2随便宰宰太阳神不会玩了，ENCE怎么打</blockquote>
+鉴定为3-0
+
+*****
+
+####  heseran  
+##### 3886#       发表于 2023-8-7 00:00
+
+表哥死点等下包真的细节，包匪连枪都来不及掏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3887#       发表于 2023-8-7 00:02
+
+基本没了，ence这没人出来走两步的
+
+
+*****
+
+####  反方向的波  
+##### 3888#       发表于 2023-8-7 00:50
+
+ence的阿努比斯还是厉害
+
+
+*****
+
+####  heseran  
+##### 3889#       发表于 2023-8-7 00:56
+
+小孩儿一枪空得毫无悬念地进入图4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奈纪亚美  
+##### 3890#       发表于 2023-8-7 02:56
+
+let's go g2!
+
+
+*****
+
+####  bawula  
+##### 3891#       发表于 2023-8-7 03:09
+
+41步！
+
+*****
+
+####  keleemo123  
+##### 3892#       发表于 2023-8-7 03:10
+
+G2G2G2G2G2G2G2G2G2G2G2G2
+
+
+*****
+
+####  keleemo123  
+##### 3893#       发表于 2023-8-7 03:21
+
+G2！go！
+
+802f9634ly1hgnmkqtlwdj235s23w4qu.jpg
+(91.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-7 03:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/07/032123unsaxkz2aoornqgh.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绯影汐岚  
+##### 3894#       发表于 2023-8-7 04:42
+
+我的尼！
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  heseran  
+##### 3895#       发表于 2023-8-7 09:29
+
+4张图1.49，尼！
+
+
+*****
+
+####  zpl123  
+##### 3896#       发表于 2023-8-7 10:30
+
+【RARE ATOM电子竞技俱乐部CSGO分部人员变动公告】 RARE ATOM电子竞技俱乐部CSGO分部选手advent，Mercury，JamYoung，Moseyuh，kaze以及教练k4mi，双方就续约事宜遗憾未能达成一致，经过双方友好沟通后，即日起正式离队并恢复自由人身份。感谢他们这一年多来为俱乐部做出的贡献，以及为粉丝们带来的精彩比赛。愿他们在未来一切顺利。 关于RACSGO分部，我们不会退出CNCS赛场，目前俱乐部正在筹备新阵容的组建，如有进展会第一时间和粉丝朋友们同步，感谢大家的理解与支持。也请大家继续关注并支持RACSGO。 #RA_CSGO[超话]# #csgo#
+
