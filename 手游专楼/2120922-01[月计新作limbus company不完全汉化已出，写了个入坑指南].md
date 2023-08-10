@@ -5117,3 +5117,193 @@ YJ怎么把饱和度改了
 
 月计这抽卡，4%的出率不是吗，为啥我投了80抽结果一个金的都没看见，草了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 335#       发表于 2023-8-4 19:56
+
+新卡池：二协会的三星虫叔和二星浮士德
+
+<img src="https://img.saraba1st.com/forum/202308/04/195630yceqyujyxcw7jjyy.jpg" referrerpolicy="no-referrer">
+
+<strong>6C964ABA0FABCDA7F88A0724504E9C6F.jpg</strong> (256.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-4 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/04/195631lf30dod0njojnxxd.jpg" referrerpolicy="no-referrer">
+
+<strong>8E3B030154461D198FCAC0C3F6DCF80E.jpg</strong> (145.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-4 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/04/195631aedbpcp8ebjbfbeb.jpg" referrerpolicy="no-referrer">
+
+<strong>54A419CBB66A820FD5267373C02988BD.jpg</strong> (41.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-4 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/04/195632u6hk9546hu6m26h6.jpg" referrerpolicy="no-referrer">
+
+<strong>96623663726BE01111F6C40EF788F4AA.jpg</strong> (57.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-4 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/04/195632ywk33u3hm3yhkyhq.jpg" referrerpolicy="no-referrer">
+
+<strong>A60B80F5838A2EA97760192095B5F7D3.jpg</strong> (47.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-4 19:56 上传
+
+
+*****
+
+####  白首如新  
+##### 336#       发表于 2023-8-5 21:11
+
+萌新终于搬空了活动<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">，接下来只有镜2H需要挑战，
+
+请问一下稳定过需要什么配置和练度，2星我还一个都没练<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  erratic璃月  
+##### 337#       发表于 2023-8-6 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61919571&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-8-5 21:11</a>
+
+萌新终于搬空了活动，接下来只有镜2H需要挑战，
+
+请问一下稳定过需要什么配置和练度，2星我还一个都 ...</blockquote>
+我自己是用怠暴队的。初始就花箱，G虫，水玛（7奥），L浮和7良，后面补R兔，厨良和玫瑰索。其余就看着被动补人。前面几节用金苹果和许愿石过度，后面就太阳雨和黑檀枝打伤害，执行和液袋恢复，红炎杀抗大骰子。优点是前期可以快速启动ego，中间过渡比较平滑，多数情况可以直接P且不依靠遗物。缺点是暴怒和嫉妒资源紧张，红炎杀基本在5层boss开影响不大但会影响液袋需要注意释放时机。2星只能说L浮和7良自用良好，其他的尽量不要选点数小的，因为后两层的骰子点数真的很大。
+
+
+*****
+
+####  白首如新  
+##### 338#       发表于 2023-8-6 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61929614&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2023-8-6 20:41</a>
+
+我自己是用怠暴队的。初始就花箱，G虫，水玛（7奥），L浮和7良，后面补R兔，厨良和玫瑰索。其余就看着被 ...</blockquote>
+萌新box都不齐还在补角色，根本没资源去换EGO，
+
+box在314L，现在多了花箱，玫瑰罗佳和水玛玛，
+
+没有好用的ego是不是暂时不用考虑H本了？
+
+另外就是现在角色刚刚平均三破30级，
+
+打H本需要拉到35和四破吗？
+
+
+*****
+
+####  erratic璃月  
+##### 339#       发表于 2023-8-7 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61931892&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-8-6 23:11</a>
+
+萌新box都不齐还在补角色，根本没资源去换EGO，
+
+box在314L，现在多了花箱，玫瑰罗佳和水玛玛，
+
+没有好用 ...</blockquote>
+我自己的练度是3星3破35级2星3破30级ego全3破，完全用不上4破。如果要极限通关应该能降不少练度。
+
+没有好用的ego要打通估计困难但应该能吃到一部分奖励，运气不好可能要反复重开会比较坐牢。看不到你2星和ego的情况，可考虑K宝N辛兔子和两个补资源的开。后面补6玛和玫罗，低星就看缺什么资源上人，尽量保证ego能转开。在镜牢是先打后交饼，有时间可以先进去玩一玩看看能打到多少层。
+
+PS：不要练太弱的2星，部分可以考虑2破挂支援被动
+
+
+*****
+
+####  白首如新  
+##### 340#       发表于 2023-8-7 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61937416&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2023-8-7 13:10</a>
+
+我自己的练度是3星3破35级2星3破30级ego全3破，完全用不上4破。如果要极限通关应该能降不少练度。
+
+没有好 ...</blockquote>
+即使不能H通关，奖励也远远高于打三次普通吗？
+
+如果不是，那我就再攒攒资源，有EGO了再打，
+
+EGO我现在只有李箱的祈愿石和奥提斯的空即是色。
+
+二星里面好用的就有你上面提到的L浮和7良，还有7箱，
+
+如果按照你推荐的K宝N辛兔子开局，我补这几个二星可以吗？
+
+要用L浮感觉还是得拿个液袋吧，好在二赛季人格补得差不多了，
+
+接下来就可以补EGO了，除了液袋和苹果还有什么好用的EGO推荐吗？
+
+
+*****
+
+####  Jamaisvu  
+##### 341#       发表于 2023-8-7 16:48
+
+ 本帖最后由 Jamaisvu 于 2023-8-7 17:40 编辑 
+
+新技能前瞻：
+
+<img src="https://img.saraba1st.com/forum/202308/07/164506vb7fribpz0i7xz9b.jpg" referrerpolicy="no-referrer">
+
+<strong>5099871D61F8AC13EED28730756DC745.jpg</strong> (421.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-7 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202308/07/164507wg3llk32llj13i1t.jpg" referrerpolicy="no-referrer">
+
+<strong>03F1FC12193E4393232C1E6CF44439E3.jpg</strong> (437.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-7 16:45 上传
+
+虫叔看着挺强的，三个技能分别是懒惰暴食和忧郁，不仅适配于金苹果还能补一手稀缺的忧郁资源。
+
+不过效果都是叠甲过有点slow，可能长线更好用吧...
+
+
+*****
+
+####  erratic璃月  
+##### 342#       发表于 2023-8-7 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61938017&amp;ptid=2120922" target="_blank">白首如新 发表于 2023-8-7 14:05</a>
+
+即使不能H通关，奖励也远远高于打三次普通吗？
+
+如果不是，那我就再攒攒资源，有EGO了再打，
+
+EGO我现在只 ...</blockquote>
+黄加成和绿加成是分开的，同时生效一次镜2H大概300+经验（具体多少不记得了）。
+
+没自信可以先把黄加成打完再试H。
+
+许愿石和金苹果都是利用麻痹效果，7箱更多是挂被动不上场的。
+
+如果用N辛那套我更推荐L浮和4唐，L浮主要是有表象可以快速抬理智并且给许愿石提供忧郁资源。液袋只是4、5层更好p，没有就只能全手操了会比较麻烦。4唐就资源更契合并且点数也不低。
+
+太阳雨（伤害，保护），执行（恢复，保护），红炎杀（大点数，烧伤），冰脚（多部位沉沦），黑檀枝（多部位破裂），赤瞳·开（伤害，恢复），电线杆的话W唐4破后对它的依赖程度降了低很多。
+
+要换什么主要看主力阵容提供什么资源，建议看情况取舍。
+
+我ego基本全的现在看不到哪些能换大概推了一些。其他的类似电蜈蚣，第四根火柴之类听说也好用，但我自己没练不好评价。
+

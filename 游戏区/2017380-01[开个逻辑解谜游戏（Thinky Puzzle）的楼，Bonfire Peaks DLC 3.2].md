@@ -2174,3 +2174,15 @@ New Adventures总共一百六十多关，其中只有六关是3D。从任何角�
 把抓兔子买了，还没玩
 [https://store.steampowered.com/a ... own_the_Bunburrows/](https://store.steampowered.com/app/1628610/Paquerette_Down_the_Bunburrows/)
 
+*****
+
+####  weiyun  
+##### 144#         楼主| 发表于 2023-8-7 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61902131&amp;ptid=2017380" target="_blank">叶雾 发表于 2023-8-4 10:12</a>
+
+把抓兔子买了，还没玩
+
+https://store.steampowered.com/app/1628610/Paquerette_Down_the_Bunburrows/ ...</blockquote>
+这个主线大概3小时以内，全收集要40小时以上
+
