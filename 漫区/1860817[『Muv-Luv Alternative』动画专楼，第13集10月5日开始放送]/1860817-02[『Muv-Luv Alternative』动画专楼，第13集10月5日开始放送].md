@@ -3395,3 +3395,20 @@ CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+*****
+
+####  再买自检星剁手  
+##### 2278#       发表于 2023-8-8 08:44
+
+高达动物园既视感<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/08/084416dm3es5smhkjmbsah.jpg" referrerpolicy="no-referrer">
+
+<strong>20230807_212535.jpg</strong> (316.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-8 08:44 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
