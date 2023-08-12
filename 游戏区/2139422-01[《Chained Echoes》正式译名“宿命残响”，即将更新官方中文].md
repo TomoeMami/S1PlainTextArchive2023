@@ -1666,3 +1666,94 @@ harbinger和面具人大概率是要做成续作了
 
 我的SD不知道为什么自己更新了搞到tt君的没了，懒得折腾才用官方中文，现在打算转回英文玩通关就算了
 
+*****
+
+####  ziyer  
+##### 168#       发表于 2023-8-7 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61734916&amp;ptid=2139422" target="_blank">Meltina 发表于 2023-7-21 02:02</a>
+
+说明有写的，挖回来的天然宝石才可以作为素材，合成过的宝石就变成人工了（带*），带*只能继续自己做基底 ...</blockquote>
+感谢感谢，今晚开始接着玩了，确实就是因为tp和hp那个搞混淆的问题导致不能合
+
+
+*****
+
+####  liangbo103  
+##### 169#       发表于 2023-8-7 11:06
+
+有点想入坑，求问哪里有完整的攻略
+
+
+*****
+
+####  WeltKarl  
+##### 170#       发表于 2023-8-7 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61772022&amp;ptid=2139422" target="_blank">ddjj 发表于 2023-7-24 16:58</a>
+垃圾翻译还会更新吗，这TM还不如不出中文算了省的闹心</blockquote>
+我在steam上评价中提到了翻译问题，开发者（应该是轻语的工作人员）回复说下个版本会解决
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  IlldianX  
+##### 171#       发表于 2023-8-7 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61935719&amp;ptid=2139422" target="_blank">liangbo103 发表于 2023-8-7 11:06</a>
+
+有点想入坑，求问哪里有完整的攻略</blockquote>
+支线职业海岛升级终极武器什么的b站有视频和专栏，比如这个up主：[https://space.bilibili.com/14296944](https://space.bilibili.com/14296944)，关键字搜锁链回声或者chained echoes
+
+可以接受英文攻略的话这个网站挺全的：[https://www.neoseeker.com/chained-echoes/walkthrough](https://www.neoseeker.com/chained-echoes/walkthrough)
+
+主线基本没什么分支，只有几个地方不同选择会给点不同的奖励或者对话：[https://gamefaqs.gamespot.com/pc ... /faqs/80254/choices](https://gamefaqs.gamespot.com/pc/282556-chained-echoes/faqs/80254/choices)
+
+steam社区也有全宝箱全收集攻略，白金攻略还有滚球谜题攻略：[https://steamcommunity.com/app/1229240/guides/](https://steamcommunity.com/app/1229240/guides/)
+
+
+*****
+
+####  liangbo103  
+##### 172#       发表于 2023-8-7 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61937643&amp;ptid=2139422" target="_blank">IlldianX 发表于 2023-8-7 13:30</a>
+
+支线职业海岛升级终极武器什么的b站有视频和专栏，比如这个up主：https://space.bilibili.com/14296944， ...</blockquote>
+好的，谢谢
+
+
+*****
+
+####  雪儿  
+##### 173#       发表于 2023-8-7 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61696593&amp;ptid=2139422" target="_blank">monolithsoft 发表于 2023-7-17 18:02</a>
+
+只能说抓住了古早RPG的味
+
+主角团一直毫无逻辑的被剧本推着走，全员工具人</blockquote>
+很少能见到这种每一句都100%不同意的回帖。
+
+剧情结构上当了工具人不等于被剧情推着走，只要塑造的角色行为逻辑复合本身设定，这个故事就是有逻辑的。从这点上来看，主角一伙人前半段目标明确——摧毁魔典，后半段卷入教会与伪神——挣扎思考后做出决定，都是合理的。即使前面一直中计，但这些行动都是他们按照当下情况自己决定的。
+
+所谓古早JRPG我一般会看这个故事中除了揭晓主角团队身世的同时他们干了些什么，如果整个故事啥都没讲只在揭晓身世(=搬设定）就是不行。而这个游戏即使不看主角身世这段，本身围绕争夺魔典仍然有精彩的发展。虽说剧情也不是尽善尽美，后期还挖了坑，但至少能能让很多人觉得还不错自有他的原因。
+
+
+*****
+
+####  cloudcc  
+##### 174#       发表于 2023-8-8 22:56
+
+65个小时完美收官了，真不错，jrpg黄金时代的继承者又何必是日厂
+
+
+*****
+
+####  flyzzhj  
+##### 175#       发表于 2023-8-9 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道PSN会不会更新中文
+

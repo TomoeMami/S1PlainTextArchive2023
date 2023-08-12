@@ -2674,3 +2674,42 @@ Windows Central 新闻 联想在开发名称为 Legion Go 的PC游戏掌机
 EXCLUSIVE: Lenovo is working on a Windo ...</blockquote>
 快让小米也弄一台 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 定价 2999
 
+*****
+
+####  BAKA林  
+##### 799#       发表于 2023-8-6 11:58
+
+Pocket AIR 如何？看着有点小心动啊
+
+
+*****
+
+####  kirito_wst  
+##### 800#       发表于 2023-8-6 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61923886&amp;ptid=2086469" target="_blank">BAKA林 发表于 2023-8-6 11:58</a>
+Pocket AIR 如何？看着有点小心动啊</blockquote>
+贵，天玑1200性能一般（骁龙870水平，软件优化少）
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bypass  
+##### 801#         楼主| 发表于 2023-8-9 08:15
+
+ 本帖最后由 bypass 于 2023-8-9 08:17 编辑 
+
+[https://www.bilibili.com/video/BV17N411877i](https://www.bilibili.com/video/BV17N411877i)
+
+TAKI 发了 KUN 的评测了。
+
+<img src="https://img.saraba1st.com/forum/202308/09/081712vrwoonttehwjaioa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (359.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-9 08:17 上传
+
