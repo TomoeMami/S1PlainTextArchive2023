@@ -633,3 +633,47 @@ ARISE男女主CV只有DAY1来，DAY1没有就是真没有了
 
 2023-8-2 20:29 上传
 
+*****
+
+####  byisme001  
+##### 6250#       发表于 2023-8-8 16:11
+
+【《传说》系列游戏单独活动发表会8月10日播出】《传说》系列活动宣传官方近日发文表示，将于北京时间8月10日晚上7点举行“《传说》系列作品单独活动发表直播”。届时声优小野坂昌也（《仙乐传说》泽洛斯•维尔达）等人将会亮相此次活动。
+
+看看这回有没有
+
+*****
+
+####  zpower  
+##### 6251#       发表于 2023-8-8 16:19
+
+希望来点成人涩涩剧情，像FF16的果体聊天什么的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TheOccuria  
+##### 6252#       发表于 2023-8-8 16:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">聊1个小时手游再聊1个小时周边？
+
+*****
+
+####  qiyu1234  
+##### 6253#       发表于 2023-8-8 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61952228&amp;ptid=1860328" target="_blank">byisme001 发表于 2023-8-8 16:11</a>
+
+【《传说》系列游戏单独活动发表会8月10日播出】《传说》系列活动宣传官方近日发文表示，将于北京时间8月10 ...</blockquote>
+可能性暂时低于科隆展
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 6254#       发表于 2023-8-11 00:59
+
+突然想到本篇最后都确定结婚了
+
+那新作或新dlc的时间点会定在结婚后还是本篇后结婚前
+
