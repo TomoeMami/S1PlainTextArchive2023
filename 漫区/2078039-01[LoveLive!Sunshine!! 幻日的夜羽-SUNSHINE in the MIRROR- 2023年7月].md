@@ -2844,3 +2844,12 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  super_uni  
+##### 253#       发表于 2023-8-10 21:44
+
+超，sif2打完幻日的歌居然不算水团的歌曲任务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
