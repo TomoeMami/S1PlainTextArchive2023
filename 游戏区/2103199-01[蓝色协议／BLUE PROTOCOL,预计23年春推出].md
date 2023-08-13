@@ -8361,3 +8361,115 @@ KONAMI steam还是锁国区
 
 ？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  大江户战士  
+##### 869#       发表于 2023-8-9 21:59
+
+好久没看到这游戏新消息了，不过最近日本那边有个新闻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：
+
+<img src="https://img.saraba1st.com/forum/202308/09/215916nwi8i1wxitvx2the.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-9 21:59 上传
+
+
+*****
+
+####  法拉  
+##### 870#       发表于 2023-8-9 22:07
+
+ 本帖最后由 法拉 于 2023-8-9 22:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我敢说这群运营不管是手法还是游戏知识，都比不过御柱稍微打得多点的一般玩家，实在是绷不住，让人怀疑他们到底玩没玩过自己做的游戏
+
+
+*****
+
+####  windaria  
+##### 871#       发表于 2023-8-9 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61969686&amp;ptid=2103199" target="_blank">大江户战士 发表于 2023-8-9 21:59</a>
+
+好久没看到这游戏新消息了，不过最近日本那边有个新闻：</blockquote>
+草，只看**的想不到太君这么不爽啊
+
+*****
+
+####  法拉  
+##### 872#       发表于 2023-8-9 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61969903&amp;ptid=2103199" target="_blank">windaria 发表于 2023-8-9 22:12</a>
+
+草，只看**的想不到太君这么不爽啊</blockquote>
+先不管更新内容如何，光这次直播都很难有人会给好评吧，打个上级御柱打得尼玛巨菜，不知道的还以为是版本初期穿越来的，几个枪兵有关的问题还要反复确认，中间还一度说错，毫无专业精神，完全就是三个游戏宅ojisan随意直播的感觉
+
+
+*****
+
+####  nagisa123  
+##### 873#       发表于 2023-8-9 22:26
+
+这游戏现在还封号吗
+
+
+*****
+
+####  windaria  
+##### 874#       发表于 2023-8-9 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61970145&amp;ptid=2103199" target="_blank">nagisa123 发表于 2023-8-9 22:26</a>
+
+这游戏现在还封号吗</blockquote>
+当然封，连梦幻之星这么多年了都没几个人玩了不还是一样封
+
+
+*****
+
+####  放大镜  
+##### 875#       发表于 2023-8-9 23:34
+
+身边统计学：NGS一月留存率70%，BP只有10%
+
+封不封号都别入坑，这游戏就不健全，更新看着也跟不上
+
+
+*****
+
+####  法拉  
+##### 876#       发表于 2023-8-10 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61971128&amp;ptid=2103199" target="_blank">放大镜 发表于 2023-8-9 23:34</a>
+
+身边统计学：NGS一月留存率70%，BP只有10%
+
+封不封号都别入坑，这游戏就不健全，更新看着也跟不上</blockquote>
+虽然我赞同不要入坑，但是论不健全和更新跟不上的程度那还是ngs比较重量级
+
+*****
+
+####  放大镜  
+##### 877#       发表于 2023-8-10 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61975424&amp;ptid=2103199" target="_blank">法拉 发表于 2023-8-10 11:24</a>
+
+虽然我赞同不要入坑，但是论不健全和更新跟不上的程度那还是ngs比较重量级 ...</blockquote>
+BP这边有定点清除的影响，除我之己外人均封号1次，有个活跃用户给封了两次，在那之后大家就没什么热情了
+
+*****
+
+####  布拉德莱恩  
+##### 878#       发表于 2023-8-10 12:31
+
+这游戏先天不足，导演一看就是从没玩过现代mmo
+
+*****
+
+####  sdh45e6  
+##### 879#       发表于 2023-8-10 12:36
+
+别入坑
+
