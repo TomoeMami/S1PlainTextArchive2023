@@ -6794,3 +6794,10 @@ G2！go！
 
 【RARE ATOM电子竞技俱乐部CSGO分部人员变动公告】 RARE ATOM电子竞技俱乐部CSGO分部选手advent，Mercury，JamYoung，Moseyuh，kaze以及教练k4mi，双方就续约事宜遗憾未能达成一致，经过双方友好沟通后，即日起正式离队并恢复自由人身份。感谢他们这一年多来为俱乐部做出的贡献，以及为粉丝们带来的精彩比赛。愿他们在未来一切顺利。 关于RACSGO分部，我们不会退出CNCS赛场，目前俱乐部正在筹备新阵容的组建，如有进展会第一时间和粉丝朋友们同步，感谢大家的理解与支持。也请大家继续关注并支持RACSGO。 #RA_CSGO[超话]# #csgo#
 
+*****
+
+####  keleemo123  
+##### 3897#       发表于 2023-8-11 01:36
+
+【2024上海major天禄阵容】 [https://www.bilibili.com/video/B ... 3e61246407e2ed99582](https://www.bilibili.com/video/BV1k94y1e7Gz/?share_source=copy_web&amp;vd_source=0475b8ce30bc83e61246407e2ed99582)
+
