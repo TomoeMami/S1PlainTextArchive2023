@@ -1745,3 +1745,38 @@ mv的还原度真高 这首真是拖了太久了</blockquote>
 
 石头都用来抽艾米莉了，个人剧情的矿都挖完了还没抽到，这活动纠结要不要打彩牌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7216#       发表于 2023-8-9 14:47
+
+判断失误，最后一天看了眼排行榜，这期活动并没有什么人打。
+
+这三人的美少女回转寿司是当初我最喜欢的歌。
+
+
+*****
+
+####  两个路人  
+##### 7217#       发表于 2023-8-9 15:06
+
+<blockquote>s7syphus 发表于 2023-7-29 18:38
+平时很爱在睿站看你游的mv，但是又不想入坑，想问下有哪个音乐平台尽可能全的听你游歌啊 ...</blockquote>
+尽可能全，那只有有土鳖了。从本家到闪耀，顶着万代版权警告，在各种语言版本里挖宝（邪笑
+
+如果听MP3，那还有Nemuri和天使动漫拯救一下（滑稽
+
+
+*****
+
+####  游蜓  
+##### 7218#       发表于 2023-8-10 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61964634&amp;ptid=1484979" target="_blank">两个路人 发表于 2023-8-9 15:06</a>
+尽可能全，那只有有土鳖了。从本家到闪耀，顶着万代版权警告，在各种语言版本里挖宝（邪笑
+
+如果听MP3，那 ...</blockquote>
+十六夜哥倒是一直在录，灰和土豆都录，还有换装版本
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
