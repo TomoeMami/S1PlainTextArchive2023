@@ -2075,3 +2075,40 @@ oped真不错每次都舍不得跳
 
 这个雷普真是意义不明<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+*****
+
+####  千恋万花  
+##### 1683#       发表于 2023-8-10 17:01
+
+／　
+
+㊗ #天国大魔境
+
+スタッフトークショー開催決定‼️‼️
+
+✨豪華スタッフ陣集結✨
+
+＼
+
+📅9/10（日）19:00～
+
+🎤出演
+
+石黒正数(原作者)
+
+森大貴(監督)
+
+金子雄司(美術監督)
+
+脇顯太朗(撮影監督)
+
+寺山晃司(原作担当編集)
+
+髙橋和彰(プロデューサー)
+
+松村一人(プロデューサー)
+
+👇詳細
+[https://tdm-anime.com/news/detail.php?id=1110312](https://tdm-anime.com/news/detail.php?id=1110312)
+<img src="https://p.sda1.dev/12/f996da0c1f238e2631ed041725e05518/tdm_anime-1689562257154584576-img1.jpg" referrerpolicy="no-referrer">
+
