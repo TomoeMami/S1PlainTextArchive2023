@@ -3394,3 +3394,290 @@ PV2：https://youtu.be/fjgXKGBQ9ac</blockquote>
 这作是不是还没确认登录XBOX啊，想玩但我不想在ns上玩糊糊的啊</blockquote>
 日厂二刺猿题材别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  gpx234mqx  
+##### 326#       发表于 2023-8-10 20:19
+
+是周瑜没错了
+
+赤壁火烤曹老板
+
+EF9DD5F4-E193-4166-9179-DAFB920CDC00.jpeg
+(563.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-10 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202308/10/201922deg9iu33exy3nren.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 327#       发表于 2023-8-10 20:20
+
+ 本帖最后由 gpx234mqx 于 2023-8-10 20:31 编辑 
+
+枪贞还真是贞德啊
+
+不是黑贞，黑贞没这个记忆的
+
+A97CB880-2877-4A57-96DD-F0BF763C73AA.jpeg
+(526.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-10 20:20 上传
+
+<img src="https://img.saraba1st.com/forum/202308/10/202027orh8nn0t08y0vrns.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 328#         楼主| 发表于 2023-8-10 20:42
+
+ 本帖最后由 Piano-Forest 于 2023-8-10 21:37 编辑 
+
+【《Fate/Samurai Remnant》开场动画影片】 
+[https://youtu.be/1hKt4Vu78LM](https://youtu.be/1hKt4Vu78LM)
+[https://b23.tv/EPDCvKg](https://b23.tv/EPDCvKg)
+
+开场动画导演：温泉 中也
+
+开场动画制作：CloverWorks
+
+主题歌曲　：「残夜幻想 feat. 六花」/Spiral Ladder
+
+*****
+
+####  miro112233  
+##### 329#       发表于 2023-8-10 21:09
+
+这op挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 330#       发表于 2023-8-10 21:20
+
+ 本帖最后由 gpx234mqx 于 2023-8-10 21:22 编辑 
+
+算起来是7骑2组，多一个狂
+
+闪闪这里全7骑
+
+参孙？和武藏必然有一个真狂
+
+AD8DC722-1F24-475F-B6D8-4B3C7EF57B51.jpeg
+(519.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-10 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202308/10/212058ivphc4ztwpx0zv0d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 331#       发表于 2023-8-10 21:34
+
+姑姑也来了?
+最右边是哪个啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Piano-Forest  
+##### 332#         楼主| 发表于 2023-8-10 21:37
+
+<img src="https://p.sda1.dev/12/63371d1ed782d97ec4e7dff7bd7245fc/20230810_213131.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 333#       发表于 2023-8-10 21:39
+
+题材很感兴趣，从没看过fate系列的能玩吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  kuarwbwe  
+##### 334#       发表于 2023-8-10 21:43
+
+ 本帖最后由 kuarwbwe 于 2023-8-10 21:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983119&amp;ptid=2112855" target="_blank">crosz1985 发表于 2023-8-10 21:39</a>
+
+题材很感兴趣，从没看过fate系列的能玩吗
+
+论坛助手,iPhone</blockquote>
+不好说。不过fate也没啥剧情门槛就是了，作品之间独立性都比较强。无非就是有些前作彩蛋可能看不出来没。型月世界真正麻烦的是刚进门就被各种各种乱七八糟的设定糊脸。
+
+其实建议等评分和秋促。等前者是因为这游戏大概率还是粉丝向游戏，质量可能不会太行。等后者是因为之前有过卧龙三个月打折的事，难说这作会不会也这样。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 335#       发表于 2023-8-10 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983119&amp;ptid=2112855" target="_blank">crosz1985 发表于 2023-8-10 21:39</a>
+
+题材很感兴趣，从没看过fate系列的能玩吗
+
+论坛助手,iPhone</blockquote>
+没所谓。当独立故事也完全没问题
+
+
+*****
+
+####  恋叶梦境  
+##### 336#       发表于 2023-8-10 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983016&amp;ptid=2112855" target="_blank">rgauss 发表于 2023-8-10 21:34</a>
+
+姑姑也来了?
+
+最右边是哪个啊</blockquote>
+你楼上那图的话是李书文
+
+
+*****
+
+####  rgauss  
+##### 337#       发表于 2023-8-10 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983776&amp;ptid=2112855" target="_blank">恋叶梦境 发表于 2023-8-10 22:09</a>
+你楼上那图的话是李书文</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老年李书文这个大衣背影真认不出来
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gpx234mqx  
+##### 338#       发表于 2023-8-11 00:09
+
+闪闪组就右2不认识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 339#       发表于 2023-8-11 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983119&amp;ptid=2112855" target="_blank">crosz1985 发表于 2023-8-10 21:39</a>
+
+题材很感兴趣，从没看过fate系列的能玩吗
+
+论坛助手,iPhone</blockquote>
+可以玩，反正独立平行世界<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+不知道以前剧情也没事
+
+
+*****
+
+####  唐二想吃火锅  
+##### 340#       发表于 2023-8-11 00:40
+
+其实我还是想知道这个saber到底是男是女<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 341#       发表于 2023-8-11 00:43
+
+就算是女的，我也不想和假小子谈恋爱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 342#       发表于 2023-8-11 08:25
+
+<blockquote>唐二想吃火锅 发表于 2023-8-11 00:40
+其实我还是想知道这个saber到底是男是女</blockquote>
+没鸡可能性五五分
+
+
+*****
+
+####  渺小小  
+##### 343#       发表于 2023-8-11 09:51
+
+这个黄毛小老爷能不能入队啊？能的话就首发了~
+
+
+*****
+
+####  zakki  
+##### 344#       发表于 2023-8-11 10:31
+
+贞德的御主好像有黑泥，1920年贞德才被追封为圣人，游戏时间是1651年，贞德被召唤在还没有被称为圣女的年代是不是就有了黑化的可能了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 345#       发表于 2023-8-11 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61988754&amp;ptid=2112855" target="_blank">zakki 发表于 2023-8-11 10:31</a>
+
+贞德的御主好像有黑泥，1920年贞德才被追封为圣人，游戏时间是1651年，贞德被召唤在还没有被称为圣女的年代 ...</blockquote>
+反正不是黑贞，那个是元帅捏出来的
+
+
+*****
+
+####  bthulu  
+##### 346#       发表于 2023-8-11 13:41
+
+ 本帖最后由 bthulu 于 2023-8-11 13:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61985792&amp;ptid=2112855" target="_blank">gpx234mqx 发表于 2023-8-11 00:09</a>
+
+闪闪组就右2不认识</blockquote>
+右二不是阿周那么，男性，直身大衣，胯边挂两块大钢板，身高矮于大狗和闪，等身长的弓
+
+
+*****
+
+####  gpx234mqx  
+##### 347#       发表于 2023-8-11 14:03
+
+哦，对了，是箭鞘
+
+
+*****
+
+####  Piano-Forest  
+##### 348#         楼主| 发表于 2023-8-11 16:38
+
+『Fate/Samurai Remnant』「中文直播节目」将于8月21日晚间7点于各大影音平台播出，节目中特别邀请饰演主角「宫本伊织」的声优河西健吾，以及饰演宫本武藏的御主「高尾太夫」的声优小清水亜美，以及制作人庄知彦，为玩家带来首次公开的实机游玩内容、游戏最新情报等等（本节目将以日文进行并备有中文翻译）
+
+
+*****
+
+####  绫崎飒  
+##### 349#       发表于 2023-8-11 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61988754&amp;ptid=2112855" target="_blank">zakki 发表于 2023-8-11 10:31</a>
+
+贞德的御主好像有黑泥，1920年贞德才被追封为圣人，游戏时间是1651年，贞德被召唤在还没有被称为圣女的年代 ...</blockquote>
+贞德本身没有黑化的可能性，这个不是假的那就是和fsf的仇海一样用黑泥强制恶堕的了（本子剧情
+
+*****
+
+####  zakki  
+##### 350#       发表于 2023-8-11 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61994567&amp;ptid=2112855" target="_blank">绫崎飒 发表于 2023-8-11 17:24</a>
+
+贞德本身没有黑化的可能性，这个不是假的那就是和fsf的仇海一样用黑泥强制恶堕的了（本子剧情 ...</blockquote>
+所以才说是在贞德未被封为圣女的时间节点，黑泥+无辜的怪物什么的肯定能凹成黑化
+
