@@ -435,3 +435,10 @@ dlss一开卡成幻灯片了
 
 出了一个手动挡默认在倒档的bug，我重启了一下屏幕朗读还自动打开了，那个语音口音特奇怪，找了半天才关掉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  chensquare  
+##### 2550#       发表于 2023-8-11 11:01
+
+找到组织了。Mark一下。
+
