@@ -1357,3 +1357,71 @@ mv3，有没有可能吉他才是落单的</blockquote>
 
 希望女主能用碎屏的手机，很有味道。
 
+*****
+
+####  吴怀在  
+##### 149#       发表于 2023-8-11 19:16
+
+完整版MV和广播剧翻译，我觉得还行
+[https://space.bilibili.com/325545624/video](https://space.bilibili.com/325545624/video)
+
+
+*****
+
+####  没取名啊  
+##### 150#       发表于 2023-8-11 20:08
+
+这广播剧听着每个人都挺精神的，完全没在玉玉嘛
+
+
+*****
+
+####  吉诺爱比利  
+##### 151#       发表于 2023-8-11 22:50
+
+还是更喜欢那几首2dmv多一些
+
+
+*****
+
+####  ViviR  
+##### 152#       发表于 2023-8-12 09:28
+
+这个团应该不会有重女吧，大概？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  k1no  
+##### 153#       发表于 2023-8-12 18:59
+
+ 本帖最后由 k1no 于 2023-8-12 19:02 编辑 
+
+听了广播剧感觉还不错？反而是高兴乐队？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无意义小号  
+##### 154#       发表于 2023-8-12 19:03
+
+简介真的很戳我
+
+
+*****
+
+####  米奥莉奈  
+##### 155#       发表于 2023-8-12 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62005942&amp;ptid=2050404" target="_blank">k1no 发表于 2023-8-12 18:59</a>
+
+听了广播剧感觉还不错？爬楼还期待着玉玉乐队，反而是搞笑乐队？</blockquote>
+正片的背景算比较沉重的吧，应该乐不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Archlich³  
+##### 156#       发表于 2023-8-12 21:54
+
+想重又希望轻点，轻了又觉得还是重点好，真难啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
