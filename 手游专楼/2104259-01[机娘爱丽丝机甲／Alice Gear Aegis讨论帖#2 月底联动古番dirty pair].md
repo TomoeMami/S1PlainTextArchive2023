@@ -5419,3 +5419,142 @@ DMM有消费点数返还的活动。最多返还4000点（即消费20000点）
 周年有自选an。过了8月的an都不能进今年的自选了，没其他心仪的可以等。</blockquote>
 谢谢，我慢慢等了
 
+*****
+
+####  江戸前ルナ  
+##### 637#         楼主| 发表于 2023-8-8 19:41
+
+玩完那个RPG小游戏，月中的新AN就是小萌了吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 638#       发表于 2023-8-8 20:34
+
+下个月大概是AN利佳了，绘美哭晕在厕所，被跳票第几次了居委会组唯一没AN的。这是你游眼镜娘的待遇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉岛田对AGA不太上心了？同人图都不画了。AN睦海的胶盒子封面都是别人画的
+
+*****
+
+####  孫光龍  
+##### 639#       发表于 2023-8-8 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">岛田给万代设计30m去了吧，背叛了寿屋
+
+
+*****
+
+####  不灭的旋律  
+##### 640#       发表于 2023-8-8 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61955866&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-8-8 20:40</a>
+
+岛田给万代设计30m去了吧，背叛了寿屋</blockquote>
+海老川和柳濑为B社打工得更多呢。最新的FAG金刚就是岛田画的怎么叫背叛。这三个人就是机娘界的阿纳海姆全方位提供武器的。
+
+
+*****
+
+####  madcow  
+##### 641#       发表于 2023-8-8 21:50
+
+说起来这回活动后边跳舞动作有几种啊。
+
+东云有个特没干劲的随便摆两下的动作。不由得想起初中做广播操的同学（（
+
+
+*****
+
+####  冰风血羽  
+##### 642#       发表于 2023-8-9 19:04
+
+打手带着老板刷调查然后出了打手的贝壳真是尴尬啊……
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  madcow  
+##### 643#       发表于 2023-8-9 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">强化装备XX个给抽卡点那个任务原来到5000就没了啊
+
+
+*****
+
+####  江戸前ルナ  
+##### 644#         楼主| 发表于 2023-8-9 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61967474&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-8-9 19:04</a>
+
+打手带着老板刷调查然后出了打手的贝壳真是尴尬啊……
+
+另外我看一楼攻略说多余的专武都拿去卖，所有多余的 ...</blockquote>
+基本上是啊，勋章的主要来源之一就是这个。极少部分有分支的因为性能方向问题建议原版和分支都起码各保留一把，比如寡妇的长枪这类并不是上位替代关系而是使用方向差异的。
+
+最后就是极少数机体想堆极限数值时因为插件的不同而做多1套专属，不过现在因为插件改成可以随时拆卸了也没这必要了……
+
+
+*****
+
+####  冰风血羽  
+##### 645#       发表于 2023-8-10 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61971359&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-8-9 23:49</a>
+
+基本上是啊，勋章的主要来源之一就是这个。极少部分有分支的因为性能方向问题建议原版和分支都起码各保留 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前闹过笑话，明明兼志谷两个手名字不一样进化到70结果外形一致名字一致，搞得我都不敢乱动专属装备
+
+
+*****
+
+####  披头破落户  
+##### 646#       发表于 2023-8-10 11:00
+
+话说寿屋新出的小芦睦海刚毅的特典码有需要的吗
+
+—— 来自 Xiaomi 22011211C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  windaria  
+##### 647#       发表于 2023-8-10 23:06
+
+话说什么时候又可以拍照模式看内裤的，阿金终于放下那无谓的矜持了吗
+
+
+*****
+
+####  madcow  
+##### 648#       发表于 2023-8-10 23:18
+
+<blockquote>windaria 发表于 2023-8-10 23:06
+话说什么时候又可以拍照模式看内裤的，阿金终于放下那无谓的矜持了吗</blockquote>
+我试了下不行的还是不行啊，不能看的大概就是几个学生的校服和一些有的没的，包括战女高啊或者阿偶她们那几套，之前黑白两套周年服不就随便看
+
+
+*****
+
+####  windaria  
+##### 649#       发表于 2023-8-10 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61985143&amp;ptid=2104259" target="_blank">madcow 发表于 2023-8-10 23:18</a>
+
+我试了下不行的还是不行啊，不能看的大概就是几个学生的校服和一些有的没的，包括战女高啊或者阿偶她们那 ...</blockquote>
+没事了，是我忘记了作战服可以随便看
+
+
+*****
+
+####  LEOKO~  
+##### 650#       发表于 2023-8-13 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61955866&amp;ptid=2104259" target="_blank">孫光龍 发表于 2023-8-8 20:40</a>
+
+岛田给万代设计30m去了吧，背叛了寿屋</blockquote>
+FA...
+
