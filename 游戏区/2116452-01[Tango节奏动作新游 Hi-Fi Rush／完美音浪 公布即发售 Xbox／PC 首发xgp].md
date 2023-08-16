@@ -5024,3 +5024,23 @@ XGPU/Prime Gaming会员福利：限时领取《完美音浪》团队协作套装
 
 高BPM确实挺有乐子的，打起来更像音游了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  落油Я  
+##### 478#       发表于 2023-8-13 11:36
+
+节奏苦手，玩得不是很愉快
+
+简单难度开所有辅助加看视频才过的最终boss<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  astrayveller  
+##### 479#       发表于 2023-8-13 15:32
+
+肉鸽模式打穿成就了 还是挺有意思的
+升级的优先级很重要
+
+到时候去刷一下bpm模式
+
