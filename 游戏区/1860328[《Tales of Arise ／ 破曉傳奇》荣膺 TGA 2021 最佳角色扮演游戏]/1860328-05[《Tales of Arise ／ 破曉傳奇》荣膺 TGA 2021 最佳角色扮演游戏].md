@@ -677,3 +677,27 @@ ARISE男女主CV只有DAY1来，DAY1没有就是真没有了
 
 那新作或新dlc的时间点会定在结婚后还是本篇后结婚前
 
+*****
+
+####  qiyu1234  
+##### 6255#       发表于 2023-8-14 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61986202&amp;ptid=1860328" target="_blank">RiesbyfeAtlasia 发表于 2023-8-11 00:59</a>
+
+突然想到本篇最后都确定结婚了
+
+那新作或新dlc的时间点会定在结婚后还是本篇后结婚前 ...</blockquote>
+有新角色就肯定是结婚后了，不然结婚图里新角色在哪？
+
+但也有可能是额外篇章，通关后本篇追加可用的形式
+
+鉴于游戏内目前系统不允许玩家把战斗前排留空，多半是追加总计8人的后日谈
+
+<img src="https://img.saraba1st.com/forum/202308/14/154248r2395897mq7ip83f.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (102.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 15:42 上传
+

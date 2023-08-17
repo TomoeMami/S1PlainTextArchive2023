@@ -4544,3 +4544,183 @@ ally居然真现货随便买了，不过还是提醒一下没有下定决心购�
 只能说你那个地方的仓库没货吧，换个地址试试看呢</blockquote>
 确实，随便换了几个地址试了试，感觉就北京没货<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 436#       发表于 2023-8-11 11:10
+
+TESTV 的评测：[https://www.bilibili.com/video/BV1Au4y1z79R](https://www.bilibili.com/video/BV1Au4y1z79R)
+
+
+*****
+
+####  Fuero  
+##### 437#       发表于 2023-8-12 16:31
+
+这屏幕素质有点不行啊，白色和文字的地方各种惨白，是我用的姿势不对吗
+
+
+*****
+
+####  时空之旅  
+##### 438#       发表于 2023-8-12 17:59
+
+大陆这帮搞营销的是吃屎长大的，成天搞这些恶心人的营销，之前放开销售结果看没多少人买又搞预约了
+
+
+*****
+
+####  clyde-wang  
+##### 439#       发表于 2023-8-12 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62005370&amp;ptid=2127262" target="_blank">时空之旅 发表于 2023-8-12 17:59</a>
+大陆这帮搞营销的是吃屎长大的，成天搞这些恶心人的营销，之前放开销售结果看没多少人买又搞预约了 ...</blockquote>
+热度过去了…还是起不了量
+
+刚出的时候那饥饿营销的样子…真以为这个市场和手机一样啊…
+
+
+*****
+
+####  metro  
+##### 440#       发表于 2023-8-12 22:30
+
+7寸屏那么小能看到什么…
+
+
+*****
+
+####  夏之岚  
+##### 441#       发表于 2023-8-13 00:20
+
+这东西平时带出去但是没网怎么玩游戏？
+
+
+*****
+
+####  Fuero  
+##### 442#       发表于 2023-8-13 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008360&amp;ptid=2127262" target="_blank">metro 发表于 2023-8-12 22:30</a>
+
+7寸屏那么小能看到什么…</blockquote>
+一些网图FYI
+
+<img src="https://img.saraba1st.com/forum/202308/13/102137j2zxe5on26e8ecx5.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (318.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/102137qxnybc4bxbuqu0p5.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (379.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/102138pbhaf8cba4zae8hb.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (233.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/102138riww2ikypzpk50le.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (162.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/102138ha999d0qbs9qywzx.png" referrerpolicy="no-referrer">
+
+<strong>5.png</strong> (261.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/102138bftf5ver9cjn0njn.png" referrerpolicy="no-referrer">
+
+<strong>6.png</strong> (475.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/102139yjc2t6jtluf8llfc.png" referrerpolicy="no-referrer">
+
+<strong>7.png</strong> (230.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 10:21 上传
+
+
+*****
+
+####  Fuero  
+##### 443#       发表于 2023-8-13 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62009362&amp;ptid=2127262" target="_blank">夏之岚 发表于 2023-8-13 00:20</a>
+
+这东西平时带出去但是没网怎么玩游戏？</blockquote>
+这类产品可以理解为笔记本电脑拆掉下面的键盘、在屏幕两边插上手柄的产物，所以笔记本怎么处理，这个也一样
+
+*****
+
+####  weare17k  
+##### 444#       发表于 2023-8-13 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62009362&amp;ptid=2127262" target="_blank">夏之岚 发表于 2023-08-13 00:20:50</a>
+这东西平时带出去但是没网怎么玩游戏？</blockquote>这问题问的，掌机离线玩游戏或开热点不都可以吗…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bypass  
+##### 445#       发表于 2023-8-14 10:25
+
+我的 ROG 回来了，玩了一个晚上，喇叭素质相当出彩，我玩 Pentiment 那个牛羊叫我居然转头看四周一时半会没意识到是机器发出的声音。
+
+对于我这种习惯了 SteamOS 的人来说，Windows 系统对于手柄的支持也真拉胯，一开始初始化系统，纯手柄是没法调出来软键盘的，必须用触摸屏。<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+继续纠结 SD 和 ROG 到底要留下来哪台，我是真的好喜欢 SteamOS 和触摸板，也真的好嫌弃牛子的屏幕。
+
+
+*****
+
+####  Fuero  
+##### 446#       发表于 2023-8-14 10:41
+
+<blockquote>bypass 发表于 2023-8-14 10:25
+我的 ROG 回来了，玩了一个晚上，喇叭素质相当出彩，我玩 Pentiment 那个牛羊叫我居然转头看四周一时半会没 ...</blockquote>
+我选择两个都留着等新款。有些原生不支持手柄的游戏rog就是玩不了/玩起来非常痛苦的，反之亦然
+
+
+*****
+
+####  yang9016  
+##### 447#       发表于 2023-8-14 14:59
+
+512GB的原生存储空间还是觉得有点局促，而且TF卡有突然暴毙的硬件设计问题。虽然买到手了，但还是觉得下一代回更好。
+
+
+*****
+
+####  bypass  
+##### 448#       发表于 2023-8-14 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62021332&amp;ptid=2127262" target="_blank">Fuero 发表于 2023-8-14 10:41</a>
+
+我选择两个都留着等新款。有些原生不支持手柄的游戏rog就是玩不了/玩起来非常痛苦的，反之亦然 ...</blockquote>
+嗯暂时打算两个都留着了，SD 我主要拿来玩老游戏，顺便多写几篇文章教程发挥一下它的价值。
+
