@@ -384,3 +384,60 @@ gr2级别的都能刷，推荐gt500和新出的奥迪dtm
 
 邀请函只能每日抽奖吗，咖啡厅就差个威龙了
 
+*****
+
+####  龙娘777  
+##### 1759#       发表于 2023-8-12 00:37
+
+我又来了 自从撒丁岛刷钱进23分20后没啥追求了 想转战东京高速继续刷钱 速度方面用铃木王碾压 但即便小心谨慎也总追尾套圈车没法拿50%奖励 这方面有没有啥技巧或建议
+
+
+*****
+
+####  ohi.02  
+##### 1760#       发表于 2023-8-12 09:30
+
+买了TGT2才发现有直驱的DD PRO<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，坛里有想要收TGT2的吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Fuero  
+##### 1761#       发表于 2023-8-15 00:10
+
+山内：做救护车，我是认真的<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/15/001028m141vmn114loazeo.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (163.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-15 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202308/15/001029t9q5jjktijwbcwis.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (147.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-15 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202308/15/001029c4myb4o4ee5jwzye.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (129.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-15 00:10 上传
+
+<img src="https://img.saraba1st.com/forum/202308/15/001029lpx6wd0b2t2z00td.png" referrerpolicy="no-referrer">
+
+<strong>4.png</strong> (156.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-15 00:10 上传
+
