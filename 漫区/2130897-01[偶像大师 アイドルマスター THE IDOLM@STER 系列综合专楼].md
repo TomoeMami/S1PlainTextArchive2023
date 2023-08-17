@@ -7786,3 +7786,48 @@ sidem正式关服了，年底的爱马仕拉拉合同live里也没sidem，新的
 保守预测两周之内还会有剧场版再放送呢…… ...</blockquote>
 18周年的时候已经说过了 8月13号bs11播剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+*****
+
+####  陆久舟  
+##### 723#       发表于 2023-8-11 11:38
+
+SC两位新人也追加上东蛋了，这下最速东蛋传说
+
+
+*****
+
+####  七草にちか  
+##### 724#       发表于 2023-8-13 09:07
+
+【【偶像大师】【新画面】c102展台三团串烧】 [https://www.bilibili.com/video/BV1xh4y1Q7b6](https://www.bilibili.com/video/BV1xh4y1Q7b6)
+
+
+*****
+
+####  没取名啊  
+##### 725#       发表于 2023-8-13 11:46
+
+这串烧视频剪得还挺带感，两部新动画除了百万那套白睡衣显得手有点长和sc巧可前辈的脑袋感觉有点大以外已经完全习惯了
+
+
+*****
+
+####  00Q  
+##### 726#       发表于 2023-8-14 13:49
+
+距离三年磨一剑P1上映还有四天<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 727#       发表于 2023-8-14 13:49
+
+马上就能看到三年到底磨出啥来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  00Q  
+##### 728#       发表于 2023-8-14 13:50
+
+以及白组从22/7到现在到底有多少变化<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
