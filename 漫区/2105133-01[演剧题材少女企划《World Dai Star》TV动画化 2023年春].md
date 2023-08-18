@@ -14176,3 +14176,10 @@ https://tieba.baidu.com/p/8524683551
 
 在意想不到的地方看到了wds<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  passion_krsw  
+##### 1160#       发表于 2023-8-15 21:43
+
+下期活动要有公会任务了 来打个小广告吧 741067931 还有在玩这个游戏没加公会的可以欢迎来加
+
