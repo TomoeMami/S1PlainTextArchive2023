@@ -289,3 +289,37 @@
 当然这个时间点停了也未尝不可，4人组确定关 ...</blockquote>
 几个人之间关系就算是这漫画的主线了吧，现在到这个地步就差临门一脚了突然重回拉扯阶段，再画个一学年无论是感情线还是日常搞笑点子可能都没法有新的突破了。感觉想办法把感情线处理好就差不多可以结局了
 
+*****
+
+####  创始’’’天翔  
+##### 1294#       发表于 2023-8-14 23:16
+
+女观众占比那么少的吗？卖腐很多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+0FD4507A78A8A72C1408BF11B3A626C2.jpg
+(360.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 23:15 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/231546h46dghz45gjlafsl.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  泥鳅化石  
+##### 1295#       发表于 2023-8-15 11:52
+
+这漫画最近东一榔头西一棒子，完全没了早期一气呵成的快感，感觉什么时候完结都不奇怪。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cawyly  
+##### 1296#       发表于 2023-8-15 16:32
+
+好好收尾吧，别整得跟我推一样
+
