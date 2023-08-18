@@ -3412,3 +3412,80 @@ CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  Toby_dak  
+##### 2279#       发表于 2023-8-13 18:36
+
+<img src="https://img.saraba1st.com/forum/202308/13/193616bqqhx7ry1tn6n1n9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (341.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 18:36 上传
+
+<img src="https://img.saraba1st.com/forum/202308/13/193635rl2y8on50z2fm5nl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (298.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-13 18:36 上传
+
+全是手游……编年史呢？ALT2呢？ ​​​
+
+
+*****
+
+####  yone0000  
+##### 2280#       发表于 2023-8-14 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难绷
+
+<img src="https://img.saraba1st.com/forum/202308/14/003059n6llpccl4x9690xc.png" referrerpolicy="no-referrer">
+
+<strong>OW4ODJX~){YZH17{)4YUX_B.png</strong> (219.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 00:30 上传
+
+
+*****
+
+####  yone0000  
+##### 2281#       发表于 2023-8-14 00:37
+
+ 本帖最后由 yone0000 于 2023-8-14 00:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=53090015&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2021-10-12 15:56</a>
+
+黑标？还是ate，这个劲大，比什么战术机牛逼疯了</blockquote>
+原来是我以前看的不仔细，最近手游活动**动画版连放发现有这一幕
+
+丢的是AS-6吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/14/003452gnzd3f7dfpd053f2.jpg" referrerpolicy="no-referrer">
+
+<strong>photo_2023-08-09_00-09-12.jpg</strong> (49.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 00:34 上传
+
+
+*****
+
+####  亚尔古水手  
+##### 2282#       发表于 2023-8-15 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62018728&amp;ptid=1860817" target="_blank">yone0000 发表于 2023-8-14 00:37</a>
+原来是我以前看的不仔细，最近手游活动**动画版连放发现有这一幕
+
+丢的是AS-6吗</blockquote>
+像AS-6，但是tu-95的AS-6挂架不是这样的，应该是腰部弹仓旁挂载两枚。
+
+不过其实更多是Tu-22m和Tu-16改改打AS-6，内田他装备细节没啥特别考虑。
+
+图我回家传
+
