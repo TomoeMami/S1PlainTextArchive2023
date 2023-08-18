@@ -2853,3 +2853,50 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 — from OPPO PEGM00, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+*****
+
+####  flynnei  
+##### 254#       发表于 2023-8-14 00:22
+
+又是平淡如水的一集
+
+
+*****
+
+####  ads147147  
+##### 255#       发表于 2023-8-14 11:08
+
+楼里熟面孔基本都在邦邦楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+感觉不会有爆点了，就算有也是一两集的事，好像pv刷数据的事也被爆出来了，搞毛啊。。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  kirimori  
+##### 256#       发表于 2023-8-14 23:08
+
+感觉有个9人live已经值了
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 257#       发表于 2023-8-15 12:06
+
+帮忙看了半天店一盒章鱼烧就打发了是不是不太合适
+
+吼狗这段怎么看都不太好吧，有种乱发脾气的感觉
+
+最后的live不错
+
+
+*****
+
+####  forgetit  
+##### 258#       发表于 2023-8-15 13:01
+
+应该就平平淡淡地结束了
+
