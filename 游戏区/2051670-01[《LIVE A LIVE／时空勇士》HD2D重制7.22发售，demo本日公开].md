@@ -4424,3 +4424,31 @@ PC销量寄了，发售两天最高在线人数413。首发8折加上五一假�
 
 太贵了，我准备150以下再出手
 
+*****
+
+####  otakun  
+##### 429#       发表于 2023-8-16 11:47
+
+晚了一年才来玩，本来不想开坑JRPG 的，朋友硬寄了个卡带来给我白嫖，玩了下的确还不错，每个角色的关卡都有独特玩法和演出，最喜欢原始人篇、未来篇。吐槽下未来篇结局，军人说庆幸方块是诞生在飞船，而不是军工厂。然后一到终章，方块在现实世界也能掏出蓄力炮和加装各种攻击配件了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+真结局演出真不错，给我一种修炼大成回去拯救世界的感觉，特别是黎空舞的，这次我带着不止能用一次旋牙连山拳回来了，老爷子<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">；牛仔更是直接12hit全中共999伤害带走了OD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  destroyworlder  
+##### 430#       发表于 2023-8-16 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60282280&amp;ptid=2051670" target="_blank">byisme001 发表于 2023-3-31 09:21</a>
+
+ps版没实体盘是吗</blockquote>
+有
+
+*****
+
+####  byisme001  
+##### 431#       发表于 2023-8-16 14:39
+
+<blockquote>destroyworlder 发表于 2023-8-16 14:37
+有</blockquote>
+看淘宝都没搜到，是只有日版
+
