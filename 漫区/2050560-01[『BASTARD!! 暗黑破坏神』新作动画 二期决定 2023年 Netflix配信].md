@@ -6521,3 +6521,79 @@ DS带过200年前还是小屁孩的皇女，去精灵王国玩的时候
 
 比高达更强
 
+*****
+
+####  泥鳅化石  
+##### 507#       发表于 2023-8-17 07:34
+
+第二部终于有点钱了，至少魔法战做的还可以。
+
+
+*****
+
+####  y2w80  
+##### 508#       发表于 2023-8-17 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62055599&amp;ptid=2050560" target="_blank">泥鳅化石 发表于 2023-08-17 07:34:48</a>
+第二部终于有点钱了，至少魔法战做的还可以。</blockquote>打斗基本都是定格啊，😡
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kiralzb  
+##### 509#       发表于 2023-8-17 13:34
+
+只看过第一部到20集左右吧，这动画就不是有没有钱的问题，我觉得难看是因为节奏拍得稀烂，看起来不流畅
+
+—— 来自 Xiaomi 22081212C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  寒蝉  
+##### 510#       发表于 2023-8-17 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61898641&amp;ptid=2050560" target="_blank">gpx234mqx 发表于 2023-8-3 22:33</a>
+
+DS带过200年前还是小屁孩的皇女，去精灵王国玩的时候
+
+所以DS会照顾小孩啊，不然也不能把两小孩拉扯大 ...</blockquote>
+DS本质上也就是个孩子王····至于他家那两小孩，那俩的惊世天赋你随便养都不可能养死吧
+
+
+*****
+
+####  泥鳅化石  
+##### 511#       发表于 2023-8-17 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62057689&amp;ptid=2050560" target="_blank">y2w80 发表于 2023-8-17 10:50</a>
+打斗基本都是定格啊，😡
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+有点钱的定义是和第一部比啊，总归能看了吧？
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gpx234mqx  
+##### 512#       发表于 2023-8-17 19:53
+
+ 本帖最后由 gpx234mqx 于 2023-8-17 19:56 编辑 
+
+比漫画还是差远了，但对便宜动画来说已经不错了
+
+以网飞的水平是做不出漫画这种画面跃动感的
+
+2023-08-17 195536.png
+(250.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-17 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/17/195630nuw3iuuuuclxwcnk.png" referrerpolicy="no-referrer">
+
