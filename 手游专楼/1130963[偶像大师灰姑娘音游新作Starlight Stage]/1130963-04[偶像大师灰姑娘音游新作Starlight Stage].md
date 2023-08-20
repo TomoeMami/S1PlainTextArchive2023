@@ -448,3 +448,10 @@ A组1月，B组6月底，CD组的活动能赶在今年内出完吗
 
 还有100天...
 
+*****
+
+####  kobushi  
+##### 5394#       发表于 2023-8-17 21:39
+
+moba骨灰盒封面还要搞投票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然精神有问题
+
