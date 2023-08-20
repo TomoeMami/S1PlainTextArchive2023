@@ -5558,3 +5558,81 @@ DMM有消费点数返还的活动。最多返还4000点（即消费20000点）
 岛田给万代设计30m去了吧，背叛了寿屋</blockquote>
 FA...
 
+*****
+
+####  不灭的旋律  
+##### 651#       发表于 2023-8-17 14:21
+
+初音PV来了，但是这纸片人PV也太便宜了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=yxKFs6e70UY](https://www.youtube.com/watch?v=yxKFs6e70UY)
+
+
+*****
+
+####  江戸前ルナ  
+##### 652#         楼主| 发表于 2023-8-17 17:28
+
+转个阿B的
+[https://www.bilibili.com/video/BV1cN41167yi](https://www.bilibili.com/video/BV1cN41167yi)
+
+另外看推特回复，怎么好像有初音不可以参加战斗的说法？？？
+
+
+*****
+
+####  不灭的旋律  
+##### 653#       发表于 2023-8-17 18:24
+
+ 本帖最后由 不灭的旋律 于 2023-8-17 18:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62063574&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-8-17 17:28</a>
+
+转个阿B的
+[https://www.bilibili.com/video/BV1cN41167yi](https://www.bilibili.com/video/BV1cN41167yi)</blockquote>
+流传很久了本楼之前都讨论过。
+[https://blog.piapro.net/2009/03/post-181.html](https://blog.piapro.net/2009/03/post-181.html)
+
+不过PV说明里已经说了是可控角色了，大不了和机战的巴萨啦一样
+
+初音和FAG联动时ARMS都改成了MUSIC
+
+*****
+
+####  madcow  
+##### 654#       发表于 2023-8-17 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">碧蓝档案那个不算的话，机战UX那个算吗（
+
+*****
+
+####  不灭的旋律  
+##### 655#       发表于 2023-8-17 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62064235&amp;ptid=2104259" target="_blank">madcow 发表于 2023-8-17 18:25</a>
+
+碧蓝档案那个不算的话，机战UX那个算吗（</blockquote>
+打人的是飞燕，和我初音何关<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 656#         楼主| 发表于 2023-8-17 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62064225&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-8-17 18:24</a>
+
+流传很久了本楼之前都讨论过。
+[https://blog.piapro.net/2009/03/post-181.html](https://blog.piapro.net/2009/03/post-181.html)
+
+不过PV说明里已经说了是可 ...</blockquote>
+那估计就是将揍人的近战换成别的方式（砍怪大概算暴力？）的桃歌改。
+
+桃歌这个地元偶像估计将会受到新一轮迫害<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windaria  
+##### 657#       发表于 2023-8-17 18:56
+
+一个舞台用两次，真是划算啊
+
