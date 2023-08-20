@@ -1305,3 +1305,25 @@ CODExGEASS
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 942#         楼主| 发表于 2023-8-16 14:37
+
+<img src="https://p.sda1.dev/12/f7ddfa45feb09fb89009203303cbbcb6/CMP_20230816143507003.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/12/3f5028a542bd58a6c704f966309d1ca7/CMP_20230816143507218.jpg" referrerpolicy="no-referrer">
+这表情也太搞笑了
+<img src="https://p.sda1.dev/12/bb49006e3d7e1d634813e9a285825e41/CMP_20230816143507345.jpg" referrerpolicy="no-referrer">
+翻译是不是看见人名只会音译
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  拍不到脑袋  
+##### 943#       发表于 2023-8-17 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">都没抽到，等歪了
+
