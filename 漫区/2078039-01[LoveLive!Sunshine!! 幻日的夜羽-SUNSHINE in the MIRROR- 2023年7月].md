@@ -2900,3 +2900,10 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 应该就平平淡淡地结束了
 
+*****
+
+####  灼眼的夏娜酱  
+##### 259#       发表于 2023-8-19 00:18
+
+这集live不错<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+

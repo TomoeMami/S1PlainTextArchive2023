@@ -2713,3 +2713,158 @@ TAKI 发了 KUN 的评测了。
 
 2023-8-9 08:17 上传
 
+*****
+
+####  泰坦失足  
+##### 802#       发表于 2023-8-17 09:18
+
+[https://windowsreport.com/lenovo-legion-go-first-look/](https://windowsreport.com/lenovo-legion-go-first-look/)
+
+联想的掌机来了, 这个拆分手柄的设计想了想唯一的好处是开会时候能拆掉手柄假装自己带了台windows小平板<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Winder07  
+##### 803#       发表于 2023-8-17 09:22
+
+重量和续航问题
+
+
+*****
+
+####  zid99825  
+##### 804#       发表于 2023-8-17 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61648779&amp;ptid=2086469" target="_blank">dududa 发表于 2023-7-13 14:21</a>
+steamdeck现在体验说得过去纯粹是更新时间长，刚出的时候体验还不如win掌机呢，那时候都是吹steamdeck性能 ...</blockquote>
+quickresume完全基于xbox每个游戏跑在独立虚拟机上，pc这种多任务形态没法做的吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  bypass  
+##### 805#         楼主| 发表于 2023-8-17 11:15
+
+这几天在用 ROG 玩神界原罪二，这个屏幕是真的舒服。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 806#       发表于 2023-8-18 16:44
+
+此次WIN Mini 将分为三个配置版本进行发售，7640U 16GB 512GB（CPU/内存/SSD）版本预售价格3999元，零售价4800元；7840U 32GB 512GB（CPU/内存/SSD）版本预售价格4999元，零售价5999元；7840U 32GB 2TB（CPU/内存/SSD）版本预售价格5999元，零售价6999元。在同配置下，WIN Mini 的预售价格与 WIN 4 2023 的预售价格一致，另外，此次WIN Mini并没有 1TB 版本，并且会标配一个 USB 3.0 的 OTG 转接头。
+
+
+*****
+
+####  bypass  
+##### 807#         楼主| 发表于 2023-8-18 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62075907&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-8-18 16:44</a>
+
+此次WIN Mini 将分为三个配置版本进行发售，7640U 16GB 512GB（CPU/内存/SSD）版本预售价格3999元，零售价4 ...</blockquote>
+想起来我的第一台 Win 掌机 —— GPD WIN 2 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 然后那时候特别期待 Smach Z。
+
+这么多年过去了，真是让人感慨万千。
+
+*****
+
+####  脚本水平  
+##### 808#       发表于 2023-8-18 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62080262&amp;ptid=2086469" target="_blank">bypass 发表于 2023-8-18 23:14</a>
+想起来我的第一台 Win 掌机 —— GPD WIN 2  然后那时候特别期待 Smach Z。
+
+这么多年过去了，真 ...</blockquote>
+smach Z最后是拖流产了吗？
+
+
+*****
+
+####  bypass  
+##### 809#         楼主| 发表于 2023-8-18 23:25
+
+ 本帖最后由 bypass 于 2023-8-18 23:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62080276&amp;ptid=2086469" target="_blank">脚本水平 发表于 2023-8-18 23:16</a>
+
+smach Z最后是拖流产了吗？</blockquote>
+嗯，嗝屁了，我当时还翻译了一下官方的声明文：[https://keylol.com/t713085-1-1](https://keylol.com/t713085-1-1)（我刚才搜了一下，搜到了这个帖子，发现居然是我发的 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 我自己都忘记这个项目已经跑路了）
+ <blockquote>Hi everyone,
+
+大家好，
+
+Today we have tough news to share with you, and we think it’s better for everyone to be as clear as possible from the very first paragraph: we have lost the private inversion that was sustaining this project and, as a consequence, we might soon enter bankruptcy. Before getting into details and stepping into how the future looks for us, we have a few things to say.
+
+今天我们有个艰难的消息想要分享给大家，我们觉得最好还是能在文章第一段就尽可能明确地告知您：我们失去了用于维持项目的 Private Inversion（楼主注：我不清楚 private inversion 具体是什么，从上下文来看似乎是一笔投资），导致我们可能很快就会宣告破产。在说明具体细节以及未来方向之前，我们还有些许话想说。
+
+This project kicked-off thanks to all of you, thanks to your support on platforms like Kickstater and Indiegogo. For that, we will always be grateful, the entire team. We became, literally, the most successful Kickstarter in the history of our country. It is fair to say it has been a pretty surreal journey. With an uncertain future in front of us, we really want to thank all of you: without your support, we couldn’t have started all of this. Again, from the entire team, thank you.
+
+这个项目能够发起需要感谢你们所有人，感谢如 Kickstater 和 Indiegogo 等平台的支持。对此，我们整个团队将永远心怀感恩。不夸张地说，我们成为了这个国家在 Kickstarter 上最为成功的项目。说这是一段难以置信的经历并不为过。前途未知，但我们真的很感谢你们：如果没有你们，这一切就不会发生。来自我们整个团队对你们的感谢。
+
+Even though the funds we collected in Kickstarter, Indiegogo and later on our own website helped us to start the journey, the project was way more ambitious than the budget we were managing. Because of that, the project kept going thanks to the public aid by our government and, mostly and foremost, private inversion. Unfortunately, after a few missteps, the investors felt forced to decide to stop supporting the project. There are a few key reasons we would like to explain to you:
+
+尽管从 Kickstarter，Indiegogo 以及我们网站上众筹得到了资金帮助我们启动了项目，但是项目的花销远比我们的预算要多得多。项目得以维持下去得益于我们政府的公共援助资金，以及更重要的，感谢 Private Inversion。不幸的话，经历了些许失误，投资者们被迫停止继续支持这个项目。我们想要跟您解释项目失败的一些关键原因：
+
+The covid pandemic. We don’t want to blame it as the sole cause, but the timing was extremely bad for our project, to put it blandly. We were just arranging the last details of production when it started, forcing us to change production partners from China to Spain, resetting key production elements. After that, the company felt forced to start an ERTE (a measure from the Spanish Government to help companies survive), meaning we reduced our workforce… considerably. For us, the mentioned ERTE lasted almost for one year and a half, due to the lack of funds. Because of that, since then, we have been moving things forward being 3-5 workers.
+
+新冠疫情的流行。我们不想把它归咎为唯一原因，但平心而论，（疫情的爆发）极大影响了我们的项目计划安排。疫情开始的时候我们才刚刚确定产品的最后一些细节，导致被迫将生产合作伙伴从中国换到西班牙，并重新设计了产品的一些关键元素。在这之后，公司就被迫启动了 ERTE 项目（西班牙政府用于帮助公司生存的一项措施），这意味着我们得大幅削减员工…以我们现在的状况，由于资金的缺乏 ERTE 将持续将近一年半，也因为此我们只能以 3 - 5 名员工的规模继续前进。
+
+Before starting production, we were proceeding with a final testing in a CE certification laboratory, and an emissions test failed, driven from the charger even though the manufacturer had certified it. The defect in question was never resolved by them. It was another unexpected issue that halted production once again, meaning more funds were needed until it was fixed. It was not too serious or difficult to resolve, but again it was a new problem at a critical moment.
+
+在产品开始生产之前，我们一直在 CE 认证实验室进行一项最终测试，其中一项充电器排放测试没有通过认证，尽管之前生产厂商之前已经做了认证。这个问题他们一直没法解决。这是另一个导致项目再次被中断的意外因素，这意味着在问题被解决之前我们需要更多的资金。它解决起来可能不会太难，但的确也是在这关键时刻挡在我们面前的一个新问题。
+
+During the assembling and testing of the first 200 units, problems related to the final batteries were found; we have not been able to determine or solve them and, therefore, an analysis by an external technical expert team is required. When the device has a load of less than 10% and the charger is plugged, a heating occurs in the batteries. This increase of heat activates automatically the system protection, which stops the batteries to avoid degradation, leading to a shut down of the system. Even if we turned off this automatic protection, the batteries would degrade sooner than expected, reducing their full charge in a matter of months, so that was not something acceptable for final units.
+
+在组装和测试前 200 个产品之后，电池的问题也暴露出来：我们无法解决这个问题，导致我们非常需要一个外部的技术专家团队。当设备电量低于 10% 时进行充电，电池会过热。这会导致系统进行过热保护来防止电池退化，从而系统停止运作。尽管我们尝试过关闭这个自动保护，但电池电量也会超出预期衰减，在之后的几个月里电量会大幅度降低，所以最后的产品我们也是无法接受的。
+
+After all, more than a specific cause, the continuous delays of a project that had still not caused clear revenue, along with the pandemic landscape, made the investors decide they didn’t want to keep supporting the project. They are on their right to do so, and we want to make something very clear: we don't want to blame anyone in this update. We are glad for their support all this time, as well as we are to all of you.
+
+最后因为多个特定因素，项目的持续延期导致我们没有明确的收入，加上疫情的蔓延，导致投资者们决定不再支持这个项目。他们有权利这么做，以及我们希望能够说明清楚：我们无意在把问题归咎给任意一个人身上。相反我们很感谢这段时间他们，以及你们每一个人的支持。
+
+Does this mean your device will never come out? As hard as it is to say it, we think the chances are low. We have a few months to look for new investors until declaring bankruptcy; if we are able to find them, we might have the necessary funds to, at least, produce your devices. And from there, whatever comes next. However, we want to be clear about our current situation: the future looks tough for us, even more in the current economic landscape. Being at the current time a team of 3, we are doing our best to focus all our strengths into looking for a way to make this happen.
+
+这是否意味着产品永远都不会发售了呢。虽然不会直接说死，但我们觉得机会已经很渺茫了。在宣告破产之前我们只有短短几个月时间去寻找新的投资者。如果我们成功了，并且得到了必要的资金，至少是生产设备的资金。在那时候才有继续的可能。然而我们希望能够明确告知我们的现状：前路极其坎坷，在当前的经济形势下更是如此。对于当前一个只有 3 人的团队而言，我们在尽我们最大的努力来让它能够发生。
+
+What about refunds? If we finally declare bankruptcy, then all the resources obtained by selling our remaining assets will move towards your refunds. Please understand that there are priorities to follow; for example, direct customers from our website will be refunded first, and so on. We have been refunding for a very long time, but those refunds were emitted thanks to the private inversion. As you know we haven’t been able to keep refunding these last months for the same reason, and as we hope you understand, right now we are not able to keep refunding you either.
+
+那么退款又是怎么进行的？如果我们最后宣告破产，那么所有变卖的资产都被用于推动退款。但还请理解退款会有优先级。例如，直接从网站购买设备的客户会最先获得退款，诸如此类。实际上我们已经进行很长时间的退款工作了，但是这些退款很多是 Private Inversion 出资。所以出于相同的原因，在过去几个月里面我们没法继续退款工作，以及我们希望你们能够理解，现在我们无法为你们提供退款。
+
+This is our current situation. We have tried to be as clear as possible. We are attaching a form for all of you to track all the refunds inquiries, please take a look and feel free to fill it out, considering that at this point we can not promise you any specific date or amount refunded:
+
+这就是我们的现状。我们想尽可能把它说明清楚。我们在后面附上了一张表格用于跟踪你们的退款申请，您可以查看和随时填写，以及请明确这个点我们无法为您承诺任何确切的日期和退款金额。
+
+We are all well aware that the scope of the project was too ambitious for us, way more than we anticipated. The project started off on the wrong foot, as we were scammed by ImasD (the lawsuit is still ongoing), forcing us to raplan everything from scratch and assume command of the project, with the handicap of having 200K less that was in ImasD’s bank. It has not been easy to deal with the different providers and this project required a lot of external work. We often found issues, delays and overcosts. The most remarkable has been the plastic molds that have passed by 3 different molding companies until bringing them from China to Spain. The electronic design and BIOS development have not been easy either. With very little exceptions, the external providers have to focus on their own interests, requiring a huge amount of time, effort and fights to move tasks forward.
+
+我们现在都知道项目当时的野心有些过大庞大了，远超我们的预期。项目从初期就摔了跟头，我们被 ImasD 给欺骗了（诉讼官司现在还在进行中)，一切不得不从头开始并承担起项目的指挥权。跟不同的供货商打交道真的不容易，这个项目需要大量的外部工作。我们经常发生各种问题、延期以及预算超支。在将生产公司从中国移到西班牙之前，我们已经更换了三家不同的模具公司。电子元件设计和 BIOS 开发一样很不容易。除了少数情况，这些外部供货商必须重视自己的利润，这需要大量的时间精力和努力来慢慢推进。
+
+This high dependency of external providers, dued to our lack of experience in the industrial sector, together with the very limited resources that we had and a big component of bad luck in key moments, have definitely brought the project to this situation.
+
+我们工业生产经验的匮乏，以及资源极其短缺，外加关键时候的极其运气不佳，导致了我们对于外部供货商的过度依赖，从而使项目陷入当前这种状态。
+
+We know we have failed, over and over, to commit to the communication goals we were stating. We are very sorry for that. We can say we have tried our best, and we are still glad we started this journey with all of you, for real. We have learned and grown. And as we have mentioned before, we are still doing everything we can to move this forward. There is still a hope that the project can continue somehow, but it’s a possibility that we can’t trust at this point. In any case, if that possibility finally arrives we will fight for it and tell you.
+
+我们知道自己一次又一次没兑现一开始给社区的承诺。我们真的很抱歉。我们真的尽我们所能，以及我们依旧很感谢当时能与你们一起开始这段旅程，真的很感谢。我们一直在学习和成长。如果我们之前所说的，我们仍在努力推进事情发展。我们仍有些许希望能让项目继续，但在当前这个时刻，的确很渺茫。不管怎么样，如果最后它发生了，我们会继续为此奋斗并及时告知您。
+
+We understand that from your point of view you will be angry with us, we can only say that we did all we can with the best intention and efforts. We can guarantee that all the money raised has been dedicated exclusively to cover the project costs. The company has been audited by an external entity and we can show the certification. Also, as you can imagine, in order to get financial support from the government, we have passed strong controls and requirements. Our investors have lost much more money than the money raised in the crowdfunding campaign. So there is nothing weird or dishonest, just a project that has failed, we’re very sorry for that but we hope that you can understand it.
+
+我们知道您会非常愤怒，我们只能说真的已经尽我们所能了。我们保证所有众筹的钱都被用于项目投入。公司之前被一家外部机构进行审计过，我们可以展示相关认真。另外你们也能想象得到，为了维持政府的资金支持，我们也被严格控制和要求。我们的投资者损失的资金远比当时众筹的资金要多得多。所以这里面真的没有什么不诚实或者诡异的内幕，只是一个已经失败的项目，我们很抱歉，很希望你能够理解。
+
+We will continue to inform you about all the process, evolution of this situation and possible solutions. Please, feel free to send proposals or ideas that you may have to save the project. We really hope that, along the way, we have achieved to share some of our passion and joy with all of you.
+
+我们会继续告知你所有的进度，进展以及所有可能的解决方案。如果你有任何建议和项目能够拯救这个项目还请随时告知我们。我们真的希望自己这一路来与你分享过我们的热情和喜悦。
+
+Even more than ever: thank you all for your support, your trust and your patience.
+
+SMACH Team.</blockquote>
+
+
+*****
+
+####  bypass  
+##### 810#         楼主| 发表于 2023-8-19 00:09
+
+Taki 出 DeckHD 的评测了 【一项巨大的Steam Deck升级 - DeckHD 深入评测-哔哩哔哩】 [https://b23.tv/cqrAWbS](https://b23.tv/cqrAWbS)
+
