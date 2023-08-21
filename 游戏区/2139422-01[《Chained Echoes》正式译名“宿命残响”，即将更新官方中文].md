@@ -1757,3 +1757,53 @@ steam社区也有全宝箱全收集攻略，白金攻略还有滚球谜题攻略
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不知道PSN会不会更新中文
 
+*****
+
+####  Meltina  
+##### 176#       发表于 2023-8-18 10:29
+
+说个事情让大家开心开心
+
+<img src="https://img.saraba1st.com/forum/202308/18/102727p3t6ubbjwjmbpjmm.jpg" referrerpolicy="no-referrer">
+
+<strong>WeChat Image_20230818102757.jpg</strong> (51.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 10:27 上传
+
+我突然发现超载栏左上角有三个超JB小的箭头
+
+原来这游戏的战斗是可以加速的（三个档的速度）……
+
+但我是在打最终BOSS的时候看到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+瞬间十万个草泥马在奔腾
+
+（Steamdeck是按L2变速）
+
+（怪不得之前战斗总是有时候快有时候慢……搞到我以为是steamdeck卡了）
+
+*****
+
+####  jy000129  
+##### 177#       发表于 2023-8-18 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62071128&amp;ptid=2139422" target="_blank">Meltina 发表于 2023-8-18 10:29</a>
+说个事情让大家开心开心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没关系，我也是看了你的贴才知道
+
+—— 来自 HUAWEI WLZ-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  WeltKarl  
+##### 178#       发表于 2023-8-18 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62071128&amp;ptid=2139422" target="_blank">Meltina 发表于 2023-8-18 10:29</a>
+说个事情让大家开心开心</blockquote>
+没事，我是在通关后才知道的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
