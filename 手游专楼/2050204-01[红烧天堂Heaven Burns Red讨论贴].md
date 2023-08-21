@@ -5336,3 +5336,303 @@ CP方面，月歌 x yukki x 夏洛的互动能一直玩到关服。侦探x修女
 
 因为马甲被扒 魁就是冈本学这个以前有人知道么
 
+*****
+
+####  Muteki_Link  
+##### 1348#       发表于 2023-7-31 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61810137&amp;ptid=2050204" target="_blank">范坚强 发表于 2023-7-27 17:41</a>
+
+因为马甲被扒 魁就是冈本学这个以前有人知道么</blockquote>
+好像只是恰好同名
+
+
+*****
+
+####  苇原雪道  
+##### 1349#       发表于 2023-8-2 23:29
+
+听说可能出国服，提前来楼里转转～
+
+
+*****
+
+####  Skyline_R  
+##### 1350#       发表于 2023-8-4 20:11
+
+你游这么抠门的运营，这次1.5周年送的东西竟然还挺可观的（免费150连起步）
+
+
+*****
+
+####  范坚强  
+##### 1351#       发表于 2023-8-5 08:13
+
+加上送的石头明面应该最少170抽（虽然150抽是那个大混池）这次不但送的多 抽卡机制也向玩家有利改了 就是那些累积奖励 虽然应该又是大混池 但起码比没有好
+
+
+*****
+
+####  nonodundun  
+##### 1352#       发表于 2023-8-5 20:09
+
+飞机社是不敢再出通用拐了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  叶雾  
+##### 1353#       发表于 2023-8-5 20:15
+
+强度寄了，最近出的卡都不太行，改变了数值膨胀策略？
+
+
+*****
+
+####  歪镜  
+##### 1354#       发表于 2023-8-5 21:23
+
+ 本帖最后由 歪镜 于 2023-8-5 21:26 编辑 
+
+毕竟你游基本没有持续出伤的说法，都是攒一波秒的，“强度卡”的模式也因此就那么几种，tama这种用来加速的放在其他配置齐全的队说不定还可以，放在本来就残缺的光队只能说未来可期了
+
+
+*****
+
+####  eyeego  
+##### 1355#       发表于 2023-8-6 09:08
+
+这半年真正超模的其实也就火属两个大拐 这也是大家不满的集中点 怎么好事都是你们火的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这次白河也就是中规中矩的强度 tama是真的寄中寄 事到如今没有任何伤害乘区的奶指望怎么上场啊
+
+
+*****
+
+####  sin.yugi  
+##### 1356#       发表于 2023-8-6 11:03
+
+暗白河在第一发故意不爆积累一发暗爆伤buff后，打出的伤害对HP是暗打手中最高的
+
+
+*****
+
+####  aricks  
+##### 1357#       发表于 2023-8-6 14:03
+
+4下主线削了没？一直等着削了再打
+
+
+*****
+
+####  乾理央  
+##### 1358#       发表于 2023-8-6 15:38
+
+孔明+原皮剑圣+温泉藏，该研究怎么打暗队了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poor  
+##### 1359#       发表于 2023-8-6 16:33
+
+月城大招是不是没偏向的？堆力器都行？另外现在宝珠怎么打？听说抗性都删了，是高凸的AOE直接塞吗？
+
+
+*****
+
+####  光影mk2  
+##### 1360#       发表于 2023-8-6 20:00
+
+有谁知道更新以后的羁绊剧情去哪了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">，找了半天没找到
+
+
+*****
+
+####  HBR  
+##### 1361#       发表于 2023-8-6 20:03
+
+这游戏PVP要素是负的，怎么车强度还能这么激烈的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乾理央  
+##### 1362#       发表于 2023-8-6 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61928969&amp;ptid=2050204" target="_blank">光影mk2 发表于 2023-8-6 20:00</a>
+
+有谁知道更新以后的羁绊剧情去哪了，找了半天没找到</blockquote>
+中间左边的主线故事，点开后上面三个选项，左边那个
+
+
+*****
+
+####  光影mk2  
+##### 1363#       发表于 2023-8-6 23:37
+
+<blockquote>乾理央 发表于 2023-8-6 20:38
+中间左边的主线故事，点开后上面三个选项，左边那个</blockquote>
+感谢，找到了，主线自从卡住就再也没点开过，结果合并了
+
+
+*****
+
+####  道双晨曦  
+##### 1364#       发表于 2023-8-7 23:05
+
+每年夏活打复活赛要变成你游传统了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Muteki_Link  
+##### 1365#       发表于 2023-8-8 11:36
+
+现在宝珠迷宫舒服多了， 遇敌率减半，5x效率，最重要的是取消道中耐性怪，结合可以稍微自订化一点的auto，最后打完也不是低级经验书那种垃圾了
+
+昨天打完一把感叹，这才是给人玩的体验啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tuichu0425  
+##### 1366#       发表于 2023-8-8 12:05
+
+<blockquote>eyeego 发表于 2023-8-6 09:08
+这半年真正超模的其实也就火属两个大拐 这也是大家不满的集中点 怎么好事都是你们火的
+
+这次白河也就 ...</blockquote>
+小奏有心眼导致六妹只有光队用不上 你看这不就给光队补了个奶
+
+
+*****
+
+####  Leeray  
+##### 1367#       发表于 2023-8-8 13:28
+
+刚打完四上，有点理解惠惠了，最后月歌说的什么我还不太有感觉，可能平常嘻嘻哈哈惯了有点滤镜，但小玉一喊出来我是真绷不住了，妈的好难受，这都什么事儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  薛定谔的小猫  
+##### 1368#       发表于 2023-8-8 19:49
+
+活动剧情终于在线了一次，白河前辈，sukidesu！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eyeego  
+##### 1369#       发表于 2023-8-10 20:06
+
+真就tama售后是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pf67  
+##### 1370#       发表于 2023-8-10 21:20
+
+光队终于来了，还是全主角组
+
+这次要考虑井一波了
+
+
+*****
+
+####  Meltina  
+##### 1371#       发表于 2023-8-13 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61948669&amp;ptid=2050204" target="_blank">Muteki_Link 发表于 2023-8-8 11:36</a>
+现在宝珠迷宫舒服多了， 遇敌率减半，5x效率，最重要的是取消道中耐性怪，结合可以稍微自订化一点的auto， ...</blockquote>
+有沒有auto隊加auto分的層數參考，我想找個全auto的把溢出的石頭燒了
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  Muteki_Link  
+##### 1372#       发表于 2023-8-14 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62014188&amp;ptid=2050204" target="_blank">Meltina 发表于 2023-8-13 17:04</a>
+
+有沒有auto隊加auto分的層數參考，我想找個全auto的把溢出的石頭燒了
+
+—— 来自 Xiaomi 2211133C, Andro ...</blockquote>
+没呢，我战斗力始终在1w4-1w5之间徘徊，之前举步维艰也就到40层+。眼下先把50层踏破了再说。
+
+b站能搜到不少改版后的刷宝玉攻略，大致看过一眼，感觉box差太多都不太好抄作业，没孔明太难了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Meltina  
+##### 1373#       发表于 2023-8-14 11:38
+
+好，我都是摆烂全auto打低层的，效率低几倍都没关系，只要能auto我就能细水长流
+
+主要是我知道自己不可能手动打重复的东西，一手动就弃坑了
+
+
+*****
+
+####  pf67  
+##### 1374#       发表于 2023-8-15 22:24
+
+阶段氪金池出货5，西装池110抽 司get ，收工
+
+*****
+
+####  pf67  
+##### 1375#       发表于 2023-8-15 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62022062&amp;ptid=2050204" target="_blank">Meltina 发表于 2023-8-14 11:38</a>
+
+好，我都是摆烂全auto打低层的，效率低几倍都没关系，只要能auto我就能细水长流
+
+主要是我知道自己不可能手 ...</blockquote>
+刚刚我用火队+残响月歌的队伍试了下，从41到打完50层boss（之前都摆烂没去打），除了boss外全自动，最后体力条还剩下4
+
+
+*****
+
+####  范坚强  
+##### 1376#       发表于 2023-8-16 07:32
+
+ 本帖最后由 范坚强 于 2023-8-16 07:35 编辑 
+
+一发十连西装司 大喜 step池两ss精准命中2/10重复 大怒 这特么说不是故意的谁信啊！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  真绯瑠之眷属  
+##### 1377#       发表于 2023-8-16 08:53
+
+我也是，半井两个司。。可怜怜就是不来
+
+
+*****
+
+####  Meltina  
+##### 1378#       发表于 2023-8-16 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62040779&amp;ptid=2050204" target="_blank">pf67 发表于 2023-8-15 22:27</a>
+
+刚刚我用火队+残响月歌的队伍试了下，从41到打完50层boss（之前都摆烂没去打），除了boss外全自动，最后 ...</blockquote>
+参考下，队伍和自动配置大致是什么还有这一趟多少宝石（假设只算一倍）
+
+
+*****
+
+####  pf67  
+##### 1379#       发表于 2023-8-18 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62054032&amp;ptid=2050204" target="_blank">Meltina 发表于 2023-8-16 23:19</a>
+
+参考下，队伍和自动配置大致是什么</blockquote>
+孔明，残响月歌，大岛六妹，大岛四妹，火惠，百合。
+
+月歌火斩，六妹突群攻，四妹后排大加攻，火惠用的原皮的打群攻，百合突群攻
+
