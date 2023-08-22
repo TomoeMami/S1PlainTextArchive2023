@@ -1462,3 +1462,91 @@ QQ截图20230622000642.jpg
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+*****
+
+####  泰坦失足  
+##### 145#       发表于 2023-8-19 16:57
+
+Hololive Vtuber接Konami的商单播MGS2. 想起了看了十几年爱国者旗下Vtuber Colonel演出的Raiden.  
+
+<img src="https://img.saraba1st.com/forum/202308/19/165125not4htt4n9xktxkh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-19 16:51 上传
+
+
+*****
+
+####  空枪  
+##### 146#       发表于 2023-8-19 20:27
+
+ 本帖最后由 空枪 于 2023-8-19 20:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62085281&amp;ptid=2135452" target="_blank">泰坦失足 发表于 2023-8-19 16:57</a>
+
+Hololive Vtuber接Konami的商单播MGS2. 想起了看了十几年爱国者旗下Vtuber Colonel演出的Raiden.  
+
+ ...</blockquote>
+刚开 没看到开头是玩的哪个版本的HD合集
+
+兔子如果没玩过3 作为初见应该很欢乐
+
+姬森就不清楚  感觉2还是需要一个对现代网络情报meme了解的人来玩比较有效果
+
+===========
+
+更新  我错了  姬森你塔玛就是个乐子人啊
+
+CODE NAME: hideo kojima
+
+nationality:コナミjapan
+
+
+*****
+
+####  karastar  
+##### 147#       发表于 2023-8-19 20:34
+
+<img src="https://img.saraba1st.com/forum/202308/19/203421gqbeq111q5n8111y.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20230819203345.png</strong> (68.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-19 20:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雪儿  
+##### 148#       发表于 2023-8-19 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61380780&amp;ptid=2135452" target="_blank">棺材叔叔 发表于 2023-6-22 09:43</a>
+忘了具体剧情了，就算真有东大偷苏联核弹情报也没啥吧，又不算刻意辱华
+
+—— 来自 Xiaomi 22041211AC, And ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然而辱不辱你说了不算 我说了也不算 柯纳米自己说了还是不算
+
+
+*****
+
+####  moeful  
+##### 149#       发表于 2023-8-19 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62087415&amp;ptid=2135452" target="_blank">空枪 发表于 2023-8-19 20:27</a>
+
+刚开 没看到开头是玩的哪个&amp;# ...</blockquote>
+都是玩过的
+
+
+*****
+
+####  前列腺  
+##### 150#       发表于 2023-8-19 23:50
+
+土鳖在合金装备3里形象还行
+
