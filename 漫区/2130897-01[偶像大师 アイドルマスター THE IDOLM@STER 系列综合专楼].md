@@ -7831,3 +7831,63 @@ SC两位新人也追加上东蛋了，这下最速东蛋传说
 
 以及白组从22/7到现在到底有多少变化<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+*****
+
+####  hlazd  
+##### 729#       发表于 2023-8-18 10:02
+
+第一幕早场看完。整体感觉还不错的。
+
+
+*****
+
+####  Unlight  
+##### 730#         楼主| 发表于 2023-8-18 16:41
+
+本家人设
+
+<img src="https://img.saraba1st.com/forum/202308/18/164036tsij73iayjcxzk7y.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0211.JPG</strong> (515.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 16:40 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  秋月涼  
+##### 731#       发表于 2023-8-18 19:05
+
+感觉上座率有点堪忧，好空啊
+
+
+*****
+
+####  王九的哥哥  
+##### 732#       发表于 2023-8-18 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62077650&amp;ptid=2130897" target="_blank">秋月涼 发表于 2023-8-18 19:05</a>
+感觉上座率有点堪忧，好空啊</blockquote>
+周五正常。
+明后天还空再慌不迟……
+
+
+*****
+
+####  eaglu  
+##### 733#       发表于 2023-8-18 22:49
+
+有无在日柏油分析一下评价
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 734#       发表于 2023-8-19 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">离谱了，这对邦的票这么难抽，这下只能上山了
+
