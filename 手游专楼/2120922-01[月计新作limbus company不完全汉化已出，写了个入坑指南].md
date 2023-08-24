@@ -5307,3 +5307,104 @@ EGO我现在只 ...</blockquote>
 
 我ego基本全的现在看不到哪些能换大概推了一些。其他的类似电蜈蚣，第四根火柴之类听说也好用，但我自己没练不好评价。
 
+*****
+
+####  Jamaisvu  
+##### 343#       发表于 2023-8-18 17:48
+
+新卡池来啦！W社的三星良秀和二星鸿璐：
+
+<img src="https://img.saraba1st.com/forum/202308/18/174747auz0k0gn773unp2f.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230818_174631.jpg</strong> (263.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/174747k89o0vy1eekq889y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230818_174641.jpg</strong> (225.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/174748cr1w9m91933b3v5m.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230818_174620.jpg</strong> (204.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/174748fcktbdo90tn0zt6b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230818_174605.jpg</strong> (149.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 17:47 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/174749bi9fqziouqmcbbo6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230818_174556.jpg</strong> (199.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 17:47 上传
+
+W社虽然干的事很畜牲，但这色调和装备是真的帅。
+
+宝子的空间撕裂者该发挥作用了，不知道嘛时候给良秀弄个充电ego，R良秀还有个卫星呢。
+
+
+*****
+
+####  Jamaisvu  
+##### 344#       发表于 2023-8-21 16:51
+
+W社二人组技能预览：
+
+<img src="https://img.saraba1st.com/forum/202308/21/165151nw4w82j21m1wcw3z.jpg" referrerpolicy="no-referrer">
+
+<strong>3818615D04DA9F9527DB67B5DEE501FC.jpg</strong> (457.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-21 16:51 上传
+
+<img src="https://img.saraba1st.com/forum/202308/21/165151vujrqlv9ikkod2qp.jpg" referrerpolicy="no-referrer">
+
+<strong>3F00DBDC295E33454B15ED3E9E6A49B1.jpg</strong> (140.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-21 16:51 上传
+
+
+*****
+
+####  Jamaisvu  
+##### 345#       发表于 2023-8-21 16:53
+
+新签到活动：签14天给二星臼齿雷恩•李箱，28天给三星臼齿奥尔佳•奥提斯：
+
+<img src="https://img.saraba1st.com/forum/202308/21/165322rof662l6962b9662.jpg" referrerpolicy="no-referrer">
+
+<strong>6F95C0162FD722664102792B825ABE6B.jpg</strong> (149.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-21 16:53 上传
+
+（奥提斯疑似痛失东郎神备候选名额？）
+
+
+*****
+
+####  erratic璃月  
+##### 346#       发表于 2023-8-21 17:28
+
+签到活动能开28天，真有你的啊yj<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
