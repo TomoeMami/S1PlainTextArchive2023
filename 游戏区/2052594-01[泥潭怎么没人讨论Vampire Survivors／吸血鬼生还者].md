@@ -2307,3 +2307,63 @@ DLC角色和武器都带点神仙打架的意思，不过说到底这游戏最�
 刷完，游戏彻底没体 ...</blockquote>
 之前刷200%左右已经无敌了，这2000%……
 
+*****
+
+####  chaucerling  
+##### 686#       发表于 2023-8-18 11:37
+
+更新了本地合作模式，ns也发售了
+
+
+*****
+
+####  afer  
+##### 687#       发表于 2023-8-18 11:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">用串流应该能联机吧？
+
+
+*****
+
+####  林唯楚  
+##### 688#       发表于 2023-8-21 00:13
+
+我也是switch上刚买，目前神秘代码解锁了女王，但是还没研究太明白，这个游戏最多只能玩47分钟嘛？
+
+—— 来自 deltainno DT2002C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  thest  
+##### 689#       发表于 2023-8-21 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62101574&amp;ptid=2052594" target="_blank">林唯楚 发表于 2023-8-21 00:13</a>
+
+我也是switch上刚买，目前神秘代码解锁了女王，但是还没研究太明白，这个游戏最多只能玩120分钟嘛？还是没 ...</blockquote>
+有无尽模式
+
+
+*****
+
+####  林唯楚  
+##### 690#       发表于 2023-8-21 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62103727&amp;ptid=2052594" target="_blank">thest 发表于 2023-8-21 09:57</a>
+
+有无尽模式</blockquote>
+明白了，应该就是之后全是死神了，就看怎么研究，尽量存活下去了。
+
+
+*****
+
+####  thest  
+##### 691#       发表于 2023-8-21 12:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62106313&amp;ptid=2052594" target="_blank">林唯楚 发表于 2023-8-21 12:55</a>
+
+明白了，应该就是之后全是死神了，就看怎么研究，尽量存活下去了。</blockquote>
+死神不出了，全是小怪，无尽模式就真的是无尽模式，主要用来刷钱
+
+当然也可能是有死神但是我没看见，屏幕太花了你懂的
+
