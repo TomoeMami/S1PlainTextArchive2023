@@ -16392,3 +16392,20 @@ Meta 味的对白有点带富野电波的战姬绝唱构文的感觉，真让人
 
 剧场版pv1里海的意象在剧场版没怎么用上，不知道这里会不会补。
 
+*****
+
+####  爱丁堡official  
+##### 8890#       发表于 2023-8-20 20:09
+
+有点想买<img src="https://p.sda1.dev/12/14600a2b9b6dfcb45232e3d23d145787/IMG_CMP_110550914.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  nh_zzz  
+##### 8891#       发表于 2023-8-21 09:01
+
+估计新游戏宣发了，每天分日夜两场，一共4场<img src="https://p.sda1.dev/12/71c59f2080f668c9befea80b47598e12/img-16925796416418a23a8a716659dedabff256acea6799b.jpg" referrerpolicy="no-referrer">
+
