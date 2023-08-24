@@ -1789,3 +1789,66 @@ mv的还原度真高 这首真是拖了太久了</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  BQlin  
+##### 7220#       发表于 2023-8-21 00:00
+
+才发现这破B活动选曲那边不给刷每日任务曲的，要去外面打，亏了两天，还不给活动点数
+
+
+*****
+
+####  川澄舞  
+##### 7221#       发表于 2023-8-21 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62101453&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-8-21 00:00</a>
+
+才发现这破B活动选曲那边不给刷每日任务曲的，要去外面打，亏了两天，还不给活动点数 ...</blockquote>
+活动页面选曲可以打当日曲
+
+
+*****
+
+####  BQlin  
+##### 7222#       发表于 2023-8-21 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62105070&amp;ptid=1484979" target="_blank">川澄舞 发表于 2023-8-21 11:30</a>
+
+活动页面选曲可以打当日曲</blockquote>
+昨晚找了一圈没看到，之前这类活动是会把任务置顶的
+
+今晚再找找看
+
+
+*****
+
+####  小樱与小狼  
+##### 7223#       发表于 2023-8-21 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62105133&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-8-21 11:34</a>
+昨晚找了一圈没看到，之前这类活动是会把任务置顶的
+
+今晚再找找看</blockquote>
+活动打歌选歌界面第一首就是日常任务曲吧，你应该是之前选的三首曲子比较靠后，默认页面往下拉了。
+
+
+*****
+
+####  王九的哥哥  
+##### 7224#       发表于 2023-8-21 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62105133&amp;ptid=1484979" target="_blank">BQlin 发表于 2023-8-21 11:34</a>
+昨晚找了一圈没看到，之前这类活动是会把任务置顶的
+
+今晚再找找看</blockquote>
+过了0点更新第一把选おすすめ第一首就是……
+
+
+*****
+
+####  BQlin  
+##### 7225#       发表于 2023-8-21 16:14
+
+谢谢各位指点
+
