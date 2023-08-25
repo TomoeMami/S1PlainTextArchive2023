@@ -876,3 +876,264 @@ mc里也要看no miss通关<img src="https://static.saraba1st.com/image/smiley/f
 
 除了一周年就没抢到过周年纪念的谷艹<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+*****
+
+####  andeloz  
+##### 9401#       发表于 2023-8-15 12:53
+
+<img src="https://p.sda1.dev/12/f278bc109e4fae81f7d168fc567111fd/Screenshot 2023-08-14 at 9.51.05 PM.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  旧时代的扎比  
+##### 9402#       发表于 2023-8-15 19:32
+
+真好啊
+
+
+*****
+
+####  梅斯之围  
+##### 9403#       发表于 2023-8-15 19:36
+
+排面整挺大
+
+
+*****
+
+####  andeloz  
+##### 9404#       发表于 2023-8-15 19:46
+
+还得是调色盘...
+
+*****
+
+####  lightsuger  
+##### 9405#       发表于 2023-8-15 19:50
+
+<img src="https://img.saraba1st.com/forum/202308/15/194856is744wn43t9748cc.png" referrerpolicy="no-referrer">
+
+<strong>aa.png</strong> (21.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-15 19:48 上传
+
+
+*****
+
+####  andeloz  
+##### 9406#       发表于 2023-8-15 20:19
+
+什么开幕雷击
+
+
+*****
+
+####  越动天下  
+##### 9407#       发表于 2023-8-18 19:23
+
+听着恰萌奇 风格真是很符合心情呀
+
+*****
+
+####  zpy393  
+##### 9408#       发表于 2023-8-18 19:26
+
+我就这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 9409#       发表于 2023-8-18 21:24
+
+看了眼录播，原来这游戏还没出啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9410#       发表于 2023-8-19 00:22
+
+每次播这玩意我看一半就昏迷了
+
+
+*****
+
+####  andeloz  
+##### 9411#       发表于 2023-8-19 00:59
+
+真回旋能多播播吗🥺 从每个月直播份额里面抠出来做b限就算了
+
+
+*****
+
+####  lightsuger  
+##### 9412#       发表于 2023-8-19 19:14
+
+船长直言听不懂大亏在讲什么谜语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不看其他holo的我还一直以为holo都是一群谜语人
+
+
+*****
+
+####  andeloz  
+##### 9413#       发表于 2023-8-19 20:53
+
+联动好短 果然是赶场吗
+
+
+*****
+
+####  andeloz  
+##### 9414#       发表于 2023-8-19 21:28
+
+唉 魅魔
+
+
+*****
+
+####  andeloz  
+##### 9415#       发表于 2023-8-20 15:33
+
+怎么才3.0啊
+
+
+*****
+
+####  面具13  
+##### 9416#       发表于 2023-8-20 20:50
+
+老头发力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpy393  
+##### 9417#       发表于 2023-8-20 20:57
+
+这么多功能今天第一次展示，也是最后一次展示，且看且珍惜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  面具13  
+##### 9418#       发表于 2023-8-20 20:58
+
+apex预定了
+
+*****
+
+####  越动天下  
+##### 9419#       发表于 2023-8-20 20:59
+
+这个手呃呃
+
+*****
+
+####  lightsuger  
+##### 9420#       发表于 2023-8-20 21:00
+
+3.0能否带动直播热情
+
+不过这个月已经比平常多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  星の守  
+##### 9421#       发表于 2023-8-20 21:12
+
+这个3.0还行，可以整的活更多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梅斯之围  
+##### 9422#       发表于 2023-8-20 23:08
+
+最喜欢的原皮<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9423#       发表于 2023-8-22 02:56
+
+换器材一定是为了打枪吧🥰 总不可能是播〇〇吧🥺
+
+
+*****
+
+####  Map-2  
+##### 9424#       发表于 2023-8-22 03:13
+
+可能是黑神话悟空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 9425#       发表于 2023-8-22 03:14
+
+答案是不播
+
+
+*****
+
+####  lightsuger  
+##### 9426#       发表于 2023-8-22 10:22
+
+会限、社内联动、社外联动、魂号
+
+buff上够了，说不定真要B限了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Scardy  
+##### 9427#       发表于 2023-8-22 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62117015&amp;ptid=1947500" target="_blank">lightsuger 发表于 2023-8-22 10:22</a>
+会限、社内联动、社外联动、魂号
+
+buff上够了，说不定真要B限了</blockquote>
+魂号说啥了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  andeloz  
+##### 9428#       发表于 2023-8-22 12:39
+
+就说了下键盘换成了雷蛇
+
+syl 不过是周年buff罢了 不出一个月必定回归懒狗mode
+
+
+*****
+
+####  旧时代的扎比  
+##### 9429#       发表于 2023-8-22 20:39
+
+这猫的照片有哪怕一次能让人觉得可爱的吗
+
+
+*****
+
+####  lightsuger  
+##### 9430#       发表于 2023-8-22 20:46
+
+明天四皇线下
+
+*****
+
+####  zpy393  
+##### 9431#       发表于 2023-8-22 20:47
+
+突然会限，最近播的好勤，有点不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
