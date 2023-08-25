@@ -4338,3 +4338,476 @@ NSO会员又开启了新一期的王泪头像兑换了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">海布拉+塔邦达那么大一片区域只有2个深穴，一个利特村的不和外面联通，一个需要做好迷宫才能下去，感觉探索这一片地下有点不方便。。。。。看了下自己的地下地图，确实这一片西北区域大片没点亮
 
+*****
+
+####  lanyu_u  
+##### 15368#       发表于 2023-8-13 20:16
+
+[https://www.bilibili.com/video/BV11m4y1L7Pj](https://www.bilibili.com/video/BV11m4y1L7Pj)
+
+王泪和日本神话关系，以及神庙命名方式的考据
+
+
+*****
+
+####  牛奶笛  
+##### 15369#       发表于 2023-8-13 23:11
+
+看了之后长见识了，老任居然能同意林塞是兄妹的设定，我以为米多娜强吻林克已经够炸裂了
+
+
+*****
+
+####  liekong  
+##### 15370#       发表于 2023-8-14 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62017930&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-8-13 23:11</a>
+
+看了之后长见识了，老任居然能同意林塞是兄妹的设定，我以为米多娜强吻林克已经够炸裂了 ...</blockquote>
+啥，兄妹？你说哪作？
+
+
+*****
+
+####  牛奶笛  
+##### 15371#       发表于 2023-8-14 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62018450&amp;ptid=1997982" target="_blank">liekong 发表于 2023-8-14 00:02</a>
+
+啥，兄妹？你说哪作？</blockquote>
+是那个视频里讲解的，塞尔达早期漫画的原创剧情，我想老任这也能同意<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 15372#       发表于 2023-8-14 09:15
+
+ 本帖最后由 liekong 于 2023-8-14 09:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62019956&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-8-14 08:46</a>
+
+是那个视频里讲解的，塞尔达早期漫画的原创剧情，我想老任这也能同意 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这更多的是早期塞尔达没有那么详细的设定，就交给“二创”自由发挥了。
+
+早期这类跨媒体改编都有很多奇怪的二设（望向那些动画、真人电影
+
+现在肯定不可能给他们这么乱搞了。
+
+话说回来，即使这几年，塞尔达的漫画也有一些奇怪的设定，
+
+例如黄昏公主漫画里，塞尔达有前世也就是时塞的记忆，
+
+搞得有些人拿来硬说塞尔达也是灵魂转世，是“官设”
+
+
+*****
+
+####  冷泉夜月  
+##### 15373#       发表于 2023-8-14 10:01
+
+<img src="https://img.saraba1st.com/forum/202308/14/100119ll1ib6fsabi4eb98.jpg" referrerpolicy="no-referrer">
+
+<strong>2023081216335500-CC47F0DEC75C1FD3B1F95FA9F9D57667.jpg</strong> (146.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/100124mlonp8w9womtwl9e.jpg" referrerpolicy="no-referrer">
+
+<strong>2023081216325400-CC47F0DEC75C1FD3B1F95FA9F9D57667.jpg</strong> (156.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 10:01 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/100127ez74g6h4x416no7k.jpg" referrerpolicy="no-referrer">
+
+<strong>2023081216324200-CC47F0DEC75C1FD3B1F95FA9F9D57667.jpg</strong> (160.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 10:01 上传
+
+发现冰雪古栗欧克的犄角高空跳斩会化为三叉戟！
+
+
+*****
+
+####  jellyhero  
+##### 15374#       发表于 2023-8-14 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61974264&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-8-10 10:12</a>
+不是的 只是这次龙本来就比野炊时候难找罢了</blockquote>
+其实比野炊好找，多去三个地方附近的塔看看天基本上能找到画个光标看哪个塔比较近然后去蹦极就完了
+只是不好频繁刷了
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  king520kyo  
+##### 15375#       发表于 2023-8-14 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62021130&amp;ptid=1997982" target="_blank">jellyhero 发表于 2023-8-14 10:24</a>
+
+其实比野炊好找，多去三个地方附近的塔看看天基本上能找到画个光标看哪个塔比较近然后去蹦极就完了
+
+只是 ...</blockquote>
+问题是野炊3条龙根本不用找啊 定时定点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王泪每次都要找 都不是一个概念了 
+
+
+*****
+
+####  KIRI小威  
+##### 15376#       发表于 2023-8-14 23:47
+
+现在dlc有消息了吗
+刚打通关，求dlc来点日后谈的内容吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 15377#       发表于 2023-8-15 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62029230&amp;ptid=1997982" target="_blank">KIRI小威 发表于 2023-8-14 23:47</a>
+
+现在dlc有消息了吗
+
+刚打通关，求dlc来点日后谈的内容吧</blockquote>
+目前没有，等月底的科隆吧。
+
+
+*****
+
+####  牛奶笛  
+##### 15378#       发表于 2023-8-15 07:56
+
+<img src="https://img.saraba1st.com/forum/202308/15/075337wzihx5f628z2c2x2.jpg" referrerpolicy="no-referrer">
+
+<strong>2023081507311800_s.jpg</strong> (108.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-15 07:53 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发现我漏了一个“隐藏”的收集要素，特殊动作里的“跳斩”。需要去监视堡垒深穴旁的营地里有本书，读了才能触发
+
+
+*****
+
+####  冷泉夜月  
+##### 15379#       发表于 2023-8-15 21:44
+
+日本内阁今日公布了2023年4月到6月期间的季度GDP初步数据，其中超过50%的个人消费倾向于节约，但服装与娱乐等「半耐用品」相比上季度增长了2.8%。
+据内阁府工作人员透露，其增长原因是「新发布的游戏」，但并未透露具体的游戏。
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  holomoon  
+##### 15380#       发表于 2023-8-15 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62030543&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-8-15 07:56</a>
+
+发现我漏了一个“隐藏”的收集要素，特殊动作里的“跳斩”。需要去监视堡垒深穴旁的营地里有本书 ...</blockquote>
+的确是某个动作需要读帐篷里的书
+
+但我印象中是那6个怪物大军扫荡支线里的根据地帐篷里教的
+
+*****
+
+####  holomoon  
+##### 15381#       发表于 2023-8-15 22:22
+
+DLC肯定有的，王泪这么大体量不可能没DLC
+
+不过推出时期，估计会考虑热度维持的问题吧，应该没那么快出。拖慢点能更好维持游戏热度来卖多些
+
+希望多一点地下部分的内容，现在地下部分太空了，玩点太单调了
+
+*****
+
+####  king520kyo  
+##### 15382#       发表于 2023-8-15 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62040313&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-8-15 21:44</a>
+
+日本内阁今日公布了2023年4月到6月期间的季度GDP初步数据，其中超过50%的个人消费倾向于节约，但服装与娱乐 ...</blockquote>
+我知道了 是FF石榴<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">只靠6月末这么点时间就达成了这种伟业 不得不说一句牛逼
+
+
+*****
+
+####  Victorino  
+##### 15383#       发表于 2023-8-16 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61977640&amp;ptid=1997982" target="_blank">折中旗帜鲜明 发表于 2023-8-10 14:20</a>
+
+海布拉+塔邦达那么大一片区域只有2个深穴，一个利特村的不和外面联通，一个需要做好迷宫才能下去， ...</blockquote>
+这片区域的通解不是从忘却神殿魔人像头顶开始飞么
+
+
+*****
+
+####  牛奶笛  
+##### 15384#       发表于 2023-8-16 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62040703&amp;ptid=1997982" target="_blank">holomoon 发表于 2023-8-15 22:19</a>
+
+的确是某个动作需要读帐篷里的书
+
+但我印象中是那6个怪物大军扫荡支线里的根据地帐篷里教的 ...</blockquote>
+书是会随着讨伐大军移动的，都做完后会回到监视堡垒附近那个帐篷
+
+
+*****
+
+####  少年的深渊  
+##### 15385#       发表于 2023-8-16 09:40
+
+好急啊，王泪DLC到底什么时候才能端上来啊，不会真要到TGA或者直面会吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+求你了青沼，让我闻闻味先，就闻一下<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 15386#       发表于 2023-8-16 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62041656&amp;ptid=1997982" target="_blank">Victorino 发表于 2023-8-16 00:02</a>
+
+这片区域的通解不是从忘却神殿魔人像头顶开始飞么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这样啊，那个魔人像我爬了大半天才找到
+
+
+*****
+
+####  beer  
+##### 15387#       发表于 2023-8-16 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62043927&amp;ptid=1997982" target="_blank">折中旗帜鲜明 发表于 2023-8-16 10:00</a>
+
+这样啊，那个魔人像我爬了大半天才找到</blockquote>
+可以从胯下通天
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 15388#       发表于 2023-8-16 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62045216&amp;ptid=1997982" target="_blank">beer 发表于 2023-8-16 11:43</a>
+
+可以从胯下通天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">可能太黑了，我没找到通天位置，就一直爬......
+
+
+*****
+
+####  siro1987  
+##### 15389#       发表于 2023-8-16 15:17
+
+[https://www.bilibili.com/video/BV1t94y1k7GA](https://www.bilibili.com/video/BV1t94y1k7GA)
+
+空中楼阁! 未曾设想的装修<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  king520kyo  
+##### 15390#       发表于 2023-8-16 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62047733&amp;ptid=1997982" target="_blank">siro1987 发表于 2023-8-16 15:17</a>
+
+https://www.bilibili.com/video/BV1t94y1k7GA
+
+空中楼阁! 未曾设想的装修</blockquote>
+草 原来还能这么搞 长见识了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  少年的深渊  
+##### 15391#       发表于 2023-8-16 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62047733&amp;ptid=1997982" target="_blank">siro1987 发表于 2023-8-16 15:17</a>
+
+https://www.bilibili.com/video/BV1t94y1k7GA
+
+空中楼阁! 未曾设想的装修</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">还能这样啊
+
+
+*****
+
+####  吴怀在  
+##### 15392#       发表于 2023-8-17 06:46
+
+盖侬.塞尔达 和 依盖.塞尔达 的史诗级会面
+[https://www.bilibili.com/video/BV1M94y1k7rB/](https://www.bilibili.com/video/BV1M94y1k7rB/)
+
+
+*****
+
+####  牛奶笛  
+##### 15393#       发表于 2023-8-17 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62055502&amp;ptid=1997982" target="_blank">吴怀在 发表于 2023-8-17 06:46</a>
+
+盖侬.塞尔达 和 依盖.塞尔达 的史诗级会面
+
+https://www.bilibili.com/video/BV1M94y1k7rB/ ...</blockquote>
+管子上看过一个类似的，把盖侬塞带到空岛的时之神殿去了
+
+
+*****
+
+####  冷泉夜月  
+##### 15394#       发表于 2023-8-18 15:48
+
+才发现格鲁德小镇地下藏七英雄宝珠的那个上铺床上每次红月都有免费黄玉拿，还有按摩店往里走有免费黄油和油壶各2个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  佐倉綾音.  
+##### 15395#       发表于 2023-8-21 10:23
+
+突然想起一件事，卓拉空岛那个鱼空岛的任务，我知道怎么上去，也知道用王族鳞片射箭，但是我就是没想到要射水滴形状的浮石，我还一直射那个鱼嘴流出黄河瀑布……，后来好烦就百度了，按照野炊的逻辑，射箭是基本的，我就是没发现那个水滴，我现在陷入自我怀疑不知道怀疑自己智商还是耐心实在太差，不多探索一会儿就查攻略
+
+
+*****
+
+####  kuarwbwe  
+##### 15396#       发表于 2023-8-21 10:39
+
+ 本帖最后由 kuarwbwe 于 2023-8-21 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62104066&amp;ptid=1997982" target="_blank">佐倉綾音. 发表于 2023-8-21 10:23</a>
+
+突然想起一件事，卓拉空岛那个鱼空岛的任务，我知道怎么上去，也知道用王族鳞片射箭，但是我就是没想到要射 ...</blockquote>
+我觉得是中文翻译掉书袋的问题。我根本就没没看懂他那个望向身后身前，水滴形历历可见想说啥。最后是无意间发现石头可以组成水滴。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+据说英语和繁中翻译的要好一些。
+
+
+*****
+
+####  otakun  
+##### 15397#       发表于 2023-8-21 10:46
+
+射箭那里我一看文案就知道要找碎石图案，但还是找了很久
+已经开了宝箱雷达，一直在响但没找到很急<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（后来找到了
+
+*****
+
+####  冷泉夜月  
+##### 15398#       发表于 2023-8-21 10:49
+
+射箭那个说的挺清楚的呀，而且确实是站在鱼背上最中间最高的点，一转头就能看到，颇有柳暗花明又一村的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  佐倉綾音.  
+##### 15399#       发表于 2023-8-21 11:00
+
+<blockquote>kuarwbwe 发表于 2023-8-21 10:39
+我觉得是中文翻译掉书袋的问题。我根本就没没看懂他那个望向身后身前，水滴形历历可见想说啥。最后是无意 ...</blockquote>
+更丢人了，我就是故意选择繁中玩，但是我没注意那些文字，就直接跑去空岛了，我注意力一直是鱼嘴的黄水瀑布，我逻辑是以为是
+
+用水之果加箭或者喷水栓净化鱼空岛的淤泥，然后用箭射出王族鳞片去净化那那口黄水瀑布，发现不对
+
+然后以为是鱼身体有入口，里面是迷宫，从鱼的体内净化让黄水得到净化，然后又到处在找入口………
+
+主要是那个水滴浮石的套路在野炊很常见，让野炊玩过两次我感觉非常挫败感
+
+还有就是有个鸟瞰塔，特利族说找蘑菇吃的那个，我那时候也卡了，我直到找到那个魔物的房间了，都不知道用通天术上去塔里开门，我逻辑就是找特殊的蘑菇给鸟人饱腹……
+
+感觉自己打游戏逻辑还是很差
+
+
+*****
+
+####  雾时  
+##### 15400#       发表于 2023-8-21 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">。射穿水滴倒是一下子就理解了
+
+*****
+
+####  冷泉夜月  
+##### 15401#       发表于 2023-8-21 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62104577&amp;ptid=1997982" target="_blank">佐倉綾音. 发表于 2023-08-21 11:00:17</a>
+更丢人了，我就是故意选择繁中玩，但是我没注意那些文字，就直接跑去空岛了，我注意力一直是鱼嘴的黄水瀑 ...</blockquote>其实就是脑子里还没有把王泪的新能力融入到探索中去，这也很常见，这个地方去吭哧吭哧找蘑菇的玩家还挺多的，毕竟这是非常传统rpg的解题思路<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过一般来说如果真的是饿了要你找蘑菇，老任会把这几个关键字标上颜色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  shutup  
+##### 15402#       发表于 2023-8-22 01:37
+
+整个地图都探索差不多了才去城堡，结果理所当然的第五贤者和大师剑的任务在接的同时就完成了
+所以我现在也不知道第五贤者的任务线是啥样…
+这代搞成线性剧情有利有弊，像我这样先跑图的肯定很多，龙头岛直接硬闯，知道塞尔达真相还陪着他们演戏就感觉很怪
+
+
+*****
+
+####  黄泉川此方  
+##### 15403#       发表于 2023-8-22 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62114960&amp;ptid=1997982" target="_blank">shutup 发表于 2023-8-22 01:37</a>
+
+整个地图都探索差不多了才去城堡，结果理所当然的第五贤者和大师剑的任务在接的同时就完成了
+
+所以我现在也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你都能硬闯龙头岛了哪里线性了，不就是开放世界怎么打都行
+
+只能说剧情的引导是线性的
+
+
+*****
+
+####  ChengChung  
+##### 15404#       发表于 2023-8-22 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62114960&amp;ptid=1997982" target="_blank">shutup 发表于 2023-8-22 01:37</a>
+
+整个地图都探索差不多了才去城堡，结果理所当然的第五贤者和大师剑的任务在接的同时就完成了
+
+所以我现在也 ...</blockquote>
+任务线大概是你被假塞骗到城堡打了一架-&gt;和大家解释假塞-&gt;重启卡村遗迹探索-&gt;发现线索-&gt;到某个地方开机关（路上可以拿个防具套）-&gt;飞到天上-&gt;拿着天上的道具到地下解锁-&gt;完事
+
+
+*****
+
+####  冷泉夜月  
+##### 15405#       发表于 2023-8-22 16:47
+
+说到底魂之贤者那里得知的塞尔达的过去以及白龙的真相并不能说明现在各地出现的塞尔达以及招呼你去城堡的塞尔达到底是什么，以林克的角度来说肯定还是要去探一探究竟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  小姜不辣  
+##### 15406#       发表于 2023-8-22 17:50
+
+今天通雷神殿时好像遇到一个bug：解开一个机关后离开神殿去了其他地方，再回来时神殿地图上就不显示另外三个机关的位置了，传送、重启游戏都不行，幸好神殿难度不高，还是顺利找到另外三个机关了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
