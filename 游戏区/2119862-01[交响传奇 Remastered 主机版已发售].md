@@ -1154,3 +1154,78 @@ ngc版有60帧和更原生的特效效果但没有追加内容，要么直接选
 
 这重制失败也蛮伤的，全日本**小小厂商都在努力把老游戏老rpg搬到“现代”（ps4/ns/pc）平台上以推广给更广大玩家，隔壁星海正作全家桶都搬过来了，传说除了原样搬过来的tov，就这么个tos虫豸版……
 
+*****
+
+####  司马千晶  
+##### 114#       发表于 2023-8-21 17:45
+
+22号更新修正补丁，孩子死了来奶了是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 115#       发表于 2023-8-21 17:48
+
+se&amp;卡表：原汁原味炒冷饭真的也是需要点技术的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yanglian72  
+##### 116#       发表于 2023-8-21 17:53
+
+等修正补丁的测评
+
+
+*****
+
+####  qiyu1234  
+##### 117#         楼主| 发表于 2023-8-21 17:54
+
+ 本帖最后由 qiyu1234 于 2023-8-21 17:58 编辑 
+
+NS版8月22日更新升级补丁1.3
+[https://tosre-nowagain.tales-ch.jp/update/](https://tosre-nowagain.tales-ch.jp/update/)
+
+几个关键的劣化被修复，包括：
+
+菜单、SKIT时的背景黑屏
+
+战斗开始时没有开场演出（就是横向拉一遍镜头）
+
+这俩问题都是NS版有而其他移植版本没有的劣化，现在修复了，可以说刚发售时就是移植团队懒得对NS版优化所以一刀切导致的
+
+以及其他卡死和大小BUG问题修复
+
+遇敌切换战斗时的碎屏cut有没有回归 这个官方说明没有提到，得等更新以后看是否修复
+
+
+*****
+
+####  qiyu1234  
+##### 118#         楼主| 发表于 2023-8-22 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62110354&amp;ptid=2119862" target="_blank">qiyu1234 发表于 2023-8-21 17:54</a>
+
+NS版8月22日更新升级补丁1.3
+
+https://tosre-nowagain.tales-ch.jp/update/</blockquote>
+今日更新后日推玩家进行了测试
+
+除了官方说明提到的问题修复
+
+开场时的碎屏cut也回归
+
+柯蕾特和天使型敌人的战斗会发生拖慢（处理落）的现象也有明显改善
+
+一些场景也不会出现拖慢了
+
+可以说NS版现在处于一个可以正常游玩的状态了
+
+
+*****
+
+####  hikari0805  
+##### 119#       发表于 2023-8-22 12:31
+
+可游玩那么可以等打到骨折买
+
