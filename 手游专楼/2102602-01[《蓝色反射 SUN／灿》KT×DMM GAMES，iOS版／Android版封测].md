@@ -1113,3 +1113,52 @@ EXNOA，你值得信赖，笑死
 推土机模式 ...</blockquote>
 这么快，岸田还给画新立绘
 
+*****
+
+####  killbillwillil  
+##### 83#       发表于 2023-8-21 17:42
+
+半周年了，之前开发公告里写过半周年要实装日菜子，
+
+周三生放应该会说具体的实装方法了吧。
+
+按照之前爱央盒阳樱莉的模式，应该是活动+2三星+1UR（+α）
+
+但是今天刚追加泳装kirara活动，如果真是仨活动挤在一起好像也有点过头了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（不过quest排版上的确还有一个空挡能塞
+
+还有，生放把田边氏请过来是怎样，应该还不至于挤在这个堵车时间点上实装吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（虽然1井早就准备好了
+
+
+*****
+
+####  Deozlin  
+##### 84#       发表于 2023-8-23 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62110183&amp;ptid=2102602" target="_blank">killbillwillil 发表于 2023-8-21 17:42</a>
+
+半周年了，之前开发公告里写过半周年要实装日菜子，
+
+周三生放应该会说具体的实装方法了吧。
+
+按照之前爱央盒 ...</blockquote>
+说不定uta先偷跑呢
+
+
+*****
+
+####  killbillwillil  
+##### 85#       发表于 2023-8-23 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62130127&amp;ptid=2102602" target="_blank">Deozlin 发表于 2023-8-23 10:07</a>
+
+说不定uta先偷跑呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想了想，也没差，反正都是all in
+
+
+*****
+
+####  killbillwillil  
+##### 86#       发表于 2023-8-23 20:18
+
+坏女人要实装力！（升天
+
