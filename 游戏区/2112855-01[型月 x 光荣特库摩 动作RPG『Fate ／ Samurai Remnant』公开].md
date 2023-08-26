@@ -3681,3 +3681,610 @@ AD8DC722-1F24-475F-B6D8-4B3C7EF57B51.jpeg
 贞德本身没有黑化的可能性，这个不是假的那就是和fsf的仇海一样用黑泥强制恶堕的了（本子剧情 ...</blockquote>
 所以才说是在贞德未被封为圣女的时间节点，黑泥+无辜的怪物什么的肯定能凹成黑化
 
+*****
+
+####  rgauss  
+##### 351#       发表于 2023-8-19 09:54
+
+ 本帖最后由 rgauss 于 2023-8-19 09:57 编辑 
+
+<img src="https://p.sda1.dev/12/a826274aa5e0103187b72fd6bc81a991/BE8CDEE0A9D34B0566BB7BC334FADDD8.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/12/187932011bbb0c1a18d0fea8f59c6bb3/CMP_20230819095716230.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  恋叶梦境  
+##### 352#       发表于 2023-8-19 10:06
+
+闪竟然是尺子
+
+*****
+
+####  tsubaki  
+##### 353#       发表于 2023-8-19 10:07
+
+饭桶坐实
+
+*****
+
+####  kuarwbwe  
+##### 354#       发表于 2023-8-19 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082131&amp;ptid=2112855" target="_blank">rgauss 发表于 2023-8-19 09:54</a>
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+好家伙，呆毛不在但处处都有她的影子是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 355#       发表于 2023-8-19 10:15
+
+<img src="https://p.sda1.dev/12/817e2c26972f0941761898431a1d3129/2F74F4E0703749BE9048BC212F127426.jpg" referrerpolicy="no-referrer">
+这不是我们不列颠的宝具吗，下次用记得交版权费
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ParadiseMartyr  
+##### 356#       发表于 2023-8-19 10:17
+
+黑泥不是三战才搞的吗，三战的时候好像是ww2？这时间不对啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  恋叶梦境  
+##### 357#       发表于 2023-8-19 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082280&amp;ptid=2112855" target="_blank">ParadiseMartyr 发表于 2023-8-19 10:17</a>
+
+黑泥不是三战才搞的吗，三战的时候好像是ww2？这时间不对啊
+
+—— 来自 S1Fun ...</blockquote>
+这次圣杯战争应该和fsn的世界线不是一条（
+
+而且在召唤词里加东西也不是没先例，只不过这个贞德到底是怎么个情况肯定还是得看剧情
+
+*****
+
+####  kuarwbwe  
+##### 358#       发表于 2023-8-19 10:22
+
+不是说剧本是看光荣那边写吗？看那边编剧咋样吧。反正东出和樱井这俩都不稳。一个下限高点但可能犯病，一个型月此世全部之恶。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zakki  
+##### 359#       发表于 2023-8-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082322&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-8-19 10:22</a>
+不是说剧本是看光荣那边写吗？看那边编剧咋样吧。反正东出和樱井在剧本上肯定会有不小的话语权，但这俩都不 ...</blockquote>
+这个黑贞明显和fgo的没关系啊，性格完全不一样。这次剧本就是全权光荣写的，不是樱井东出参与的合写，顶多监修下设定
+
+
+*****
+
+####  kuarwbwe  
+##### 360#       发表于 2023-8-19 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082413&amp;ptid=2112855" target="_blank">zakki 发表于 2023-8-19 10:35</a>
+
+这个黑贞明显和fgo的没关系啊，性格完全不一样。这次剧本就是全权光荣写的，不是樱井东出参与的合写，顶 ...</blockquote>
+我就看了预告片，原来性格不一样啊。要是不一样那肯定是要有新设定或者直接学仇海的浇黑泥了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过就算剧本是全权交给光荣了。东出和樱井这俩除了肯定会有的监修设定，应该还是有一定的剧情走向干预权的。至少会提一些建议。
+
+
+*****
+
+####  gpx234mqx  
+##### 361#       发表于 2023-8-19 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082199&amp;ptid=2112855" target="_blank">恋叶梦境 发表于 2023-8-19 10:06</a>
+
+闪竟然是尺子</blockquote>
+人理君在想啥呢
+
+58C38AC1-AE89-4047-8C24-8BB597846FDF.jpeg
+(403.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-19 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202308/19/213652k9qngg2p23zgwvmb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋叶梦境  
+##### 362#       发表于 2023-8-19 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62088441&amp;ptid=2112855" target="_blank">gpx234mqx 发表于 2023-8-19 21:36</a>
+人理君在想啥呢</blockquote>
+先不说原创英灵，选已经有形象的尺子的话，fgo那边排除附身/马甲/鸽子系/异闻带/咕哒咕哒的从者只有老福，但是这位和手游主线强相关所以更不可能
+而当然直接原创也不是没理由（毕竟木曾义仲都来了）但似乎在ccc里有放过尺阶闪闪的卫星（by萌娘百科），因此顺道登场了吧，反正多一个旧从者也可以少写不少设定（
+
+
+*****
+
+####  犁地人  
+##### 363#       发表于 2023-8-20 00:55
+
+虽然系统一眼无双，画面也挺一般的，不过感觉剧情会有点意思，期待出来后的评价再买了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  貓血発動機  
+##### 364#       发表于 2023-8-20 01:06
+
+这次的saber到底是不是男的，看特典服装又有点像妹子
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  gpx234mqx  
+##### 365#       发表于 2023-8-20 09:20
+
+真熟悉的画面
+
+4CDF5D32-07E5-4582-B5C5-9CB63661FC19.png
+(444.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-20 09:20 上传
+
+<img src="https://img.saraba1st.com/forum/202308/20/092030w4ndnrz4iippdqfi.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 366#       发表于 2023-8-20 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62090446&amp;ptid=2112855" target="_blank">貓血発動機 发表于 2023-8-20 01:06</a>
+
+这次的saber到底是不是男的，看特典服装又有点像妹子
+
+—— 来自 S1Fun</blockquote>
+日本武尊的话是有女装的
+
+当阿福不行吗
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 367#       发表于 2023-8-20 09:23
+
+对fate没兴趣，单纯比较喜欢这种魔改江户题材，从这个角度来说这游戏值得入吗？
+
+—— 来自 HUAWEI WGRR-W19, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  rgauss  
+##### 368#       发表于 2023-8-20 09:29
+
+<img src="https://p.sda1.dev/12/45f0bff29903ac38ef1d9592d1493eb2/CMP_20230820092811685.jpg" referrerpolicy="no-referrer">
+saber应该是男的 虽然伊织他妹说了句saber小姐来着
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  黑上シグマ  
+##### 369#       发表于 2023-8-20 09:33
+
+成田被背刺，FSF里还在说闪当不了尺子呢
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  kuarwbwe  
+##### 370#       发表于 2023-8-20 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62091933&amp;ptid=2112855" target="_blank">半江瑟瑟半江红 发表于 2023-8-20 09:23</a>
+
+对fate没兴趣，单纯比较喜欢这种魔改江户题材，从这个角度来说这游戏值得入吗？
+
+—— 来自 HUAWEI WGRR-W1 ...</blockquote>
+对fate没兴趣个人一律建议观望，真特别有兴趣建议等评价，先看主播云或者等打折。
+
+批二次元皮的游戏就没几个不是低质量高售价的割韭菜游戏。更别说型月之前就没几部做的好的外包游戏。
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 371#       发表于 2023-8-20 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62092021&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-8-20 09:35</a>
+对fate没兴趣个人一律建议观望，真特别有兴趣建议等评价，先看主播云或者等打折。
+
+批二次元皮的游戏就没几 ...</blockquote>
+先入了，感觉女主很可爱
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kuarwbwe  
+##### 372#       发表于 2023-8-20 09:53
+
+ 本帖最后由 kuarwbwe 于 2023-8-20 09:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62092130&amp;ptid=2112855" target="_blank">半江瑟瑟半江红 发表于 2023-8-20 09:48</a>
+
+先入了，感觉女主很可爱
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+要这个理由也行吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sk86  
+##### 373#       发表于 2023-8-20 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62091999&amp;ptid=2112855" target="_blank">黑上シグマ 发表于 2023-8-20 09:33</a>
+
+成田被背刺，FSF里还在说闪当不了尺子呢
+
+----发送自 STAGE1 App for Android.</blockquote>
+fsf是让成田自由发挥的，正统还得看三田诚
+
+
+*****
+
+####  kuarwbwe  
+##### 374#       发表于 2023-8-20 15:35
+
+极游组拿到了提前试玩资格，出了个视频，感兴趣的可以看一下。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://b23.tv/V01HWCC](https://b23.tv/V01HWCC)
+
+*****
+
+####  zakki  
+##### 375#       发表于 2023-8-20 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082482&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-8-19 10:44</a>
+我就看了预告片，原来性格不一样啊。要是不一样那肯定是要有新设定或者直接学仇海的浇黑泥了。
+
+ ...</blockquote>
+比较高冷忧郁的样子，可以看看这个视频BV1Wu4y1Q7pR
+
+
+*****
+
+####  xunit  
+##### 376#       发表于 2023-8-20 15:58
+
+极游组这视频，能说出武内脸就已经没什么看的价值了
+
+
+*****
+
+####  rainsheep  
+##### 377#       发表于 2023-8-20 16:24
+
+极游这视频连东出樱井不是编剧好像都没搞明白
+
+
+*****
+
+####  kuarwbwe  
+##### 378#       发表于 2023-8-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62096017&amp;ptid=2112855" target="_blank">zakki 发表于 2023-8-20 15:42</a>
+
+比较高冷忧郁的样子，可以看看这个视频BV1Wu4y1Q7pR</blockquote>
+确实，应该不是一个人。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1024676511  
+##### 379#       发表于 2023-8-20 21:12
+
+极游这视频也就参考一下游戏系统
+
+看了几个视频感觉只要剧情不翻车就算成功吧游戏内容能不注水学点如龙就可以了
+
+
+*****
+
+####  雲夢淵澤  
+##### 380#       发表于 2023-8-20 21:29
+
+原作金毛：“我点的东西你没送过来呀，我昨天要吃两个小孩你给我送过来一个，我给了你一个差评，我今天又点了一个小孩我以为你能给我补一个小孩所以我没点两个然后你又没给我送过来。等于说每天我因为你我还得少吃东西，那我缺的这个营养这块的谁给我补啊？我早上本来应该吃两个小孩饱饱的。”
+
+最新作金毛：“喜欢小孩的年轻老板”
+
+估摸着蘑菇后悔死了，在原作里把金毛随随便便写成人间之屑，只能在后面的作品里疯狂给金毛找补
+
+*****
+
+####  硫黄  
+##### 381#       发表于 2023-8-20 21:32
+
+错误的，原作现在已经是FGO了
+
+
+*****
+
+####  犁地人  
+##### 382#       发表于 2023-8-20 22:00
+
+对fate了解不多，fsn里闪闪那么屑，不是泡黑泥泡的
+
+
+*****
+
+####  任天索尼子  
+##### 383#       发表于 2023-8-20 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62100204&amp;ptid=2112855" target="_blank">犁地人 发表于 2023-8-20 22:00</a>
+
+对fate了解不多，fsn里闪闪那么屑，不是泡黑泥泡的</blockquote>
+和黑泥有关系 但是不是主要原因
+
+
+*****
+
+####  GuDaZi  
+##### 384#       发表于 2023-8-20 22:25
+
+fha时期就已经带一群小孩去钓鱼了。正经剧情和搞笑剧情的区别嘛。毕竟还有一个幼闪闪
+
+*****
+
+####  雲夢淵澤  
+##### 385#       发表于 2023-8-20 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62100204&amp;ptid=2112855" target="_blank">犁地人 发表于 2023-8-20 22:00</a>
+
+对fate了解不多，fsn里闪闪那么屑，是不是泡黑泥泡的</blockquote>
+拿吸血鬼打比方
+
+守序邪恶：我肚子饿了所以找个人来吸血，不杀人
+
+中立邪恶：我肚子饿了所以我杀了个人吸他血
+
+混乱邪恶：我肚子不饿但是我杀人玩
+
+
+*****
+
+####  犁地人  
+##### 386#       发表于 2023-8-20 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62100513&amp;ptid=2112855" target="_blank">雲夢淵澤 发表于 2023-8-20 22:26</a>
+
+拿吸血鬼打比方
+
+守序邪恶：我肚子饿了所以找个人来吸血，不杀人
+
+中立邪恶：我肚子饿了所以我杀了个人吸他 ...</blockquote>
+也就是说，黑泥没有直接影响到他的人格，他本来就是屑？
+
+那当初为什么要把这么一个传奇人物写成屑呢<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雲夢淵澤  
+##### 387#       发表于 2023-8-20 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62100836&amp;ptid=2112855" target="_blank">犁地人 发表于 2023-8-20 23:01</a>
+
+也就是说，黑泥没有直接影响到他的人格，他本来就是屑？
+
+那当初为什么要把这么一个传奇人物写成屑呢[f:19 ...</blockquote>
+我不到啊，可能当初也就没想到这个IP会变成这个规模。
+
+对吧，写了部无双大蛇的关公战秦琼，那需要一个恶役，选个比较少见的传奇人物来背这个黑锅得了。
+
+
+*****
+
+####  恋叶梦境  
+##### 388#       发表于 2023-8-20 23:18
+
+闪的形象光是经蘑菇手的fsn，fha，feccc（+extella）和fgo七章，打了不少补丁（
+
+
+*****
+
+####  king520kyo  
+##### 389#       发表于 2023-8-20 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62101019&amp;ptid=2112855" target="_blank">恋叶梦境 发表于 2023-8-20 23:18</a>
+闪的形象光是经蘑菇手的fsn，fha，feccc（+extella）和fgo七章，打了不少补丁（</blockquote>
+CCC开始确定了洗白路线 谐星化+认可了就彻底容忍的路线
+永远记得ccc里的AUO cast off<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过ccc还留这点以前的味 不爽还是会随时杀人 现在只剩嘴臭了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  modedd  
+##### 390#       发表于 2023-8-21 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62092130&amp;ptid=2112855" target="_blank">半江瑟瑟半江红 发表于 2023-08-20 09:48:11</a>
+先入了，感觉女主很可爱
+
+—— 来自 HUAWEI NOP-AN00, Android 12上的  v2.5.4</blockquote>saber大概率是男的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ParadiseMartyr  
+##### 391#       发表于 2023-8-21 01:26
+
+反正其他那乱七八糟的闪闪你说和fsn的闪闪是同一人我是不信的。
+万能好用的平行世界<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Muteki_Link  
+##### 392#       发表于 2023-8-21 11:54
+
+ 本帖最后由 Muteki_Link 于 2023-8-21 12:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62099878&amp;ptid=2112855" target="_blank">雲夢淵澤 发表于 2023-8-20 21:29</a>
+
+原作金毛：“我点的东西你没送过来呀，我昨天要吃两个小孩你给我送过来一个，我给了你一个差评，我今天又点 ...</blockquote>
+这ip一直这毛病，一个作品主角落地时编剧情一时爽，把黑锅全甩给原作的对手，但随着型月宇宙扩大不同阵营角色越来越齐全，等那个对手也不得不落地后就疯狂打补丁，要么是另一个侧面要么是另一个宇宙。这毛病哪怕到现在都没改。此外还有老婆落地时把玩家当老公rp，结果后面真老公落地了玩家只能含泪祝福<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+PS: 《刚落地的金闪闪在迦勒底的走廊撞见志度内伊莉雅be like （秀才ver.）》.mp4 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死宅真恶心  
+##### 393#       发表于 2023-8-21 19:02
+
+今天居然有直播活动
+
+
+*****
+
+####  不垃圾屌丝  
+##### 394#       发表于 2023-8-21 19:10
+
+这个翻译不错，比阿B那些强多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  duraa  
+##### 395#       发表于 2023-8-21 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下周还有
+
+
+*****
+
+####  貓血発動機  
+##### 396#       发表于 2023-8-23 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62091915&amp;ptid=2112855" target="_blank">gpx234mqx 发表于 2023-8-20 09:21</a>
+日本武尊的话是有女装的
+
+当阿福不行吗</blockquote>
+如果是女的就可以当假小子涩涩，如果是男的也可以当阿福涩涩，都可以
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  被子十三  
+##### 397#       发表于 2023-8-23 04:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62100513&amp;ptid=2112855" target="_blank">雲夢淵澤 发表于 2023-8-20 22:26</a>
+拿吸血鬼打比方
+
+守序邪恶：我肚子饿了所以找个人来吸血，不杀人
+
+中立邪恶：我肚子饿了所以我杀了个人吸他 ...</blockquote>
+然而闪闪是混沌善<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们日本漫威就是这样的
+
+— from OnePlus KB2005, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  Formidable  
+##### 398#       发表于 2023-8-23 10:14
+
+闪闪hf不就干过出手消灭黑樱（然后翻车），这种可以从“给这可怜的女人解脱”+“看不惯人类被那样杀害”等多方面解读的事吗，这人设不是落地时已经有了吗，总不会fgo看多了本篇剧情都忘了吧
+
+*****
+
+####  洛克萨斯  
+##### 399#       发表于 2023-8-23 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一开始蘑菇还不是金闪闪孝子啊，fz之后才是的，放今天他就不会写被高中男生剁肘子高中女生嘎嘣脆的剧情了
+
+
+*****
+
+####  ナルバレック  
+##### 400#       发表于 2023-8-23 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62130331&amp;ptid=2112855" target="_blank">洛克萨斯 发表于 2023-8-23 10:20</a>
+
+一开始蘑菇还不是金闪闪孝子啊，fz之后才是的，放今天他就不会写被高中男生剁肘子高中女生嘎嘣脆的 ...</blockquote>
+闪闪几个大黑点可都是蘑菇搞得，六年前的FEXL直接被卡尔大帝抓去当移动圣都的电池了，一救出来就跑路
+
+*****
+
+####  洛克萨斯  
+##### 401#       发表于 2023-8-23 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62130420&amp;ptid=2112855" target="_blank">ナルバレック 发表于 2023-8-23 10:27</a>
+
+闪闪几个大黑点可都是蘑菇搞得，六年前的FEXL直接被卡尔大帝抓去当移动圣都的电池了，一救出来就跑路 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面的黑点都是谐化了，远不如fsn时期的塑造，1.0版本的金皮卡突出一个low
+
+*****
+
+####  lingtian2876  
+##### 402#       发表于 2023-8-23 10:31
+
+ 本帖最后由 lingtian2876 于 2023-8-23 10:32 编辑 
+
+金闪闪的粉丝中女粉浓度非常高吧
+
+
+*****
+
+####  ナルバレック  
+##### 403#       发表于 2023-8-23 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62130480&amp;ptid=2112855" target="_blank">lingtian2876 发表于 2023-8-23 10:31</a>
+
+金闪闪的粉丝中女粉浓度非常高吧</blockquote>
+我印象里植田和川澄喜欢闪闪更胜士郎，下屋不喜欢闪闪
+
+
+*****
+
+####  水边井  
+##### 404#       发表于 2023-8-23 21:47
+
+看了下实机，有点拉啊，作为今年的游戏连审判之逝都比不上，砍小怪跟砍木桩一样，无双组你行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sandro  
+##### 405#       发表于 2023-8-23 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62139101&amp;ptid=2112855" target="_blank">水边井 发表于 2023-8-23 21:47</a>
+看了下实机，有点拉啊，作为今年的游戏连审判之逝都比不上，砍小怪跟砍木桩一样，无双组你行不行啊 ...</blockquote>
+感觉不如灾鹅启示录
+
