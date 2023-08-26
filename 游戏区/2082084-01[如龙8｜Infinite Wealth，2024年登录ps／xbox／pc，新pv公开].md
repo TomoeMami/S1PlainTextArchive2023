@@ -1,0 +1,1782 @@
+
+*****
+
+####  医生狼多  
+##### 1#       楼主       发表于 2022-7-19 20:24
+
+ 本帖最后由 医生狼多 于 2023-6-12 08:06 编辑 
+
+《如龙8》将于2024年发售！登陆PS5、PS4、XSX|S、Xbox One和PC平台。http://t.cn/A6SmZfsQ
+
+《如龙》工作室新作发布会，将于北京时间 9月14日18点 举办，届时将有官方中文同传。 ​​​
+
+世嘉宣布将于北京世嘉9月8日晚上19：00举办最新一期“如龙工作室TV”节目，如龙工作室代表横山昌义将带来一段简短的预告片。虽然官方并未明说，但结合TGS 2022即将开幕，外加7月对外公开的《如龙8》（暂名）开发片段，很有可能会在节目中看到《如龙》新作的首个正式预告。 ​​​
+
+【《如龙8》画面首次曝光 春日一番造型更换】日本综合格斗名将 朝仓未来 近日到访了世嘉总部并确认自己将在《如龙8》中登场，当横山昌义带着他参观如龙工作室办公区时，镜头拍摄下了正在开发中的《如龙8》画面。http://t.cn/A6aTWAef ​​​
+
+*****
+
+####  医生狼多  
+##### 2#         楼主| 发表于 2022-7-19 20:49
+
+<img src="https://p.sda1.dev/6/0234df01de3e5ccb40ae6abff17d01d8/CMP_20220719204641900.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Amber☆  
+##### 3#       发表于 2022-7-19 20:58
+
+惊了
+
+*****
+
+####  D-JoeII  
+##### 4#       发表于 2022-7-19 20:59
+
+還是延續7代的主要角色嗎？
+
+*****
+
+####  lokken  
+##### 5#       发表于 2022-7-19 21:02
+
+春日开始不像费莱尼了
+
+*****
+
+####  我被骗了五块钱  
+##### 6#       发表于 2022-7-19 21:23
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Mephisto  
+##### 7#       发表于 2022-7-19 21:26
+
+春日稍微帅一点了
+
+*****
+
+####  大暴死  
+##### 8#       发表于 2022-7-19 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">7这剧情结束后还能怎么继续啊，唐突一行人离开横滨换个地方接着搞事情？可控角色估计会换掉一些吧，比如地产姐，阿韩，小赵等被平替的概率还是不小的
+
+—— 来自 Xiaomi M2102K1C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zblack  
+##### 9#       发表于 2022-7-19 21:27
+
+看春日好落魄 是不是又出什么幺蛾子了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四级过了  
+##### 10#       发表于 2022-7-19 21:36
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  你好s1  
+##### 11#       发表于 2022-7-19 21:41
+
+回合制还可以的，主要是原来的arpg战斗系统也很烂，回合制因为玩不出啥花，反倒是中规中矩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  thecatnie  
+##### 12#       发表于 2022-7-19 21:47
+
+既然东城会变成保安公司了，大吾他们是不是可以光明正大的跑到台面上浪了
+
+*****
+
+####  ネコカイザー  
+##### 13#       发表于 2022-7-19 21:49
+
+新闻里说了，春日发型变单马尾了
+
+*****
+
+####  马台街48  
+##### 14#       发表于 2022-7-19 22:00
+
+ 本帖最后由 马台街48 于 2022-7-19 22:18 编辑 
+
+完了，我跟春日撞发型了。另外既然他当主角就只能延续7的系统，不然这货打架太菜。可以以后出老系统+龙司当主角的分支系列
+
+*****
+
+####  センコウ  
+##### 15#       发表于 2022-7-19 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56713471&amp;ptid=2082084" target="_blank">zblack 发表于 2022-7-19 21:27</a>
+
+看春日好落魄 是不是又出什么幺蛾子了</blockquote>
+原本不就很落魄，你开公司赚的钱剧情里又不认，主线甚至还要被300万卡一次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  peipei6955  
+##### 16#       发表于 2022-7-19 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56713893&amp;ptid=2082084" target="_blank">马台街48 发表于 2022-7-19 22:00</a>
+
+完了，我跟春日换发型了。另外既然他当主角就只能延续7的系统，不然这货打架太菜。可以以后出老系统+龙司当 ...</blockquote>
+要不，这回尝试一下小队即时战略<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  慕容断月  
+##### 17#       发表于 2022-7-19 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56713417&amp;ptid=2082084" target="_blank">我被骗了五块钱 发表于 2022-7-19 21:23</a>
+
+能不能别搞回合制了···</blockquote>
+那你是在做梦了，之后少说三四代都可能是回合制JRPG
+
+*****
+
+####  Kojimaru  
+##### 18#       发表于 2022-7-19 22:11
+
+不加入保安公司就是为了8代
+
+*****
+
+####  adw667  
+##### 19#       发表于 2022-7-19 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还上PS4吗
+
+*****
+
+####  蔷薇下  
+##### 20#       发表于 2022-7-19 22:22
+
+说好的龙司冒险谭呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 21#       发表于 2022-7-19 22:28
+
+想起来7还没打完…
+
+*****
+
+####  byisme001  
+##### 22#       发表于 2022-7-19 22:41
+
+<blockquote>蔷薇下 发表于 2022-7-19 22:22
+说好的龙司冒险谭呢</blockquote>
+啊?黄龙放浪记都出了两年多了
+
+*****
+
+####  张路  
+##### 23#       发表于 2022-7-19 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56714114&amp;ptid=2082084" target="_blank">adw667 发表于 2022-7-19 22:16</a>
+还上PS4吗</blockquote>
+如龙10时候再问
+
+*****
+
+####  杰西坦尼斯  
+##### 24#       发表于 2022-7-19 22:53
+
+春日一番剧情挺完整了的吧，有啥切入点
+
+*****
+
+####  yone0000  
+##### 25#       发表于 2022-7-19 22:58
+
+这些人的剧情还能继续出吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无攻不受鹿  
+##### 26#       发表于 2022-7-19 22:59
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Demi.Albertini  
+##### 27#       发表于 2022-7-19 22:59
+
+RPG好，多人戏怎么都比单人戏好
+
+*****
+
+####  山岚夜雨  
+##### 28#       发表于 2022-7-20 04:47
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  plok201  
+##### 29#       发表于 2022-7-20 05:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">续剧情根本无所谓，背锅侠1代该退场2代已经把能写的写完了的，还不是给你续到6
+
+说起来突然有点慌，别来个少主一直藏起来的女儿什么的吧....<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你又开始了？  
+##### 30#       发表于 2022-7-20 06:31
+
+小游戏整用心点行不
+7代公司经营可太没劲了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kazepollar  
+##### 31#       发表于 2022-7-20 07:21
+
+想玩即时来玩审判系列呀，动作系统感觉比如龙要好
+
+*****
+
+####  jy56789  
+##### 32#       发表于 2022-7-20 09:00
+
+怎么还有难波啊，纱荣子不会没了吧
+
+*****
+
+####  flyzzhj  
+##### 33#       发表于 2022-7-20 09:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">纱荣子没了的话，好歹来个颜值能打的新妹子吧
+
+*****
+
+####  真岛建设泥头车  
+##### 34#       发表于 2022-7-20 09:13
+
+朝仓未来的节目：我要参演如龙8了还拍到了首次公开的游戏画面！（横山：这边电脑上是如龙8哦/ 摄制组：这是可以拍的吗？/ 横山：可以喔ww）
+
+龙组自己的油管节目（龙TV）：厨艺大比拼！还原0里柏木吃的冷面！横山和职业选手搓麻将！
+
+*****
+
+####  梦飘零  
+##### 35#       发表于 2022-7-20 09:17
+
+<blockquote>Kazepollar 发表于 2022-7-20 07:21
+想玩即时来玩审判系列呀，动作系统感觉比如龙要好</blockquote>
+审判不一定会有新作😂
+
+*****
+
+####  citan8808  
+##### 36#       发表于 2022-7-20 09:18
+
+快公布吧，上代白金了，还蛮喜欢的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  flyzzhj  
+##### 37#       发表于 2022-7-20 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56717565&amp;ptid=2082084" target="_blank">梦飘零 发表于 2022-7-20 09:17</a>
+
+审判不一定会有新作😂</blockquote>
+之前龙组还是怂了，所以有木村的审判续作可能还是会有的
+
+*****
+
+####  梦飘零  
+##### 38#       发表于 2022-7-20 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56717819&amp;ptid=2082084" target="_blank">flyzzhj 发表于 2022-7-20 09:37</a>
+
+之前龙组还是怂了，所以有木村的审判续作可能还是会有的</blockquote>
+那还挺好，说实话这种日剧风格的游戏，也就如龙系列独一份了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  丹德里恩  
+##### 39#       发表于 2022-7-20 10:28
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  蒜花儿熊宝宝  
+##### 40#       发表于 2022-7-20 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56713996&amp;ptid=2082084" target="_blank">慕容断月 发表于 2022-7-19 22:08</a>
+
+那你是在做梦了，之后少说三四代都可能是回合制JRPG</blockquote>
+回合制好玩的一逼呀！
+
+如龙8还是回合制的话，第一时间预购！
+
+*****
+
+####  慕容断月  
+##### 41#       发表于 2022-7-20 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56718584&amp;ptid=2082084" target="_blank">蒜花儿熊宝宝 发表于 2022-7-20 10:33</a>
+
+回合制好玩的一逼呀！
+
+如龙8还是回合制的话，第一时间预购！</blockquote>
+赞同，至少比以前那僵硬得要死的战斗好玩
+
+*****
+
+####  manamj  
+##### 42#       发表于 2022-7-20 11:20
+
+换个主舞台吧 别横滨了 审判已经二进宫了
+
+*****
+
+####  水边井  
+##### 43#       发表于 2022-7-20 11:23
+
+如龙7的队友小剧场真的太有意思了，希望摩多摩多
+
+—— 来自 HUAWEI NOH-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hummysiren  
+##### 44#       发表于 2022-7-20 11:27
+
+7云了好几次xgp没动力玩了，8要是还是回合制就首发<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HJJSM  
+##### 45#       发表于 2022-7-20 12:26
+
+这不还是一个味儿么
+
+*****
+
+####  lokken  
+##### 46#       发表于 2022-7-20 13:23
+
+大的剧情路线已经像大家说的，没什么好期待的，不过如龙的支线经常出彩，当搞笑片看也不错
+
+*****
+
+####  卡博雷z  
+##### 47#       发表于 2022-7-20 13:27
+
+不知道会不会换队友，我还是很喜欢足立这个角色的
+
+*****
+
+####  415452356  
+##### 48#       发表于 2022-7-20 13:30
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Booorunestud  
+##### 49#       发表于 2022-7-20 16:11
+
+煎饼侠剧情不计入主线，虽然在审判里有一番制饼的招牌，但也大概就是个小卖铺老板设定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 50#       发表于 2022-7-20 16:28
+
+战斗能不能像轨迹那样可以自由走动
+
+*****
+
+####  bk_201  
+##### 51#       发表于 2022-7-20 16:41
+
+7的回合制战斗确实有很多问题，明明很多对站位有要求的技能却不能控制人物自由移动，全是随机xjb跑<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+希望8能改改
+
+*****
+
+####  野生的那个啥  
+##### 52#       发表于 2022-7-20 16:44
+
+如龙7的回合制第一次品因为新鲜体验还可以，但是8代如果再来一次估计得好好设计一下
+
+*****
+
+####  415452356  
+##### 53#       发表于 2022-7-20 16:46
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  persona  
+##### 54#       发表于 2022-7-20 18:39
+
+杀龙子眼神呆滞好好改一下，然后把纱荣子妹妹和韩国姐加进来就可以了。
+
+*****
+
+####  烽火连城  
+##### 55#       发表于 2022-7-20 19:14
+
+妹子建模失败是七代最失败的地方，第二失败是没有俱乐部了，高清时代 好想要更多女公关暖暖的俱乐部
+
+*****
+
+####  cherry__  
+##### 56#       发表于 2022-7-20 19:20
+
+我就喜欢7的回合制，以前的如龙没一部玩的下去的
+
+要是8还是回合制的话肯定买
+
+*****
+
+####  我王  
+##### 57#       发表于 2022-7-20 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回合制没问题，数值麻烦做好一点，7代后期刮痧真的很无聊
+
+*****
+
+####  cablecableca  
+##### 58#       发表于 2022-7-20 20:01
+
+就不能来个锦山传吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  q48425709  
+##### 59#       发表于 2022-7-20 20:49
+
+觉得如龙系列太憋屈了，别人动不动拿刀杀人，拿枪，主角还那样。。。总感觉就不是混极道的，真要那样，主角不知道都死多少次了
+
+*****
+
+####  石中剑二  
+##### 60#       发表于 2022-7-21 04:07
+
+玩如龙7不就是冲着回合制才玩的吗，当然8也一样
+
+
+*****
+
+####  巴特爱素子  
+##### 61#       发表于 2022-7-21 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56713981&amp;ptid=2082084" target="_blank">peipei6955 发表于 2022-7-19 22:07</a>
+
+要不，这回尝试一下小队即时战略</blockquote>
+支持
+
+*****
+
+####  新世界的派蒙  
+##### 62#       发表于 2022-7-21 10:47
+
+喜欢回合制的基本也玩过DQ，如龙7这致敬DQ的回合制做得有多凑合不用多说，但是审判用老系统发展得也就那样吧，DLC更是疯狂吃老本，龙组渐渐已经没活了，大火也不要要求太高
+
+*****
+
+####  wwjwwgzhp  
+##### 63#       发表于 2022-7-21 11:21
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  医生狼多  
+##### 64#         楼主| 发表于 2022-9-1 15:30
+
+据外媒报道，如龙工作室将于北京时间9月8日19点举行一场小型节目活动，届时或将会有《如龙8》的抢先预告片。
+
+*****
+
+####  医生狼多  
+##### 65#         楼主| 发表于 2022-9-1 16:08
+
+应该要来了
+
+世嘉宣布将于北京世嘉9月8日晚上19：00举办最新一期“如龙工作室TV”节目，如龙工作室代表横山昌义将带来一段简短的预告片。虽然官方并未明说，但结合TGS 2022即将开幕，外加7月对外公开的《如龙8》（暂名）开发片段，很有可能会在节目中看到《如龙》新作的首个正式预告。 ​​​
+
+*****
+
+####  Piano-Forest  
+##### 66#       发表于 2022-9-1 16:16
+
+ 本帖最后由 Piano-Forest 于 2022-9-1 16:18 编辑 
+
+昨晚公开：
+
+【龙スタTV 12.5】 配信のお知らせ📢
+
+今回は『ちょこっと予告编』と题しまして、横山代表とプロダクトマネージャー山藤の二人によるショートバージョンでお届け！
+
+恒例のファンアート＋コメント绍介も行います。
+
+お楽しみに✨
+
+[https://youtu.be/jMIrQbJ5K2E](https://youtu.be/jMIrQbJ5K2E)
+<img src="https://p.sda1.dev/7/ae87d3ca91fc5c083cdb69437f0241da/20220901_161523.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 67#       发表于 2022-9-1 16:23
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  88is88  
+##### 68#       发表于 2022-9-1 16:33
+
+不玩，职业系统太垃圾一点都感受不到乐趣，除非有木村如龙3不然估计如龙应该不会再玩了
+
+*****
+
+####  新世界的派蒙  
+##### 69#       发表于 2022-9-1 16:38
+
+终于要来了，这种....又期待又不是那么急迫的心情，间隔了这么久制作组好像没有明确说8代是继续回合制还是干啥吧，我能理解为战斗系统还是会大改么
+
+*****
+
+####  医生狼多  
+##### 70#         楼主| 发表于 2022-9-1 16:39
+
+ 本帖最后由 医生狼多 于 2022-9-1 16:48 编辑 
+
+实时交给审判，8继续回合制，要变估计是再改成其他变种回合制了
+
+*****
+
+####  415452356  
+##### 71#       发表于 2022-9-1 16:47
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  byisme001  
+##### 72#       发表于 2022-9-1 16:55
+
+就像黎轨那样回合制能走位就行了，都设计了车祸却没法主动触发太草了
+
+*****
+
+####  白猫MKII  
+##### 73#       发表于 2022-9-1 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57301020&amp;ptid=2082084" target="_blank">415452356 发表于 2022-9-1 16:23</a>
+放个片差不多了，还是回合制的话希望这次至少后台职业或者队友也能得经验或者有技能书直接喂，下水道练级 ...</blockquote>
+你在说什么，7里没上场的队友就有经验，而且也有氪金和不氪金提升职业等级的道具，要么花钱要么花时间罢了
+
+*****
+
+####  Demi.Albertini  
+##### 74#       发表于 2022-9-1 18:36
+
+想知道又会有什么明星参加…………
+
+*****
+
+####  The_Fool_  
+##### 75#       发表于 2022-9-1 19:08
+
+7的纱荣子已经算是不错的了，支线那几个妹子才是一个赛一个歪瓜裂枣，尤其是绑定房地产小游戏的绘梨，我看到她是避之唯恐不及
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一个陆仁贾  
+##### 76#       发表于 2022-9-1 19:48
+
+我记得7里面补习课的小姐姐声音还挺色的，脸已经记不起来了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Demi.Albertini  
+##### 77#       发表于 2022-9-1 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57303480&amp;ptid=2082084" target="_blank">The_Fool_ 发表于 2022-9-1 19:08</a>
+
+7的纱荣子已经算是不错的了，支线那几个妹子才是一个赛一个歪瓜裂枣，尤其是绑定房地产小游戏的绘梨，我看 ...</blockquote>
+那几个都是甄选活动里选出来的，保不齐都跟名越睡过
+
+*****
+
+####  talesof213  
+##### 78#       发表于 2022-9-1 20:16
+
+传统动作的正传我觉得都不如PSP上两部黑豹来得爽，所以7改回合制挺好，动作就继续交给审判系列得了。
+
+*****
+
+####  医生狼多  
+##### 79#         楼主| 发表于 2022-9-6 18:25
+
+<img src="https://p.sda1.dev/7/15c7af18bed43e2c68ad99b4119d4741/CMP_20220906175126418.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 80#       发表于 2022-9-6 18:38
+
+玻尿酸走后还能不能有明星脸，不会8代除了难波就只有朝仓未来吧，山田孝之到底能不能来
+
+*****
+
+####  黑上シグマ  
+##### 81#       发表于 2022-9-6 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57303480&amp;ptid=2082084" target="_blank">The_Fool_ 发表于 2022-9-1 19:08</a>
+
+7的纱荣子已经算是不错的了，支线那几个妹子才是一个赛一个歪瓜裂枣，尤其是绑定房地产小游戏的绘梨，我看 ...</blockquote>
+绘梨真人挺好看的，就是到了游戏里那建模…………
+
+*****
+
+####  Piano-Forest  
+##### 82#       发表于 2022-9-8 19:03
+
+ 本帖最后由 Piano-Forest 于 2022-9-8 19:06 编辑 
+
+9月14日晚6点公开
+
+【RGG SUMMIT 2022 ／ 龍が如くスタジオ新作発表会】 配信決定
+
+9月14日(水) 19:00～ライブ配信予定
+
+▼ライブ配信はこちらから！
+[https://youtu.be/pu-cdDE1kOE](https://youtu.be/pu-cdDE1kOE)
+
+<img src="https://p.sda1.dev/7/eb8ef75c35037aa0c7300357108cb195/20220908_190529.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cm_kahn  
+##### 83#       发表于 2022-9-8 19:21
+
+能不能出个维新中文。。。。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  医生狼多  
+##### 84#         楼主| 发表于 2022-9-8 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57396279&amp;ptid=2082084" target="_blank">cm_kahn 发表于 2022-9-8 19:21</a>
+能不能出个维新中文。。。。
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+有可能，如龙维新极
+
+*****
+
+####  415452356  
+##### 85#       发表于 2022-9-8 19:33
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  ff2077  
+##### 86#       发表于 2022-9-8 20:30
+
+其实鲁迅哥是真舅舅吧，就是上次溜大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  199april  
+##### 87#       发表于 2022-9-8 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">7里面女角色也就常服纱荣子能看，换套衣服都脸崩
+
+龙组是不是个个都是基佬，男角和女角完全不是一个水准啊
+
+*****
+
+####  尤伽  
+##### 88#       发表于 2022-9-8 20:58
+
+纱荣子的建模总是瞪眼睛就很难受
+
+*****
+
+####  uncledepp  
+##### 89#       发表于 2022-9-9 20:43
+
+胜熙也很漂亮啊来自: iPhone客户端
+
+*****
+
+####  黑修士  
+##### 90#       发表于 2022-9-9 23:35
+
+专门加个鸡（极），A9那个舅舅鲁迅挺会玩梗啊新作发布会搞不好真不止一款如龙
+
+<img src="https://img.saraba1st.com/forum/202209/09/233440lw4nmdxsg22zms8g.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (98.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-9 23:34 上传
+
+
+*****
+
+####  黑修士  
+##### 91#       发表于 2022-9-9 23:50
+
+从另一张爆料图片的线索猜测，《审判之眼》和《审判之逝》两作可能要上steam了
+
+不知道会不会在发布会上同时公开
+
+*****
+
+####  02031f84  
+##### 92#       发表于 2022-9-9 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57418781&amp;ptid=2082084" target="_blank">黑修士 发表于 2022-9-9 23:50</a>
+
+从另一张爆料图片的线索猜测，《审判之眼》和《审判之逝》两作可能要上steam了
+
+不知道会不会在发布会上同时 ...</blockquote>
+这不可能吧
+
+*****
+
+####  黑修士  
+##### 93#       发表于 2022-9-10 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57418868&amp;ptid=2082084" target="_blank">02031f84 发表于 2022-9-9 23:55</a>
+
+这不可能吧</blockquote>
+也难说，说不定杰尼斯那边想开了呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 94#       发表于 2022-9-10 00:36
+
+这图会是如龙维新-极吗？
+
+*****
+
+####  415452356  
+##### 95#       发表于 2022-9-10 01:41
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  rhotov  
+##### 96#       发表于 2022-9-10 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57418546&amp;ptid=2082084" target="_blank">黑修士 发表于 2022-9-9 23:35</a>
+
+专门加个鸡（极），A9那个舅舅鲁迅挺会玩梗啊新作发布会搞不好真不止一款如龙</blockquote>
+这明示是维新了吧
+
+*****
+
+####  HellMaster  
+##### 97#       发表于 2022-9-10 17:28
+
+维新那么完美的一作，要极有啥用？
+
+*****
+
+####  大秦男女  
+##### 98#       发表于 2022-9-10 17:40
+
+不要回合制，求求你辣
+
+*****
+
+####  黑修士  
+##### 99#       发表于 2022-9-13 21:02
+
+无意间刷到这段舞，真上了steam，不知道还会玩出什么花来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1r44y1Y79B?t=523](https://www.bilibili.com/video/BV1r44y1Y79B?t=523)
+
+*****
+
+####  医生狼多  
+##### 100#         楼主| 发表于 2022-9-14 09:23
+
+极已经确定了，今晚还有8<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Philpho  
+##### 101#       发表于 2022-9-14 18:02
+
+开了
+
+*****
+
+####  zzp05402  
+##### 102#       发表于 2022-9-14 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个声音是怎么回事
+
+*****
+
+####  crosz85  
+##### 103#       发表于 2022-9-14 18:16
+
+堂岛三巨头老了好多
+
+*****
+
+####  xvi黑翼公  
+##### 104#       发表于 2022-9-14 18:18
+
+还是喜欢高桥克典的武市
+
+*****
+
+####  センコウ  
+##### 105#       发表于 2022-9-14 18:32
+
+<img src="https://img.saraba1st.com/forum/202209/14/183232bc3zq31yj2lkookq.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220914193254.png</strong> (119.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 18:32 上传
+
+*****
+
+####  Demi.Albertini  
+##### 106#       发表于 2022-9-14 18:32
+
+2024年……遥遥无期啊
+
+*****
+
+####  xvi黑翼公  
+##### 107#       发表于 2022-9-14 18:32
+
+桐生这头发吓人，一下子老了这么多
+
+*****
+
+####  a2276382  
+##### 108#       发表于 2022-9-14 18:32
+
+又把桐生拉出来 让人好好养老吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  那由  
+##### 109#       发表于 2022-9-14 18:34
+
+韩俊基<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星海坊主  
+##### 110#       发表于 2022-9-14 18:34
+
+2024的ps4版，好（虽然肯定会被喷出翔）
+
+*****
+
+####  Demi.Albertini  
+##### 111#       发表于 2022-9-14 18:34
+
+双主人公啊…………
+
+*****
+
+####  starrynight  
+##### 112#       发表于 2022-9-14 18:34
+
+饶过桐生ちゃん吧，50好几了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（设定是68年的，7的时间点都已经过50了）
+
+*****
+
+####  thecatnie  
+##### 113#       发表于 2022-9-14 18:34
+
+桐生这是去星辰当牛郎了？
+
+*****
+
+####  Booorunestud  
+##### 114#       发表于 2022-9-14 18:35
+
+番长也老了啊
+<img src="https://p.sda1.dev/7/0833ecdc69a6d2759d584570a498b3f1/-4a0106e068aaf8a0.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/7a4a1feadabcc3985c5d03dac779b95e/2a36913421071f78.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 115#       发表于 2022-9-14 18:35
+
+<img src="https://p.sda1.dev/7/82d62ceec1a0d5ffa1db25b5bab4d5d2/20220914_183520.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/a84167a530b62563caac3b69059b17b5/20220914_183521.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/1cd2051b7205ae66e9c266d4bb14a6e7/20220914_183442.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 116#       发表于 2022-9-14 18:35
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  a2276382  
+##### 117#       发表于 2022-9-14 18:36
+
+又是rpg了么
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  无动于衷  
+##### 118#       发表于 2022-9-14 18:37
+
+桐生的户口恢复了吗 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 119#       发表于 2022-9-14 18:38
+
+24年了 还带one和ps4<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sword混沌  
+##### 120#       发表于 2022-9-14 18:39
+
+不看好，搞双主人公…还是在如龙7差不多已经把春日一番人设立起来的前提下…这是想复刻逆转V吗
+
+—— 来自 HUAWEI JEF-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  demon6666  
+##### 121#       发表于 2022-9-14 18:40
+
+就不能让桐生安心养老吗
+
+*****
+
+####  任天索尼子  
+##### 122#       发表于 2022-9-14 18:41
+
+又把大爷拉出来消费 你看人都多大年纪了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卡博雷z  
+##### 123#       发表于 2022-9-14 18:44
+
+桐生咋还没退休<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 124#       发表于 2022-9-14 18:44
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  一个陆仁贾  
+##### 125#       发表于 2022-9-14 18:46
+
+24就24吧，最近刚把审判之逝dlc玩完，暂时不想跑神室町了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 126#         楼主| 发表于 2022-9-14 18:46
+
+《如龙8》将于2024年发售！登陆PS5、PS4、XSX|S、Xbox One和PC平台。http://t.cn/A6SmZfsQ
+
+#如龙8正式公布# #如龙8发售日期公开# ​​​
+
+*****
+
+####  Booorunestud  
+##### 127#       发表于 2022-9-14 18:46
+
+草，如龙7外传
+
+*****
+
+####  那由  
+##### 128#       发表于 2022-9-14 18:46
+
+<img src="https://img.saraba1st.com/forum/202209/14/184654rbufnzhzngp0bt5g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 18:46 上传
+
+*****
+
+####  crosz85  
+##### 129#       发表于 2022-9-14 18:46
+
+艹，外传<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a2276382  
+##### 130#       发表于 2022-9-14 18:47
+
+这是dlc吧。。
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  xvi黑翼公  
+##### 131#       发表于 2022-9-14 18:47
+
+啊，这个外传感觉比8还吸引人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  センコウ  
+##### 132#       发表于 2022-9-14 18:47
+
+<img src="https://img.saraba1st.com/forum/202209/14/184723bffk4a2777229w92.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20220914194749.png</strong> (37.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-9-14 18:47 上传
+
+*****
+
+####  那由  
+##### 133#       发表于 2022-9-14 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是RPG哦
+
+*****
+
+####  415452356  
+##### 134#       发表于 2022-9-14 18:50
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  thecatnie  
+##### 135#       发表于 2022-9-14 18:50
+
+好像跟海腾DLC时长差不多
+
+*****
+
+####  xvi黑翼公  
+##### 136#       发表于 2022-9-14 18:50
+
+可能是木村那边没这么快做3，就先做一个7外传来填一下坑，免得明年新作空白
+
+*****
+
+####  vacuumsword  
+##### 137#       发表于 2022-9-14 18:51
+
+木村如龙不是不会再出了么？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  xzzfft  
+##### 138#       发表于 2022-9-14 18:51
+
+给桐生复出做铺垫哪
+
+*****
+
+####  巴巴耶罗  
+##### 139#       发表于 2022-9-14 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485452&amp;ptid=2082084" target="_blank">thecatnie 发表于 2022-9-14 18:50</a>
+
+好像跟海腾DLC时长差不多</blockquote>
+比海藤长，说是大概半部如龙正传长度
+
+*****
+
+####  黑上シグマ  
+##### 140#       发表于 2022-9-14 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8代2024年发售，却还带着PS4，这PS5真是玩完
+
+*****
+
+####  Ketestrait  
+##### 141#       发表于 2022-9-14 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485452&amp;ptid=2082084" target="_blank">thecatnie 发表于 2022-9-14 18:50</a>
+
+好像跟海腾DLC时长差不多</blockquote>
+比海藤DLC长，大约正作一半的量。
+
+PS. ACT外加风格切换回归
+
+*****
+
+####  Demi.Albertini  
+##### 142#       发表于 2022-9-14 18:52
+
+也不知道这个外传用的是啥引擎啊
+
+*****
+
+####  M1NG  
+##### 143#       发表于 2022-9-14 18:52
+
+桐生怎么变成但丁了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  唯一指定用户名  
+##### 144#       发表于 2022-9-14 18:53
+
+2024，没搞错吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 145#       发表于 2022-9-14 18:53
+
+太乐了，那估计8代就是两个系统并存了，龙组还在这藏来藏去的
+
+*****
+
+####  没取名啊  
+##### 146#       发表于 2022-9-14 18:55
+
+春日这脸蛋保养的还挺好，看着还像30多岁一样
+
+*****
+
+####  Kojimaru  
+##### 147#       发表于 2022-9-14 18:55
+
+无名之龙有20小时的量？那还挺好的
+
+*****
+
+####  黑上シグマ  
+##### 148#       发表于 2022-9-14 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57485492&amp;ptid=2082084" target="_blank">何处分可 发表于 2022-9-14 18:53</a>
+
+太乐了，那估计8代就是两个系统并存了，龙组还在这藏来藏去的</blockquote>
+横山说了是RPG
+
+*****
+
+####  ds2008  
+##### 149#       发表于 2022-9-14 19:01
+
+只期盼能给桐生下半辈子一个好结局，求求别再留遗憾和背锅了，放过背锅侠吧。
+
+*****
+
+####  makar0601  
+##### 150#       发表于 2022-9-14 19:03
+
+ 本帖最后由 makar0601 于 2022-9-14 19:32 编辑 
+
+cnmd太傻逼了吧，如龙2就一脸要退，3婆婆妈妈要退，4说着换人5又终章，6又来终章的终章，7终于路人化了，8双主角了！恭喜春日一番成为秋山骏2.0！
+
+很难不怀疑横山给黑田的的チンポ迷住了。来自: iPhone客户端
+
+
+*****
+
+####  hkguty  
+##### 151#       发表于 2022-9-14 19:05
+
+这到底是染了还是老了，看胡须好像是老了吧，反正第一印象那发型被吓尿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泥潭办证先锋  
+##### 152#       发表于 2022-9-14 19:07
+
+世嘉出个真岛外传会死？
+
+本来看到维新极还加了点料挺开心的。
+
+结果今晚一看，我死都没想到桐生一马的形象还能战3部如龙<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  妄想中毒  
+##### 153#       发表于 2022-9-14 19:12
+
+还是7代那蠢的不行的RPG系统？
+
+*****
+
+####  黑暗之眼  
+##### 154#       发表于 2022-9-14 19:12
+
+就是郑伊健一把年纪还在陈浩南的感觉（郑伊健67年的差不多嘛！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  听风不是雨  
+##### 155#       发表于 2022-9-14 19:14
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  M82  
+##### 156#       发表于 2022-9-14 19:17
+
+Like a Devil：Yakuza May Cry
+
+*****
+
+####  plok201  
+##### 157#       发表于 2022-9-14 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着还以为尼禄多了个叔叔
+
+*****
+
+####  你好s1  
+##### 158#       发表于 2022-9-14 19:30
+
+    审判两部应该是留给微软公布了
+
+   那也肯定上XGP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  索田八公  
+##### 159#       发表于 2022-9-14 19:53
+
+桐生一马 摆出了 虎落的架势 变得可以反制攻击了！
+
+*****
+
+####  hahaha111  
+##### 160#       发表于 2022-9-14 20:01
+
+什么老年尼禄
+
+*****
+
+####  qqqwww1111  
+##### 161#       发表于 2022-9-14 20:12
+
+如龙玩家，过年<img src="https://static.saraba1st.com/image/smiley/face2017/205.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  codecloud  
+##### 162#       发表于 2022-9-14 20:59
+
+50大几的老头子了,还要卖苦力搞皮肉行当来挣钱,养完便宜女儿养便宜孙子,这一生何时才是个头啊.真惨.
+
+*****
+
+####  lmslardar  
+##### 163#       发表于 2022-9-14 21:10
+
+虽然大家都在骂，但我还是喜欢看到老面孔的，春日角色塑造还不是太行，还是喜欢桐生一马，虽然已经快60了，但毕竟是赛博角色嘛，心疼感觉会少点。
+
+*****
+
+####  LT_Harry  
+##### 164#       发表于 2022-9-14 21:11
+
+这这不🐲（指维新极不用自研🐲引擎开发）
+
+*****
+
+####  HONG-  
+##### 165#       发表于 2022-9-15 01:54
+
+一眼韩俊基
+
+*****
+
+####  Mimic  
+##### 166#       发表于 2022-9-15 03:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57487062&amp;ptid=2082084" target="_blank">codecloud 发表于 2022-9-14 20:59</a>
+50大几的老头子了,还要卖苦力搞皮肉行当来挣钱,养完便宜女儿养便宜孙子,这一生何时才是个头啊.真惨. ...</blockquote>
+还是处男吗？
+
+*****
+
+####  cowgp01  
+##### 167#       发表于 2022-9-15 08:03
+
+陈浩南60都在老挝养老了，你还在劈友啊
+
+*****
+
+####  suro  
+##### 168#       发表于 2022-9-15 09:28
+
+多大的锅需要两个人来背<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谢皮利男爵  
+##### 169#       发表于 2022-9-15 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么像开心麻花的艾伦呢
+
+*****
+
+####  Demi.Albertini  
+##### 170#       发表于 2022-9-15 09:41
+
+左：肯德基爷爷
+
+右：蓝蓝路
+
+*****
+
+####  萨妃螺丝  
+##### 171#       发表于 2022-9-15 09:46
+
+你为什么留着韩俊基的发型？
+
+*****
+
+####  YFIIII  
+##### 172#       发表于 2022-9-15 10:04
+
+别吧别吧，7代当隐退老大哥不是蛮好的，怎么又拉出来当主角啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yth329  
+##### 173#       发表于 2022-9-15 10:10
+
+桐生一把年纪还这么折腾让我想到了隔壁的成步堂，都是不能退休的男人
+
+*****
+
+####  亚瑟摩根  
+##### 174#       发表于 2022-9-15 10:45
+
+其实这个猎奇味还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 175#         楼主| 发表于 2022-9-15 11:10
+
+<img src="https://p.sda1.dev/7/352c84a2993a04f1c043ccc2d6c3d9f0/CMP_20220915111008685.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 176#         楼主| 发表于 2023-6-12 01:31
+
+2024年除发售，这是换地图了？
+
+*****
+
+####  Piano-Forest  
+##### 177#       发表于 2023-6-12 01:31
+
+ 本帖最后由 Piano-Forest 于 2023-6-16 01:37 编辑 
+
+.
+
+*****
+
+####  diectt  
+##### 178#       发表于 2023-6-12 01:34
+
+这应该不是8吧？是个新外传？
+
+*****
+
+####  医生狼多  
+##### 179#         楼主| 发表于 2023-6-12 01:35
+
+SEGA在Xbox Games Showcase上公布了系列最新作《如龙 Infinite Wealth》最新游戏宣传视频，春日一番**出镜！2024年发售。 http://t.cn/A6p6u0j6 ​​​
+
+*****
+
+####  医生狼多  
+##### 180#         楼主| 发表于 2023-6-12 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61242379&amp;ptid=2082084" target="_blank">diectt 发表于 2023-6-12 01:34</a>
+这应该不是8吧？是个新外传？</blockquote>
+好像是外传<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为取8等于无限那个意思
+
+
+*****
+
+####  diectt  
+##### 181#       发表于 2023-6-12 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61242420&amp;ptid=2082084" target="_blank">医生狼多 发表于 2023-6-12 01:38</a>
+
+好像是外传我还以为取8等于无限那个意思</blockquote>
+不过春日一番当主角很欢乐就是了，期待<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  慕容断月  
+##### 182#       发表于 2023-6-12 03:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61242420&amp;ptid=2082084" target="_blank">医生狼多 发表于 2023-6-12 01:38</a>
+
+好像是外传我还以为取8等于无限那个意思</blockquote>
+是8吧，7开始英文名都不带序号了
+
+*****
+
+####  医生狼多  
+##### 183#         楼主| 发表于 2023-6-12 03:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61243490&amp;ptid=2082084" target="_blank">慕容断月 发表于 2023-6-12 03:12</a>
+是8吧，7开始英文名都不带序号了</blockquote>
+等官方新闻稿吧，主要这pv也看不出啥来
+
+*****
+
+####  山岚夜雨  
+##### 184#       发表于 2023-6-12 03:33
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  diectt  
+##### 185#       发表于 2023-6-12 03:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61243618&amp;ptid=2082084" target="_blank">山岚夜雨 发表于 2023-6-12 03:33</a>
+
+这pv我觉得舞台极大概率是夏威夷</blockquote>
+该霍霍美国黑道了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 186#         楼主| 发表于 2023-6-12 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61242390&amp;ptid=2082084" target="_blank">医生狼多 发表于 2023-6-12 01:35</a>
+SEGA在Xbox Games Showcase上公布了系列最新作《如龙 Infinite Wealth》最新游戏宣传视频，春日一番**出镜 ...</blockquote>
+确认就是8代了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安广多惠子  
+##### 187#       发表于 2023-6-12 08:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">真是夏威夷的话倒不错，我早就想揍鬼佬黑帮啦
+
+*****
+
+####  byisme001  
+##### 188#       发表于 2023-6-12 09:16
+
+我觉得不是夏威夷，是关岛
+
+*****
+
+####  黑修士  
+##### 189#       发表于 2023-6-12 09:21
+
+开新图挺好的，过几天应该就有完整的游戏预告了
+
+*****
+
+####  byisme001  
+##### 190#       发表于 2023-6-12 16:49
+
+春日:跟人打了一场pk，漏牛至了
+
+*****
+
+####  萌二  
+##### 191#       发表于 2023-6-12 18:43
+
+飘到夏威夷也不带张美国假币
+
+*****
+
+####  Piano-Forest  
+##### 192#       发表于 2023-6-16 01:49
+
+<img src="https://p.sda1.dev/11/1d194a08852bd65b208e1aa9cc0f1b7d/20230616_014124.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/11/11e30ce6d17338f980b93693343a34e5/1686851326809.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 193#       发表于 2023-6-16 10:55
+
+一会儿还能播啥片
+
+*****
+
+####  Demi.Albertini  
+##### 194#       发表于 2023-6-16 11:23
+
+外传这些人不知道会不会延续到8代里去啊…………
+
+*****
+
+####  byisme001  
+##### 195#       发表于 2023-6-16 11:28
+
+戴墨镜那个是热血高校2开头那个被捅的留级20年的凤仙老大吗
+
+*****
+
+####  byisme001  
+##### 196#       发表于 2023-6-16 11:52
+
+这对话，桐生真变知心大姐了
+
+*****
+
+####  u2deack  
+##### 197#       发表于 2023-6-16 11:53
+
+桐生这发型真的男神异闻录了
+
+*****
+
+####  医生狼多  
+##### 198#         楼主| 发表于 2023-6-16 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/11/448aacb19979d78a3337544dd2447a55/CMP_20230616115338701.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 199#       发表于 2023-6-16 11:55
+
+太艹了，横皮尔博格真有你的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  センコウ  
+##### 200#       发表于 2023-6-16 12:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么特工style，我看是亚门style吧
+
+*****
+
+####  黑上シグマ  
+##### 201#       发表于 2023-6-16 12:11
+
+9月再开一场发布会来讲8
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  flyzzhj  
+##### 202#       发表于 2023-6-16 12:31
+
+看到春日向纱荣子求婚被拒真的笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Zuranium  
+##### 203#       发表于 2023-6-16 12:47
+
+这发布会再拉垮一点。。。横皮尔伯格是不是以为他在上面聊天很有意思
+
+*****
+
+####  医生狼多  
+##### 204#         楼主| 发表于 2023-6-16 12:53
+
+《如龙8》双主角春日一番与桐生一马对话剧情片段公开，春日向纱荣子求婚了的样子[二哈] 。http://t.cn/A6p9r5mu ​​​
+
+*****
+
+####  雨翼free  
+##### 205#       发表于 2023-6-16 13:27
+
+现在最怕两个男队友还留着把纱荣子删了只出现下在对话里。横皮尔伯格绝对干得出这种事情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otaku21126  
+##### 206#       发表于 2023-6-16 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61308981&amp;ptid=2082084" target="_blank">雨翼free 发表于 2023-6-16 13:27</a>
+现在最怕两个男队友还留着把纱荣子删了只出现下在对话里。横皮尔伯格绝对干得出这种事情 ...</blockquote>
+似乎是的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+8代实机图透里只有街友和退休警察的样子
+
+*****
+
+####  flyzzhj  
+##### 207#       发表于 2023-6-16 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61309029&amp;ptid=2082084" target="_blank">otaku21126 发表于 2023-6-16 13:31</a>
+
+似乎是的
+
+8代实机图透里只有街友和退休警察的样子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">纱荣子不是捏的么，应该没有版权问题，删了就太可惜了...
+
+*****
+
+####  anyasora  
+##### 208#       发表于 2023-6-16 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61308981&amp;ptid=2082084" target="_blank">雨翼free 发表于 2023-6-16 13:27</a>
+
+现在最怕两个男队友还留着把纱荣子删了只出现下在对话里。横皮尔伯格绝对干得出这种事情 ...</blockquote>
+RPG的话没必要这么搞吧  真の仲间的血泪教训 就是不知道老赵老韩还会不会在主角队
+
+*****
+
+####  sdh45e6  
+##### 209#       发表于 2023-6-16 13:41
+
+美国黑道+1
+
+*****
+
+####  mobydick2501  
+##### 210#       发表于 2023-6-16 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56725438&amp;ptid=2082084" target="_blank"> 烽火连城 发表于 2022-7-20 19:14</a> 妹子建模失败是七代最失败的地方，第二失败是没有俱乐部了，高清时代 好想要更多女公关暖暖的俱乐部 </blockquote>
+纱荣子的模型其实挺好看，而且一点不俗气，有问题全赖贴图和光影上。 但是另一位那就相当糟心了，，，把真人模特的缺点几乎是无限放大，，这组里搞美术的家伙，之前都是画讽刺漫画的吗淦来自: iPhone客户端
+
+
+*****
+
+####  mobydick2501  
+##### 211#       发表于 2023-6-16 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61309029&amp;ptid=2082084" target="_blank"> otaku21126 发表于 2023-6-16 13:31</a> 引用:雨翼free 发表于 2023-6-16 13:27 现在最怕两个男队友还留着把纱荣子删了只出现下在对话里。横皮尔伯格绝对干得出这种事情 ... 似乎是的 8代实机图透里只有街友和退休警察的样子 </blockquote>
+个人觉得，作者似乎想把春日这哥们搞成007，或者说寅次郎那种每一代都换女主的类型，，，嘛，能让我满意就行，随便整。来自: iPhone客户端
+
+*****
+
+####  烽火连城  
+##### 212#       发表于 2023-6-16 20:29
+
+回不回合制无所谓，主角成不成家无所谓，桐生回不回归无所谓，什么都无所谓，能不能把脸弄漂亮点，我就想开俱乐部，当夜晚的帝王<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starrynight  
+##### 213#       发表于 2023-6-16 20:55
+
+<blockquote>雨翼free 发表于 2023-6-16 13:27
+现在最怕两个男队友还留着把纱荣子删了只出现下在对话里。横皮尔伯格绝对干得出这种事情 ...</blockquote>
+今天的直播最后出现了纱荣子吃惊的表情（虽然只有一瞬间）
+
+*****
+
+####  医生狼多  
+##### 214#         楼主| 发表于 2023-6-16 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61313992&amp;ptid=2082084" target="_blank">烽火连城 发表于 2023-6-16 20:29</a>
+回不回合制无所谓，主角成不成家无所谓，桐生回不回归无所谓，什么都无所谓，能不能把脸弄漂亮点，我就想开 ...</blockquote>
+来玩7外传<img src="https://p.sda1.dev/11/58a7745c159041195789e9e001a0ea49/CMP_20230616210407703.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  天选之子  
+##### 215#       发表于 2023-6-16 22:55
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+*****
+
+####  Demi.Albertini  
+##### 216#       发表于 2023-6-16 23:11
+
+<img src="https://img.saraba1st.com/forum/202306/16/231051veoon9sf1kud9ttc.png" referrerpolicy="no-referrer">
+
+<strong>1111.png</strong> (24.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-16 23:10 上传
+
+应该有她…………
+
+1111.png
+(24.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-16 23:10 上传
+
+<img src="https://img.saraba1st.com/forum/202306/16/231039mfwywl0lw1twmy10.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 217#       发表于 2023-8-23 12:56
+
+8代确定是夏威夷了，要不要改剧本，加上大火剧情
+
