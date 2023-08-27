@@ -176,3 +176,39 @@ UFO FATE 脸画得难看感觉还是和武内脸的相性问题，想凑，没�
 
 看日本动画片听到普通话还真别扭啊
 
+*****
+
+####  砂雪  
+##### 1523#       发表于 2023-8-24 14:10
+
+<img src="https://img.saraba1st.com/forum/202308/24/141027hutv446kxrxbstub.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 14:10 上传
+
+真的吗？我不信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月夜凝雪  
+##### 1524#       发表于 2023-8-24 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62147221&amp;ptid=2094448" target="_blank">砂雪 发表于 2023-8-24 14:10</a>
+真的吗？我不信</blockquote>
+就日本TV动画那个单集制作成本，要超过不是分分钟的事情，单轮资金的话国产动画怕是很多都超
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  豚厨二象性  
+##### 1525#       发表于 2023-8-24 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62147221&amp;ptid=2094448" target="_blank">砂雪 发表于 2023-8-24 14:10</a>
+真的吗？我不信</blockquote>
+一集五分钟差不多
+
