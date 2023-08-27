@@ -11903,3 +11903,15 @@ PS4版《BORDER BREAK》 (边境保卫战)今天宣布将于2023年9月9日停�
 
 总之，终于要迎来结束了，我先在主楼把墓碑刻好，等9月9日再祭（笑）
 
+*****
+
+####  zhfatwork  
+##### 760#         楼主| 发表于 2023-8-24 17:50
+
+停服前运营放飞自我，接近武器限定战。
+
+我觉得如果全员都只能用接近武器，应该是三星长矛最容易得手吧………… 另外如果SEGA疏忽的话，能开炮的枪刃其实是降维打击（笑）
+
+[http://ps4.borderbreak.com/news/QTRgQLQ29izi](http://ps4.borderbreak.com/news/QTRgQLQ29izi)
+<img src="http://ps4.borderbreak.com/data/news/QTRgQLQ29izi/1.png" referrerpolicy="no-referrer">
+
