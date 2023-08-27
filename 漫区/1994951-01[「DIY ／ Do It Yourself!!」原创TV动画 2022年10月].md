@@ -9654,3 +9654,19 @@ emmmm，锤姐居然演布丁...应该让她甩大锤才对啊<img src="https://
 
 —— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Piano-Forest  
+##### 700#         楼主| 发表于 2023-8-24 19:46
+
+Do It Yourself!! -どぅ－・いっと・ゆあせるふ-
+
+「公式設定資料集」
+
+✨9/6(水)発売決定！✨
+
+キャラクターデザイン松尾祐輔さん描き下ろしの表紙を公開🔨
+
+詳細は順次お知らせします、お楽しみに！
+<img src="https://p.sda1.dev/12/9ab920e4fa7e6bc983ae75153746f918/20230824_194623.jpg" referrerpolicy="no-referrer">
+
