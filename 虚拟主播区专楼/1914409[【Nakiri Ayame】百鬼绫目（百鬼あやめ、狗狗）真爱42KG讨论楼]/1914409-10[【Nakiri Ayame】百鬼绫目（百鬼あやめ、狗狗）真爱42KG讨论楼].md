@@ -1631,3 +1631,138 @@ syl，新翻唱数据好猛
 比较有意思的是给吉成的建议是不要休息太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 吉成正在学塔罗牌占卜啊，这mio半仙的拿手好戏也要拷贝过去的话就有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+*****
+
+####  夏小筱ss  
+##### 14661#       发表于 2023-8-18 20:22
+
+听说要回旋了
+
+
+*****
+
+####  一仙  
+##### 14662#       发表于 2023-8-18 21:15
+
+我不信，信这个不如信我是秦始皇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+但是s1 nga一堆人都开始讨论了就很恐怖，感觉就像秦始皇真要复活了一样<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  绿色子龙  
+##### 14663#       发表于 2023-8-19 07:49
+
+余简介的简中一直没删就是为了这个时候准备的吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一仙  
+##### 14664#       发表于 2023-8-19 21:28
+
+绫买了个琴，说想做练习直播
+
+
+*****
+
+####  karastar  
+##### 14665#       发表于 2023-8-19 21:34
+
+买琴，直播练习，懂了这是学mrr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 14666#       发表于 2023-8-19 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是没听过的琴，用手指玩的
+
+
+*****
+
+####  天悬星河  
+##### 14667#       发表于 2023-8-19 23:40
+
+是fauna很爱弹的卡林巴琴
+
+
+*****
+
+####  因为你不会  
+##### 14668#       发表于 2023-8-21 14:36
+
+绫总这上班数旋不旋的无所谓了……
+
+
+*****
+
+####  夏小筱ss  
+##### 14669#       发表于 2023-8-21 18:03
+
+绷
+
+
+*****
+
+####  因为你不会  
+##### 14670#       发表于 2023-8-21 18:57
+
+再说我觉得绫总真播了弹幕怕不是全是lol乐子人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fami水  
+##### 14671#       发表于 2023-8-21 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一边一次每个月
+
+
+*****
+
+####  因为你不会  
+##### 14672#       发表于 2023-8-23 14:24
+
+ 本帖最后由 因为你不会 于 2023-8-23 14:28 编辑 
+
+风怒
+
+
+*****
+
+####  古战场亡魂  
+##### 14673#       发表于 2023-8-23 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼有人有绫总lol账号吗，目前啥段位啊？？
+
+
+*****
+
+####  寺川愛美  
+##### 14674#       发表于 2023-8-23 19:28
+
+不是轉瓦了嗎，轉瓦了就沒有時間lol了吧
+
+
+*****
+
+####  stedckk  
+##### 14675#       发表于 2023-8-26 02:57
+
+打还是有打的，上赛季打了十来把排位定位黄金2，这赛季直接不打排位了。
+
+这个月就6天前打了两把匹配，前两个月打得比较多，就打大乱斗、匹配和斗魂竞技场啥的。
+
+顺便车队有个人把id改成了加藤纯一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/26/025611v6l2464rn46tf2t9.png" referrerpolicy="no-referrer">
+
+<strong>M~E)]TPQ9%DPSK47_}`XQ{7.png</strong> (17.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 02:56 上传
+
