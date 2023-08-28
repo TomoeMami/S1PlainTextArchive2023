@@ -5266,3 +5266,1597 @@ OP还行吧，这也算不上文艺片啊
 
 话说操作小弹珠是什么超能力
 
+*****
+
+####  zxc4563982  
+##### 471#       发表于 2023-8-17 02:06
+
+原来是你，大光头
+
+
+*****
+
+####  夏威夷之声  
+##### 472#       发表于 2023-8-17 02:20
+
+观感极佳，不由得想起了永生之酒
+
+
+*****
+
+####  550616  
+##### 473#       发表于 2023-8-17 07:56
+
+月下三人转笑死人
+
+
+*****
+
+####  达达葱2  
+##### 474#       发表于 2023-8-17 10:04
+
+<blockquote>550616 发表于 2023-8-17 07:56
+月下三人转笑死人</blockquote>
+还没看，出资源了吗
+
+
+*****
+
+####  杏仁小圆饼  
+##### 475#       发表于 2023-8-17 11:19
+
+即使在有吸血鬼、人造人、半人半鬼的团队里，亚雷斯塔仍然是冒牌魔法师，令人感慨
+
+
+*****
+
+####  hagiwara  
+##### 476#       发表于 2023-8-17 11:27
+
+大乱斗真刺激
+
+
+*****
+
+####  敏感词好多  
+##### 477#       发表于 2023-8-17 12:00
+
+月下三人那段也太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  550616  
+##### 478#       发表于 2023-8-17 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62056975&amp;ptid=2125379" target="_blank">达达葱2 发表于 2023-8-17 10:04</a>
+
+还没看，出资源了吗</blockquote>
+凌晨2，3点的时候就有熟肉了呀
+
+
+*****
+
+####  达达葱2  
+##### 479#       发表于 2023-8-17 13:01
+
+<blockquote>550616 发表于 2023-8-17 12:39
+凌晨2，3点的时候就有熟肉了呀</blockquote>
+谢谢
+
+
+*****
+
+####  瑞瑞瑞酱  
+##### 480#       发表于 2023-8-17 13:14
+
+虽然演出确实很强 但是节奏也太慢了…总觉得铺垫这么多最后谜题却很简单的样子 
+
+
+*****
+
+####  406  
+##### 481#       发表于 2023-8-17 13:58
+
+ 本帖最后由 406 于 2023-8-17 14:02 编辑 
+
+动画开播后时不时跟动画进度瞄几眼漫画，漫画鲁邦的作风一直是逗比好女色小青年，和前几集的风/骚沉稳耍帅绅士怪盗差距极大，不过这集的鲁邦终于也跟漫画一样红温炸毛了一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梦诗歌雪  
+##### 482#       发表于 2023-8-17 14:58
+
+人头妹躲箱子里是为了定位罗平逃到哪里，单问题是男主是怎么知道人头妹在哪的，歌剧怪人从地底带着箱子出来走哪条路男主完全无从得知人头妹在里面一直咬着齿轮也没有发信机要怎么告知男主自己的位置？
+
+
+*****
+
+####  drzas  
+##### 483#       发表于 2023-8-17 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62061590&amp;ptid=2125379" target="_blank">梦诗歌雪 发表于 2023-8-17 14:58</a>
+ 人头妹躲箱子里是为了定位罗平逃到哪里，单问题是男主是怎么知道人头妹在哪的，歌剧怪人从地底带着箱子出来 ...</blockquote>
+男主听女主大喊的声音从哪里来就知道怪盗在哪里了啊。至于为什么男主知道并且来得及赶过去就只能说是鬼的设定了
+
+
+*****
+
+####  杏仁小圆饼  
+##### 484#       发表于 2023-8-17 15:19
+
+<blockquote>梦诗歌雪 发表于 2023-8-17 14:58
+人头妹躲箱子里是为了定位罗平逃到哪里，单问题是男主是怎么知道人头妹在哪的，歌剧怪人从地底带着箱子出来 ...</blockquote>
+尖叫定位，反正罗平不可能马上突破护城河和警卫跑到外面去
+
+
+*****
+
+####  仟音一心  
+##### 485#       发表于 2023-8-17 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62060125&amp;ptid=2125379" target="_blank">瑞瑞瑞酱 发表于 2023-8-17 13:14</a>
+虽然演出确实很强 但是节奏也太慢了…总觉得铺垫这么多最后谜题却很简单的样子  ...</blockquote>
+这章唯一的谜题就是这个了，所以可以说没有推理。
+
+*****
+
+####  鬼谷ask  
+##### 486#       发表于 2023-8-17 15:54
+
+挺精彩的，分割的战场都很有看头
+
+
+*****
+
+####  仟音一心  
+##### 487#       发表于 2023-8-17 16:21
+
+按这个进度这季确实会做完第三本人狼篇，对没看过第三本的我来说就是完全无法预测命运的舞台了。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梦诗歌雪  
+##### 488#       发表于 2023-8-17 16:32
+
+<blockquote>drzas 发表于 2023-8-17 15:09
+男主听女主大喊的声音从哪里来就知道怪盗在哪里了啊。至于为什么男主知道并且来得及赶过去就只能说是鬼的 ...</blockquote>
+从动画表现来看男主是一路在高处跟着，女主一喊立马神兵天降了，如果不是知道歌剧怪人的逃跑路线怎么可能跟得这么紧
+
+
+*****
+
+####  406  
+##### 489#       发表于 2023-8-17 16:37
+
+问就是玄幻能力，看表现男主应该是找了个全局最高塔尖待着，顺风耳一接受到警报就能飞毛腿神兵天降吧。鲁邦和福尔摩斯这些普通人设定，却能和鬼怪牵扯过招看着也挺离奇的。 鲁邦的神奇小弹珠看着真像设定上附过魔的
+
+
+*****
+
+####  仟音一心  
+##### 490#       发表于 2023-8-17 17:10
+
+动画党可以猜一猜教授方5个人分别都是谁。
+
+*****
+
+####  zxc4563982  
+##### 491#       发表于 2023-8-17 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62063352&amp;ptid=2125379" target="_blank">仟音一心 发表于 2023-8-17 17:10</a>
+动画党可以猜一猜教授方5个人分别都是谁。</blockquote>
+有啥猜的，cv表把大伙的真名都写出来了
+
+
+*****
+
+####  仟音一心  
+##### 492#       发表于 2023-8-17 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62063373&amp;ptid=2125379" target="_blank">zxc4563982 发表于 2023-8-17 17:11</a>
+有啥猜的，cv表把大伙的真名都写出来了</blockquote>
+艹，没注意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 493#       发表于 2023-8-17 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62062894&amp;ptid=2125379" target="_blank">406 发表于 2023-8-17 16:37</a>
+
+问就是玄幻能力，看表现男主应该是找了个全局最高塔尖待着，顺风耳一接受到警报就能飞毛腿神兵天降吧。鲁邦 ...</blockquote>
+轻津EAR是地狱耳
+
+说到石川五右卫门
+
+日本有一出歌舞伎叫楼门五三桐，说石川五右卫门是中国人，
+
+亲爹是明朝宋素卿的儿子，在日本被明智光秀收养，又和丰臣秀吉交好
+
+后来得知丰臣秀吉是他杀父仇人也是杀养父的仇人
+
+就在秀吉微服出巡的时候射了他一镖，被秀吉接下了
+
+两人相约改日再斗，落幕
+
+
+*****
+
+####  杏仁小圆饼  
+##### 494#       发表于 2023-8-17 19:09
+
+<blockquote>梦诗歌雪 发表于 2023-8-17 16:32
+从动画表现来看男主是一路在高处跟着，女主一喊立马神兵天降了，如果不是知道歌剧怪人的逃跑路线怎么可能 ...</blockquote>
+并不是，注意福克宅邸的结构是回字形，大门在前馆，地下室通道入口在后馆，通风口在塔底，塔和温室都在右上角。福尔摩斯他们从地下室出来后取暖的房间大概在后馆，罗平跑出来就躲到了温室，津轻只是从塔上跳下去靠加速度。莫里亚蒂团队从前馆进入，分两路走左右翼，一路遇到从后馆出来的雷斯垂德和女仆，一路遇到福尔摩斯和鸦夜。
+
+
+*****
+
+####  罗克萨斯  
+##### 495#       发表于 2023-8-17 19:24
+
+三人大乱斗抢钻石真好玩，20来分钟真是不够看啊。
+
+*****
+
+####  好much橘  
+##### 496#       发表于 2023-8-17 19:27
+
+好急，根本不够看<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">月下三人确实挺欢乐的，看笑了
+
+
+*****
+
+####  亚雷斯塔  
+##### 497#       发表于 2023-8-17 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62063352&amp;ptid=2125379" target="_blank">仟音一心 发表于 2023-8-17 17:10</a>
+
+动画党可以猜一猜教授方5个人分别都是谁。</blockquote>
+是我。
+
+没想到吧，2023年还能有我出镜的动画。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 498#       发表于 2023-8-17 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62065131&amp;ptid=2125379" target="_blank">亚雷斯塔 发表于 2023-8-17 19:52</a>
+是我。
+
+没想到吧，2023年还能有我出镜的动画。</blockquote>
+你换成历史上那个大光头的头像我就信你<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杏仁小圆饼  
+##### 499#       发表于 2023-8-17 20:43
+
+<blockquote>亚雷斯塔 发表于 2023-8-17 19:52
+是我。
+
+没想到吧，2023年还能有我出镜的动画。</blockquote>
+你比罗平还年轻一岁呢
+
+*****
+
+####  cauchua3  
+##### 500#       发表于 2023-8-17 20:44
+
+鲁邦是怎么知道钻石在华生口袋里的？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  drzas  
+##### 501#       发表于 2023-8-17 20:46
+
+福尔摩斯说了啊，那东西之前华生还在罗平面前拿出来过，自然知道位置
+
+
+*****
+
+####  aptx8285144  
+##### 502#       发表于 2023-8-17 21:24
+
+这打斗很精彩，来的是莫提亚教授这群人吗，够狠毒的
+
+
+*****
+
+####  沼蝇  
+##### 503#       发表于 2023-8-17 21:59
+
+这话水平也太高了吧
+
+
+*****
+
+####  MuAmUa  
+##### 504#       发表于 2023-8-17 22:06
+
+福尔摩斯在里面是个废柴嘛
+
+
+*****
+
+####  新HGCG  
+##### 505#       发表于 2023-8-17 22:47
+
+貌似有挂，属于超人
+
+
+*****
+
+####  有机终端  
+##### 506#       发表于 2023-8-17 22:56
+
+看笑了，好喜欢女主这种平时端的起，关键时刻放得下的人设。
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  moshizhe  
+##### 507#       发表于 2023-8-17 23:02
+
+这里的福尔摩斯没什么逼格啊
+
+
+*****
+
+####  199april  
+##### 508#       发表于 2023-8-18 00:22
+
+女主咬把手哪里太逗了
+
+
+*****
+
+####  ParadiseMartyr  
+##### 509#       发表于 2023-8-18 00:27
+
+中间有一段打戏太黑了，好像是劳合社女人打魅影那段，几乎看不清楚，是我的问题吗…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 510#       发表于 2023-8-18 02:04
+
+福尔摩斯也会特技？就说嘛肉体凡胎之前怎么能跟教授掰手腕的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鬼谷ask  
+##### 511#       发表于 2023-8-18 02:26
+
+劳合社女人打魅影那段想表达的大概就是女人能在黑暗中判断魅影位置吧，也就看点弩箭发射的箭光，要说看不清确实也是看不清
+
+
+*****
+
+####  drzas  
+##### 512#       发表于 2023-8-18 03:57
+
+黑暗是想表现魅影和黑皮的战斗能力，一个能利用黑暗，一个在黑暗中也能定位战斗。不过确实有点黑了
+
+
+*****
+
+####  notromeo  
+##### 513#       发表于 2023-8-18 08:43
+
+这集很多场景都太暗了，<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">罗宾知道钻石的缘由被删掉了，按原著说法，被淹时人会下意识看重要的东西，福当时看了花生一眼，罗宾就知道钻石所在了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  thez  
+##### 514#       发表于 2023-8-18 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62069643&amp;ptid=2125379" target="_blank">notromeo 发表于 2023-8-18 08:43</a>
+
+这集很多场景都太暗了，罗宾知道钻石的缘由被删掉了，按原著说法，被淹时人会下意识看重要的东西， ...</blockquote>
+这逻辑也太硬了……
+
+*****
+
+####  aptx8285144  
+##### 515#       发表于 2023-8-18 10:56
+
+其实倒不是很华丽，战斗的分镜做得很流畅
+
+*****
+
+####  drzas  
+##### 516#       发表于 2023-8-18 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62071495&amp;ptid=2125379" target="_blank">thez 发表于 2023-8-18 10:53</a>
+ 这逻辑也太硬了……</blockquote>
+这其实有点在致敬福尔摩斯原著中福尔摩斯偷信时用的办法，所以删了还是有点可惜
+
+
+*****
+
+####  新HGCG  
+##### 517#       发表于 2023-8-18 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62071495&amp;ptid=2125379" target="_blank">thez 发表于 2023-8-18 10:53</a>
+
+这逻辑也太硬了……</blockquote>
+鲁邦又不是侦探需要百分百确保真相避免冤假错案
+
+他只要能“猜”到更大的可能性然后去偷就行了
+
+
+*****
+
+####  TOYSTORY  
+##### 518#       发表于 2023-8-18 12:12
+
+<img src="https://img.saraba1st.com/forum/202308/18/121228b36mto3fwjzi1zxw.jpg" referrerpolicy="no-referrer">
+
+<strong>08_01.jpg</strong> (47.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121229vv3fvfzpcvv303kq.jpg" referrerpolicy="no-referrer">
+
+<strong>08_02.jpg</strong> (35.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121229xbs0rbfsbwww995b.jpg" referrerpolicy="no-referrer">
+
+<strong>08_03.jpg</strong> (35.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121230gf5fjjhpph0p0xwf.jpg" referrerpolicy="no-referrer">
+
+<strong>08_04.jpg</strong> (49.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121230xjekklkakejekjbb.jpg" referrerpolicy="no-referrer">
+
+<strong>08_05.jpg</strong> (54.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121231uyvn0ulwvrnlzr3r.jpg" referrerpolicy="no-referrer">
+
+<strong>08_06.jpg</strong> (49.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121231knunwwyuznvanont.jpg" referrerpolicy="no-referrer">
+
+<strong>08_07.jpg</strong> (111.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+<img src="https://img.saraba1st.com/forum/202308/18/121232bgklhakkb8o8brkf.jpg" referrerpolicy="no-referrer">
+
+<strong>08_08.jpg</strong> (46.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-18 12:12 上传
+
+第8話「夜宴」
+
+＜最後から二番目の夜＞を狙うのはルパンだけではなかった。爆発と共に現れた5人組の犯罪集団＜夜宴＞。その中には、かつて鴉夜と因縁があったジェームズ・モリアーティの姿も...。＜最後から二番目の夜＞は誰の手に―――。
+
+脚本：小中千昭　絵コンテ：武内宣之　演出：高野やよい
+
+
+*****
+
+####  杏仁小圆饼  
+##### 519#       发表于 2023-8-18 12:16
+
+<blockquote>thez 发表于 2023-8-18 10:53
+这逻辑也太硬了……</blockquote>
+波西米亚丑闻里福尔摩斯不就是这样找艾琳的照片吗，只不过一个纵火一个放水
+
+
+*****
+
+####  TOYSTORY  
+##### 520#       发表于 2023-8-18 12:24
+
+福尔摩斯感觉已经和隔壁的钱形老哥一样了，不是没水平但依然被鲁邦耍得团团转。每次刚装一下逼就被鲁邦打脸也太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本来侦探和怪盗玩头脑战玩得好好的，除了劳合社2人想杀了男女主这种怪物，也没人真想搞出人命。结果教授一行人直接正面突入还见人就杀，仿佛和前面这些角色不是一个片场出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有教授一行里有3个人算是和主角一行有过一面之缘吧？
+
+开膛手杰克帮教授抢了女主的身体、教授把男主改造成半人半鬼、人造人是男女主解决的事件里的角色（虽然动画主角跳过这段、漫画只保留了人造人逃跑遇到教授一行的剧情）
+
+看先行图，下一话就是男主和杰克两个半人半鬼的对决了？OP里也有他们两个对决的画面
+
+
+*****
+
+####  Anley  
+##### 521#       发表于 2023-8-18 13:19
+
+这集三个人大乱斗也太搞笑了，算是武力值不相上下吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CHCL3  
+##### 522#       发表于 2023-8-18 13:57
+
+这周这集做得好啊
+
+
+*****
+
+####  百合厨厨  
+##### 523#       发表于 2023-8-18 16:07
+
+相当有经验的文戏水平啊，厉害
+
+
+*****
+
+####  仟音一心  
+##### 524#       发表于 2023-8-18 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62072871&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-8-18 12:24</a>
+
+福尔摩斯感觉已经和隔壁的钱形老哥一样了，不是没水平但依然被鲁邦耍得团团转。每次刚装一下逼就被鲁邦打 ...</blockquote>
+下一话这本就结束了吧
+
+
+*****
+
+####  CHCL3  
+##### 525#       发表于 2023-8-18 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62075705&amp;ptid=2125379" target="_blank">仟音一心 发表于 2023-8-18 16:30</a>
+下一话这本就结束了吧</blockquote>
+差不多，和我预估的话数分配也差不多，虽然我本以为op怪盗篇占了大部分会做5集的
+
+
+*****
+
+####  RStocking  
+##### 526#       发表于 2023-8-18 17:21
+
+这一节过去，后面就是未知的领域了，小说三四部的中文什么时候能有啊
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 527#       发表于 2023-8-18 18:22
+
+打得真的爽，不知道下集能不能更爽
+轮堂小姐也是好牙口啊，能死死咬住那么久，给到画面的时候笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+男主边讲相声边出场依然非常带感，月下男主罗宾还有六号飞天打斗抢钻石那幕也好有意思啊
+随便我看bgm那边有人说，女主这个咬合力，出本的话可能要注意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  达达葱2  
+##### 528#       发表于 2023-8-18 19:07
+
+这篇完了是什么
+
+
+*****
+
+####  drzas  
+##### 529#       发表于 2023-8-18 19:13
+
+应该是还有一集
+
+
+*****
+
+####  CHCL3  
+##### 530#       发表于 2023-8-18 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62077670&amp;ptid=2125379" target="_blank">达达葱2 发表于 2023-8-18 19:07</a>
+这篇完了是什么</blockquote>
+他们在争的那块宝石有人狼的线索，下个故事就是围绕人狼发生的
+
+
+*****
+
+####  达达葱2  
+##### 531#       发表于 2023-8-18 19:56
+
+鲁邦和罗平到底哪个更接近原本法语的发音
+
+
+*****
+
+####  CHCL3  
+##### 532#       发表于 2023-8-18 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62078216&amp;ptid=2125379" target="_blank">达达葱2 发表于 2023-8-18 19:56</a>
+鲁邦和罗平到底哪个更接近原本法语的发音</blockquote>
+问了学法语的朋友，本音更像鲁班
+
+
+*****
+
+####  达达葱2  
+##### 533#       发表于 2023-8-18 23:12
+
+<blockquote>CHCL3 发表于 2023-8-18 22:20
+问了学法语的朋友，本音更像鲁班</blockquote>
+哦哦谢谢
+
+
+*****
+
+####  海德先生  
+##### 534#       发表于 2023-8-19 00:19
+
+轮堂小姐的好口牙，真是耐力惊人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  达达葱2  
+##### 535#       发表于 2023-8-19 06:29
+
+女主对鲁邦说出计策内容的时候出现的记者的幻影是什么意思？
+
+
+*****
+
+####  杏仁小圆饼  
+##### 536#       发表于 2023-8-19 07:20
+
+<blockquote>达达葱2 发表于 2023-8-19 06:29
+女主对鲁邦说出计策内容的时候出现的记者的幻影是什么意思？</blockquote>
+上一集鲁邦以为记者是鸦夜
+
+
+*****
+
+####  天光逸  
+##### 537#       发表于 2023-8-19 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62075396&amp;ptid=2125379" target="_blank">百合厨厨 发表于 2023-8-18 16:07</a>
+
+相当有经验的文戏水平啊，&amp;#x5 ...</blockquote>
+原作+小中千昭的脚本水平还是过硬的
+
+*****
+
+####  梦诗歌雪  
+##### 538#       发表于 2023-8-19 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62064708&amp;ptid=2125379" target="_blank">杏仁小圆饼 发表于 2023-8-17 19:09</a>
+
+并不是，注意福克宅邸的结构是回字形，大门在前馆，地下室通道入口在后馆，通风口在塔底，塔和温室都在右 ...</blockquote>
+就是男主找了个制高点靠强化改造耳能听到人头妹的尖叫，然后刚好尖叫的位置就在塔附近可以让他直接从塔上跳进温室里？
+
+
+*****
+
+####  CHCL3  
+##### 539#       发表于 2023-8-19 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62081379&amp;ptid=2125379" target="_blank">达达葱2 发表于 2023-8-19 06:29</a>
+
+女主对鲁邦说出计策内容的时候出现的记者的幻影是什么意思？</blockquote>
+记者带着围巾挡住了嘴，男主和记者拿到鸟笼时，鲁邦和魅影姗姗来迟，从他们的视角只能看到女仆对着记者的方向喊鸦夜大人没事太好了，所以推测出来是记者是真正的鸦夜，男主女仆是两个跟班，弄丢了鸟笼所以一直在找（里面是什么不重要），随后记者手持鸟笼，记者的方向以鸦夜的口吻回话也证实的鲁邦的推测；
+
+而鲁邦问其他两个是跟班吗，如果他意识到鸟笼才是真正的侦探的话就会问其他三个（包括记者在内）是跟班吗，因此鸦夜确定鲁邦误会了，将计就计利用了误会
+
+
+*****
+
+####  杏仁小圆饼  
+##### 540#       发表于 2023-8-19 09:35
+
+<blockquote>梦诗歌雪 发表于 2023-8-19 08:38
+就是男主找了个制高点靠强化改造耳能听到人头妹的尖叫，然后刚好尖叫的位置就在塔附近可以让他直接从塔上 ...</blockquote>
+对，负二层地下室、负一层等候室、一层会客室室、二层温室、楼上书房、塔都在后馆，魅影炸通风口时就在塔底
+
+
+*****
+
+####  新HGCG  
+##### 541#       发表于 2023-8-19 10:15
+
+记者幻影那里单纯是女主要借助记者的身体做出显摆的动作吧
+
+
+*****
+
+####  杏仁小圆饼  
+##### 542#       发表于 2023-8-19 10:32
+
+<blockquote>新HGCG 发表于 2023-8-19 10:15
+记者幻影那里单纯是女主要借助记者的身体做出显摆的动作吧</blockquote>
+罗平前一集在街头遇到三人组时以为鸦夜是抱着鸟笼的记者，不知道鸦夜只有头
+
+
+*****
+
+####  cocococo10  
+##### 543#       发表于 2023-8-19 11:27
+
+月下三人那段很有点加勒比海盗大乱斗的味道
+
+
+*****
+
+####  kenqqex  
+##### 544#       发表于 2023-8-19 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62080246&amp;ptid=2125379" target="_blank">达达葱2 发表于 2023-8-18 23:12</a>
+
+哦哦谢谢</blockquote>
+ttps://translate.google.com/?hl=zh-CN&amp;sl=auto&amp;tl=fr&amp;text=Arsène Lupin&amp;op=translate
+
+用了下谷歌 ，应该是鲁邦
+
+
+*****
+
+####  新HGCG  
+##### 545#       发表于 2023-8-19 16:36
+
+记者的幻影指的是这里吧
+
+<img src="https://img.saraba1st.com/forum/202308/19/163551awj07dj0anej0b0m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (167.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-19 16:35 上传
+
+
+*****
+
+####  达达葱2  
+##### 546#       发表于 2023-8-19 17:09
+
+<blockquote>新HGCG 发表于 2023-8-19 16:36
+记者的幻影指的是这里吧</blockquote>
+就问为啥都说穿了这里却来一个记者的幻影
+
+
+*****
+
+####  aptx8285144  
+##### 547#       发表于 2023-8-19 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62085388&amp;ptid=2125379" target="_blank">达达葱2 发表于 2023-8-19 17:09</a>
+
+就问为啥都说穿了这里却来一个记者的幻影</blockquote>
+个人猜测，是亚森罗平的回想吧，被摆了一道后的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 548#       发表于 2023-8-19 18:46
+
+干，囤了三集没想到还没过完一个篇章，话说推理题材突然蹦出跟幻影旅团一样的家伙，好过分啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  notromeo  
+##### 549#       发表于 2023-8-20 00:06
+
+下集fate大乱斗做好了就是一个高潮了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  霖星  
+##### 550#       发表于 2023-8-20 22:28
+
+月下三兄贵乱斗也太搞笑了，鲁班你是纯正的搞笑役么
+
+PS 阿雷斯塔的造型加上组长的配音，神似废狗里的冠位炸弹王雷夫
+
+
+*****
+
+####  异界送  
+##### 551#       发表于 2023-8-21 19:41
+
+这番感觉不错呀
+
+
+*****
+
+####  フミさん  
+##### 552#       发表于 2023-8-22 17:31
+
+说来惭愧，当那两个混混不怀好意的靠近只有一个头的轮堂小姐时，看着她那有点惊慌又无助的小表情时，我…<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  HGCG3  
+##### 553#       发表于 2023-8-24 00:25
+
+黑皮七号就这么死了居然……
+
+*****
+
+####  fshzx  
+##### 554#       发表于 2023-8-24 00:26
+
+太好看了！精彩！
+
+
+*****
+
+####  外挂全家脚气  
+##### 555#       发表于 2023-8-24 02:00
+
+好是好，中间搞那么黑干什么啊....
+
+
+*****
+
+####  镜hinata  
+##### 556#       发表于 2023-8-24 02:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">很讨厌一片漆黑的动画
+
+
+*****
+
+####  我是大鲨鱼  
+##### 557#       发表于 2023-8-24 02:24
+
+卧槽，女仆小姐我可以<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  550616  
+##### 558#       发表于 2023-8-24 04:40
+
+这集女仆意思是
+
+轮堂鸦夜头发技术更好？
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 559#       发表于 2023-8-24 05:16
+
+受伤的只有两个保安<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大丈夫萌大乃  
+##### 560#       发表于 2023-8-24 11:00
+
+黑啤妹子居然被切片了...
+
+
+*****
+
+####  cauchua3  
+##### 561#       发表于 2023-8-24 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62141477&amp;ptid=2125379" target="_blank">Mc凉月奏酱 发表于 2023-8-24 05:16</a>
+
+受伤的只有两个保安</blockquote>
+伤亡方面警备的保安警察100人应该都死的差不多了吧
+
+*****
+
+####  cauchua3  
+##### 562#       发表于 2023-8-24 11:38
+
+钻石是揭示了人狼的聚集地，保险箱有啥用？
+
+
+*****
+
+####  drzas  
+##### 563#       发表于 2023-8-24 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62145162&amp;ptid=2125379" target="_blank">cauchua3 发表于 2023-8-24 11:38</a>
+ 钻石是揭示了人狼的聚集地，保险箱有啥用？</blockquote>
+保险箱是怪盗他们拿走的吧。毕竟他们本来就是为了钱来偷，保险箱是纯银还有矮人工艺应该也值不少钱
+
+*****
+
+####  drzas  
+##### 564#       发表于 2023-8-24 12:08
+
+哦，不对，之前有提到保险箱是用纯银打造防止人狼来偷钻石从而避免他们的栖息地被人发现
+
+*****
+
+####  leleq  
+##### 565#       发表于 2023-8-24 12:09
+
+黑皮弩妹 死的真惨不仅被切块心脏还被真打拿去当道具了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+跟上一集一样某些段落太黑了 不知道staff怎么想的……人物说伸手不见五指但画面上观众看亮堂堂的是很正常的操作啊为啥真搞的黑漆漆的呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moshizhe  
+##### 566#       发表于 2023-8-24 12:30
+
+吸血鬼卡米拉理论上也活了几百年吧
+
+怎么技术没女主好的
+
+
+*****
+
+####  风凰院凶真  
+##### 567#       发表于 2023-8-24 12:49
+
+我想看推理
+
+不想看怪物打架<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且这打架还黑嘛了
+
+*****
+
+####  drzas  
+##### 568#       发表于 2023-8-24 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62146170&amp;ptid=2125379" target="_blank">风凰院凶真 发表于 2023-8-24 12:49</a>
+ 我想看推理 不想看怪物打架 而且这打架还黑嘛了</blockquote>
+没事，下一章就又变成推理剧了
+
+
+*****
+
+####  龙卷丁真  
+##### 569#       发表于 2023-8-24 13:00
+
+最后一手偷钻石倒像是鲁邦常用的戏码，虽然有点套路但一轮看下来就是好爽
+
+
+*****
+
+####  406  
+##### 570#       发表于 2023-8-24 13:07
+
+哦不，黑皮，宣传图上没有知道会垫脚，但怎么垫稀碎了
+
+
+*****
+
+####  k1no  
+##### 571#       发表于 2023-8-24 13:16
+
+静句好涩<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  明羽杏子  
+##### 572#       发表于 2023-8-24 13:25
+
+开膛手杰克不开膛一个女人怎么行呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxc4563982  
+##### 573#       发表于 2023-8-24 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">草，就说漏油怎么都在说黑黑黑，看了群友发的巴哈截图才知道，是真的黑啊
+
+这片巴哈源黑成一坨了，换个源吧漏油们
+
+baha.jpg
+(10.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 13:35 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/133524vrjisse23kre8wrr.jpg" referrerpolicy="no-referrer">
+
+cr.jpg
+(12.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 13:35 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/133525w4noyzyo5rzvk1jq.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  异界送  
+##### 574#       发表于 2023-8-24 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62145917&amp;ptid=2125379" target="_blank">moshizhe 发表于 2023-8-24 12:30</a>
+
+吸血鬼卡米拉理论上也活了几百年吧
+
+怎么技术没女主好的</blockquote>
+XP问题吧
+
+
+*****
+
+####  HGCG3  
+##### 575#       发表于 2023-8-24 13:55
+
+我昨晚看电视台，没有这么黑的。
+
+*****
+
+####  鬼谷ask  
+##### 576#       发表于 2023-8-24 14:00
+
+虽然有点黑，但我看的也没上面截图那么黑，不过确实也有点影响观感了，就是最后钻石到手得颇为意外，不知道该说些什么，不过还是挺好看的，就是有些不够尽兴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxc4563982  
+##### 577#       发表于 2023-8-24 14:06
+
+左巴哈右CR
+
+1.jpg
+(74.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 14:05 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/140542qxctb3m0hguuyc9h.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  罗克萨斯  
+##### 578#       发表于 2023-8-24 14:06
+
+女主原来是双？！
+正经女仆发情起来竟然这么瑟<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+吸血鬼大姐姐的能力好棒，我也想有<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  仟音一心  
+##### 579#       发表于 2023-8-24 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62146170&amp;ptid=2125379" target="_blank">风凰院凶真 发表于 2023-8-24 12:49</a>
+我想看推理
+
+不想看怪物打架
+
+而且这打架还黑嘛了</blockquote>
+我一开始就说了这章真的没推理的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没事到下一话人狼村就好了。
+
+
+*****
+
+####  aptx8285144  
+##### 580#       发表于 2023-8-24 14:26
+
+莫提亚这群人简直变态<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 581#       发表于 2023-8-24 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62141449&amp;ptid=2125379" target="_blank">550616 发表于 2023-8-24 04:40</a>
+
+这集女仆意思是
+
+轮堂鸦夜头发技术更好？
+
+看到男主还拉衣服遮羞迷之萌点</blockquote>
+会不会是亲吻（
+
+
+*****
+
+####  杏仁小圆饼  
+##### 582#       发表于 2023-8-24 14:34
+
+<blockquote>moshizhe 发表于 2023-8-24 12:30
+吸血鬼卡米拉理论上也活了几百年吧
+
+怎么技术没女主好的</blockquote>
+可能几百年都在新手村骗小姑娘吧
+
+
+*****
+
+####  鬼谷ask  
+##### 583#       发表于 2023-8-24 14:55
+
+女吸血鬼主打一个自己尽兴，可能真的不管对象舒不舒服吧，也许除了媚药真没啥技术呢
+
+
+*****
+
+####  CHCL3  
+##### 584#       发表于 2023-8-24 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62147520&amp;ptid=2125379" target="_blank">aptx8285144 发表于 2023-8-24 14:28</a>
+会不会是亲吻（</blockquote>
+鸦夜半年还是一年前才变成这种只有头没有身子的存在，而女仆从出生开始就在服侍她了，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">以前俩人做过什么任凭想象
+
+
+*****
+
+####  达达葱2  
+##### 585#       发表于 2023-8-24 15:26
+
+就这么死了？还死的这么惨？
+
+
+*****
+
+####  plusSharp  
+##### 586#       发表于 2023-8-24 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62146721&amp;ptid=2125379" target="_blank">zxc4563982 发表于 2023-8-24 13:35</a>
+
+草，就说漏油怎么都在说黑黑黑，看了群友发的巴哈截图才知道，是真的黑啊
+
+这片巴哈源黑成一坨了，换 ...</blockquote>
+巴哈不但黑，而且字幕引号都打反了
+
+
+*****
+
+####  新HGCG  
+##### 587#       发表于 2023-8-24 17:40
+
+福尔摩斯那是什么特殊能力吗？放慢时间？限时时停？
+
+*****
+
+####  notromeo  
+##### 588#       发表于 2023-8-24 17:43
+
+现在什么字幕组的质量比较好呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  notromeo  
+##### 589#       发表于 2023-8-24 17:43
+
+巴哈的一直感觉黑的时候黒麻了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  杏仁小圆饼  
+##### 590#       发表于 2023-8-24 17:46
+
+<blockquote>新HGCG 发表于 2023-8-24 17:40
+福尔摩斯那是什么特殊能力吗？放慢时间？限时时停？</blockquote>
+不就巴顿术吗
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 591#       发表于 2023-8-24 17:57
+
+我说感觉少了谁，果然还得有开膛手杰克啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+保安妹子死的好惨，这变成几块了啊，保底六块起步？
+女仆那段发言过于爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+男主小偷小摸也太强了，这就把钻石毛回来了
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 592#       发表于 2023-8-24 20:00
+
+小说里都扒的要用手遮**了
+
+动画尺度怎么缩这么多 肉都让男人卖完了是吧
+
+
+*****
+
+####  wolf1997  
+##### 593#       发表于 2023-8-24 20:28
+
+透不过气的密集战斗，全程信息量轰炸，在最后用最意料之外的方式将紧张的情绪释放，非常的爽。
+
+武内这集表现很靠近小俣，但明显和小俣自己有所差别，静句和鸦夜都显得可爱许多了。
+
+
+*****
+
+####  notromeo  
+##### 594#       发表于 2023-8-24 20:36
+
+一暗毁所有，也就那样吧，老福是杀了编剧的爹吗，所有闪光点删完了，真tm小气<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxc4563982  
+##### 595#       发表于 2023-8-24 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62152033&amp;ptid=2125379" target="_blank">RiesbyfeAtlasia 发表于 2023-8-24 20:00</a>
+
+小说里都扒的要用手遮**了
+
+动画尺度怎么缩这么多 肉都让男人卖完了是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你看真打不也漏了，漏的跟静句是同一侧
+
+
+*****
+
+####  BarryAllen  
+##### 596#       发表于 2023-8-24 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62152367&amp;ptid=2125379" target="_blank">wolf1997 发表于 2023-8-24 20:28</a>
+
+透不过气的密集战斗，全程信息量轰炸，在最后用最意料之外的方式将紧张的情绪释放，非常的爽。
+
+武内这集表 ...</blockquote>
+第一集从全是旗子的开始还以为是武内的分镜;  小俣真一作为制作进行出身的演出家可能没那么注意怎么画得更漂亮 (尤其是光影); 另外武内应该算小俣真一的前辈
+
+*****
+
+####  アルメリア  
+##### 597#       发表于 2023-8-24 21:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来保险公司的两位都是垫脚石
+
+*****
+
+####  TOYSTORY  
+##### 598#       发表于 2023-8-24 21:22
+
+ 本帖最后由 TOYSTORY 于 2023-8-24 21:23 编辑 
+
+黑妹这种看起来没多极端的没必要死啊，要个垫脚石展现杰克实力的话让那个臭屁的白毛男来不行吗
+
+男主还鞭尸拿心脏当血包玩障眼法，太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  406  
+##### 599#       发表于 2023-8-24 21:40
+
+黑皮也和白毛男一样打着暗地杀死罗宾魅影夺取宝石的主意吧，真要比狠都一样，魅影应该是盗窃初犯无人命照样往死里打，白毛男那边因为罗宾津轻谐谐的很安心，反而没见血（反被罗宾津轻迎头痛击，衰）。当然外貌上是黑皮怂脸萌妹胜过白毛臭脸奇葩发型男。话说魅影表现力完全弱于罗宾啊，魅影反击前似乎危了，罗宾玩老鼠躲猫都皮皮的，明明这作设定魅影才是怪异？但没有特别显眼的能力描写（不如弹珠），相比其他牛鬼蛇神，隐藏身形夜中视物的表现太无害了，搞得像保安公司瞎听传闻，把阴暗避光宅男当成盘踞于剧院地底的异形男鬼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TOYSTORY  
+##### 600#       发表于 2023-8-24 21:40
+
+ 本帖最后由 TOYSTORY 于 2023-8-24 21:43 编辑 
+
+男主和杰克两边都是鬼人的话，那给对方造成的伤还能再生吗？
+
+漫画里男主喝了女主的唾液伤就自动愈合
+
+杰克已经移植了吸血鬼和女主身体的不死细胞，但这话被男主攻击的地方就没法再生
+
+
+*****
+
+####  drzas  
+##### 601#       发表于 2023-8-24 21:42
+
+应该是暂时不能恢复吧，也有可能是移植的不如本体。当然我觉得青崎可能也没想过这个问题
+
+
+*****
+
+####  TOYSTORY  
+##### 602#       发表于 2023-8-24 21:56
+
+<img src="https://img.saraba1st.com/forum/202308/24/215646busouibe7vii0bmj.jpg" referrerpolicy="no-referrer">
+
+<strong>09_01.jpg</strong> (153.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215646xkz957m5m5sa5q3m.jpg" referrerpolicy="no-referrer">
+
+<strong>09_02.jpg</strong> (135.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215648tyqqrqyyd4rqyqf4.jpg" referrerpolicy="no-referrer">
+
+<strong>09_03.jpg</strong> (66.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215649v0nflqw4fzqth0i4.jpg" referrerpolicy="no-referrer">
+
+<strong>09_04.jpg</strong> (59.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215650hcbzcba8wsgicngv.jpg" referrerpolicy="no-referrer">
+
+<strong>09_05.jpg</strong> (74.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215651tpygmkezy5gzdezi.jpg" referrerpolicy="no-referrer">
+
+<strong>09_06.jpg</strong> (41.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215652ob9dufo7od47g893.jpg" referrerpolicy="no-referrer">
+
+<strong>09_07.jpg</strong> (47.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+<img src="https://img.saraba1st.com/forum/202308/24/215653zhwckh8hqktvqcv9.jpg" referrerpolicy="no-referrer">
+
+<strong>09_08.jpg</strong> (73.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-24 21:56 上传
+
+第9話「人狼」
+
+ドイツの山奥にある村ホイレンドルフを目指す＜鳥籠使い＞一行。ホイレンドルフにたどり着くが、そこでは少女・ルイーゼが行方不明となっていた。
+
+この村では一年ほど前から少女が人狼に殺される連続殺人事件が続いており―――。
+
+                                                
+
+脚本：高木登　絵コンテ：寺東克己　演出：石川奨士
+
+*****
+
+####  CHCL3  
+##### 603#       发表于 2023-8-24 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62153004&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-8-24 21:22</a>
+黑妹这种看起来没多极端的没必要死啊，要个垫脚石展现杰克实力的话让那个臭屁的白毛男来不行吗
+
+男主还鞭尸 ...</blockquote>
+你也不看看这是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开膛手杰克当然要优先杀女人
+
+*****
+
+####  CHCL3  
+##### 604#       发表于 2023-8-24 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62153449&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-8-24 21:56</a>
+第9話「人狼」
+
+ドイツの山奥にある村ホイレンドルフを目指す＜鳥籠使い＞一行。ホイレンドルフにたどり ...</blockquote>
+急急急，现在就像看到人狼篇
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 605#       发表于 2023-8-25 00:11
+
+草下集居然叫人狼吗
+突然想起来我下了押井守的人狼还没空看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  fshzx  
+##### 606#       发表于 2023-8-25 02:30
+
+这动画还是很值得在电视台追直播的，起码画面亮了不少
+
+
+*****
+
+####  好much橘  
+##### 607#       发表于 2023-8-25 04:41
+
+保险公司好逊，还是一如既往的好看<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  敏感词好多  
+##### 608#       发表于 2023-8-25 12:07
+
+打得好爽，黑妹这哪是开膛啊，这是直接碎了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Anley  
+##### 609#       发表于 2023-8-25 13:34
+
+心疼黑妹，前面起那么高调还以为很牛，没想到分别被魅影和杰克吊打切片<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+这集大半都是黑乎乎的，但又是打戏重心，我调高亮度到最高也还是看不清楚，痛苦
+
+
+*****
+
+####  杏仁小圆饼  
+##### 610#       发表于 2023-8-25 13:48
+
+<blockquote>406 发表于 2023-8-24 21:40
+黑皮也和白毛男一样打着暗地杀死罗宾魅影夺取宝石的主意吧，真要比狠都一样，魅影应该是盗窃初犯无人命照样 ...</blockquote>
+但魅影真的是阴暗避光宅男吧，开场就在歌剧院主场被罗平抓去空心岩柱了
+
+
+*****
+
+####  杏仁小圆饼  
+##### 611#       发表于 2023-8-25 14:03
+
+<blockquote>TOYSTORY 发表于 2023-8-24 21:40
+男主和杰克两边都是鬼人的话，那给对方造成的伤还能再生吗？
+
+漫画里男主喝了女主的唾液伤就自动愈合
+</blockquote>
+但鸦夜自己都被杰克切断脖子不能复原，看这一集的描述好像津轻移植的鬼血浓度比杰克更高
+
+
+*****
+
+####  hagiwara  
+##### 612#       发表于 2023-8-25 14:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杰克真就只杀女人啊
+
+
+*****
+
+####  406  
+##### 613#       发表于 2023-8-25 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62160428&amp;ptid=2125379" target="_blank">杏仁小圆饼 发表于 2023-8-25 14:03</a>
+
+但鸦夜自己都被杰克切断脖子不能复原，看这一集的描述好像津轻移植的鬼血浓度比杰克更高 ...</blockquote>
+主要是黑皮不是以劳合社名义宣称魅影是“异形”吗，如果魅影不是人外的话，盯着一个盗贼初犯从犯杀，主犯还是不沾人命风评的，那也太狠了，难道是劳合社真的听谣言乌龙了（或者我下载的源翻译错了，真的这么狠）
+
+
+*****
+
+####  CHCL3  
+##### 614#       发表于 2023-8-25 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62160428&amp;ptid=2125379" target="_blank">杏仁小圆饼 发表于 2023-8-25 14:03</a>
+但鸦夜自己都被杰克切断脖子不能复原，看这一集的描述好像津轻移植的鬼血浓度比杰克更高 ...</blockquote>
+津轻（以及他杀鬼队的小伙伴们和其他被绑架的各种试验品）注射了过量的鬼血，所以基本都鬼化或失去智力爆体了或自杀了，只有津轻跑路了，但津轻的身体正常情况下也撑不住鬼化，是遇到女主后才保住一条命
+莫里亚蒂在试验了其他试验品后掌控了合适的比例…最后才在杰克身上注射，所以杰克的鬼与人的比例合适，但只能砍下鸦夜的头没法杀死鸦夜；第一集也说了鸦夜觉得津轻的鬼含量更多有可能杀死自己
+杰克//强是强在除了鬼之外还移植了其他各种怪物
+
+
+*****
+
+####  马肉刺身  
+##### 615#       发表于 2023-8-25 16:40
+
+女仆好棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+不过，也太黑了吧，不知道在打什么<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杏仁小圆饼  
+##### 616#       发表于 2023-8-25 18:14
+
+<blockquote>406 发表于 2023-8-25 15:57
+主要是黑皮不是以劳合社名义宣称魅影是“异形”吗，如果魅影不是人外的话，盯着一个盗贼初犯从犯杀，主犯 ...</blockquote>
+魅影不是人外啊，前面罗平讲过他是三十来岁的波斯人。保险公司清除怪物是为了降低保险风险，针对他可能是因为巴黎歌剧院？
+
+*****
+
+####  杏仁小圆饼  
+##### 617#       发表于 2023-8-25 18:18
+
+<blockquote>CHCL3 发表于 2023-8-25 16:20
+津轻（以及他杀鬼队的小伙伴们和其他被绑架的各种试验品）注射了过量的鬼血，所以基本都鬼化或失去智力爆 ...</blockquote>
+这一集说鸦夜被杰克切断脖子没有再生，所以鸦夜的不死能力应该也不能治愈津轻和杰克互相造成的伤口吧？
+
+
+*****
+
+####  CHCL3  
+##### 618#       发表于 2023-8-25 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62163990&amp;ptid=2125379" target="_blank">杏仁小圆饼 发表于 2023-8-25 18:18</a>
+这一集说鸦夜被杰克切断脖子没有再生，所以鸦夜的不死能力应该也不能治愈津轻和杰克互相造成的伤口吧？ ...</blockquote>
+应该是这样的，设定上鬼能克不死
+
+
+*****
+
+####  406  
+##### 619#       发表于 2023-8-25 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62163947&amp;ptid=2125379" target="_blank">杏仁小圆饼 发表于 2023-8-25 18:14</a>
+
+魅影不是人外啊，前面罗平讲过他是三十来岁的波斯人。保险公司清除怪物是为了降低保险风险，针对他可能是 ...</blockquote>
+草 所以黑皮叫他“异形”单纯是攻击长相吗 可怜的阿宅<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
