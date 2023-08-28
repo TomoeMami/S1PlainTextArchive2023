@@ -5636,3 +5636,166 @@ FA...
 
 一个舞台用两次，真是划算啊
 
+*****
+
+####  江戸前ルナ  
+##### 658#         楼主| 发表于 2023-8-21 00:17
+
+笑死了，推特上有日本人发现了FS社搬到了游戏里成子坂制作所的位置坐标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然喊联动的更多
+
+<img src="https://img.saraba1st.com/forum/202308/21/001711h65ajxxx56o0i5xa.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230821001650.png</strong> (151.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-21 00:17 上传
+
+<img src="https://img.saraba1st.com/forum/202308/21/001711zv7on8nf7f7oofnn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230821001656.png</strong> (220.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-21 00:17 上传
+
+[https://twitter.com/Punishment_2086/status/1692959060080148523](https://twitter.com/Punishment_2086/status/1692959060080148523)
+
+
+*****
+
+####  冰风血羽  
+##### 659#       发表于 2023-8-21 23:40
+
+明天下午出情报？
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  江戸前ルナ  
+##### 660#         楼主| 发表于 2023-8-22 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62114200&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-8-21 23:40</a>
+
+明天下午出情报？
+
+—— 来自 realme RMX3706, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+应该是。但池子按惯例要差不多月底吧。
+
+
+*****
+
+####  madcow  
+##### 661#       发表于 2023-8-22 10:53
+
+<blockquote>江戸前ルナ 发表于 2023-8-21 00:17
+笑死了，推特上有日本人发现了FS社搬到了游戏里成子坂制作所的位置坐标这下金字塔被雀占鸠巢大危机 ...</blockquote>
+白闪子麻烦安排一下（
+
+
+*****
+
+####  江戸前ルナ  
+##### 662#         楼主| 发表于 2023-8-22 14:36
+
+果然是无剑版涛哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 663#       发表于 2023-8-22 14:49
+
+这次视觉图都是加藤画的，岛田乐不思蜀（你说哪边是蜀？）一天到晚在推上画文工团live感想图和泡声优，根本不提AGA了。能不能炒作一波岛田和金字塔不和对AGA失去兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 664#       发表于 2023-8-22 14:56
+
+希望角色别太多，当初傻乎乎FAG联动换装备没注意看换重复搞得勋章不够多<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lxh00770077  
+##### 665#       发表于 2023-8-22 16:11
+
+果然你游唯一指定爱抖只有桃歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 666#       发表于 2023-8-23 20:47
+
+赶在25号之前更新一部分主线好让员工玩AC6是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">东京防卫战AEGIS的速应部队女演员光失踪就23%，那就是好几百人了。虽然gear正常工作的话极限能活数年。速应部队战损60%，部队的40%不能继续战斗，实质上就是玩完了。
+
+还有就是月人果然保有大量境界技术（明显是alice的遗产）还不让地球人用，这次破例用了境界医疗就把雾岛治好了。
+
+
+*****
+
+####  江戸前ルナ  
+##### 667#         楼主| 发表于 2023-8-23 21:28
+
+补充下，独尊组被北条集团插手拉去自己的医院了，就是夜露和未罗老妈当年生孩子时住的医院，根据雾岛的说法就是VICE研做研究的地方。这次精神连接控制后能退兵他们认为是EMISSION研究的产物，虽然这次结果救了东京船团但万一控制不住也会反被控制，所以打算想办法直接干对面了。
+
+另外的一些情况：
+
+拉初中生扛后方正面战线打到几乎失联，要休养不能出战；凡是跟NAGI有接触的女演员等基本要禁闭封嘴不能出战；神南组、花浪和EDEN作为应急候补正式加入到主线了；还有美里江，关于她爷爷的事记忆脱失，所以那段本身就是诡叙的剧情说不定本身又是假的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  孫光龍  
+##### 668#       发表于 2023-8-23 21:34
+
+安卓觉醒alice的后续又不了了之了吗.....
+
+
+*****
+
+####  alialex  
+##### 669#       发表于 2023-8-24 00:07
+
+有没有人算过这仗现实时间前前后后打了多久，不只一年战争了吧
+
+
+*****
+
+####  江戸前ルナ  
+##### 670#         楼主| 发表于 2023-8-24 13:52
+
+ 本帖最后由 江戸前ルナ 于 2023-8-24 13:54 编辑 
+
+ALICE可是戏玉，这次能控制对面大概也是有ALICE上线的原因，没那么快揭底的吧……
+
+*****
+
+####  江戸前ルナ  
+##### 671#         楼主| 发表于 2023-8-24 13:57
+
+[https://www.bilibili.com/video/BV1m14y117ba](https://www.bilibili.com/video/BV1m14y117ba)
+
+话说这次高难变异刺猬貌似有BUG，疑似没近战判定，被MOSS大佬打出了个近战砍死的变态操作……阿金草台<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 672#       发表于 2023-8-25 14:34
+
+三档通行证感觉还挺微妙的（？主要除了钻和服袋其他也没什么需求，现在服袋衣服也出得少
+
+
+*****
+
+####  alialex  
+##### 673#       发表于 2023-8-25 15:50
+
+更在意那个终极无分混池暗黑锅能出什么呢
+
