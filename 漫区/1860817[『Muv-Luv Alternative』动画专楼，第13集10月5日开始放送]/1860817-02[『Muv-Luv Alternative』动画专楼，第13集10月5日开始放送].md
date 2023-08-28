@@ -3489,3 +3489,40 @@ CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都
 
 图我回家传
 
+*****
+
+####  再买自检星剁手  
+##### 2283#       发表于 2023-8-24 08:19
+
+ 本帖最后由 再买自检星剁手 于 2023-8-24 08:21 编辑 
+
+啊？
+
+[联动卓明谷：又一个b站up欠钱不还跑路了](https://bbs.saraba1st.com/2b/thread-2149681-0-1.html)
+
+<img src="https://p.sda1.dev/12/3e995effe9c20f4b22d2b8a219dec1d1/CMP_20230824011202410.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  oskneo  
+##### 2284#       发表于 2023-8-24 09:19
+
+看到更新还以为有第三季消息
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  再买自检星剁手  
+##### 2285#       发表于 2023-8-26 07:09
+
+[【MAD】【中日歌词】再会 - V.W.P 【Muv-Luv Alternative Season2 ED】](https://www.bilibili.com/video/BV1ar4y1R7zJ)
+
+做得太棒了
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
