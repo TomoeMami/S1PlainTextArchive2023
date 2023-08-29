@@ -4811,3 +4811,181 @@ https://www.bilibili.com/video/BV1M94y1k7rB/ ...</blockquote>
 
 今天通雷神殿时好像遇到一个bug：解开一个机关后离开神殿去了其他地方，再回来时神殿地图上就不显示另外三个机关的位置了，传送、重启游戏都不行，幸好神殿难度不高，还是顺利找到另外三个机关了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+*****
+
+####  iou90  
+##### 15407#       发表于 2023-8-25 23:27
+
+话说感觉足迹模式不止记录100个小时 是完整记录？
+
+
+*****
+
+####  冷泉夜月  
+##### 15408#       发表于 2023-8-25 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62167254&amp;ptid=1997982" target="_blank">iou90 发表于 2023-08-25 23:27:11</a>
+话说感觉足迹模式不止记录100个小时 是完整记录？</blockquote>这次足迹模式有256小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15409#       发表于 2023-8-26 00:14
+
+水滴那个我其实也来来回回找了半天，看足迹模式被我涂得满满的……我开始以为是要找水滴状的石头，瞎射了几个发现都不是……最后也很柳暗花明，又跑到中间的中间无意中拨了一下摇杆，看到旁边的水滴恍然大悟<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+射箭其实也有一点点时之笛从水神殿里出来的感觉xD
+这回确实从头到尾都没怎么卡关，大概是我玩的最顺畅的一作塞尔达。也不是说这样不好，但……
+但我还是想玩青沼火力全开后的大迷宫啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liekong  
+##### 15410#       发表于 2023-8-26 04:01
+
+水滴那个解谜的难度有老塞尔达那个味道了，
+
+就是那种你怎么都想不到，卡关卡老久，
+
+终于解开的时候恍然大悟的醍醐味
+
+
+*****
+
+####  hisousihou  
+##### 15411#       发表于 2023-8-26 06:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">水滴好像很多人都给好评……虽然我也觉得还不错，但是那个我觉得并不是难度问题，而是无法给出明确引导的谜题在高自由度游戏里格格不入造成的。说太明白了或者很简单就找到会没意思，说得不明白的话偏一点就容易发现不了
+
+
+*****
+
+####  a317216007  
+##### 15412#       发表于 2023-8-26 07:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个任务文本提示在周围的浮石找到水滴，结果我擅自把难度提高了，从鱼背上跳下来绕着鱼身周围飞了一大圈来找
+
+要是说是在鱼背上找可能难度就会下降不少
+
+
+*****
+
+####  牛奶笛  
+##### 15413#       发表于 2023-8-26 07:48
+
+科隆展四个提名四个奖
+
+<img src="https://img.saraba1st.com/forum/202308/26/074818p0glserlug927s9s.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20230826074735498.jpg</strong> (19.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 07:48 上传
+
+*****
+
+####  伊迪潘宫森  
+##### 15414#       发表于 2023-8-26 07:49
+
+畅想下王泪dlc
+
+大师剑镀金：cg里注入了一万年神圣能量发金光的大师剑该开放使用了，就给个常驻75攻吧
+
+龙材料：满地图寻龙很蛋疼，寻完还得骑在在龙背上等四十分钟更蛋疼。出个龙材料商人或者龙研究者npc给提示下龙的位置吧
+
+新佐纳乌装置和电池，蓝图优化
+
+五贤者优化：增强战斗力和ai
+
+新空岛，新地下地形：塞一下泪黑的嘴
+
+海底地形：吃桃
+
+操作塞尔达畅玩一万年前海拉鲁（黄金国的海利亚）：吃大桃
+
+
+*****
+
+####  downnote  
+##### 15415#       发表于 2023-8-26 07:56
+
+水滴那个相对来说还好一些？那一片的碎片本来就很奇怪，我第一次到公园就直接探索了周围，上去的时候都还不知道后续任务就发现了这，但搞不明白要干嘛。而且后来接了任务，看那个提示至少是写了地点，那就差不离在那个范围。
+
+反而是有个驿站拍照任务要拍笑脸，给的提示地点就很笼统，要自己慢慢找拍的角度突出一个随缘。
+
+不过老塞尔达的文字谜题似乎不像这两作这么多？可能是谜题多了，文字谜题也就多了，文字谜题多了普通谜题就越少，所以谜题越多普通谜题越少
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15416#       发表于 2023-8-26 08:09
+
+驿站笑脸那个我倒是第一时间反应过来了，因为一直觉得天上那俩岛的位置有点刻意。接了任务后秒懂。水滴我在找到后又跑过去看，发现角度要求很苛刻，稍微偏一点就不成形了……
+另外我印象里小火车的文字谜题量是最大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kuarwbwe  
+##### 15417#       发表于 2023-8-26 08:16
+
+科隆这个没啥含金量，没啥可说的。没评选理由，还有一堆评选标准莫名其妙的奖。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  forzen  
+##### 15418#       发表于 2023-8-26 08:27
+
+足迹模式最密集还是城堡东面那个陆地孤岛找深穴入口的时候留下的，每次想到什么新可能性就去犁一遍，那幻影盖都被我打了一万次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冷泉夜月  
+##### 15419#       发表于 2023-8-26 09:16
+
+微笑眼镜岩，射穿水滴，恋爱教室的七英雄石碑，这仨算是最具代表性的视觉错位解迷了吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  iou90  
+##### 15420#       发表于 2023-8-26 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62167434&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-8-25 23:48</a>
+这次足迹模式有256小时
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+哈哈原来如此 玩了3个月目前215小时 目标300小时内先通个关！
+
+
+*****
+
+####  downnote  
+##### 15421#       发表于 2023-8-26 16:52
+
+哦对，还有恋爱教室的石碑。这个我找了很久就剩下那一块，真是挠头，好在硬找还是找到了。的确这一块做出了区别设计，这样才对嘛。
+
+后来跟她们剧情时才知道会给提示<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 可能硬着头皮找是不太容易发现，有个稍微带点乐子的剧情而不是随便丢个提示，如果找过但是没找到的人心里也会舒服不少，不觉得输了吧
+
+
+*****
+
+####  otakun  
+##### 15422#       发表于 2023-8-26 17:30
+
+说起格鲁德地下室，我想起那个扔瓶中信的npc，我按自己直觉的方法是把瓶子粘在罐子上，然后把罐子举起来，过一会用时逆，自己趁机用通天术穿上去然后在洞口那里用究极手把罐子抓上来…………试了好几次才成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+然后看别人直播，直接对瓶子用时间逆转就送上去了<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+

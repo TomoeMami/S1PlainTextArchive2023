@@ -5408,3 +5408,10 @@ W社二人组技能预览：
 
 签到活动能开28天，真有你的啊yj<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Yuzutea  
+##### 347#       发表于 2023-8-26 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这签到怎么看怎么像14天活动直接延长到28天啊
+
