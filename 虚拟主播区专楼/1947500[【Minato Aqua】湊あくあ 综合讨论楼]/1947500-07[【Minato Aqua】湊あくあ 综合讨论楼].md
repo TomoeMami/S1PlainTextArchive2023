@@ -1137,3 +1137,18 @@ syl 不过是周年buff罢了 不出一个月必定回归懒狗mode
 
 突然会限，最近播的好勤，有点不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  lightsuger  
+##### 9432#       发表于 2023-8-27 17:54
+
+接力歌回再挑战<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+这次先叠个甲
+
+5:33 PM
+
+Aqua Ch. 湊あくあ
+
+​時間変更の可能性あり！把握よろしく！
+
