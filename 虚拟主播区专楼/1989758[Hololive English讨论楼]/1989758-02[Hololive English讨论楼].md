@@ -88,3 +88,75 @@ THEY ARE!<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" r
 
 2023-7-28 13:21 上传
 
+*****
+
+####  shimmy1996  
+##### 1852#       发表于 2023-8-25 09:57
+
+AmeRys都开了卡拉ok<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">瞧星男毕业把你们给乐得www（不对）
+
+
+*****
+
+####  gaotiya  
+##### 1853#       发表于 2023-8-25 13:13
+
+星男是真的可怜，咋一下子毕业了，我还以为holo已经和毕业没有关系了，没想到还会发生这种事情
+
+
+*****
+
+####  shimmy1996  
+##### 1854#       发表于 2023-8-26 10:51
+
+书签妹对双子好温柔啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我好想当她的狗...
+
+
+*****
+
+####  gaotiya  
+##### 1855#       发表于 2023-8-26 19:11
+
+FUWAMOCO en3最强黑马
+
+F3OMspnaMAAb3p2.jpg
+(836.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202308/26/191113azbkssgkf4u2jzgr.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimmy1996  
+##### 1856#       发表于 2023-8-27 11:48
+
+ruffians来打说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/27/114704g77f9d70wcd11dy7.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-08-26_23-46-52.png</strong> (249.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 11:47 上传
+
+<img src="https://img.saraba1st.com/forum/202308/27/114740l1goi9t5wg5owmmn.jpg" referrerpolicy="no-referrer">
+
+<strong>revice.jpg</strong> (535.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 11:47 上传
+
+
+*****
+
+####  shimmy1996  
+##### 1857#       发表于 2023-8-27 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">刚睡醒的书签妹太可爱了
+
