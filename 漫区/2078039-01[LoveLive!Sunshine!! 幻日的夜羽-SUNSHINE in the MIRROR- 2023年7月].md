@@ -2914,3 +2914,18 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 小香菇出镜了
 
+*****
+
+####  Delicatus545  
+##### 261#       发表于 2023-8-27 23:14
+
+这话总算有点进展了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉狗子有死相啊
+
+
+*****
+
+####  cmyk1234  
+##### 262#       发表于 2023-8-28 08:19
+
+这一集的脚本“何万字角藏”是谁的马甲
+
