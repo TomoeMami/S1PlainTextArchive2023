@@ -1852,3 +1852,43 @@ mv的还原度真高 这首真是拖了太久了</blockquote>
 
 谢谢各位指点
 
+*****
+
+####  Unlight  
+##### 7226#       发表于 2023-8-26 16:30
+
+所以大师片活动卷吗（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  孫光龍  
+##### 7227#       发表于 2023-8-28 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62173692&amp;ptid=1484979" target="_blank">Unlight 发表于 2023-8-26 16:30</a>
+所以大师片活动卷吗（
+
+—— 来自 S1Fun</blockquote>
+卷的，都回流了
+
+
+*****
+
+####  花开安菲路  
+##### 7228#       发表于 2023-8-28 20:08
+
+ 本帖最后由 花开安菲路 于 2023-8-28 20:10 编辑 
+
+热门曲肯定卷啊，毕竟是有档线排名的。
+比如刚结束的活动2500档位都卷到100w+了，我这种没石没肝的就清清每日体力打了19w，平时看到热门曲就直接躺了，偶尔打打喜欢但不太热门的彩牌<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 7229#       发表于 2023-8-29 00:54
+
+大师片还这么有人气，真好啊，可惜土豆服装设计还是不行，现在抽卡基本都是为了卡面了
+
