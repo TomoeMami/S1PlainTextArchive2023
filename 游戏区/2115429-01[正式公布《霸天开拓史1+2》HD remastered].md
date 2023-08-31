@@ -988,3 +988,107 @@ wiiu的遗产也就TP和TWW还有XBX了，干脆移植得了 ...</blockquote>
 
 本次预定推出的《拔天海拓史I・II HD Remaster》将完整收录《拔天海拓史：永恒之翼与失落之海》以及续作《拔天海拓史2：创始之翼与诸神之子》两款作品的内容，画面配合Nintendo Switch 翻新为高解析度，追加游戏速度变更、取消遇敌、自动战斗、自动存档、协助功能、NEW GAME+/- 等便利游玩的功能。 http://t.cn/A6prQ8Ga
 
+*****
+
+####  sslink  
+##### 108#       发表于 2023-8-26 14:13
+
+怨气很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/26/141249xqofiixzvz56w9fs.png" referrerpolicy="no-referrer">
+
+<strong>20230826141043.png</strong> (19.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 14:12 上传
+
+
+*****
+
+####  spicecoco1109  
+##### 109#       发表于 2023-8-28 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62172482&amp;ptid=2115429" target="_blank">sslink 发表于 2023-08-26 14:13:05</a>
+怨气很大啊</blockquote>啥意思？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  山高帽男  
+##### 110#       发表于 2023-8-28 08:56
+
+<blockquote>spicecoco1109 发表于 2023-8-28 07:47
+啥意思？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+感谢现在同意移植的万代南梦宫有关人士。但是当年某些南梦宫领导（现已退隐）不肯批准续作，还把游戏喷成垃圾，自己至今耿耿于怀
+
+*****
+
+####  飞侠小黑  
+##### 111#       发表于 2023-8-28 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62191307&amp;ptid=2115429" target="_blank">山高帽男 发表于 2023-8-28 08:56</a>
+
+感谢现在同意移植的万代南梦宫有关人士。但是当年某些南梦宫领导（现已退隐）不肯批准续作，还把游戏喷成 ...</blockquote>
+这话说的也太直白了吧，感觉很不日本人啊
+
+
+*****
+
+####  oskneo  
+##### 112#       发表于 2023-8-28 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62172482&amp;ptid=2115429" target="_blank">sslink 发表于 2023-8-26 14:13</a>
+怨气很大啊</blockquote>
+说得太狠到时候xs怎么办。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mjzs07  
+##### 113#       发表于 2023-8-28 09:22
+
+这个能用券吗
+
+
+*****
+
+####  iewnay  
+##### 114#       发表于 2023-8-28 09:33
+
+港服好贵哇399<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+过几个月看看会不会有优惠。
+
+
+*****
+
+####  葵  
+##### 115#       发表于 2023-8-28 09:48
+
+淘宝溜达了一圈，这游戏实体版是只有日版的？不带中文么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lion_or_judas  
+##### 116#       发表于 2023-8-28 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62191909&amp;ptid=2115429" target="_blank">葵 发表于 2023-8-28 09:48</a>
+
+淘宝溜达了一圈，这游戏实体版是只有日版的？不带中文么？</blockquote>
+应该不带，我觉得大B对着游戏销量也不上心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eaglu  
+##### 117#       发表于 2023-8-28 16:43
+
+中文只有港版吧，港版没卡带
+
