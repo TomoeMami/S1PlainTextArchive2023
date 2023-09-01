@@ -455,3 +455,10 @@ A组1月，B组6月底，CD组的活动能赶在今年内出完吗
 
 moba骨灰盒封面还要搞投票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然精神有问题
 
+*****
+
+####  kobushi  
+##### 5395#       发表于 2023-8-29 23:14
+
+明年双子妹+白，新7人就都上过周年曲了，CGSS完
+
