@@ -2367,3 +2367,104 @@ DLC角色和武器都带点神仙打架的意思，不过说到底这游戏最�
 
 当然也可能是有死神但是我没看见，屏幕太花了你懂的
 
+*****
+
+####  春哥亲自  
+##### 692#       发表于 2023-8-27 09:16
+
+新人，运气好也死在10分钟一波
+
+问下那个环的机制是啥？<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  春哥亲自  
+##### 693#       发表于 2023-8-27 09:16
+
+再问下武器该怎么选？
+
+
+*****
+
+####  轮太  
+##### 694#       发表于 2023-8-27 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62179684&amp;ptid=2052594" target="_blank">春哥亲自 发表于 2023-8-27 09:16</a>
+新人，运气好也死在10分钟一波
+
+问下那个环的机制是啥？</blockquote>
+直接吃伤害硬撞出去
+武器现在早期好像没啥性价比特别高的了，反正能不选蒜就不选蒜
+
+
+*****
+
+####  5353  
+##### 695#       发表于 2023-8-27 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62179784&amp;ptid=2052594" target="_blank">轮太 发表于 2023-8-27 09:32</a>
+
+直接吃伤害硬撞出去
+
+武器现在早期好像没啥性价比特别高的了，反正能不选蒜就不选蒜 ...</blockquote>
+前期玩选蒜没问题吧。
+
+*****
+
+####  5353  
+##### 696#       发表于 2023-8-27 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62179692&amp;ptid=2052594" target="_blank">春哥亲自 发表于 2023-8-27 09:16</a>
+
+再问下武器该怎么选？</blockquote>
+你查一下武器合成表，对着选能合的。
+
+
+*****
+
+####  这是闹球甚  
+##### 697#       发表于 2023-8-27 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62179684&amp;ptid=2052594" target="_blank">春哥亲自 发表于 2023-8-27 09:16</a>
+新人，运气好也死在10分钟一波
+
+问下那个环的机制是啥？</blockquote>
+慢慢玩，前期有点钱就去强化属性，属性上来了自然也就厉害了
+
+
+*****
+
+####  春哥亲自  
+##### 698#       发表于 2023-8-28 08:56
+
+基本会玩了（血战加速密法前四章30分，大教堂25分没问题了），问下怎么ban道具，老给我出螺旋钻头气死了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  椎名mahuyo  
+##### 699#       发表于 2023-8-28 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62191304&amp;ptid=2052594" target="_blank">春哥亲自 发表于 2023-8-28 08:56</a>
+
+基本会玩了（血战加速密法前四章30分，大教堂25分没问题了），问下怎么ban道具，老给我出螺旋钻头气死了[f: ...</blockquote>
+升级里有个BAN道具的升级，升了以后在收藏那里能BAN
+
+
+*****
+
+####  thest  
+##### 700#       发表于 2023-8-28 11:13
+
+蒜前期跑路确实很方便，经验回收率也高，就是伤害低而且伤害上限低，稍微点点升级就可以拿书开局了
+
+
+*****
+
+####  春哥亲自  
+##### 701#       发表于 2023-8-29 20:20
+
+太宵一文字和村正（武士刀）怎么用啊，刚才试了下满级9分钟才打出来24.4dps<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+村正据说还自己掉血
+
