@@ -1425,3 +1425,36 @@ mv3，有没有可能吉他才是落单的</blockquote>
 
 想重又希望轻点，轻了又觉得还是重点好，真难啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+*****
+
+####  有骨气的百合  
+##### 157#       发表于 2023-8-28 20:51
+
+新mv出了，cg效果的进步肉眼可见啊
+<img src="https://p.sda1.dev/12/fcbd4ccdf519a424a990c4ce7e029bac/IMG_CMP_83153288.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sad6504  
+##### 158#       发表于 2023-8-28 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">怎么有股PS3爱马仕游戏的味道
+
+
+*****
+
+####  没取名啊  
+##### 159#       发表于 2023-8-28 22:00
+
+建模确实像游戏，不像动画片
+
+
+*****
+
+####  最强惠酱  
+##### 160#       发表于 2023-8-29 09:29
+
+进步后莫名像se宝石社那批管人一样
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
