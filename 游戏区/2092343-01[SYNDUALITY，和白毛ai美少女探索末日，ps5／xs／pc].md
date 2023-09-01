@@ -1055,3 +1055,102 @@ ttps://www.4gamer.net/games/657/G065720/20230330082/
 但重点还是放在游戏上吧，可是游戏又没新消息。
 
 
+*****
+
+####  医生狼多  
+##### 103#         楼主| 发表于 2023-8-29 11:30
+
+万南的tgs界面显示本作会参展，终于要有新消息了吗
+
+*****
+
+####  SergeGlenn  
+##### 104#       发表于 2023-8-29 11:39
+
+索尼在TGS前应该会开个SOP吧
+
+
+*****
+
+####  SENKON  
+##### 105#       发表于 2023-8-29 11:49
+
+STEAM上现在显示这作的中文名字了
+
+<img src="https://img.saraba1st.com/forum/202308/29/114919t9w0p3ix70i40pze.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230829114851.jpg</strong> (28.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-29 11:49 上传
+
+*****
+
+####  silversor  
+##### 106#       发表于 2023-8-29 11:50
+
+动画都播了一大半了，结果连个发售日期都没确定吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 代哥不会单纯想卖胶吧，但两台马桶都快掉到2算了...
+
+
+*****
+
+####  lingtian2876  
+##### 107#       发表于 2023-8-29 12:16
+
+还没发售日？记得万代南梦宫不是说科隆有惊心动魄的惊喜吗，结果好像没什么水花！
+
+
+*****
+
+####  Evomenon  
+##### 108#       发表于 2023-8-29 12:35
+
+发售日东京电玩展上就该公布了吧，9月24日
+
+<img src="https://img.saraba1st.com/forum/202308/29/123339ufvvf2llhmzlzi0j.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2023-08-29 123248.png</strong> (180.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-29 12:33 上传
+
+游戏和动画的女主，以及动画男主声优出场，神秘的配置<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+顺便9月25日放送动画第12集，本季的结局<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tring  
+##### 109#       发表于 2023-8-29 12:47
+
+这译名……一言难尽……
+
+
+*****
+
+####  绚烂航迹云  
+##### 110#       发表于 2023-8-29 19:07
+
+这译名……怎么理解的…？
+SYNDUALITY翻译出奇异贤伴，好像差不太多
+艾达之歌是哪里来的，原名有副标题吗
+
+----发送自 [Sony XQ-AT72,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  NeloAngelo  
+##### 111#       发表于 2023-8-29 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62216296&amp;ptid=2092343" target="_blank">绚烂航迹云 发表于 2023-8-29 19:07</a>
+
+这译名……怎么理解的…？
+
+SYNDUALITY翻译出奇异贤伴，好像差不太多
+
+艾达之歌是哪里来的，原名有副标题吗</blockquote>
+原名 Echo of Ada
+
