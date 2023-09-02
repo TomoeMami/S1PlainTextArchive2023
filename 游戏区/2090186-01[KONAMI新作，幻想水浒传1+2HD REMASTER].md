@@ -2469,3 +2469,184 @@ KONAMI的世界级ip现在能拿多少出来？
 
 6月17日有商店显示10月发售（刚snitch这会提了嘴……）
 
+*****
+
+####  Piano-Forest  
+##### 269#       发表于 2023-8-30 09:32
+
+延期……
+<img src="https://p.sda1.dev/12/670f10d082a85376e1ccced4ab90e533/20230830_093118.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e8b0acb4962529b1ae78ec899abd5200/20230830_093140.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Demi.Albertini  
+##### 270#       发表于 2023-8-30 09:35
+
+不会就是外包给村山吉隆的那个公司做的吧……怎么这么巧俩都延期
+
+
+*****
+
+####  火红之眼  
+##### 271#       发表于 2023-8-30 10:02
+
+憋了一年还能延<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫将军  
+##### 272#       发表于 2023-8-30 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">fxxk，konami
+
+
+*****
+
+####  zris  
+##### 273#       发表于 2023-8-30 12:11
+
+主要看他们背景都重绘了
+
+工程量看来不少啊
+
+
+*****
+
+####  4591  
+##### 274#       发表于 2023-8-30 12:22
+
+这游戏只能开外区的账号买是吧？
+
+
+*****
+
+####  ztkong  
+##### 275#       发表于 2023-8-30 12:48
+
+哦艹。。。年内变成未定等通知了。。。
+
+
+*****
+
+####  trb315  
+##### 276#       发表于 2023-8-30 14:09
+
+就单纯重制了一下？有加啥新内容吗
+
+
+*****
+
+####  zris  
+##### 277#       发表于 2023-8-30 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62226775&amp;ptid=2090186" target="_blank">trb315 发表于 2023-8-30 14:09</a>
+
+就单纯重制了一下？有加啥新内容吗</blockquote>
+不是单纯重制
+
+游戏背景几乎都全新重绘过了
+
+*****
+
+####  trb315  
+##### 278#       发表于 2023-8-30 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62227097&amp;ptid=2090186" target="_blank">zris 发表于 2023-8-30 14:34</a>
+
+不是单纯重制
+
+游戏背景几乎都全新重绘过了</blockquote>
+我的意思是除了画面提升外有没有什么游戏内容上的更新
+
+*****
+
+####  zris  
+##### 279#       发表于 2023-8-30 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62227118&amp;ptid=2090186" target="_blank">trb315 发表于 2023-8-30 14:37</a>
+
+我的意思是除了画面提升外有没有什么游戏内容上的更新</blockquote>
+内容不清楚了
+
+*****
+
+####  woshenc  
+##### 280#       发表于 2023-8-30 14:40
+
+幻水1代里，大反派王妃和她姐姐两个的“门之印章”（是叫这个名字吧？）到底有什么用我到现在都没搞明白...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 281#       发表于 2023-8-30 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62225902&amp;ptid=2090186" target="_blank">ztkong 发表于 2023-8-30 12:48</a>
+
+哦艹。。。年内变成未定等通知了。。。</blockquote>
+我怀疑是从头开始造车轮，办公的进度不利索，科乐美不还在大阪搞了个新的巨大工作室吗，重头开始哪有那么容易
+
+
+*****
+
+####  Demi.Albertini  
+##### 282#       发表于 2023-8-30 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62227161&amp;ptid=2090186" target="_blank">woshenc 发表于 2023-8-30 14:40</a>
+
+幻水1代里，大反派王妃和她姐姐两个的“门之印章”（是叫这个名字吧？）到底有什么用我到现在都没搞明白... ...</blockquote>
+1代最后尤巴他们用半个门之纹章的能力打开异界之门召唤了很多魔物。另外在2代里可以看作超弱化版门之纹章的苍门之纹章也都是召唤术……估计就是这个作用
+
+
+*****
+
+####  ztkong  
+##### 283#       发表于 2023-8-30 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62227118&amp;ptid=2090186" target="_blank">trb315 发表于 2023-8-30 14:37</a>
+
+我的意思是除了画面提升外有没有什么游戏内容上的更新</blockquote>
+没有情报说增加。。。日本hd有时候这点挺讨厌的，都出来炒冷饭了，前阵原汁原味的p3phd就是，一点都不肯加p3f的内容
+
+
+*****
+
+####  yyman  
+##### 284#       发表于 2023-8-30 19:20
+
+妈个鸡，今年唯一期待的JRPG都能搞延期，这他妈还是重制游戏
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  苍瞳凯  
+##### 285#       发表于 2023-8-30 19:44
+
+居然还开了工作室，Konami手头上现在除了老游戏HD还有什么新饼么？
+
+
+*****
+
+####  evangelist64  
+##### 286#       发表于 2023-8-30 20:11
+
+1代背景扩展一下，感觉能做出很多东西。单纯换个高清素材就没啥花头。
+
+
+*****
+
+####  czddxy  
+##### 287#       发表于 2023-8-30 20:34
+
+我不管，fxxk konami
+
+*****
+
+####  工口兔  
+##### 288#       发表于 2023-8-30 20:42
+
+和百英雄传约好了一起跳是吧
+
