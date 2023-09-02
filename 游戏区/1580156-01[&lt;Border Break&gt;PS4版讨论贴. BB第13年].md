@@ -11915,3 +11915,14 @@ PS4版《BORDER BREAK》 (边境保卫战)今天宣布将于2023年9月9日停�
 [http://ps4.borderbreak.com/news/QTRgQLQ29izi](http://ps4.borderbreak.com/news/QTRgQLQ29izi)
 <img src="http://ps4.borderbreak.com/data/news/QTRgQLQ29izi/1.png" referrerpolicy="no-referrer">
 
+*****
+
+####  zhfatwork  
+##### 761#         楼主| 发表于 2023-8-30 16:59
+
+这格斗限定战也太恶搞了，开战前我以为带枪刃远距炮轰对手会“很聪明”。
+
+结果发现依然是有基地的，于是几盘后大家都研究怎么用枪刃和光波刀这两个能发飞行道具的“格斗武器”拆基地…………
+
+于是又成了凸和防凸的传统玩法（汗）
+
