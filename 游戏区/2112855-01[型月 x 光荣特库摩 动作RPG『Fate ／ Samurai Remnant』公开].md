@@ -4288,3 +4288,427 @@ PS: 《刚落地的金闪闪在迦勒底的走廊撞见志度内伊莉雅be like
 看了下实机，有点拉啊，作为今年的游戏连审判之逝都比不上，砍小怪跟砍木桩一样，无双组你行不行啊 ...</blockquote>
 感觉不如灾鹅启示录
 
+*****
+
+####  Piano-Forest  
+##### 406#         楼主| 发表于 2023-8-26 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61982108&amp;ptid=2112855" target="_blank">Piano-Forest 发表于 2023-8-10 20:42</a>
+
+【《Fate/Samurai Remnant》开场动画影片】 
+
+https://youtu.be/XWH6U_mHhkQ
+
+https://b23.tv/EPDCvKg</blockquote>
+OP STAFF <blockquote>監督
+
+温泉中也
+
+原画
+
+温泉中也
+
+伍伯諭
+
+動画検査
+
+谷口梓紗　
+
+中村未奈美 
+
+動画
+
+谷口梓紗　
+
+浦川涼香  
+
+岡本敦紀   
+
+柳承延     
+
+早川未那  
+
+中村未奈美 
+
+Ast
+
+色彩設計/色指定・検査
+
+和田舞奈
+
+仕上げ
+
+Studio Road
+
+美術監督
+
+松村良樹
+
+美術
+
+スタジオPablo
+
+松村良樹
+
+佐々木利奈
+
+今井修
+
+撮影/3DCG/特殊効果/編集　
+
+カプセル　
+
+撮影監督
+
+宮原洋平 
+
+撮影
+
+関香織  
+
+竹花佑佳里 
+
+長谷川徹 
+
+3DCG
+
+宮原洋平
+
+白石あかり
+
+アニメーションプロデューサー
+
+福島祐一
+
+制作補佐
+
+相原楓哉
+
+アニメーション制作
+
+CloverWorks</blockquote>
+
+温泉中也
+[https://twitter.com/waiwaiburanko3/status/1694761076880298338](https://twitter.com/waiwaiburanko3/status/1694761076880298338)
+
+Fate/Samurai Remnant ９月２８日発売です。
+
+よろしくね～
+
+(画像はOP制作開始時コンセプトとして描いた絵です。)
+<img src="https://p.sda1.dev/12/7a462eca8f3ef178109d59396bd48b79/20230826_220921.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 407#       发表于 2023-8-26 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62139101&amp;ptid=2112855" target="_blank">水边井 发表于 2023-8-23 21:47</a>
+
+看了下实机，有点拉啊，作为今年的游戏连审判之逝都比不上，砍小怪跟砍木桩一样，无双组你行不行啊 ...</blockquote>
+已经是型月IP游戏性最好的游戏了，估计没有之一，MB在格斗游戏历史上有历史地位，但是毕竟小众
+
+垫底自然是FE那逆天的石头剪刀布，居然还要重制
+
+*****
+
+####  kuarwbwe  
+##### 408#       发表于 2023-8-26 22:27
+
+有点麻。刚看到一个自称铁月厨的人说fsr是东出+小太刀写的，说大概率要吃屎。（不过知道可能要吃屎，还是选择玩也确实是铁厨干的出来的事。）<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+然后打上面那段话的时候，我才意识到，这人不会是把fsr和fexl弄混了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 409#       发表于 2023-8-26 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62177051&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-8-26 22:27</a>
+
+有点麻。刚看到一个自称铁月厨的人说fsr是东出+小太刀写的，说大概率要吃屎。（不过知道可能要吃屎，还是选 ...</blockquote>
+哪来的小太刀，小太刀从来没写过型月的游戏
+
+这游戏是光荣风花雪月团队写的，东出和樱井监修，限定版带设定集和小说
+
+*****
+
+####  kuarwbwe  
+##### 410#       发表于 2023-8-26 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62177134&amp;ptid=2112855" target="_blank">ナルバレック 发表于 2023-8-26 22:35</a>
+
+哪来的小太刀，小太刀从来没写过型月的游戏
+
+这游戏是光荣风花雪月团队写的，东出和樱井监修，限定版带设 ...</blockquote>
+不是说fexl是东出和小太刀一块写的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有就是，你后面说的那堆东西我都知道。
+
+
+*****
+
+####  ナルバレック  
+##### 411#       发表于 2023-8-26 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62177144&amp;ptid=2112855" target="_blank">kuarwbwe 发表于 2023-8-26 22:36</a>
+
+不是说fexl是东出和小太刀一块写的吗？还有就是，你后面说的那堆东西我都知道。 ...</blockquote>
+FEXL主要还是东出写的，小太刀参与的不多，FEXL不算烂，我觉得查理曼比阿提拉写的有趣...
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 412#       发表于 2023-8-27 15:15
+
+fexl就当是查理曼的大型幕间剧情就行了…
+
+
+*****
+
+####  ナルバレック  
+##### 413#       发表于 2023-8-27 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62183094&amp;ptid=2112855" target="_blank">桥洞底下盖小被 发表于 2023-8-27 15:15</a>
+
+fexl就当是查理曼的大型幕间剧情就行了…</blockquote>
+卡尔大帝才是查理曼的主体，表现超闪，把闪拿去当电池了，有异星键加持的情况下甚至能脑控好几个TOP从者<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火焰的攻击  
+##### 414#       发表于 2023-8-27 16:09
+
+光脱脑子挺活络的，知道后发学罐头拉卖相，但技术力还是捉急，或者不下放，一帮忙还帮出个本家手游……
+
+
+*****
+
+####  Piano-Forest  
+##### 415#         楼主| 发表于 2023-8-29 21:07
+
+PV3：
+[https://youtu.be/jHHzPcFwRFY](https://youtu.be/jHHzPcFwRFY)
+[https://b23.tv/Ka30GpC](https://b23.tv/Ka30GpC)
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 416#       发表于 2023-8-29 21:20
+
+一分三十五秒那句话是津田健次郎吗 听着好像
+
+但是看了一圈角色cv里都没有
+
+
+*****
+
+####  xunit  
+##### 417#       发表于 2023-8-29 21:24
+
+还能变猪可还行
+
+*****
+
+####  rgauss  
+##### 418#       发表于 2023-8-29 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么感觉男主最后没了
+
+*****
+
+####  恋叶梦境  
+##### 419#       发表于 2023-8-29 21:32
+
+fgo版的考据认为伊织和义妹中可能有一个要没（
+
+另外这句算不算暗示本作“黑贞”的情况呢
+<img src="https://p.sda1.dev/12/701483f831f7298b5ecab95c7be91355/CMP_20230829213214173.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bm7号  
+##### 420#       发表于 2023-8-29 22:19
+
+pv3还行，看tgs公布的游戏有合我意的我就买一份fate。
+
+
+*****
+
+####  DARKGRAY  
+##### 421#       发表于 2023-8-29 22:28
+
+又或者这就是个剪定世界，大家都要完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GuDaZi  
+##### 422#       发表于 2023-8-29 23:43
+
+rider的原案画师是雷太，应该是实锤了吧
+
+
+*****
+
+####  kuarwbwe  
+##### 423#       发表于 2023-8-29 23:56
+
+新rider的画师一公布是雷太直接杀死比赛了，基本实锤是奶光了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这帮从者的原案大部分挺有意思的，就是那种一看就会说，哦，确实是他们会负责设计的角色的感觉。
+
+
+*****
+
+####  黑暗剑  
+##### 424#       发表于 2023-8-30 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我怎么感觉赖光会变回男人
+
+
+*****
+
+####  uponutopia  
+##### 425#       发表于 2023-8-30 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62223330&amp;ptid=2112855" target="_blank">黑暗剑 发表于 2023-8-30 09:54</a>
+
+我怎么感觉赖光会变回男&amp;#x4E ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202308/30/102224slrdn12f5m1mffa1.jpg" referrerpolicy="no-referrer">
+
+<strong>无标题.jpg</strong> (83.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-30 10:22 上传
+
+早就有人考据出奶光了 现在我对这游戏最大的期待的就是奶光的屁股<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 426#       发表于 2023-8-30 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62223741&amp;ptid=2112855" target="_blank">uponutopia 发表于 2023-8-30 10:23</a>
+
+早就有人考据出奶光了 现在我对这游戏最大的期待的就是奶光的屁股</blockquote>
+应该是十几岁的少女赖光，可能真名是丑御前
+
+*****
+
+####  uponutopia  
+##### 427#       发表于 2023-8-30 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62223829&amp;ptid=2112855" target="_blank">ナルバレック 发表于 2023-8-30 10:29</a>
+
+应该是十几岁的少女赖光，可能真名是丑御前</blockquote>
+是的 我还是挺佩服这些人的PV一出基本都考据得一干二净了，当初A组周瑜也是 
+
+
+*****
+
+####  gpx234mqx  
+##### 428#       发表于 2023-8-30 18:59
+
+ 本帖最后由 gpx234mqx 于 2023-8-30 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62219071&amp;ptid=2112855" target="_blank">DARKGRAY 发表于 2023-8-29 22:28</a>
+
+又或者这就是个剪定世界，大家都要完</blockquote>
+剪定世界不会放裁定者出来啊
+
+是153一样的亚种平行世界吧
+
+又或者特异点，这样世界本身才会召唤野生从者出来
+
+
+*****
+
+####  DARKGRAY  
+##### 429#       发表于 2023-8-30 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62230099&amp;ptid=2112855" target="_blank">gpx234mqx 发表于 2023-8-30 18:59</a>
+
+剪定世界不会放裁定者出来啊
+
+是153一样的亚种平行世界吧</blockquote>
+这俩哪有关联，自动摇的有EXTELLA的贞德（狐狸线必剪），手动摇的有2.6靠树死撑着的异闻带一周目的摩根<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Muteki_Link  
+##### 430#       发表于 2023-8-31 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62223741&amp;ptid=2112855" target="_blank">uponutopia 发表于 2023-8-30 10:23</a>
+
+早就有人考据出奶光了 现在我对这游戏最大的期待的就是奶光的屁股</blockquote>
+少女版奶光好像静凛啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  死宅真恶心  
+##### 431#       发表于 2023-8-31 11:01
+
+雷太画的奶光lily该不会是酒吞那样吧……
+
+
+*****
+
+####  真红眼教授  
+##### 432#       发表于 2023-8-31 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62236396&amp;ptid=2112855" target="_blank">死宅真恶心 发表于 2023-8-31 11:01</a>
+
+雷太画的奶光lily该不会是酒吞那样吧……</blockquote>
+少女赖光看画面还是短发
+
+CV是悠木碧就更好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+具体人设可能是少女时期和丑御前共存的“独武者”形态
+
+*****
+
+####  黑暗剑  
+##### 433#       发表于 2023-8-31 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62236396&amp;ptid=2112855" target="_blank">死宅真恶心 发表于 2023-8-31 11:01</a>
+
+雷太画的奶光lily该不会是酒吞那样吧……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝对纯白魔法少女里面挑一个模板
+
+
+*****
+
+####  DARKGRAY  
+##### 434#       发表于 2023-8-31 11:19
+
+本来这个也想KEY站解决，然而似乎锁区，不是标着无法激活就是干脆不让你搜到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  源頼光  
+##### 435#       发表于 2023-8-31 11:49
+
+赢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gpx234mqx  
+##### 436#       发表于 2023-8-31 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62230245&amp;ptid=2112855" target="_blank">DARKGRAY 发表于 2023-8-30 19:13</a>
+
+这俩哪有关联，自动摇的有EXTELLA的贞德（狐狸线必剪），手动摇的有2.6靠树死撑着的异闻带一周目的摩根[f ...</blockquote>
+月之海是论外，有自己一套规则
+
+异闻带这是隐匿者进去叫出来的，本来就是异常情况
+
+大秦我方叫不出人，辈先都能叫出兰陵王
+

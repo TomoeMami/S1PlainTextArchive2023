@@ -14183,3 +14183,18 @@ https://tieba.baidu.com/p/8524683551
 
 下期活动要有公会任务了 来打个小广告吧 741067931 还有在玩这个游戏没加公会的可以欢迎来加
 
+*****
+
+####  ピちゃン  
+##### 1161#       发表于 2023-8-31 12:05
+
+看了些手游的剧情，心菜静香既和八惠有剧情，也和卡特莉娜有剧情。
+
+
+*****
+
+####  蒜灵  
+##### 1162#       发表于 2023-8-31 15:19
+
+[夜市之王](https://bbs.nga.cn/read.php?tid=37560141)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
