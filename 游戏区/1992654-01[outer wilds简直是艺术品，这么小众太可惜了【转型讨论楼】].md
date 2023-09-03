@@ -489,3 +489,20 @@ DLC比本体要直白的多，跟着幻灯片一步一步收集线索自然而�
 
 新人玩建议木炉星的卫星起步，然后由近到远碎空星跟着手头线索慢慢探索。黑棘星放那么远是有原因的
 
+*****
+
+####  fdodo  
+##### 1129#         楼主| 发表于 2023-9-1 01:06
+
+小挖一下，星空评分出来之后大伙还是看看远方真正的宇宙探索goat游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  wswseven  
+##### 1130#       发表于 2023-9-1 01:18
+
+可惜出xgp了，不然就有乐子看了，好在无人深空还在
+
