@@ -4125,3 +4125,53 @@ twitter @c-uise_iu
 佐藤希也开始搞瑟瑟了吗</blockquote>
 就两张图吧？还有啥新东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Zaphikel  
+##### 407#       发表于 2023-8-31 23:07
+
+ 本帖最后由 Zaphikel 于 2023-8-31 23:09 编辑 
+
+据说日南不想干了？
+
+<img src="https://img.saraba1st.com/forum/202308/31/230754lsvdz6d9nvrgglvd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:07 上传
+
+以下内容需要积分高于 30000 才可浏览
+
+链接：[https://pan.baidu.com/s/1twNtM_IGZXNsHbge5mShwQ?pwd=qo1g](https://pan.baidu.com/s/1twNtM_IGZXNsHbge5mShwQ?pwd=qo1g) 提取码：qo1g
+
+
+*****
+
+####  karastar  
+##### 408#       发表于 2023-8-31 23:26
+
+杏这边会比较赚嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Zaphikel  
+##### 409#       发表于 2023-8-31 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62247095&amp;ptid=1935298" target="_blank">karastar 发表于 2023-8-31 23:26</a>
+
+杏这边会比较赚嘛</blockquote>
+不会吧，她FC很贵的
+
+
+*****
+
+####  karastar  
+##### 410#       发表于 2023-8-31 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62247188&amp;ptid=1935298" target="_blank">Zaphikel 发表于 2023-8-31 23:34</a>
+
+不会吧，她FC很贵的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不知道才问的
+
