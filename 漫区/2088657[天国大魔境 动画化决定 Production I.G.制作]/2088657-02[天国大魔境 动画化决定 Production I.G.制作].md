@@ -2112,3 +2112,28 @@ oped真不错每次都舍不得跳
 [https://tdm-anime.com/news/detail.php?id=1110312](https://tdm-anime.com/news/detail.php?id=1110312)
 <img src="https://p.sda1.dev/12/f996da0c1f238e2631ed041725e05518/tdm_anime-1689562257154584576-img1.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  千恋万花  
+##### 1684#       发表于 2023-9-1 17:02
+
+／
+
+TVアニメ『#天国大魔境』
+
+キャスト＆スタッフ オーディオコメンタリー📻
+
+#01～#08 期間限定で無料公開決定!!
+
+＼
+
+📅9/3(日)18:00～よりYouTubeプレミア公開
+
+URLはコチラから↓
+[https://youtube.com/watch?v=DrPdrN2zThc](https://youtube.com/watch?v=DrPdrN2zThc)
+
+🎬YouTubeにて#01～#08が無料配信中
+
+ぜひコメンタリーと合わせてご視聴ください✨
+<img src="https://p.sda1.dev/13/9e8693ba2bce88a8d52f67c26771651d/tdm_anime-1697534769800864180-img1.jpg" referrerpolicy="no-referrer">
+
