@@ -16409,3 +16409,11 @@ Meta 味的对白有点带富野电波的战姬绝唱构文的感觉，真让人
 
 估计新游戏宣发了，每天分日夜两场，一共4场<img src="https://p.sda1.dev/12/71c59f2080f668c9befea80b47598e12/img-16925796416418a23a8a716659dedabff256acea6799b.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  nh_zzz  
+##### 8892#       发表于 2023-9-1 11:46
+
+九九日付费配信链接已上https://ib.eplus.jp/revuestarlight99-st
+<img src="https://p.sda1.dev/13/e1944fce50ba4c47cf0ed8859c375de9/CMP_20230901114527607.jpg" referrerpolicy="no-referrer">
+
