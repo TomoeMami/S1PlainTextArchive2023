@@ -1930,3 +1930,90 @@ bps就是宽带运营商提供的单位，百兆宽带就是100mbps
 已经有几个测评出来了，看着效果还是不错的，开热点也能玩</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">如果热点都能畅玩我就去办二档，现在 ps5 吃灰大半年了
 
+*****
+
+####  zerocount  
+##### 189#       发表于 2023-8-31 09:39
+
+这不就是一块带手柄的屏幕……
+
+通过无线的方式展示画面和控制游戏
+
+甚至还需要第三方工具提供WIFI环境
+
+<img src="https://img.saraba1st.com/forum/202308/31/093913kkq2rlmkp56m5z2x.png" referrerpolicy="no-referrer">
+
+<strong>psp.png</strong> (66.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 09:39 上传
+
+
+*****
+
+####  liekong  
+##### 190#       发表于 2023-8-31 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼里好几个说是搭配PS+会员的，结合会员涨价的消息，
+
+敢情就是抓着PS+会员们死命薅阿
+
+
+*****
+
+####  minysun  
+##### 191#       发表于 2023-8-31 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62174740&amp;ptid=2149659" target="_blank">ppa11 发表于 2023-8-26 18:30</a>
+
+推荐15Mbps的网速，换算过来就是差不多国内150M的宽带吧？</blockquote>
+国内的带宽就是Mb的网速，理论上来说很早的 802.11a的路由都能满足这个带宽需求，但实际上估计还得保证起码的WiFi5水平
+
+
+*****
+
+####  医生狼多  
+##### 192#         楼主| 发表于 2023-9-1 01:53
+
+索尼宣布 PS5 串流掌机 PlayStation Portal remote player 将于 11 月 15 日发售。
+
+售价 199.99 美元 / 29980 日元，配备 8 英寸 LCD 屏幕，支持 1080P 及 60 帧运行，手柄支持自适应扳机和触觉回馈。掌机不支持游玩 PS VR 2 游戏和 Ps+ 三档云游戏。 http://t.cn/A6OqhlsP ​​​
+
+*****
+
+####  喵喵叫的猫  
+##### 193#       发表于 2023-9-1 01:54
+
+吉姆果然自信
+这时候开pre-order了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+11月15日上市
+
+
+*****
+
+####  阿布都督  
+##### 194#       发表于 2023-9-1 02:32
+
+这个时候开预定绝壁是故意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iou90  
+##### 195#       发表于 2023-9-1 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62249089&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-9-1 01:53</a>
+索尼宣布 PS5 串流掌机 PlayStation Portal remote player 将于 11 月 15 日发售。
+
+售价 199.99 美元 / 29 ...</blockquote>
+现在有重量这个参数吗
+
+
+*****
+
+####  Mephisto  
+##### 196#       发表于 2023-9-1 10:22
+
+200美元的东西蓝牙都没有，卖耳机之心昭然若揭
+
