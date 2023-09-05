@@ -1154,3 +1154,29 @@ SYNDUALITY翻译出奇异贤伴，好像差不太多
 艾达之歌是哪里来的，原名有副标题吗</blockquote>
 原名 Echo of Ada
 
+*****
+
+####  kria  
+##### 112#       发表于 2023-9-2 14:28
+
+<img src="https://img.saraba1st.com/forum/202309/02/142809v6zs6g7yf27sv6su.jpg" referrerpolicy="no-referrer">
+
+<strong>F4rmDDea4AAdLLo.jpg</strong> (262.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-2 14:28 上传
+
+*****
+
+####  kria  
+##### 113#       发表于 2023-9-2 14:31
+
+<img src="https://img.saraba1st.com/forum/202309/02/143146j3ue42s2u2c1s223.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2023-09-02 143115.png</strong> (29.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-2 14:31 上传
+

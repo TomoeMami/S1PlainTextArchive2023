@@ -1092,3 +1092,18 @@ wiiu的遗产也就TP和TWW还有XBX了，干脆移植得了 ...</blockquote>
 
 中文只有港版吧，港版没卡带
 
+*****
+
+####  Adam0_0  
+##### 118#       发表于 2023-9-2 13:31
+
+港版没卡带?
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 119#       发表于 2023-9-2 13:36
+
+亚洲版只有英文卡带
+
