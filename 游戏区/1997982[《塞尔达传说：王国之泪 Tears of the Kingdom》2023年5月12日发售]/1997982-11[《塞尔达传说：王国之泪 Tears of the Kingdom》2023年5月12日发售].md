@@ -4989,3 +4989,211 @@ https://www.bilibili.com/video/BV1M94y1k7rB/ ...</blockquote>
 说起格鲁德地下室，我想起那个扔瓶中信的npc，我按自己直觉的方法是把瓶子粘在罐子上，然后把罐子举起来，过一会用时逆，自己趁机用通天术穿上去然后在洞口那里用究极手把罐子抓上来…………试了好几次才成功<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 然后看别人直播，直接对瓶子用时间逆转就送上去了<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
 
+*****
+
+####  冷泉夜月  
+##### 15423#       发表于 2023-8-30 17:37
+
+「Nintendo Live 2024 TOKYO」将于2024年1月20日-1月21日在日本东京举办
+届时会有「塞尔达传说」和「斯普拉遁3」的现场音乐表演，还有鲑鱼跑在内各项赛事举办。 ​​​
+
+塞尔达是系列音乐的管弦乐团现场演奏会<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  siro1987  
+##### 15424#       发表于 2023-8-30 17:51
+
+看到演奏会才想起, 王泪OST有说什么时候吗?
+
+
+*****
+
+####  冷泉夜月  
+##### 15425#       发表于 2023-8-30 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62229355&amp;ptid=1997982" target="_blank">siro1987 发表于 2023-08-30 17:51:06</a>
+看到演奏会才想起, 王泪OST有说什么时候吗?</blockquote>还没说过，野炊的OST是18年4月25日发售的，王泪的估计也得到明年吧，有DLC的话DLC的音乐肯定也得放进去<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ChengChung  
+##### 15426#       发表于 2023-8-30 18:08
+
+有个问题，卡邦达在你帮他扶完所有的路标后会去各个驿站看乐园演出，而不是回去找老板复命
+
+那如果我没有完成任何一个乐园或大妖精的任务呢？如果只完成了一部分呢？卡邦达会不会回到一始村
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15427#       发表于 2023-8-30 18:19
+
+我好希望能继续世界范围开塞尔达系列的音乐会啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  poppin  
+##### 15428#       发表于 2023-8-30 19:52
+
+昨晚终于通关了，中途基本没看攻略。把神庙，树根都做完，然后终于决定去找盖侬。
+最终boss战比野炊强了不止一点，最后骑老婆打魔王真是太爽了。不枉我这几个月都强忍住没看相关剧透视频或帖子。结局林赛he好评，玩的时候我还挺担心最后万一塞尔达变不回来，整个te那我就要抑郁好久了。
+通关之后进度71.34，呀哈哈只找了360个，魔犹伊，水井，衣服都还没找齐。剩下的就想玩的时候照着攻略慢慢找吧。然后就是等dlc玩大师模式和开光大师剑了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  冷泉夜月  
+##### 15429#       发表于 2023-8-31 10:49
+
+<img src="https://img.saraba1st.com/forum/202308/31/104826d0qq0a2qy2bb2jfi.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230831104756.jpg</strong> (195.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 10:48 上传
+
+须田刚一完成度100%达成<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  煙空  
+##### 15430#       发表于 2023-8-31 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62229558&amp;ptid=1997982" target="_blank">ChengChung 发表于 2023-8-30 18:08</a>
+
+有个问题，卡邦达在你帮他扶完所有的路标后会去各个驿站看乐园演出，而不是回去找老板复命
+
+那如果我没有完 ...</blockquote>
+我猜會消失到你完成樂隊任務為止
+
+
+*****
+
+####  冷泉夜月  
+##### 15431#       发表于 2023-9-1 09:28
+
+会员头像最后一周啦，记得取换<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+仔细想想就鼓隆族只有沅神一个人的头像，利特是丘栗父子，卓拉是希多夫妻，格鲁德是露珠君臣，鼓隆只有唯一的冰之贤者出镜（换句话说鼓隆的其他角色份量有点轻，人物简介里也是只有他一个人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  ColAMK  
+##### 15432#       发表于 2023-9-1 21:10
+
+<img src="https://img.saraba1st.com/forum/202309/01/210909nbf24bf4z4p243zm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-1 21:09 上传
+
+随便冲浪看到的 前一阵玩家评分还8.5 怎么突然就8.1了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且跟16一样的玩家评分，有点难蚌
+
+
+*****
+
+####  tachikoma27  
+##### 15433#       发表于 2023-9-2 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62260542&amp;ptid=1997982" target="_blank">ColAMK 发表于 2023-9-1 21:10</a>
+随便冲浪看到的 前一阵玩家评分还8.5 怎么突然就8.1了
+
+而且跟16一样的玩家评分，有点难蚌 ...</blockquote>
+多看几个就知道mc用户评分没有意义，没啥好纠结的
+
+
+*****
+
+####  冷泉夜月  
+##### 15434#       发表于 2023-9-2 10:21
+
+王泪新闻这次送了魔法小杖和蛋白石，虽然在宝石上依然很抠你好歹给个值钱的吧，不过给个魔法小杖还挺好的尤其如果是前期拿到的话，大范围冷冻YYDS，好歹也是100魄的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15435#       发表于 2023-9-2 10:23
+
+五岁的侄子闹着要玩手柄我就给他开了王泪，你别说小盆友玩还挺好（就是pro手柄对他来说太大了，ABXY对小孩子也没那么友好）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+特别喜欢高空俯冲和爬墙，看到城堡就喊着要杀进去，然后我问他游戏好不好玩？小盆友大声说好玩超好玩，我都在想如果我造个高达给他开，他不兴奋疯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+#塞尔达的普及要从娃娃抓起
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冷泉夜月  
+##### 15436#       发表于 2023-9-2 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62264781&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-09-02 10:23:48</a>
+五岁的侄子闹着要玩手柄我就给他开了王泪，你别说小盆友玩还挺好（就是pro手柄对他来说太大了，ABXY对小孩 ...</blockquote>我家的才2岁不然我是真的很想让她试试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过最近已经会指着amiibo问我这是啥然后学会叫塞尔达了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15437#       发表于 2023-9-2 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62264864&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-9-2 10:35</a>
+我家的才2岁不然我是真的很想让她试试
+不过最近已经会指着amiibo问我这是啥然后学会叫塞尔达了[f:03 ...</blockquote>
+哈哈哈等你家的再大点真的可以试试！
+我家这侄子喜欢大枪大炮 ，然后刚刚指点我怎么粘大规模杀伤性武器（他自己实在是没法操作），然后出来成品能运作小朋友成就感爆棚，特别开心，很棒的亲子时光<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+（但是也要注意保护小朋友的眼睛）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  holomoon  
+##### 15438#       发表于 2023-9-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62260542&amp;ptid=1997982" target="_blank">ColAMK 发表于 2023-9-1 21:10</a>
+
+随便冲浪看到的 前一阵玩家评分还8.5 怎么突然就8.1了
+
+而且跟16一样的玩家评分，有点难蚌 ...</blockquote>
+玩家分数，影响极大的是那些不买游戏的极端粉，多一些直接上来就打0分的，那分数不就蹭蹭往下掉了
+
+
+*****
+
+####  冷泉夜月  
+##### 15439#       发表于 2023-9-2 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62265082&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-09-02 11:01:49</a>
+哈哈哈等你家的再大点真的可以试试！
+我家这侄子喜欢大枪大炮 ，然后刚刚指点我怎么粘大规模杀伤性武器（ ...</blockquote>确实现在不敢给她看电子产品，过几年再说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+塞尔达真的蛮适合小朋友的，刺激想象力，操作也不复杂，玩的门槛很低很低<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
