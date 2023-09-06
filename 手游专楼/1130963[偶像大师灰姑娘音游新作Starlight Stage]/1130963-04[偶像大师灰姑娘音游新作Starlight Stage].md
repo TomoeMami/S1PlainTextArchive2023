@@ -462,3 +462,18 @@ moba骨灰盒封面还要搞投票<img src="https://static.saraba1st.com/image/s
 
 明年双子妹+白，新7人就都上过周年曲了，CGSS完
 
+*****
+
+####  kobushi  
+##### 5396#       发表于 2023-9-2 23:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平时佛性还好。一到周年的时候就显得死相尤为严重
+
+
+*****
+
+####  两个路人  
+##### 5397#       发表于 2023-9-3 20:07
+
+周年白女票出货就好了，其他佛系如常。看看广告，猴机的AR到底能不能抢救一下呀。 https://b23.tv/BV1tp4y177s5   
+
