@@ -6860,3 +6860,437 @@ XP问题吧
 魅影不是人外啊，前面罗平讲过他是三十来岁的波斯人。保险公司清除怪物是为了降低保险风险，针对他可能是 ...</blockquote>
 草 所以黑皮叫他“异形”单纯是攻击长相吗 可怜的阿宅<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+*****
+
+####  CHCL3  
+##### 620#       发表于 2023-8-29 17:40
+
+<img src="https://img.saraba1st.com/forum/202308/29/174008q00pv5putkv6zszp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-08-29-17-32-08-679_com.twitter.android.jpg</strong> (470.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-29 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202308/29/174015p4gsznhhjh07o909.jpg" referrerpolicy="no-referrer">
+
+<strong>20230829_173159.jpg</strong> (402.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-29 17:40 上传
+
+人狼篇视觉图！人类村与人狼村发生的昼夜对称的案件
+
+
+*****
+
+####  罗克萨斯  
+##### 621#       发表于 2023-8-29 20:24
+
+人狼村的少女这么可爱的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Piano-Forest  
+##### 622#         楼主| 发表于 2023-8-29 21:38
+
+／
+
+#アンファル 第三章「人狼編」
+
+新規ビジュアルが公開
+
+＼
+
+🪶キャラ原案 #岩本ゼロゴ 描き下ろし
+
+🪶上は人間の村に到着する＜鳥籠使い＞一行
+
+🪶下は人狼の村でお茶会をするノラ・ヴェラ・カーヤ
+
+🪶昼と夜で対称的に描かれた2つの村で起きる事件とは⁉
+<img src="https://p.sda1.dev/12/ee9a7deb4874fe77f603bbd5c8bef0e5/20230829_213724.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 623#       发表于 2023-8-29 22:13
+
+说起来这原作完结了吗，我不想和北山猛邦那本雾切响子外传那样等一万年了
+
+
+*****
+
+####  CHCL3  
+##### 624#       发表于 2023-8-29 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62218897&amp;ptid=2125379" target="_blank">Yugao 发表于 2023-8-29 22:13</a>
+说起来这原作完结了吗，我不想和北山猛邦那本雾切响子外传那样等一万年了 ...</blockquote>
+没，人狼篇算是这一阶段结束吧
+
+*****
+
+####  海德先生  
+##### 625#       发表于 2023-8-29 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62218897&amp;ptid=2125379" target="_blank">Yugao 发表于 2023-8-29 22:13</a>
+
+说起来这原作完结了吗，我不想和北山猛邦那本雾切响子外传那样等一万年了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">青崎有吾:"啊，要做动画了？我尽量捡起来填坑吧"
+
+
+*****
+
+####  TOYSTORY  
+##### 626#       发表于 2023-8-29 23:36
+
+[https://www.bilibili.com/video/BV1pj41127fY](https://www.bilibili.com/video/BV1pj41127fY)
+
+[https://www.bilibili.com/video/BV1MN4y1R7zy](https://www.bilibili.com/video/BV1MN4y1R7zy)
+
+人狼篇预告，氛围看来不错啊，能多一些推理戏吗？
+
+吸血鬼伯爵之后大乱斗搞得太久，完全没有推理余地还有点不适应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CHCL3  
+##### 627#       发表于 2023-8-29 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62220074&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-8-29 23:36</a>
+https://www.bilibili.com/video/BV1pj41127fY
+
+https://www.bilibili.com/video/BV1MN4y1R7zy</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">相信漏油，人狼篇是确实死了人的推理
+
+
+*****
+
+####  zxc4563982  
+##### 628#       发表于 2023-8-31 00:27
+
+又是被出崎演出支配的一天
+
+
+*****
+
+####  镜hinata  
+##### 629#       发表于 2023-8-31 01:51
+
+直觉告诉我,那个露易丝就是人狼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drzas  
+##### 630#       发表于 2023-8-31 12:03
+
+终于到第三章了，演出很好，就是好像又把福尔摩斯的戏份删了…..
+
+
+*****
+
+####  CHCL3  
+##### 631#       发表于 2023-8-31 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62237373&amp;ptid=2125379" target="_blank">drzas 发表于 2023-8-31 12:03</a>
+终于到第三章了，演出很好，就是好像又把福尔摩斯的戏份删了…..</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不出场就不会被垫！
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 632#       发表于 2023-8-31 13:30
+
+巴哈源好暗啊，感觉已经影响到观感了
+
+开场山脉勾起了我eu4打奥地利围山地要塞时的不好回忆
+
+丢枕头那段笑死我了，真正的灰头土脸，不过地上之前没有灰吧，是不是说明实际上并不是从烟囱进来的？难道和之前几个失踪的一样，都是觉醒了人狼的血脉？
+
+劳合社又来了两个，是不是也准备垫了
+
+
+*****
+
+####  aptx8285144  
+##### 633#       发表于 2023-8-31 14:17
+
+挺有趣的一话，不过嫌疑人好像很少吧，难道是医生?
+
+*****
+
+####  aptx8285144  
+##### 634#       发表于 2023-8-31 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62233582&amp;ptid=2125379" target="_blank">镜hinata 发表于 2023-8-31 01:51</a>
+
+直觉告诉我,那个露易丝就是人狼</blockquote>
+这倒也是个思路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蝙蝠MOON  
+##### 635#       发表于 2023-8-31 17:03
+
+奶一口露易丝是狼人，医生是利用路易斯狼人化后借机杀人<img src="https://static.saraba1st.com/image/smiley/carton2017/308.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HGCG3  
+##### 636#       发表于 2023-8-31 17:50
+
+后知后觉，今年是开膛手杰克作案135周年
+
+
+*****
+
+####  TOYSTORY  
+##### 637#       发表于 2023-8-31 21:11
+
+ 本帖最后由 TOYSTORY 于 2023-8-31 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62238568&amp;ptid=2125379" target="_blank">RhmBWT_Wu 发表于 2023-8-31 13:30</a>
+
+巴哈源好暗啊，感觉已经影响到观感了
+
+开场山脉勾起了我eu4打奥地利围山地要塞时的不好回忆
+
+丢枕头那段笑死 ...</blockquote>
+这个村民拿火把围剿怪物在小楼里烧死在狼叔那部范海辛里也见过，感觉算是个经典桥段？
+
+巴哈的源是真的黑，到了暗处和黑天好多画面根本看不见人了都。不过我看5CH楼里也有人说上一话暗，可能本来就暗巴哈还变本加厉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxc4563982  
+##### 638#       发表于 2023-8-31 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">草，上亚马逊看了一眼，这书二手的价格是新书的两倍，理财产品啊
+
+
+*****
+
+####  沼蝇  
+##### 639#       发表于 2023-8-31 22:03
+
+不会原住民全是人狼吧
+
+
+*****
+
+####  TOYSTORY  
+##### 640#       发表于 2023-8-31 23:37
+
+<img src="https://img.saraba1st.com/forum/202308/31/233801h4iydjmmybst0mlj.jpg" referrerpolicy="no-referrer">
+
+<strong>10_01.jpg</strong> (66.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233801c9kscxqhgcs6s78b.jpg" referrerpolicy="no-referrer">
+
+<strong>10_02.jpg</strong> (62.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233802s1pjjb4fpfgjg5bg.jpg" referrerpolicy="no-referrer">
+
+<strong>10_03.jpg</strong> (67.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233803bq3jl5uu1xjjyiyi.jpg" referrerpolicy="no-referrer">
+
+<strong>10_04.jpg</strong> (70.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233803sax0j1zaxahbxz0r.jpg" referrerpolicy="no-referrer">
+
+<strong>10_05.jpg</strong> (40.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233804pzepellipw77lplw.jpg" referrerpolicy="no-referrer">
+
+<strong>10_06.jpg</strong> (92.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233804hbudw7m0az05zbmx.jpg" referrerpolicy="no-referrer">
+
+<strong>10_07.jpg</strong> (67.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/233804ooqcoubpcpirc470.jpg" referrerpolicy="no-referrer">
+
+<strong>10_08.jpg</strong> (40.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 23:38 上传
+
+第10話「霧の窪地」
+
+人狼村を探すための鍵＜最後から二番目の夜＞の使い方を教わるため、ホイレンドルフで起きた少女連続殺人事件の調査を始める＜鳥籠使い＞一行。人狼村の噂を聞きつけ、ロイスも姿を見せる。そして深夜、人狼は再び動き出す―――。
+
+                                                
+
+脚本：高木 登　絵コンテ：川畑 喬　演出：木村佳
+
+
+*****
+
+####  花生酥王  
+##### 641#       发表于 2023-9-1 04:57
+
+第八集和第九集前面真的好黑，看得我好难受
+
+女仆好可爱，黑妹好惨啊，可惜了 人设这么好看
+
+
+*****
+
+####  杏仁小圆饼  
+##### 642#       发表于 2023-9-1 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莫里亚蒂的学生中国绅士F是那个F吗，一时想不到其他首字母是F的角色
+
+
+*****
+
+####  notromeo  
+##### 643#       发表于 2023-9-1 09:48
+
+除巴哈外有没有其他字幕组推荐啊，这回暗的地方又是黑咕隆咚的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  notromeo  
+##### 644#       发表于 2023-9-1 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62250346&amp;ptid=2125379" target="_blank">杏仁小圆饼 发表于 2023-9-1 08:41</a>
+看完了前两卷小说，罗平偷钻石那段的线索动画几乎都删了吧莫里亚蒂的学生中国绅士F是那个F吗 ...</blockquote>
+基本确定是傅x州
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  fshzx  
+##### 645#       发表于 2023-9-1 12:04
+
+我虽然没有字幕组推荐，不过推荐看周三晚上11点55分的直播源，观感比巴哈源好
+
+
+*****
+
+####  azbhg1  
+##### 646#       发表于 2023-9-1 23:38
+
+本来就很黑了巴哈为什么还会更黑一层啊，这片源怎么拿的，地上波TV都没这么黑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">两周了已经，根本没法看了
+
+CR<img src="https://p.sda1.dev/13/55d79434111a8efe347a927af66326e2/3e24475d53c800cf3efc24c2352b8ca7.png" referrerpolicy="no-referrer">
+
+TV<img src="https://p.sda1.dev/13/3339cf145a20749cf72c8900193a0650/c0df79835f23c840936a4252e84afe2f.png" referrerpolicy="no-referrer">
+
+巴哈<img src="https://p.sda1.dev/13/6662a52934205de71f12b9ff5eb0c3bc/dda23706b4e4c8f1c813aa38fbb721d9.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  好much橘  
+##### 647#       发表于 2023-9-2 00:00
+
+草，亮度拉到50%巴哈源感觉就什么都看不见了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+话说看宣传图这好像有昼夜之谜啥的，想来夜晚的场景也不会少，这样真的没问题吗
+
+
+*****
+
+####  oneoutsider  
+##### 648#       发表于 2023-9-2 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62262343&amp;ptid=2125379" target="_blank">azbhg1 发表于 2023-9-1 23:38</a>
+
+本来就很黑了巴哈为什么还会更黑一层啊，这片源怎么拿的，地上波TV都没这么黑两周了已经，根本没法 ...</blockquote>
+巴哈源的夜景真的暗，但cr源也好不了多少……不如说这动画的夜景特效设置本来就有问题吧
+
+
+*****
+
+####  左凉川  
+##### 649#       发表于 2023-9-2 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62153004&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-8-24 21:22</a>
+
+黑妹这种看起来没多极端的没必要死啊，要个垫脚石展现杰克实力的话让那个臭屁的白毛男来不行吗
+
+男主还鞭尸 ...</blockquote>
+历史上的开膛手杰克只杀女人，而现场能用来当垫脚石的女人就只有黑妹。。。
+
+
+*****
+
+####  敏感词好多  
+##### 650#       发表于 2023-9-2 02:22
+
+我看bglobal的源亮度还可以，就是没中文只能看英字
+
+
+*****
+
+####  TOYSTORY  
+##### 651#       发表于 2023-9-3 12:39
+
+<img src="https://img.saraba1st.com/forum/202309/03/123942khdplachpydly7fp.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (139.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 12:39 上传
+
+
+*****
+
+####  仟音一心  
+##### 652#       发表于 2023-9-3 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62238568&amp;ptid=2125379" target="_blank">RhmBWT_Wu 发表于 2023-8-31 13:30</a>
+巴哈源好暗啊，感觉已经影响到观感了
+
+开场山脉勾起了我eu4打奥地利围山地要塞时的不好回忆
+
+丢枕头那段笑死 ...</blockquote>
+是的，丢枕头前地上没有灰（轮堂发现真打的手上是干净的），那么就说明没有人从烟囱进入，门窗又是锁着的密室，唯一的解释就是，露易丝和人狼一伙，或者露易丝自己就是人狼。考虑到这么个村子里，家里事先藏一个人狼，可能性并不高。
+
