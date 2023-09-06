@@ -6801,3 +6801,30 @@ G2！go！
 
 【2024上海major天禄阵容】 [https://www.bilibili.com/video/B ... 3e61246407e2ed99582](https://www.bilibili.com/video/BV1k94y1e7Gz/?share_source=copy_web&amp;vd_source=0475b8ce30bc83e61246407e2ed99582)
 
+*****
+
+####  Rainwedell  
+##### 3898#       发表于 2023-9-2 23:35
+
+ 本帖最后由 Rainwedell 于 2023-9-2 23:36 编辑 
+
+挖一下，这周v社基本全面放开cs2测试了，只要有优先加段位的活跃账户基本都发，段位隐藏的话打几把国际服短时赛基本第二天就把资格给你了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 3899#       发表于 2023-9-2 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62272653&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2023-9-2 23:35</a>
+挖一下，这周v社基本全面放开cs2测试了，只要有优先加段位的活跃账户基本都发，段位隐藏的话打几把国际服短 ...</blockquote>
+今天上午打了一把把段位显示出来了，现在还没给资格，就看明天给不给资格了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我也好想玩cs2
+
+*****
+
+####  Rainwedell  
+##### 3900#       发表于 2023-9-2 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62272685&amp;ptid=1857369" target="_blank">heseran 发表于 2023-9-2 23:38</a>
+今天上午打了一把把段位显示出来了，现在还没给资格，就看明天给不给资格了我也好想玩cs2 ...</blockquote>
+我是周五下班回去连干了6把短时，发现没出资格大骂傻逼v社不做人。今天下午就给我发了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">。这次的资格发放和前几次测试不一样，应该是持续性的随机发放，只要判定你满足条件基本都给
+
