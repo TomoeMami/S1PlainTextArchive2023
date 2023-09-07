@@ -1766,3 +1766,82 @@ syl，新翻唱数据好猛
 
 2023-8-26 02:56 上传
 
+*****
+
+####  stedckk  
+##### 14676#       发表于 2023-9-3 11:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">今晚5周年，没有live，新衣服配件，估计还有就是3.0和原创曲啥的
+
+*****
+
+####  Fami水  
+##### 14677#       发表于 2023-9-3 15:54
+
+3.0居然当新衣装播<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Badwoman  
+##### 14678#       发表于 2023-9-3 20:21
+
+这圆脸画风好眼熟
+
+
+*****
+
+####  stedckk  
+##### 14679#       发表于 2023-9-3 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62280154&amp;ptid=1914409" target="_blank">Badwoman 发表于 2023-9-3 20:21</a>
+
+这圆脸画风好眼熟</blockquote>
+水母老师啊，摇曳百合的作者
+
+
+*****
+
+####  天悬星河  
+##### 14680#       发表于 2023-9-3 21:27
+
+受到了猛烈感动的冲击，有时候你会觉得某首歌就是为了某个时刻或某个人而生
+
+
+*****
+
+####  stedckk  
+##### 14681#       发表于 2023-9-3 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌词，太符合了。
+
+
+*****
+
+####  夏小筱ss  
+##### 14682#       发表于 2023-9-4 22:07
+
+<img src="https://img.saraba1st.com/forum/202309/04/220720jn8y8z2cskrykk8b.jpg" referrerpolicy="no-referrer">
+
+<strong>3315665698327826.jpg</strong> (144.51 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-9-4 22:07 上传
+
+*****
+
+####  夏小筱ss  
+##### 14683#       发表于 2023-9-4 22:07
+
+眼镜狗真不错啊
+
+
+*****
+
+####  Fami水  
+##### 14684#       发表于 2023-9-4 22:37
+
+希望多播几次
+
