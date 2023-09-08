@@ -4093,3 +4093,69 @@ FES卡池角色及礼装（礼装也是LIVE2D！）
 
 我今天才发现多了几个角色强化本，有些没怎么用的人强化完直接就起飞啊，看来运营也知道最近敌人的战斗力膨胀太大
 
+*****
+
+####  kulanyee  
+##### 394#       发表于 2023-8-30 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">联动舰B多少有点强行了，但立绘不错
+
+
+*****
+
+####  小五的拖鞋  
+##### 395#         楼主| 发表于 2023-8-30 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62229205&amp;ptid=2101146" target="_blank">kulanyee 发表于 2023-8-30 17:37</a>
+
+联动舰B多少有点强行了，但立绘不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">没想到还能整活
+
+
+*****
+
+####  MEKA  
+##### 396#       发表于 2023-8-30 22:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">什么时候能修下MIMU14的卡顿BUG和DMM版的白屏BUG
+
+
+*****
+
+####  shinitakute  
+##### 397#       发表于 2023-9-1 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有还在玩的大佬给个信息，联动角色强度怎么样，值得重新入坑吗
+
+就是有点可惜维娜不是爱宕cos，这个爱宕太可爱有点没内味了
+
+
+*****
+
+####  MEKA  
+##### 398#       发表于 2023-9-1 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62258417&amp;ptid=2101146" target="_blank">shinitakute 发表于 2023-9-1 17:56</a>
+
+有没有还在玩的大佬给个信息，联动角色强度怎么样，值得重新入坑吗
+
+就是有点可惜维娜不是爱宕cos， ...</blockquote>
+2个都是照着FES角色的强度来做的，本身素质肯定是最顶尖的。但这游戏还有属性和弱点武器这两种限制强度的机制在里面，所以很难做到抽完可以脚打这样。不过爽几个月的火弱点活动应该是没问题啦<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  startea15  
+##### 399#       发表于 2023-9-2 23:21
+
+看一下挑战排名，高分的基本是满破当期卡池和礼装的（我也不懂为什么现在都习惯叫礼装了，废狗害人）
+感觉这游戏短时间里死是死不了，至少有5k-8k个养父课佬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zx2kks  
+##### 400#       发表于 2023-9-5 13:47
+
+我超，我有点感动，这年头还有手游之间和和气气搞联动，仿佛回到了少前联动崩坏2的时候
+
