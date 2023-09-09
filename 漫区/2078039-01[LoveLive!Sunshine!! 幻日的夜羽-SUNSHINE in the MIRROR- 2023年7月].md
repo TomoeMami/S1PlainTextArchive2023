@@ -2929,3 +2929,164 @@ gk组排面啊，cyr和aaa互拆，就gk完整了。
 
 这一集的脚本“何万字角藏”是谁的马甲
 
+*****
+
+####  renkan119  
+##### 263#       发表于 2023-9-3 22:51
+
+狗子要死猜到了 被夜羽害死的是真的没猜到 夜羽这形象还有救吗
+
+
+*****
+
+####  Delicatus545  
+##### 264#       发表于 2023-9-3 23:20
+
+ 这还没死呢，应该不是生理意义上的さよなら吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有夜羽怎么突然就把怪异怪到自己头上了，没看懂
+
+
+*****
+
+####  flynnei  
+##### 265#       发表于 2023-9-4 15:03
+
+总算是在平淡如水的无聊剧情中整了点活……可惜是烂活
+
+
+*****
+
+####  一个陆仁贾  
+##### 266#       发表于 2023-9-6 08:33
+
+听说风评下降到星二了，这么夸张？不过我看贴吧这么提的人基本都是对单女主不满意的魔怔人
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ads147147  
+##### 267#       发表于 2023-9-6 08:47
+
+ 本帖最后由 ads147147 于 2023-9-6 08:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62306820&amp;ptid=2078039" target="_blank">一个陆仁贾 发表于 2023-9-6 08:33</a>
+听说风评下降到星二了，这么夸张？不过我看贴吧这么提的人基本都是对单女主不满意的魔怔人
+
+—— 来自 Xiao ...</blockquote>
+nico均分一直65%，大香老师的操作夜羽比不了的。
+
+某种意义上整烂活也不如花田有天赋。。。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  Delicatus545  
+##### 268#       发表于 2023-9-6 09:14
+
+ 本帖最后由 Delicatus545 于 2023-9-6 09:15 编辑 
+
+<img src="https://img.nga.178.com/attachments/mon_202309/06/-9lddQ2s-vuvZeT1kSf9-sg.jpg" referrerpolicy="no-referrer">
+
+有点乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/06/091451r6u8ir732i2no3lc.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ2s-vuvZeT1kSf9-sg (1).jpg</strong> (87.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-6 09:14 上传
+
+
+*****
+
+####  starring  
+##### 269#       发表于 2023-9-6 09:26
+
+10,11集还没看，那么炸裂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前面九集顶多无聊一点，还不至于烂
+
+
+*****
+
+####  挖坑毕挺尸  
+##### 270#       发表于 2023-9-6 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">倒也不是星2那种故意整烂活，这是纯纯没活原地踏步，看了只让人感慨浪费了时间得到的却只有虚无罢了，再次怜惜这么可爱的人设
+
+
+*****
+
+####  stygian  
+##### 271#       发表于 2023-9-6 10:41
+
+拉板天天喷虹虚无，夜羽才是真正的虚无动画。。。
+
+*****
+
+####  仟音一心  
+##### 272#         楼主| 发表于 2023-9-6 10:48
+
+当个水团换皮卖歌番随便看看得了
+
+*****
+
+####  川陀  
+##### 273#       发表于 2023-9-6 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62306820&amp;ptid=2078039" target="_blank">一个陆仁贾 发表于 2023-9-6 08:33</a>
+听说风评下降到星二了，这么夸张？不过我看贴吧这么提的人基本都是对单女主不满意的魔怔人
+
+—— 来自 Xiao ...</blockquote>
+前面平庸，这一集有点烂。跟星二比烂那是远远比不过的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  1096beam  
+##### 274#       发表于 2023-9-6 12:21
+
+究极白开水而已，除非最后一集把狗子整没了
+
+不过老老实实搞个卖百合卖萌动画不好么，9个人水9集然后组团打个BOSS完事，这样至少白开水也多点糖精啊
+
+
+*****
+
+####  ALSE  
+##### 275#       发表于 2023-9-6 14:13
+
+其实说烂倒也真不夸张，最后2话不绝地翻盘的话的确可以和星二争拉史倒数第一
+
+夜羽的问题在虽然没人骂，但更是没人看（其实看讨论度大概也看得出来）
+
+OP,ED销量都是系列历史最低（同时ED史上第一次动画ED不破万）
+
+销量预约寄了，能累平破万就是胜利
+
+播放一集比一集低，abema独占先行的情况下播放量也是最低的那档
+
+双TAG加起来推特趋势好久没过四万了，稳定3W水平
+
+nico评分虽然有均63左右，但在这季是稳定倒十→稳定倒五→稳定倒三（now）的水平
+
+烂到出名和完全没人看都不是好事吧
+
+（虽然是有唯一一个还好的数据，但是那数据问题更大了还是别聊了）
+
+
+*****
+
+####  仟音一心  
+##### 276#         楼主| 发表于 2023-9-6 20:00
+
+<img src="https://p.sda1.dev/13/408cb08278a014433ab5bf7f13cef941/CMP_20230906195944241.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/26c4d6f4a5a72cb0935799f01949dd2c/CMP_20230906195944282.jpg" referrerpolicy="no-referrer">
+
