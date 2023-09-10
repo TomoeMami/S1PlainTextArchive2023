@@ -199,3 +199,20 @@ github 上没 push 2.5.4 的代码吗，我看GitHub上的代码还是 2.5.3，�
 大佬，图片发不出来了，是移动网的问题吗</blockquote>
 图床的问题
 
+*****
+
+####  天蓬元帅买买提  
+##### 1434#       发表于 2023-9-5 09:50
+
+鹅球日常显示网络错误怎么破<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dswll  
+##### 1435#       发表于 2023-9-7 09:27
+
+鹅球怎么突然不行了，一直提示网络错误
+

@@ -2868,3 +2868,289 @@ SMACH Team.</blockquote>
 
 Taki 出 DeckHD 的评测了 【一项巨大的Steam Deck升级 - DeckHD 深入评测-哔哩哔哩】 [https://b23.tv/cqrAWbS](https://b23.tv/cqrAWbS)
 
+*****
+
+####  bypass  
+##### 811#         楼主| 发表于 2023-9-2 10:38
+
+尾巴最近真的是腹泻式更新，虽说都是很久之前宣布的机型了，但最近半个多月发布会不断 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> Pocket Air，Kun，接下来是 Slide。
+
+
+*****
+
+####  暗示我7酱  
+##### 812#       发表于 2023-9-2 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62264880&amp;ptid=2086469" target="_blank">bypass 发表于 2023-9-2 10:38</a>
+尾巴最近真的是腹泻式更新，虽说都是很久之前宣布的机型了，但最近半个多月发布会不断  Pocket Air ...</blockquote>
+air是画饼久了，等发售时发现卷不odin又花新饼
+kun想搞差异化大尺寸产品线，但是联想也新出了8寸的win掌机
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  snarc1  
+##### 813#       发表于 2023-9-2 13:37
+
+联想这个其他都挺好，但是太重了，基本无法手持
+
+*****
+
+####  医生狼多  
+##### 814#       发表于 2023-9-2 13:39
+
+联想这个就是oxp那种，我最早用的就是这个，玩久一点需要肘部有依托
+
+
+*****
+
+####  Midnight.Coup  
+##### 815#       发表于 2023-9-5 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62266674&amp;ptid=2086469" target="_blank">snarc1 发表于 2023-9-2 13:37</a>
+
+联想这个其他都挺好，但是太重了，基本无法手持</blockquote>
+还有个问题，屏幕分辨率太高了，200% 缩放刚好
+
+但 Z1(7840U改) 的驱动在内屏时不会开启整数缩放功能(AMD笔电都这样)
+
+好在还有 RSR 可以用，但不如给块 1280×800 的屏幕
+
+*****
+
+####  bypass  
+##### 816#         楼主| 发表于 2023-9-5 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62266238&amp;ptid=2086469" target="_blank">暗示我7酱 发表于 2023-9-2 12:59</a>
+
+air是画饼久了，等发售时发现卷不odin又花新饼
+
+kun想搞差异化大尺寸产品线，但是联想也新出了8寸的win掌 ...</blockquote>
+slide 和 flip 也开始宣发了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/05/112523cod8w6iiotr5icfp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-5 11:25 上传
+
+
+*****
+
+####  bypass  
+##### 817#         楼主| 发表于 2023-9-5 11:44
+
+<img src="https://img.saraba1st.com/forum/202309/05/114409u80ri7mkzd0o87wo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (552.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-5 11:44 上传
+
+
+*****
+
+####  肛之练筋士  
+##### 818#       发表于 2023-9-5 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">今天有人去预定gpd win mini吗，搞了个7640版
+
+
+*****
+
+####  泰坦失足  
+##### 819#       发表于 2023-9-5 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62080613&amp;ptid=2086469" target="_blank">bypass 发表于 2023-8-19 00:09</a>
+
+Taki 出 DeckHD 的评测了 【一项巨大的Steam Deck升级 - DeckHD 深入评测-哔哩哔哩】 https://b23.tv/cqrAW ...</blockquote>
+搜了下价格只要99刀, 惊人的便宜
+
+
+*****
+
+####  bypass  
+##### 820#         楼主| 发表于 2023-9-5 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62299236&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2023-9-5 13:11</a>
+
+搜了下价格只要99刀, 惊人的便宜</blockquote>
+不贵，但就是安装太麻烦
+
+
+*****
+
+####  飞侠小黑  
+##### 821#       发表于 2023-9-5 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61695142&amp;ptid=2086469" target="_blank">bypass 发表于 2023-7-17 16:00</a>
+Slide 也要开始宣发了。</blockquote>
+aya怎么能出这么多型号的，卖的出去吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+*****
+
+####  恋妖壶  
+##### 822#       发表于 2023-9-5 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62300105&amp;ptid=2086469" target="_blank">飞侠小黑 发表于 2023-9-5 14:26</a>
+
+aya怎么能出这么多型号的，卖的出去吗
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 S1Next-鹅版 v2.2.2. ...</blockquote>
+先卖出去再生产
+
+
+*****
+
+####  snarc1  
+##### 823#       发表于 2023-9-5 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62297631&amp;ptid=2086469" target="_blank">Midnight.Coup 发表于 2023-9-5 11:23</a>
+还有个问题，屏幕分辨率太高了，200% 缩放刚好
+
+但 Z1(7840U改) 的驱动在内屏时不会开启整数缩放功能(AMD笔 ...</blockquote>
+艹，AMD out，没用过AMD核显本都不知道这个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  暗示我7酱  
+##### 824#       发表于 2023-9-5 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62297653&amp;ptid=2086469" target="_blank">bypass 发表于 2023-9-5 11:25</a>
+slide 和 flip 也开始宣发了</blockquote>
+flip已经够丑了，slide更丑了。。。这个按键键盘摇杆挤一起。。沙雕flip不就挺简洁的
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 825#       发表于 2023-9-5 18:00
+
+还不如mini，打扰了
+
+
+*****
+
+####  fancykid  
+##### 826#       发表于 2023-9-5 18:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">rog ally有没有坛友说说体验，看了一圈貌似这个屏幕最好，但就不知道windows体验如何，比sd差在哪
+
+*****
+
+####  Midnight.Coup  
+##### 827#       发表于 2023-9-5 18:06
+
+ 本帖最后由 Midnight.Coup 于 2023-9-5 18:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62302206&amp;ptid=2086469" target="_blank">snarc1 发表于 2023-9-5 17:46</a>
+艹，AMD out，没用过AMD核显本都不知道这个
+
+—— 来自 S1Fun</blockquote>
+AMD 没必要 out，低功率最强核显除了 M2 就是这个了
+是联想这个产品经理怕不是没有用过这玩意打游戏，WQXGA 屏 RSR 后相当于别人 1280×800+FSR基础缩放锐化的水平，然而别人 800P 屏幕直接用 FSR2.0 去了
+
+*****
+
+####  bypass  
+##### 828#         楼主| 发表于 2023-9-5 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62302351&amp;ptid=2086469" target="_blank">fancykid 发表于 2023-9-5 18:03</a>
+
+rog ally有没有坛友说说体验，看了一圈貌似这个屏幕最好，但就不知道windows体验如何，比sd差在哪 ...</blockquote>
+屏幕好，音响超好，性能好，续航烂（25w 玩地平线 4 最高画质能 1080p 稳 60 帧，续航嘛，一个小时不到），Windows 的体验蛋疼（不是为手柄设置，也没有触摸板，使用过程经常就得空出一只手用触屏点点点，或者频繁切换手柄为桌面模式当鼠标用，睡眠问题我倒是觉得还好，玩的几个游戏唤醒之后依旧正常运行），握把手感不如 Deck，噪音比我用过的所有 PC 掌机都要小。
+
+一小时地平线
+
+<img src="https://imgur.ihainan.me/QFqkxwg.jpg" referrerpolicy="no-referrer">
+
+三小时星之海
+
+<img src="https://imgur.ihainan.me/5OB1HIL.jpg" referrerpolicy="no-referrer">
+
+Deck 玩老游戏很舒服：
+
+<img src="https://imgur.ihainan.me/UP2TZfs.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  fancykid  
+##### 829#       发表于 2023-9-5 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62302432&amp;ptid=2086469" target="_blank">bypass 发表于 2023-9-5 18:12</a>
+
+屏幕好，音响超好，性能好，续航烂（25w 玩地平线 4 最高画质能 1080p 稳 60 帧，续航嘛，一个小时不到） ...</blockquote>
+发热严重吗，我看网上说有烧卡的风险，还有能不能接线或者充电宝长时间玩
+
+*****
+
+####  bypass  
+##### 830#         楼主| 发表于 2023-9-5 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62302523&amp;ptid=2086469" target="_blank">fancykid 发表于 2023-9-5 18:24</a>
+
+发热严重吗，我看网上说有烧卡的风险，还有能不能接线或者充电宝长时间玩 ...</blockquote>
+我不插 SD 卡，机身本身拿着不热，其他地方热反正烫不到我我也无所谓了 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 长时间玩没啥问题吧。
+
+
+*****
+
+####  サリシノハラ  
+##### 831#       发表于 2023-9-5 20:14
+
+想问一下，如果想买一个方便出门玩steam上本地双人合作游戏的掌机，现在选什么比较好。steamdeck连多个蓝牙手柄方便吗？还是说干脆就等legion go<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 832#       发表于 2023-9-5 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62303710&amp;ptid=2086469" target="_blank">サリシノハラ 发表于 2023-9-5 20:14</a>
+想问一下，如果想买一个方便出门玩steam上本地双人合作游戏的掌机，现在选什么比较好。steamdeck连多个蓝牙 ...</blockquote>
+如果不连屏幕只看掌机的话看看联想或者oxp2，sd那屏幕你放远点看更惨不忍睹
+如果连屏幕的话sd加个拓展坞+两手柄吧
+
+
+*****
+
+####  飞侠小黑  
+##### 833#       发表于 2023-9-6 10:12
+
+感觉可以再等等ZEN4的掌机
+
+
+*****
+
+####  bypass  
+##### 834#         楼主| 发表于 2023-9-7 09:21
+
+黑色看起来还行
+
+<img src="https://img.saraba1st.com/forum/202309/07/092050a599i8bmi8zoozmy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (300.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-7 09:20 上传
+
+<img src="https://img.saraba1st.com/forum/202309/07/092100tqa1gyymuuwymyw7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (362.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-7 09:21 上传
+
