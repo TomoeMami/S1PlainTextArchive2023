@@ -6675,3 +6675,47 @@ WEB被赏金首也是因为都市干部被骗然后利诱入伙，牵制依那�
 
 说起来水羽这个角色是不是胜也死了之后就再也没有提过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  TiiTiiLL  
+##### 546#       发表于 2023-9-7 20:48
+
+想知道大小姐后面还有戏份吗
+
+
+*****
+
+####  topia  
+##### 547#       发表于 2023-9-7 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62327104&amp;ptid=1913585" target="_blank">TiiTiiLL 发表于 2023-9-7 20:48</a>
+想知道大小姐后面还有戏份吗</blockquote>
+看你怎么定义后面
+如果是漫画进度，后面工厂和白卡事件还有不少戏份
+如果是web版，感觉白卡事件完了后基本杀青了，虽然感觉web已经太监了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TiiTiiLL  
+##### 548#       发表于 2023-9-7 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62327984&amp;ptid=1913585" target="_blank">topia 发表于 2023-9-7 22:19</a>
+
+看你怎么定义后面
+
+如果是漫画进度，后面工厂和白卡事件还有不少戏份
+
+如果是web版，感觉白卡事件完了后基 ...</blockquote>
+文库版翻译最快都只到三卷吗，搜了下英肉也才三卷
+
+
+*****
+
+####  topia  
+##### 549#       发表于 2023-9-8 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62328679&amp;ptid=1913585" target="_blank">TiiTiiLL 发表于 2023-9-7 23:39</a>
+文库版翻译最快都只到三卷吗，搜了下英肉也才三卷</blockquote>
+文库台版好像就只到3卷下赏金首为止
+
