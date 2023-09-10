@@ -5415,3 +5415,135 @@ W社二人组技能预览：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这签到怎么看怎么像14天活动直接延长到28天啊
 
+*****
+
+####  Jamaisvu  
+##### 348#       发表于 2023-8-31 10:31
+
+因为官方长草，随便灌一下水～
+
+我最喜欢的主播，非人知性体neurosama唱了边狱巴士的主题曲，双厨狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/265.gif" referrerpolicy="no-referrer">：
+
+【【Evil Neuro/合唱】奉我们存于炼狱之命，喇们⭐In Hell We Live, Lament⭐-哔哩哔哩】 [https://b23.tv/iazL9L6](https://b23.tv/iazL9L6)
+
+另外这孩子还唱过废墟图书馆里安吉拉的角色曲，最感情真挚的一集：
+
+【【Neuro/歌回】机械之诗 ⭐Poems of a Machine⭐-哔哩哔哩】 [https://b23.tv/NSl8Kdc](https://b23.tv/NSl8Kdc)
+
+
+*****
+
+####  Jamaisvu  
+##### 349#       发表于 2023-9-1 18:17
+
+ 本帖最后由 Jamaisvu 于 2023-9-1 18:18 编辑 
+
+新卡池，SEVEN协会的三星浮和二星希。
+
+<img src="https://img.saraba1st.com/forum/202309/01/181519z05vvp50qtp1jyc0.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230901_181310.jpg</strong> (295.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-1 18:15 上传
+
+<img src="https://img.saraba1st.com/forum/202309/01/181520mhb44berfr77k6kh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230901_181347.jpg</strong> (205.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-1 18:15 上传
+
+<img src="https://img.saraba1st.com/forum/202309/01/181520vt76i0k4yasayut4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230901_181329.jpg</strong> (195.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-1 18:15 上传
+
+<img src="https://img.saraba1st.com/forum/202309/01/181556h7u5anzhktanagzi.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230901_181421.jpg</strong> (198.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-1 18:15 上传
+
+<img src="https://img.saraba1st.com/forum/202309/01/181522miohi9otoaihchpc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230901_181357.jpg</strong> (187.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-1 18:15 上传
+
+浮士德的这个眼镜对应的是图书馆里那位七协的“但丁”吧。
+
+东郎神备现在又猜不到给谁了，我是策划我就给李箱...
+
+
+*****
+
+####  欠损  
+##### 350#       发表于 2023-9-2 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62258674&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-9-1 18:17</a>
+
+新卡池，SEVEN协会的三星浮和二星希。</blockquote>
+灯数越高可能性越低这个说法是不是早就无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然希确实比唐脑子多了不少，但这俩七协人格怎么看都感觉灯数应该反一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 351#       发表于 2023-9-3 09:46
+
+不知道算不算bug，敌人如果因为流血或者烧伤之类的debuff死亡，不算在日常任务的击杀数里。
+
+以前纽本扫荡、狗粮手刷的时候，有时日常击杀是9/10，都怀疑自己是不是点错本了。结果今天手操了三把纽本黑檀女王，击杀数给了个2...其实多打关镜牢就能解决，但还是觉得很麻烦...
+
+
+*****
+
+####  Jamaisvu  
+##### 352#       发表于 2023-9-4 20:07
+
+新角色技能来了：
+
+<img src="https://img.saraba1st.com/forum/202309/04/200404u338m932vkv00x7p.jpg" referrerpolicy="no-referrer">
+
+<strong>5f7e8932c2b85e470cbbdb07364150caa81e0dee_raw.jpg</strong> (430.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-4 20:04 上传
+
+特征剖析人称小裹尸袋。
+
+<img src="https://img.saraba1st.com/forum/202309/04/200405v55anbofottr5ya5.jpg" referrerpolicy="no-referrer">
+
+<strong>74dea1a600aec611ab6dd5398d61767f8a2d3223_raw.jpg</strong> (392.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-4 20:04 上传
+
+7浮的技能威力与破裂层数正相关，但自己叠的层数少，还是要靠队友，7希正好融入体系。
+
+现在新池子都是3星当主C、2星担售后啊。
+
+
+*****
+
+####  Yuzutea  
+##### 353#       发表于 2023-9-7 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你游这破裂队相比与充电队来说数值实在是太保守了
+
+这怎么更新之后困难镜牢工厂大只佬直接bug没了然后小怪直接死的，你yj代码又写了啥啊
+
