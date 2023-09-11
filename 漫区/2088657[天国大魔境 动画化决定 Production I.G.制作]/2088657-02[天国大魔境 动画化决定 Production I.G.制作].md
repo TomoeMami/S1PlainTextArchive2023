@@ -2137,3 +2137,209 @@ URLはコチラから↓
 ぜひコメンタリーと合わせてご視聴ください✨
 <img src="https://p.sda1.dev/13/9e8693ba2bce88a8d52f67c26771651d/tdm_anime-1697534769800864180-img1.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Unlight  
+##### 1685#       发表于 2023-9-6 08:07
+
+啊这…
+
+<img src="https://img.saraba1st.com/forum/202309/06/080746nl46kfzxxnlfqfo4.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0373.JPG</strong> (306.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-6 08:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  朝仓和美  
+##### 1686#       发表于 2023-9-6 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61463406&amp;ptid=2088657" target="_blank">夏溪澪mio 发表于 2023-6-28 12:05</a>
+我看robin雷普女主的时候还以为是在治疗她呢让人看着镜子doi不断唤醒她对自己的认知
+
+—— 来自 Xia ...</blockquote>
+也不一定没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cowgp01  
+##### 1687#       发表于 2023-9-6 09:14
+
+<blockquote>Unlight 发表于 2023-9-6 08:07
+啊这…
+
+</blockquote>
+连小镇的bd都不高，你还想上迪斯尼的销量有多少
+
+*****
+
+####  仟音一心  
+##### 1688#       发表于 2023-9-6 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62306658&amp;ptid=2088657" target="_blank">Unlight 发表于 2023-9-6 08:07</a>
+
+啊这…</blockquote>
+漫改看能带动多少原作销量吧
+
+*****
+
+####  diyihaoshitu  
+##### 1689#       发表于 2023-9-6 09:22
+
+居然不如电锯人……
+
+—— 来自 vivo Y55L, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Garterbelt  
+##### 1690#       发表于 2023-9-6 11:08
+
+这部不是迪士尼+独播来着吗？日本电视台有播吗？
+
+
+*****
+
+####  OWO.OMO  
+##### 1691#       发表于 2023-9-6 11:35
+
+出数据了 不错了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  鬼谷ask  
+##### 1692#       发表于 2023-9-6 12:42
+
+迪士尼独播是这样的，不知道迪士尼还愿不愿意接着投，能出数据就不错了，我那个季度里喜欢的四部就u149好点，其他都是杂鱼
+
+
+*****
+
+####  cowgp01  
+##### 1693#       发表于 2023-9-6 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62310190&amp;ptid=2088657" target="_blank">鬼谷ask 发表于 2023-9-6 12:42</a>
+
+迪士尼独播是这样的，不知道迪士尼还愿不愿意接着投，能出数据就不错了，我那个季度里喜欢的四部就u149好点 ...</blockquote>
+难，先不说收益，继续拍下去感觉漫画也没什么阶段性结尾了
+
+
+*****
+
+####  喵喵叫的猫  
+##### 1694#       发表于 2023-9-6 15:15
+
+主要bd预购特典没一个想要的
+这次就没订打算2卷出完直接买现货了，没想到这么惨
+倒是之前ed的专辑应该卖的还不错
+
+
+*****
+
+####  Yalbsd  
+##### 1695#       发表于 2023-9-6 16:57
+
+这个也太惨了，离一龙都还有很大的距离
+
+*****
+
+####  拉鲁拉丝  
+##### 1696#       发表于 2023-9-6 17:00
+
+夏日重现多少？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cowgp01  
+##### 1697#       发表于 2023-9-6 17:09
+
+<blockquote>拉鲁拉丝 发表于 2023-9-6 17:00
+夏日重现多少？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+好像是700左右
+
+
+*****
+
+####  NeloAngelo  
+##### 1698#       发表于 2023-9-6 19:38
+
+这…虽然被关进迪斯尼大牢, 但感觉 天国大魔境 热度并不低啊.  在哪都有一定讨论度.  怎么会这么惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 1699#         楼主| 发表于 2023-9-7 03:13
+
+动画做得不错，给你石黑作品应有的销量<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 1700#       发表于 2023-9-7 10:20
+
+猴区看到好几个拿645搞所谓清算的，难道他们真以为是因为所谓ntr剧情所以销量这么低<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+专门翻了一下壁吧视频准备对线结果已经隐藏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+按印象翻了一下叫好不叫座的作品，三狮2 1602，昭和元禄落语心中 1195，昭和元禄落语心中 助六再临篇 1305
+
+说起来冰海1销量是多少，我查到一共四卷，前两卷卷均251，第三卷252，第四卷数据没找到，壁吧20年总结视频里也没有，不过估计250上下大差不差就是了
+
+
+*****
+
+####  Junglemgs  
+##### 1701#       发表于 2023-9-7 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62317997&amp;ptid=2088657" target="_blank">蚊仔蚊仔蚊仔 发表于 2023-9-7 03:13</a>
+
+动画做得不错，给你石黑作品应有的销量</blockquote>
+前一部动画化的小镇其实销量还是有3000的，不过相比13年前碟片的数字平均的确下降了不少
+
+
+*****
+
+####  schneehertz  
+##### 1702#       发表于 2023-9-7 12:13
+
+这种流媒体投资独播的就没打算多卖碟片吧，不是一个市场的
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  牛尾宪辅  
+##### 1703#       发表于 2023-9-8 23:17
+
+随bd第一卷附赠的ost哪里能听到啊呜呜呜，到处都找不到，好想听<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chdhdhd  
+##### 1704#       发表于 2023-9-9 01:55
+
+还没看动画，但不好卖感觉合理。本来就是没有完结的作品悬疑作品，初见体验但复看场面不刺激，再者故事发展太扎实，不玩商业套路，反而吃不太到角色粉的红利
+
