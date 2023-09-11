@@ -2186,3 +2186,22 @@ New Adventures总共一百六十多关，其中只有六关是3D。从任何角�
 https://store.steampowered.com/app/1628610/Paquerette_Down_the_Bunburrows/ ...</blockquote>
 这个主线大概3小时以内，全收集要40小时以上
 
+*****
+
+####  weiyun  
+##### 145#         楼主| 发表于 2023-9-8 10:51
+
+Billy Bumbum出了
+[https://store.steampowered.com/a ... m_A_Cheeky_Puzzler/](https://store.steampowered.com/app/1752730/Billy_Bumbum_A_Cheeky_Puzzler/)
+
+Islands of Insight开启公开测试
+[https://store.steampowered.com/app/2071500/Islands_of_Insight/](https://store.steampowered.com/app/2071500/Islands_of_Insight/)
+
+Chants of Sennaar出了
+
+是个语言解读类的冒险游戏
+[https://store.steampowered.com/app/1931770/Chants_of_Sennaar/](https://store.steampowered.com/app/1931770/Chants_of_Sennaar/)
+
+Escape Simulator推出了传送门联动dlc，而且免费
+[https://store.steampowered.com/a ... tal_Escape_Chamber/](https://store.steampowered.com/app/2000170/Escape_Simulator_Portal_Escape_Chamber/)
+
