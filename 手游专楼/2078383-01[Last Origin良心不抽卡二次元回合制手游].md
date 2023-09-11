@@ -899,3 +899,82 @@ https://zerlarnystyle.com/post-23194/
 虽然你游在DMM，GOOGLE PLAY和APP STORE一副要死的样子，但是在棒子那边有个叫ONE STORE排名还是很能打的，短时间内应该死不掉
 [https://forum.gamer.com.tw/C.php?bsn=36224&amp;snA=661](https://forum.gamer.com.tw/C.php?bsn=36224&amp;snA=661)
 
+*****
+
+####  红白二色霉豆腐  
+##### 83#       发表于 2023-9-6 23:33
+
+虽然联动战国之刃戳中了我的好球区，但在LO里引入了限定扭蛋，保底还是1500罐头......心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 84#       发表于 2023-9-6 23:53
+
+<blockquote>引用第82楼红白二色霉豆腐于2023-09-06 23:33发表的  :
+
+虽然联动战国之刃戳中了我的好球区，但在LO里引入了限定扭蛋，保底还是1500罐头......心情复杂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">瞄了眼推，角色直接换，皮肤靠抽……
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">嗯……最多当不存在就是了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  铁火辉夜  
+##### 85#       发表于 2023-9-7 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对联动角色不太感冒，先把这周打折的黑龙和夏洛特泳装买了
+
+
+*****
+
+####  铁火辉夜  
+##### 86#       发表于 2023-9-7 18:34
+
+[https://www.last-origin.com/news.html](https://www.last-origin.com/news.html)
+
+运营画饼了，不过这官中今年12.31前能出就算成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xunit  
+##### 87#       发表于 2023-9-7 18:42
+
+还要搞日服独有的内容吗，能行吗……
+
+
+*****
+
+####  leina0602  
+##### 88#       发表于 2023-9-7 22:38
+
+怎么不联动女王之刃，这IP我都没听过
+
+
+*****
+
+####  黑上シグマ  
+##### 89#       发表于 2023-9-8 07:19
+
+<blockquote>引用第87楼leina0602于2023-09-07 22:38发表的  :
+
+怎么不联动女王之刃，这IP我都没听过</blockquote>
+战国之刃超古老的东西了……
+运营说了，你游算是R18的，所以找联动很麻烦的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  黑上シグマ  
+##### 90#       发表于 2023-9-8 09:54
+
+asmr第二弹出了
+我想要蔷花的（
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
