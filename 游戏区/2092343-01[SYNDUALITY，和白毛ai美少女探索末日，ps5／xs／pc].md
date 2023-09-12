@@ -1180,3 +1180,20 @@ SYNDUALITY翻译出奇异贤伴，好像差不太多
 
 2023-9-2 14:31 上传
 
+*****
+
+####  Piano-Forest  
+##### 114#       发表于 2023-9-9 14:59
+
+TGS届时直播地址：[https://youtube.com/live/niCpSqXwxRU](https://youtube.com/live/niCpSqXwxRU)
+
+9月24日早11:30开始
+
+バンダイナムコグループが送る大型SFプロジェク「SYNDUALITY」。
+
+豪華キャスト陣をお呼びし、アニメ『SYNDUALITY Noir』や現在開発中のゲーム『SYNDUALITY　Echo of Ada』、そしてホビーに関する情報もお届けします。
+
+出演者
+
+石川由依（エイダ役）/ 大塚剛央（カナタ役）/ 古賀葵（ノワール役）/ 二見プロデューサー（BNE）/ 松田プロデューサー（BNFW）
+
