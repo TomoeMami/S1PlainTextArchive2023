@@ -16417,3 +16417,265 @@ Meta 味的对白有点带富野电波的战姬绝唱构文的感觉，真让人
 九九日付费配信链接已上https://ib.eplus.jp/revuestarlight99-st
 <img src="https://p.sda1.dev/13/e1944fce50ba4c47cf0ed8859c375de9/CMP_20230901114527607.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  寛和石灯籠弦道  
+##### 8893#       发表于 2023-9-9 16:57
+
+<img src="https://p.sda1.dev/13/45ad9f4f4fc369d2f1bb4c578ed972f1/CMP_20230909165640712.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/ec181fdfc124bfbbb3032fb661fba402/CMP_20230909165640882.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/c9f5fdc7fe967a4b895143c6c475e1f1/CMP_20230909165640791.jpg" referrerpolicy="no-referrer">
+
+少歌新情报
+
+*****
+
+####  Alicest  
+##### 8894#       发表于 2023-9-9 16:59
+
+<img src="https://img.saraba1st.com/forum/202309/09/165942g5g965wujkca9ivk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (147.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 16:59 上传
+
+*****
+
+####  Alicest  
+##### 8895#       发表于 2023-9-9 17:02
+
+<img src="https://img.saraba1st.com/forum/202309/09/170248oba6rdhd7zr9ae9h.png" referrerpolicy="no-referrer">
+
+<strong>E%ST7RDZZD{]Y1`_$K`~VAB.png</strong> (275.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 17:02 上传
+
+
+*****
+
+####  ardito  
+##### 8896#       发表于 2023-9-9 17:05
+
+居然把朱迪捞回来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Alicest  
+##### 8897#       发表于 2023-9-9 17:09
+
+<img src="https://img.saraba1st.com/forum/202309/09/170858toib6pilpa6h8m4v.jpg" referrerpolicy="no-referrer">
+
+<strong>[}D6NWHONSS0YG6JQ_2]M_5.jpg</strong> (85.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 17:08 上传
+
+
+*****
+
+####  nh_zzz  
+##### 8898#       发表于 2023-9-9 19:41
+
+补点大图
+真没想到会捞到前宝冢演朗读剧和游戏
+这前宝冢还比生田辉年轻<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/a80e41cb45d0c370d092be4451267fc0/img-1694259061028c437b08a2e055720a3fda35eb3e06e16.jpg" referrerpolicy="no-referrer">
+#4封面和特<img src="https://p.sda1.dev/13/e39908a4bee49cddc714a17f96f10704/img-16942590278699db9f61ac6a9247375912e29dedfbd52.jpg" referrerpolicy="no-referrer">
+设定集封面和特
+<img src="https://p.sda1.dev/13/9d4f01831b2cc94e1ca23c1dcc8ae092/img-16942590298355ef4369b5206485526d215de342b6bb7.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nh_zzz  
+##### 8899#       发表于 2023-9-9 19:42
+
+#4剧中曲歌单
+<img src="https://p.sda1.dev/13/163452b6042741fe26f04cad726b8d7a/img-169425940612393ba1b83a7447ce91b7526175fdd0cf2.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 8900#       发表于 2023-9-9 19:44
+
+设定集在哪预订啊
+
+
+*****
+
+####  爱丁堡official  
+##### 8901#       发表于 2023-9-9 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62347849&amp;ptid=1499843" target="_blank">Alicest 发表于 2023-09-09 19:44:11</a>
+设定集在哪预订啊</blockquote>mygo官号今天发的那个商店就行
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Alicest| + 1|感谢|
+
+查看全部评分
+
+*****
+
+####  nh_zzz  
+##### 8902#       发表于 2023-9-9 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62347849&amp;ptid=1499843" target="_blank">Alicest 发表于 2023-9-9 19:44</a>
+设定集在哪预订啊</blockquote>
+a店和gmers也有开，目前都是预订送b2海报
+
+
+*****
+
+####  wly  
+##### 8903#       发表于 2023-9-9 20:08
+
+朱莉出来基本就实锤了海对面就是去英国了。加上初始印象图里华恋和蓝披风，宣传片里的“海的对面是复仇”，剧情应该就是华恋去英国打二周目了。
+
+
+*****
+
+####  wly  
+##### 8904#       发表于 2023-9-9 20:21
+
+每次我觉得你歌要搞烂活时都还挺惊喜。本来以为tv最后一集嘴炮糊弄下完事了，剧场版反正没后续了糊弄下完事了，游戏tv复刻一遍完事了。这就是pua吗。
+
+
+*****
+
+####  nh_zzz  
+##### 8905#       发表于 2023-9-9 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62348103&amp;ptid=1499843" target="_blank">wly 发表于 2023-9-9 20:08</a>
+朱莉出来基本就实锤了海对面就是去英国了。加上初始印象图里华恋和蓝披风，宣传片里的“海的对面是复仇”， ...</blockquote>
+我觉得是剧场版前半的平行线，搞不好b班这两还参考了王立的剧本
+根据光恋闪耀一体论，大几率光又吃瘪了，不然也不会那么果断上车
+在剧场版最后各自找到自己闪耀之后再回去敦敦雪耻
+
+
+*****
+
+####  Alicest  
+##### 8906#       发表于 2023-9-9 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62347962&amp;ptid=1499843" target="_blank">爱丁堡official 发表于 2023-9-9 19:55</a>
+
+mygo官号今天发的那个商店就行
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+刚买就收到邮件，但是注册邮件到现在没收到…
+
+<img src="https://img.saraba1st.com/forum/202309/09/223637dcc9k0w0c7lll0jp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (162.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 22:36 上传
+
+
+*****
+
+####  wly  
+##### 8907#       发表于 2023-9-10 01:35
+
+<blockquote>nh_zzz 发表于 2023-9-9 20:34
+我觉得是剧场版前半的平行线，搞不好b班这两还参考了王立的剧本
+
+根据光恋闪耀一体论，大几率光又吃瘪了， ...</blockquote>
+鉴于滨的emo是暗示“从沙漠前往大海”，加上pv里“必须前往下个舞台”，整个游戏应该就是紧接着剧场版。本来剧场版里就在排练黄金乡，剧场版结束后讲正式演出的事顺理成章。而且光跑的原因已经非常明确了是害怕成为华恋粉丝，不用再占戏份去扯了。反而剧场版结束的恋还是世上最空虚的人，真的还有的续写。
+
+
+*****
+
+####  nh_zzz  
+##### 8908#       发表于 2023-9-10 01:48
+
+ 本帖最后由 nh_zzz 于 2023-9-10 01:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62351489&amp;ptid=1499843" target="_blank">wly 发表于 2023-9-10 01:35</a>
+
+鉴于滨的emo是暗示“从沙漠前往大海”，加上pv里“必须前往下个舞台”，整个游戏应该就是紧接着剧场版。 ...</blockquote>
+我寻思8884L不是海洋到沙漠吗？
+
+结合王立首席登场的推文
+
+“強力な舞台少女が、我々の前に立ちはだかります🌊
+
+王立演劇学院
+
+ジュディ・ナイトレー”可以推断王立首席在开头的位置，结合剧场版小光练习遥远的黄金乡镜头，还有滨这条疑似是游戏相关的推文
+
+<img src="https://img.saraba1st.com/forum/202309/10/014822z2g2kkmgw8wa36ww.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 01:48 上传
+
+个人目前暂时保留平行的观点
+
+另外台版翻译是“我现在是世界第一的空壳了”，不知道有没有和日方那边确认过
+
+如果确认过的话，那性质就从人变成了单纯的空壳（舞台容器）了
+
+
+*****
+
+####  wly  
+##### 8909#       发表于 2023-9-10 02:32
+
+<blockquote>nh_zzz 发表于 2023-9-10 01:48
+我寻思8884L不是海洋到沙漠吗？
+
+结合王立首席登场的推文
+
+“強力な舞台少女が、我々の前に立ちはだかります ...</blockquote>
+第三个emo的一团烟表明了车的方向是右往左开。毕竟烟的emo没有反方向的，所以只能这么暗示。
+
+
+*****
+
+####  wly  
+##### 8910#       发表于 2023-9-10 02:47
+
+<blockquote>nh_zzz 发表于 2023-9-10 01:48
+我寻思8884L不是海洋到沙漠吗？
+
+结合王立首席登场的推文
+
+“強力な舞台少女が、我々の前に立ちはだかります ...</blockquote>
+参考上层，🌊也许就没这么多含义，就是海外（英国，黄金乡），甚至就是代表这个游戏。
+
+
+*****
+
+####  nh_zzz  
+##### 8911#       发表于 2023-9-10 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62351683&amp;ptid=1499843" target="_blank">wly 发表于 2023-9-10 02:47</a>
+
+参考上层，🌊也许就没这么多含义，就是海外（英国，黄金乡），甚至就是代表这个游戏。 ...</blockquote>
+代表游戏不至于，b班两位是书本和锤子的
+
+
+*****
+
+####  露崎まひる  
+##### 8912#       发表于 2023-9-10 15:28
+
+看完火速去团购群里预定了设定集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
