@@ -5799,3 +5799,281 @@ ALICE可是戏玉，这次能控制对面大概也是有ALICE上线的原因，�
 
 更在意那个终极无分混池暗黑锅能出什么呢
 
+*****
+
+####  江戸前ルナ  
+##### 674#         楼主| 发表于 2023-8-28 16:06
+
+喷了，竟然有an。阿金已经没良心了。而且拉新就拉新了，马上就让新人体验双UP地狱吓跑人，真不会做生意<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+不过没出PU预告，单UP分池的可能性微存？
+
+*****
+
+####  孫光龍  
+##### 675#       发表于 2023-8-28 16:11
+
+怎么可能分池...就是动画女主那种池子吧...
+讲真这游戏都开了月卡了，什么时候也给实装一个天井吧...
+白嫖票有期限，课金又贼贵，是时候更新更新了
+
+
+*****
+
+####  LEOKO~  
+##### 676#       发表于 2023-8-28 23:06
+
+草，啊金发现初音池出货率太高的BUG了
+
+
+*****
+
+####  alialex  
+##### 677#       发表于 2023-8-28 23:34
+
+不是，双池虽然毒但反过来抽到哪个初音不都是出货了吗，不就换了个衣服。动画女主的an好歹还有黑化的设定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 678#       发表于 2023-8-29 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">可惜不能把两只miku一起当看板娘
+
+
+*****
+
+####  江戸前ルナ  
+##### 679#         楼主| 发表于 2023-8-29 15:00
+
+境界技术这帮执法的是死宅吧，禁止使用人造人但可以用来将初音实体化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アヘ顔  
+##### 680#       发表于 2023-8-29 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我哪个都没抽到，垃圾池
+
+
+*****
+
+####  vacuumsword  
+##### 681#       发表于 2023-8-29 17:57
+
+话说39调查刷贝的话原版和AN都能掉吗？还是说哪只出击就掉对应贝？
+
+
+*****
+
+####  madcow  
+##### 682#       发表于 2023-8-29 18:04
+
+三十发new了个原版夜露出来喷了，玩了几年了总算抽到你游女主。初音试玩了下不想抽了攒票等AN阿迪了
+
+
+*****
+
+####  希望之花  
+##### 683#       发表于 2023-8-29 18:52
+
+都没抽到，垃圾池+1
+
+
+*****
+
+####  LEOKO~  
+##### 684#       发表于 2023-8-29 21:32
+
+啊金告诉你何谓流水的老婆铁打的初音
+
+
+*****
+
+####  LEOKO~  
+##### 685#       发表于 2023-8-29 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62203654&amp;ptid=2104259" target="_blank">alialex 发表于 2023-8-28 23:34</a>
+
+不是，双池虽然毒但反过来抽到哪个初音不都是出货了吗，不就换了个衣服。动画女主的an好歹还有黑化的设定[f ...</blockquote>
+没有黑化，AN是异世界的
+
+
+*****
+
+####  不灭的旋律  
+##### 686#       发表于 2023-8-29 22:16
+
+试玩了一下原版初音手感最好，蓄力射击按住不放全场乱跑很有意思。AN初音手感一般SP也不是三红，不过我馋那个电子键盘特效。
+
+话说什么时候来个自选进化素材的活动啊？今年好像还没有过吧？
+
+
+*****
+
+####  江戸前ルナ  
+##### 687#         楼主| 发表于 2023-8-31 20:31
+
+[https://www.bilibili.com/video/BV1k94y147bD](https://www.bilibili.com/video/BV1k94y147bD)
+
+阿金竟然又专门做了个MMD。舞和黑皮同一套动作不同的风格。
+
+（不少人刷：左边的妹子好像很清纯的啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 688#       发表于 2023-8-31 20:34
+
+“超 绝 清 楚”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 689#       发表于 2023-9-1 10:43
+
+昨天miku生日的时候抽到原版了还行，但蓄力射击按住不放全场乱跑不是双枪的通用模板吗
+
+
+*****
+
+####  regular  
+##### 690#       发表于 2023-9-3 12:50
+
+原来不是光我觉得像夜露<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アヘ顔  
+##### 691#       发表于 2023-9-4 09:10
+
+这活动关卡真是又臭又长
+不打这活动都不知道这游戏有这么多歌了...
+
+
+*****
+
+####  不灭的旋律  
+##### 692#       发表于 2023-9-6 20:03
+
+企业任务变季度开催，每个季度有新饰品。又要肝肝肝刷刷刷了
+
+
+*****
+
+####  江戸前ルナ  
+##### 693#         楼主| 发表于 2023-9-7 09:05
+
+最欢乐的是还专门提一嘴最后时刻赶活动进度的玩家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Buke  
+##### 694#       发表于 2023-9-7 13:28
+
+NS版专楼为啥我搜不到了
+
+
+*****
+
+####  江戸前ルナ  
+##### 695#         楼主| 发表于 2023-9-7 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62321989&amp;ptid=2104259" target="_blank">Buke 发表于 2023-9-7 13:28</a>
+
+NS版专楼为啥我搜不到了</blockquote>
+[https://bbs.saraba1st.com/2b/thread-2064688-1-1.html](https://bbs.saraba1st.com/2b/thread-2064688-1-1.html)
+
+
+*****
+
+####  冰风血羽  
+##### 696#       发表于 2023-9-7 19:19
+
+说实话没搞懂这个模式到底怎么玩，抽五个人还不能轮换打难度有点高啊，我这个火系一个都没怎么养起来<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 697#         楼主| 发表于 2023-9-7 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62326049&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-9-7 19:19</a>
+
+说实话没搞懂这个模式到底怎么玩，高难？选DEBUFF加分数那种？抽五个人还不能轮换打难度有点高啊，我这个火 ...</blockquote>
+关卡设计比高难容易，特别是觉得难得就可以去商店买各种各样的增益。买负增益一般就只是为了挑战或者一次委托任务里能刷到的点数更高而已。
+
+与高难不同的就是一次委托，战场上的整个过程所有弹药次数和HP是不恢复的，想恢复只能去商店买。还有连续出战会影响士气，士气太低会导致攻击力降低，反过来休息充足士气满攻击力就会提升。
+
+
+*****
+
+####  冰风血羽  
+##### 698#       发表于 2023-9-7 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62326163&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-9-7 19:30</a>
+
+关卡设计比高难容易，特别是觉得难得就可以去商店买各种各样的增益。买负增益一般就只是为了挑战或者一次 ...</blockquote>
+原来小人脸是士气值，怪不得我用宫藤莉涅直美打完六个关之后都黑了。奖励里5000给称号，那这个是打完12关之后可以反复刷累积的吗？
+
+
+*****
+
+####  江戸前ルナ  
+##### 699#         楼主| 发表于 2023-9-7 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62326348&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-9-7 19:46</a>
+
+原来小人脸是士气值，怪不得我用宫藤莉涅直美打完六个关之后都黑了。奖励里5000给称号，那这个是打完12关 ...</blockquote>
+是啊，具体可以查看奖励那里，赛季化，每季度一个商店。
+
+
+*****
+
+####  江戸前ルナ  
+##### 700#         楼主| 发表于 2023-9-8 19:48
+
+这企业派遣还以为会有多肝，打了一次换了下……感觉就是HARD难度买光DB打两次就能把商店里的有限商品全部换光了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 701#       发表于 2023-9-9 20:16
+
+这机械尾巴真不好看……这代币能留着下次用吗？
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  regular  
+##### 702#       发表于 2023-9-10 00:56
+
+不追加兑换商品的话，下月再来一次new肯定换光了，不肝挺好。
+
+话说跳舞动作我怎么觉着像扭秧歌...
+
+
+*****
+
+####  アヘ顔  
+##### 703#       发表于 2023-9-10 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">偶像扭确实和扭秧歌是一样的手部动作，只不过秧歌的步法和这个有点差别
+
+
+*****
+
+####  不灭的旋律  
+##### 704#       发表于 2023-9-10 14:05
+
+我龙绘美AN来了，钓鱼姥的狂欢。我还以为和岛田闹翻了才迟迟不出呢
+
