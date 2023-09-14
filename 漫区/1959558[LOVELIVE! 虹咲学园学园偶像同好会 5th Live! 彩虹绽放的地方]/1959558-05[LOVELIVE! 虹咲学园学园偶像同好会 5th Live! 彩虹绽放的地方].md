@@ -7282,3 +7282,311 @@ mv结束后独角兽还变觉醒绿了<img src="https://static.saraba1st.com/ima
 
 <img src="https://p.sda1.dev/12/031c2e78ad280ddd890751126630f97b/CMP_20230816204858026.png" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 7384#       发表于 2023-8-30 10:34
+
+<img src="https://p.sda1.dev/12/4afdb1466ba998590f3b6a029735a63b/CMP_20230830103345164.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/23205f54bb5de5a8aafa10aae8f0f1d3/CMP_20230830103345220.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e50b9d200f5fb25dd87020ff1b15dc78/CMP_20230830103345259.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/e381bf40165afa8dddc44f531e0f198e/CMP_20230830103345295.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/2e36b460523e11759c0aebc529f6d2d9/CMP_20230830103347521.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/da6a9871ea08fcefd45090a920e0da77/CMP_20230830103345335.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7385#       发表于 2023-9-6 12:04
+
+解包sif2获得五专各个solo曲名
+1. 背伸びしたって
+中須かすみ(CV.相良茉優)
+2. Cooking with Love
+近江彼方(CV.鬼頭明里)
+3. Walking Dream
+上原歩夢(CV.大西亜玖璃)
+4. 小悪魔LOVE♡
+桜坂しずく(CV.前田佳織里)
+5. My Shadow
+朝香果林(CV.久保田未夢)、
+6. Request for U
+宮下 愛(CV.村上奈津実)
+7. チェリーボム
+優木せつ菜(CV.林 鼓子)
+8. 恋するSunflower
+エマ・ヴェルデ(CV.指出毬亜)
+私はマグネット
+天王寺璃奈(CV.田中ちえ美)
+10. 咬福論
+三船栞子(CV.小泉萌香)
+11. Lemonade
+ミア・テイラー(CV.内田 秀)
+12.   5201314
+鐘 嵐珠(CV.法元明菜)
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 7386#       发表于 2023-9-6 12:28
+
+这歌名，难道唱的是纯中文歌
+
+
+*****
+
+####  仟音一心  
+##### 7387#       发表于 2023-9-6 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62310021&amp;ptid=1959558" target="_blank">蒸汽投石BuBu車 发表于 2023-9-6 12:28</a>
+这歌名，难道唱的是纯中文歌</blockquote>
+应该不是的，就是一向的三语歌。
+这个中式土味就是岚珠的风格。
+
+
+*****
+
+####  cybernetics31  
+##### 7388#       发表于 2023-9-6 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这歌名要素太多………………
+
+*****
+
+####  ddy2811  
+##### 7389#       发表于 2023-9-6 12:46
+
+岚珠确实越来越傻妞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水莲寺流歌  
+##### 7390#       发表于 2023-9-6 13:09
+
+已经能想象到菜宝用中文唱出我爱你一生一世是什么情景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7391#       发表于 2023-9-6 13:28
+
+5201314已经有人在打了
+中文部分很多，前面有：对你一见钟情啊 你只要爱我就好 相信我对你的好 当然理解你心中 肯定想在我手中
+
+*****
+
+####  仟音一心  
+##### 7392#       发表于 2023-9-6 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62310467&amp;ptid=1959558" target="_blank">水莲寺流歌 发表于 2023-9-6 13:09</a>
+已经能想象到菜宝用中文唱出我爱你一生一世是什么情景了</blockquote>
+真的长了，最后就是我爱你一生一世
+
+
+*****
+
+####  ads147147  
+##### 7393#       发表于 2023-9-6 13:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然岚珠确实是会唱这种土味中国情歌的样子，但是真看到5201314这个标题的时候还是没忍住。
+
+岚珠你干嘛不唱老鼠爱大米
+
+*****
+
+####  stygian  
+##### 7394#       发表于 2023-9-6 13:55
+
+chibanyan这次写的不行，血妈土
+
+不过丫本来写的东西就土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  笋狐  
+##### 7395#       发表于 2023-9-6 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻麻滴开头几嗓子差点没忍住点×，好歹是自己的歌，音响协力救一下啊
+
+
+*****
+
+####  cybernetics31  
+##### 7396#       发表于 2023-9-6 14:31
+
+你说的对 但是
+
+怼沵①見妕凊惹！
+
+沵呮婹嬡莪僦恏
+
+楿信莪怼沵哋heart
+
+當嘫理解沵杺狆
+
+肻萣想茬莪掱狆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7397#       发表于 2023-9-6 14:33
+
+ 本帖最后由 ads147147 于 2023-9-6 14:34 编辑 
+
+日本人写的，中日混血唱的，有大量天朝00年味道的土味情歌。感觉不如唱老鼠爱大米（说起来b站上我看到过这玩意的日语翻唱）
+
+*****
+
+####  stygian  
+##### 7398#       发表于 2023-9-6 14:42
+
+チバニャン这屌人本业就是写大土鳖big room的，不整活的话就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老惦记你那二胡干啥哟。。。
+
+
+*****
+
+####  cybernetics31  
+##### 7399#       发表于 2023-9-6 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7400#       发表于 2023-9-6 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62314284&amp;ptid=1959558" target="_blank">cybernetics31 发表于 2023-9-6 18:18</a>
+下班回家听真的崩不住 菜宝啊 咱还是套个luna的马甲写歌吧 这。。。这真的太土了 ...</blockquote>
+和大马路一个人写的 不就这味儿
+
+
+*****
+
+####  仟音一心  
+##### 7401#       发表于 2023-9-6 20:33
+
+锐评
+<img src="https://p.sda1.dev/13/2442c369fa0ff0cca6d23487b00dce72/-16944308431694001490152.jpg" referrerpolicy="no-referrer">
+
+最好听的栞子的咬福论。
+步梦那个已经是重力的代名词了，
+<img src="https://p.sda1.dev/13/4702a56cb2e6d1722b544e31ea3e6f51/CMP_20230906203344412.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  z2150966  
+##### 7402#       发表于 2023-9-6 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">步梦那歌词也太重了
+
+
+*****
+
+####  仟音一心  
+##### 7403#       发表于 2023-9-6 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62316121&amp;ptid=1959558" target="_blank">z2150966 发表于 2023-9-6 21:20</a>
+步梦那歌词也太重了</blockquote>
+sif2剧情里设定上这次所有情歌都是每个人自己写的，这就是步梦的内心写照啊。
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 7404#       发表于 2023-9-7 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62316788&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-9-6 22:36</a>
+sif2剧情里设定上这次所有情歌都是每个人自己写的，这就是步梦的内心写照啊。 ...</blockquote>
+完了，要是这样的设定，已经出现了秀才岚珠的油腻GIF了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 7405#       发表于 2023-9-7 13:21
+
+听完5201314，又回去看酸菜的大马路你创了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仟音一心  
+##### 7406#       发表于 2023-9-7 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62317794&amp;ptid=1959558" target="_blank">蒸汽投石BuBu車 发表于 2023-9-7 01:19</a>
+
+完了，要是这样的设定，已经出现了秀才岚珠的油腻GIF了</blockquote>
+小剧场里有说[https://www.bilibili.com/video/B ... id_from=333.999.0.0](https://www.bilibili.com/video/BV1gN411p7NL/?spm_id_from=333.999.0.0)
+
+岚珠就是这样的，自己喜欢就是一切
+
+
+*****
+
+####  仟音一心  
+##### 7407#       发表于 2023-9-8 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62311018&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-9-6 13:53</a>
+虽然岚珠确实是会唱这种土味中国情歌的样子，但是真看到5201314这个标题的时候还是没忍住。
+
+岚珠你 ...</blockquote>
+来自2020.5.20的伏笔回收
+<img src="https://p.sda1.dev/13/af93d123bd19940575102937efc56d69/CMP_20230908205704389.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7408#       发表于 2023-9-8 21:26
+
+ 本帖最后由 ads147147 于 2023-9-8 21:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62338716&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-9-8 20:57</a>
+来自2020.5.20的伏笔回收</blockquote>
+居然是20年回旋镖，虹企划确实很懂<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+【【法元明菜】菜宝教你5201314中文怎么读-哔哩哔哩】 https://b23.tv/6F7SJUd
+
+补个链接
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7409#       发表于 2023-9-11 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62339216&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-9-8 21:26</a>
+居然是20年回旋镖，虹企划确实很懂
+
+【【法元明菜】菜宝教你5201314中文怎么读-哔哩哔哩】 https: ...</blockquote>
+<img src="https://p.sda1.dev/13/e88a9ff86ad0e613054695c90b3b9942/CMP_20230911150956274.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 7410#       发表于 2023-9-11 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62366408&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-9-11 15:10</a></blockquote>
+不是突然参与，是从一开始就参与的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cybernetics31  
+##### 7411#       发表于 2023-9-11 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
