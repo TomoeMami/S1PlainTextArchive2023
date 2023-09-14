@@ -9882,3 +9882,1939 @@ SKaRD各个成员以前对付过的怪兽记录：
 
 <img src="https://p.sda1.dev/12/f2b2ef33508996883e209dab162d34c8/CMP_20230813192814920.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Y.Cassano  
+##### 1000#       发表于 2023-8-27 03:01
+
+<img src="https://img.saraba1st.com/forum/202308/27/030042v55t6z5fkfsk6ltl.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230827030033.png</strong> (28.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 03:00 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿B评论区看到的
+
+
+*****
+
+####  不灭的旋律  
+##### 1001#       发表于 2023-8-27 10:10
+
+所以布莱泽到底是什么来头？不会真的是个远古野人吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  utakata  
+##### 1002#       发表于 2023-8-27 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62180047&amp;ptid=2104492" target="_blank">不灭的旋律 发表于 2023-8-27 10:10</a>
+
+所以布莱泽到底是什么来头？不会真的是个远古野人吧</blockquote>
+这么来（引用自百度百科）：
+
+泰山（Tarzan）是美国的《人猿泰山》系列作品（小说及电影）中的主人公，本是一个普通的人类小孩，在一次和父母远航的途中发生船难，父母带他逃到森林中修建树屋等待救援，谁知树屋修建没多久，泰山一家遭到了花豹的袭击，父母为了保护泰山双双丧生，被花豹残忍杀死，花豹由于没有找到泰山并未离去。幸而，不久前刚刚失去儿子（也是被花豹残忍杀死）的母猩猩卡娜及时赶到，从花豹口中救下泰山。至此，泰山在猩猩群中被卡娜抚养长大。
+
+你把泰山换成布莱泽，把人类小孩换成m78的奥特曼小孩，母猩猩不变就好了。
+
+
+*****
+
+####  Sokukei  
+##### 1003#       发表于 2023-8-27 14:38
+
+感觉布莱泽目前还是以微创新为主的保守拍法，没有主线或者说什么特别吸引观众继续等待揭秘的线索，也就是还是单元剧为主。
+能像X那样以单元剧为重点，走到结尾时又不失昂扬的主线收尾就好了。
+
+
+*****
+
+####  Sliurus  
+##### 1004#       发表于 2023-8-27 17:03
+
+虽然都是些很经典的设定，但是不说黑化理由还是感觉少了点东西。感觉整集就是给溪边师徒对峙这点醋包的饺子，当然还有升级卖玩具
+
+*****
+
+####  桥洞底下盖小被  
+##### 1005#       发表于 2023-8-27 17:04
+
+主线大概在中期开始围绕野人的线索来讲吧，目前来说虽然没啥爆点但每集观感都挺好的
+
+
+*****
+
+####  魔法少女wwz  
+##### 1006#       发表于 2023-8-27 18:12
+
+喜欢这个新怪兽！！！
+
+这集截了好多图
+
+<img src="https://img.saraba1st.com/forum/202308/27/181132pdb2f0xdzca2a99c.png" referrerpolicy="no-referrer">
+
+<strong>火狐截图_2023-08-27T06-39-37.599Z.png</strong> (223.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 18:11 上传
+
+
+*****
+
+####  novyDC  
+##### 1007#       发表于 2023-8-27 19:33
+
+皮套挺帅的 可惜胶偷色到令人窒息的地步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Sleipnirω  
+##### 1008#       发表于 2023-8-27 21:59
+
+阴天和远景镜头，这集的氛围塑造是真的不错
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 1009#       发表于 2023-8-27 22:41
+
+纯粹的拍的好，至于是不是环保主题、讲得怎么样还得看下集
+
+原始人对自然的理解跟现代人可能很不一样吧，希望能讲好
+
+
+*****
+
+####  里村紅葉  
+##### 1010#       发表于 2023-8-27 23:09
+
+巴利凯恩：你们这帮搞台风的后辈什么时候能追上我啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  plok201  
+##### 1011#       发表于 2023-8-28 01:11
+
+队长那边的立场太旧了，见太多了，教授那边倒是好不少，人类是地球的一员不是随便乱搞的借口
+
+就是奶奶那边已经埋了FLAG，大概是以教授已经走火入魔忘记初心做结吧，只能说真是这样的话就太没新意了，把矛盾转移了，变成教授搞事的对错探讨了
+
+希望不要走这种无聊的展开<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 1012#       发表于 2023-8-30 16:50
+
+9月新图来了，老盆友陨石怪兽嘎啦蒙，队长妻子，新武器
+[https://hobby.dengeki.com/news/2059253/](https://hobby.dengeki.com/news/2059253/)
+
+
+*****
+
+####  ナルバレック  
+##### 1013#       发表于 2023-8-30 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62180047&amp;ptid=2104492" target="_blank">不灭的旋律 发表于 2023-8-27 10:10</a>
+
+所以布莱泽到底是什么来头？不会真的是个远古野人吧</blockquote>
+布莱泽他们星球的光之巨人就是野人生态，打猎怪兽为生
+
+
+*****
+
+####  游蜓  
+##### 1014#       发表于 2023-8-30 18:35
+
+这部目前为止正经的城市战是不是就两集
+
+
+*****
+
+####  Piano-Forest  
+##### 1015#         楼主| 发表于 2023-8-30 22:53
+
+9月剧集剧照
+
+第8话
+<img src="https://p.sda1.dev/12/84c73577c56cddbf0b8ae0b6fa1297fc/20230830052846_20230830052852.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/121540c3c7f1deb677807f7bffd97721/20230830052846.png" referrerpolicy="no-referrer">
+
+第9话
+<img src="https://p.sda1.dev/12/580c82578b4090f897a6788b1d2be18c/20230830053127.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/8d6270d2885f393f5403b0bb35ae97ff/20230830053145.png" referrerpolicy="no-referrer">
+
+第10话
+<img src="https://p.sda1.dev/12/4629f249014ef06e79082f0020843b6e/20230830053040.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/0f5caad03143ff3389d2ec279bca7554/20230830053347.png" referrerpolicy="no-referrer">
+
+第11话
+<img src="https://p.sda1.dev/12/bfa5da2ab15b11f0e9029c5ce7affde8/20230830053521.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4f1620207ef1f56234ecab10b1e5b728/20230830053521_20230830053527.png" referrerpolicy="no-referrer">
+
+第12话
+<img src="https://p.sda1.dev/12/341e147c882e624c1680fe69e0fed3be/20230830053638.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9007c75455096ec0957ebb088b16be11/20230830053413.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  海帕可乐  
+##### 1016#       发表于 2023-8-31 09:19
+
+说实话，我就不喜欢城市战，还是得在山区、秘境、海边啥的打
+
+
+*****
+
+####  Sokukei  
+##### 1017#       发表于 2023-8-31 17:27
+
+原声带更新了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 1018#         楼主| 发表于 2023-8-31 21:02
+
+【布莱泽奥特曼 OST原声带】 [https://b23.tv/VQsOOrz](https://b23.tv/VQsOOrz)
+
+泽塔、特利迦、德凯、雷古洛思OST也都出了
+
+
+*****
+
+####  novyDC  
+##### 1019#       发表于 2023-9-1 20:26
+
+【【双语字幕】音乐和嘎拉蒙！又是杏梨回！布莱泽第9集《音之星》预告泄漏版-哔哩哔哩】 [https://b23.tv/HFAsYEx](https://b23.tv/HFAsYEx) 草 下下集都有了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  新HGCG  
+##### 1020#       发表于 2023-9-2 08:30
+
+“道理我都懂，但是那个皮格蒙怎么那么大”（装傻）
+
+
+*****
+
+####  BQlin  
+##### 1021#       发表于 2023-9-2 09:00
+
+出来了几秒小黑屋，加上杂志图有塑料武器，真彳亍
+
+幸好还有不少新皮套，要是这个也破功了
+
+
+*****
+
+####  不灭的旋律  
+##### 1022#       发表于 2023-9-2 10:09
+
+曼哥和艾斯满意得点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+狗狗就是要趴着才对嘛
+
+
+*****
+
+####  saevey  
+##### 1023#       发表于 2023-9-2 10:23
+
+感觉这部到最后也就平淡收场了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯狐娘娘  
+##### 1024#       发表于 2023-9-2 10:29
+
+这部会不会直接单元剧走到底了，最后几集才出现主线和boss。
+
+
+*****
+
+####  水边井  
+##### 1025#       发表于 2023-9-2 10:48
+
+布莱泽怎么说，各方面都不错，但是就是感觉少了点什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nonodundun  
+##### 1026#       发表于 2023-9-2 10:50
+
+最后讲教授放出来的时候的氛围还挺舒缓的，制作组不会觉得教授无罪释放是好事吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 1027#       发表于 2023-9-2 10:53
+
+草 这电磁加农后坐力也太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  hulaoda007  
+##### 1028#       发表于 2023-9-2 10:54
+
+有一种看着周四雨来，看着周五周六还要上班，但下雨车流量少了工作量也少了的感觉，看布莱泽这好是好，但又不是很惊喜的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1029#       发表于 2023-9-2 10:55
+
+我等加巴顿A出来再说了
+
+
+*****
+
+####  novyDC  
+##### 1030#       发表于 2023-9-2 11:10
+
+新大招挺酷炫的 就是出来有点平淡
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  彻底氧化分解  
+##### 1031#       发表于 2023-9-2 12:03
+
+  少了个落地的镜头，看着有点怪。还有什么时候「有这是子供向所以剧情点到为止」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sokukei  
+##### 1032#       发表于 2023-9-2 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62264036&amp;ptid=2104492" target="_blank">新HGCG 发表于 2023-9-2 08:30</a>
+“道理我都懂，但是那个皮格蒙怎么那么大”（装傻）</blockquote>
+“是嘎拉蒙”（配合）
+
+
+*****
+
+####  待宵  
+##### 1033#       发表于 2023-9-2 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62265705&amp;ptid=2104492" target="_blank">彻底氧化分解 发表于 2023-9-2 12:03</a>
+
+少了个落地的镜头，看着有点怪。还有什么时候「有这是子供向所以剧情点到为止」虽然教授被副队说动 ...</blockquote>
+尾巴剑的话不就和奥布卡利巴重复了
+
+
+*****
+
+####  Cloudslin  
+##### 1034#       发表于 2023-9-2 13:48
+
+这几集真是没法吹……纯正新生代味，而且有点太平了
+
+
+*****
+
+####  plok201  
+##### 1035#       发表于 2023-9-2 20:36
+
+唉，想不到比把冲突点弄成教授入魔还无聊，副队长扯全部生物我真的笑了
+
+拉低期待吧，扯什么环保为主题真的想多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 1036#       发表于 2023-9-2 22:27
+
+以下是本人对副队长怒怼博士这段戏的过度解读，大家权且看个乐
+
+副队长那套说辞，我朝的丁仲礼院士在怼柴静的那段视频里有一个完整的逻辑链条
+
+1.地球不需要人类拯救，因为人类即使毁掉了现有的环境，若干年后也会恢复如常，没记错的话丁院士举得例子是切尔诺贝利
+
+2.所以所谓的保护环境，其实就是保护人类自己
+
+3.所以如果本末倒置了，为了保护环境把人类灭了，那么保护环境就失去意义了
+
+这是回应目前这位博士理论的版本答案
+
+但是剧集又开始提电车难题了，我一开始有了天气之子的错觉也是源于这里
+
+众所周知，电车难题这玩意其实已经被古今中外的专家从各种角度各种领域的知识分析的想当透彻了，所以今时今日如果再拿这玩意说事的话，有且仅有一种可能，那就是屁股问题
+
+剧本并没有否认这一点，而且借着博士之口把这个本质表达出来了，如果从这一点出发，做为日本人写的剧本，并且是要给小孩子看的故事，那写到这个地步确实不容易
+
+当然，具体呈现的方式，还是非常少年漫的，你有你的理念我有我的理念，咱俩谁都不能说服谁，那就打一架吧
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 1037#       发表于 2023-9-2 22:58
+
+现在环境谈环保怎么说都是错的，又不可能真的把日本核平了。这集的处理还行吧，人类不对难道你重启就对了么
+
+
+*****
+
+####  橙冰  
+##### 1038#       发表于 2023-9-2 23:22
+
+中后期肯定会有高层相关的剧情的，然后中期主线，最后的结局篇
+
+
+*****
+
+####  仟音一心  
+##### 1039#       发表于 2023-9-3 12:16
+
+漫画的压迫感
+<img src="https://p.sda1.dev/13/56eb7b2739fe01ac881424391d77b1ec/CMP_20230903121548833.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/cf15e575ad41cf4fa5f62e480ce88bb6/CMP_20230903121548905.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  敏感词好多  
+##### 1040#       发表于 2023-9-3 13:38
+
+还是太平了，大招演出也没提起来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kcalb  
+##### 1041#       发表于 2023-9-3 17:13
+
+教授人设是怪兽专家，权威级的那种，正常剧情应该是监禁后成为日常辅助NPC，几个学生必定要时常请教，但可能是因为没有角色后续规划，或演员档期问题，总之一次性纯客串角色，所以扔在外头算了，省得观众惦记
+
+类似角色戴拿里的如月露博士，中期一面最后一面，最终话再出来刷个存在感吧大概
+
+
+*****
+
+####  UnrealApartheid  
+##### 1042#       发表于 2023-9-3 18:36
+
+ 本帖最后由 UnrealApartheid 于 2023-9-3 18:38 编辑 
+
+微博“二次元政审人”对这两集的观点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+Screenshot_2023-09-03-17-49-34-05_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(337.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202309/03/183839pogyowg2kq2r7iso.jpg" referrerpolicy="no-referrer">
+
+Screenshot_2023-09-03-17-49-46-64_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(77.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202309/03/183842idfkk99x1d33dd13.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  布莱士·西伯利  
+##### 1043#       发表于 2023-9-3 19:38
+
+一两集有个不尽人意的故事也还好，毕竟新生代剧本乏善可陈。但布莱泽目前为止每一集都有点平淡，好不容易等来个大的结果也效果平平。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">感觉追的有点丧气。
+
+
+*****
+
+####  毛头子  
+##### 1044#       发表于 2023-9-3 19:49
+
+看你们一个个都这不好那一般的，搞得我这个看完观感舒适的人都有点不自信了。
+
+*****
+
+####  古怪山庄士大夫  
+##### 1045#       发表于 2023-9-3 19:53
+
+政审人就不用看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  akiji  
+##### 1046#       发表于 2023-9-3 19:58
+
+这什么政审人……魔怔人吧……
+
+
+*****
+
+####  永恒的王牌  
+##### 1047#       发表于 2023-9-3 20:31
+
+那个魔怔人只是打着政审的名号judge所有他看不顺眼的作品和作品粉丝罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鸡翼大绅士  
+##### 1048#       发表于 2023-9-3 20:54
+
+观感挺舒服的啊，有动力追
+
+
+*****
+
+####  zzf111  
+##### 1049#       发表于 2023-9-3 21:57
+
+新怪兽出场的几集都挺好的，但电子星人那集除了小哥的肌肉好评剩下内容的都很一般，除了翻滚面包车便宜镜头还有点梦回特利伽那种硬凹二次元人设的醍醐味，天气怪兽属于一开始我就没多期待编剧会真的深入探讨环保问题
+
+
+*****
+
+####  Sleipnirω  
+##### 1050#       发表于 2023-9-3 22:25
+
+彩虹这两集，上半感觉气氛调动起来了，下半就感觉有点平淡，但总体还算不错
+
+
+*****
+
+####  RainbowSealife  
+##### 1051#       发表于 2023-9-3 22:27
+
+<img src="https://img.saraba1st.com/forum/202309/03/220450zbb9ownno9zobpxb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (226.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:04 上传
+
+<img src="https://img.saraba1st.com/forum/202309/03/220615bttfvdvya6edfe3h.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (317.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:06 上传
+
+低成本+简易镜头如何拍出大场面<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/03/220738ky1u9hy2533f1ffv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (236.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:07 上传
+
+铠甲加鲁鲁兽写实版？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/03/221001hrlle6ibh2ciede7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (305.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:10 上传
+
+<img src="https://img.saraba1st.com/forum/202309/03/221318corfeq1xmqbqrqxb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (250.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:13 上传
+
+gotcha rainbow！还挺梦幻的。
+
+这集最大的争议应该是横峰最后没被绳之以法吧，他应有的下场其实借其他角色台词已经说出来了，只不过这么思想极端的人没有为他的所作所为付出应有代价。其实按照以往的经验恶人被嘴炮成功，最后献出生命来弥补自己的过错这种俗套展开其实更好，或者实在不行队长或副队长最后出于人情选择徇私枉法而放教授一马，这样凸显出人情世故“人性险恶”的结局我也不是不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/03/222612xnx5nrinlgnhfw5g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:26 上传
+
+有没有可能最后那句“有没有搞错”实际上是替观众吐槽了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/03/222628ccjydc8gippp8dci.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 22:26 上传
+
+
+*****
+
+####  上坂莲华  
+##### 1052#       发表于 2023-9-3 22:49
+
+那个政审人点开微博首页就是批判宝生永梦，这文章底下还洋洋洒洒at一大堆人，有被at的人直接在下面回不看特摄他也不道歉，纯粹蹭热度的傻逼，你把他当回事就上他的当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喷火飞龙  
+##### 1053#       发表于 2023-9-4 00:14
+
+这话肯定不是泽塔父子那集的那种大爆点，但也没有强行在理念上分出高下，个人觉得是还可以的安排。
+
+
+*****
+
+####  SSSS.崚  
+##### 1054#       发表于 2023-9-4 00:33
+
+随便拼了一下第7集的一处PAN
+<img src="https://p.sda1.dev/13/1c610c76574ee5c9bd1c907d516ca9fe/006ilIMPgy1hhjnc05kucj34im0u0b29.jpg" referrerpolicy="no-referrer">
+
+其实怪兽那边有一大丛植被没合上，包括远处的山也是(实拍和动画就是不一样啊，有真正物理上的效果)
+
+
+*****
+
+####  好面子的懒虫  
+##### 1055#       发表于 2023-9-4 03:45
+
+ 本帖最后由 好面子的懒虫 于 2023-9-4 03:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62279200&amp;ptid=2104492" target="_blank">UnrealApartheid 发表于 2023-9-3 18:36</a>
+
+微博“二次元政审人”对这两集的观点
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+那个政审人纯脑残，别理了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+人家说奥特曼是“美军”也就玩笑话，这货还当真了搁那批判解读，我记得被塔子哥喷过
+
+上次还看到他拱火小粉红去推特冲长谷川
+
+我微博刷到好几次了，这种水平的傻逼建议拉黑，双商堪忧，也就那种为黑不惜与屎为伍的阴湿人会转他的博，别把垃圾在s1也倒一遍<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  UnrealApartheid  
+##### 1056#       发表于 2023-9-4 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62281759&amp;ptid=2104492" target="_blank">上坂莲华 发表于 2023-09-03 22:49:45</a>
+那个政审人点开微博首页就是批判宝生永梦，这文章底下还洋洋洒洒at一大堆人，有被at的人直接在下面回不看特 ...</blockquote>……好吧
+
+以后也不会转了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  UnrealApartheid  
+##### 1057#       发表于 2023-9-4 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62283548&amp;ptid=2104492" target="_blank">好面子的懒虫 发表于 2023-09-04 03:45:41</a></blockquote>多谢提醒
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kcalb  
+##### 1058#       发表于 2023-9-4 09:31
+
+其实也没必要瞎扯太远，就正常怀疑教授是不是宇宙人或者被宇宙人操纵也得监管调查一下，必竟徒手发波了，整得还是地球寒化作战那种超大活，不是招个打手拆学校这种小打小闹能插科打诨混过去的，相比之下正木敬吾也只是想和大古摔跤而已啊，还不得去蹲号子
+
+扔着不管指不定哪天又淘出个十环五戒什么的招个更大的玩捏，赢了奖励可是人类全灭，输了连门票钱都不收可不行啊，所以队长这种人精+粉丝应该是想办法将其软禁在身边才对，哪怕教授画个符自己遁出来也比没证据直接放了有说服力，只能说宇宙猿人开场试图营造的严谨氛围，有在慢慢散去呢<img src="https://static.saraba1st.com/image/smiley/face2017/260.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  linchuanwangmou  
+##### 1059#       发表于 2023-9-4 11:29
+
+平成以后的上下集比较喜欢戴拿的移动要塞不能上浮，上集防卫队的所有人都陷入绝望，下集再一一破招的感觉，布莱泽现在太四平八稳了，这个天弓怪兽也是打不过就跑，大家再一起讨论对策，有种永远有退路的感觉，显得很平淡
+
+
+*****
+
+####  Garterbelt  
+##### 1060#       发表于 2023-9-4 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62284497&amp;ptid=2104492" target="_blank">kcalb 发表于 2023-9-4 09:31</a>
+
+其实也没必要瞎扯太远，就正常怀疑教授是不是宇宙人或者被宇宙人操纵也得监管调查一下，必竟徒手发波了，整 ...</blockquote>
+没证据直接放了才是最写实的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉非常符合日本法律界的情况
+
+
+*****
+
+####  novyDC  
+##### 1061#       发表于 2023-9-4 16:06
+
+这个还是看教授后面还出不出来吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1062#       发表于 2023-9-4 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">主线还没展开，也还没到中期，还都是单元剧，平淡也正常，等中后期再看吧
+
+
+*****
+
+####  kcalb  
+##### 1063#       发表于 2023-9-4 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62289568&amp;ptid=2104492" target="_blank">Garterbelt 发表于 2023-9-4 15:59</a>
+
+没证据直接放了才是最写实的地方啊感觉非常符合日本法律界的情况</blockquote>
+因为不存在“没证据”一说，你正义的主人公现场执法时可是结结实实挨了闷棍的，队里至少有三人在现场与之正面对峙过，如此重要的特种作战不打报告没个记录是咋滴？这种情况只要是想总能把人留下的，你成立了半个世纪的GGF不会没有对“人”的预案吧，上上集Alian入侵事件还热乎着呢
+
+还是那句话，矛盾点在于目标危险系数过高，七个台风死的那些人等着索命呢，因为赢了所以岁月静好，只能说队长脑内预判输了一定会有人给刷一盏奥特之钟对吧，这不间接拉低了那些大道理的份量<img src="https://static.saraba1st.com/image/smiley/face2017/260.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 1064#       发表于 2023-9-4 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62294334&amp;ptid=2104492" target="_blank">kcalb 发表于 2023-9-4 23:29</a>
+
+因为不存在“没证据”一说，你正义的主人公现场执法时可是结结实实挨了闷棍的，队里至少有三人在现场与之 ...</blockquote>
+证据不够充分吧。
+
+作为教授控制怪兽的直接物证的手环被副队破坏，其他证据实际上有效性可疑，毕竟一个人靠着几个手环就能控制一头强大的怪兽也不太符合正常人的逻辑（虽然特摄吧你用正常人的逻辑思考就输了）
+
+最关键的是基于防卫队自身利益难以对教授追责，毕竟防卫队多少中高层是教授的学生，防卫队本身使用的教材也是教授编写的，这事捅出去别人怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kcalb  
+##### 1065#       发表于 2023-9-5 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62294517&amp;ptid=2104492" target="_blank">pokemon最爱 发表于 2023-9-4 23:52</a>
+
+证据不够充分吧。
+
+作为教授控制怪兽的直接物证的手环被副队破坏，其他证据实际上有效性可疑，毕竟一个人 ...</blockquote>
+全宇宙死一半和我打个响指有什么关系？你们几个大只佬要砍我头走法律程序了么？
+
+七爷OV里高层都渗透完了，主角一行也要不惜行走于灰色地带行使应尽的职能，主角的行为逻辑是剧本基石，其余都是外因；队长等人作为当事人，厉害关系用别人来告诉么，证据不足让他足起来嘛，开头牺牲一人救众生的底气贯彻下去嘛，连教授都知道文的不行就换武的，现在是该钓鱼钓鱼该采西红柿也没闲着，这个只能叫作“可能后面藏了个大的等回收”
+
+至于说教材也有教授参与这种事，太正常了，正好要请人过来从头到尾仔仔细细彻查一番，看看到底夹了多少私货，毕竟侵略者自己冒充专家这种事历代不也一抓一大把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pokemon最爱  
+##### 1066#       发表于 2023-9-5 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62295731&amp;ptid=2104492" target="_blank">kcalb 发表于 2023-9-5 08:20</a>
+
+全宇宙死一半和我打个响指有什么关系？你们几个大只佬要砍我头走法律程序了么？
+
+七爷OV里高层都渗透完了 ...</blockquote>
+不同作品不同角色自然有不同的行事逻辑，前面社长自导自演的事最后也没把防卫队相关的丑闻爆出去啊。
+
+大可不必现在这个阶段就开始批判，等剧情全出来整个作品的主旨都明晰了后再清算又不迟。
+
+
+*****
+
+####  kcalb  
+##### 1067#       发表于 2023-9-5 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62296330&amp;ptid=2104492" target="_blank">pokemon最爱 发表于 2023-9-5 09:27</a>
+
+不同作品不同角色自然有不同的行事逻辑，前面社长自导自演的事最后也没把防卫队相关的丑闻爆出去啊。
+
+大 ...</blockquote>
+热知识，新生代奥不是年番，两集总集两集结局去掉就20话，现在进度条快一半了，后面开始老皮套
+
+批判？清算？这些词听着就好累，老鬼们只管爽快吐槽罢了，君不见现在队里这几位一个整天哆哆嗦嗦，一个大声发，一个三天两头不见人影的COSer越来越有点新生代式没活硬整了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黄泉川此方  
+##### 1068#       发表于 2023-9-5 20:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">教授也说队长你都坐到这位置上了
+
+但队长本人还觉得自己是大头兵，和宇宙狒狒确实挺般配的
+
+
+*****
+
+####  pokemon最爱  
+##### 1069#       发表于 2023-9-5 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62303247&amp;ptid=2104492" target="_blank">kcalb 发表于 2023-9-5 19:34</a>
+
+热知识，新生代奥不是年番，两集总集两集结局去掉就20话，现在进度条快一半了，后面开始老皮套
+
+批判？清 ...</blockquote>
+哦，您也知道总共有20多集而不是10多集啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+有10集时间展开无论是去太空探险还是去地心探险那可都是绰绰有余的事。
+
+
+*****
+
+####  无名的刀锋  
+##### 1070#       发表于 2023-9-6 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有请前半篇一堆怪兽自己亲自操控还证据确凿还能活蹦乱跳地乱走的蓝色海神奥特曼先生发表一下意见
+
+
+*****
+
+####  kcalb  
+##### 1071#       发表于 2023-9-6 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62305582&amp;ptid=2104492" target="_blank">无名的刀锋 发表于 2023-9-6 00:04</a>
+
+有请前半篇一堆怪兽自己亲自操控还证据确凿还能活蹦乱跳地乱走的蓝色海神奥特曼先生发表一下意见 ...</blockquote>
+到OV都被全球通缉，人GUARD至少演了一下<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  saevey  
+##### 1072#       发表于 2023-9-9 10:26
+
+这集还不错诶，难得
+
+
+*****
+
+####  novyDC  
+##### 1073#       发表于 2023-9-9 11:06
+
+草 你这十年前和十年后没变化<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  novyDC  
+##### 1074#       发表于 2023-9-9 11:16
+
+野人居然可以反过来操控队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Alicest  
+##### 1075#       发表于 2023-9-9 11:38
+
+这什么名字啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/09/113843tduelbcbudfmyczs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (205.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 11:38 上传
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1076#       发表于 2023-9-9 11:44
+
+大叔真的好像老年版胡军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看得我有点出戏
+
+*****
+
+####  novyDC  
+##### 1077#       发表于 2023-9-9 11:44
+
+你们这帮外星人遇到音乐就乐不思蜀了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  nonodundun  
+##### 1078#       发表于 2023-9-9 12:00
+
+宇宙来的乡巴佬没听过音乐是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyDC  
+##### 1079#       发表于 2023-9-9 12:31
+
+奥特q变奏还可以
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  敏感词好多  
+##### 1080#       发表于 2023-9-9 12:31
+
+音乐很强啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  待宵  
+##### 1081#       发表于 2023-9-9 12:32
+
+沟通理解从食物开始
+
+
+*****
+
+####  scorbian  
+##### 1082#       发表于 2023-9-9 13:15
+
+这集分镜和节奏都好舒服，这嘎拉蒙是不是战斗力最强的一只了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Cloudslin  
+##### 1083#       发表于 2023-9-9 13:30
+
+这集真不错。9月9日第9话的奥特Q致敬回，非常到位。
+
+
+*****
+
+####  hulaoda007  
+##### 1084#       发表于 2023-9-9 13:50
+
+这集太棒了。无论是细节还是主题，还是致敬的方法都太棒了。目前以来最喜欢的一集。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯狐娘娘  
+##### 1085#       发表于 2023-9-9 14:24
+
+这集太舒服了，尤其我今年看了奥特Q，更有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sokukei  
+##### 1086#       发表于 2023-9-9 15:17
+
+这集气氛蛮棒的，依然可惜的是杏梨本身的情绪没有篇幅能落实到位，分篇幅给队长和蝉星人了。但是观感很不错。
+
+*****
+
+####  水边井  
+##### 1087#       发表于 2023-9-9 15:19
+
+队长还有大的吧，这集就差没把“我要暴走”写在头顶上了
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Y.Cassano  
+##### 1088#       发表于 2023-9-9 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队长这么下去是不是要吃生肉生鸡蛋了。
+
+
+*****
+
+####  毛头子  
+##### 1089#       发表于 2023-9-9 16:22
+
+找到自己热爱的事物，生命就会拥有色彩，太美好了。
+
+
+*****
+
+####  不可避免  
+##### 1090#       发表于 2023-9-9 18:29
+
+整集观感优秀，如果完结前第一集跟这一集水平的剧作能再来三集，感觉就很好了。
+
+
+*****
+
+####  待宵  
+##### 1091#       发表于 2023-9-9 19:13
+
+想了想，我现在唯一担心的并不是主线，而是至今还没有队长家人登场，该不会队长有老婆有孩子的设定最后就花个一二集做成单元回过去了，又或者拖到最后大结局开始描写，这样就太过仓促了
+
+*****
+
+####  novyDC  
+##### 1092#       发表于 2023-9-9 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62347519&amp;ptid=2104492" target="_blank">待宵 发表于 2023-09-09 19:13:13</a>
+想了想，我现在唯一担心的并不是主线，而是至今还没有队长家人登场，该不会队长有老婆有孩子的设定最后就花 ...</blockquote>下一集就登场了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  待宵  
+##### 1093#       发表于 2023-9-9 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62347544&amp;ptid=2104492" target="_blank">novyDC 发表于 2023-9-9 19:15</a>
+
+下一集就登场了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+啊，忘了看预告
+
+
+*****
+
+####  猫兔同笼  
+##### 1094#       发表于 2023-9-9 20:04
+
+这个点才有空看上最新一集，陨石坠落的地方是多摩川丸子桥附近，这地方怎么这么多灾多难？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  钟鼎文  
+##### 1095#       发表于 2023-9-9 21:12
+
+半路开香槟，现在不赶紧开，万一之后没得开了咋整
+
+俺寻思如果接下去每集都能保持这个水准，估摸着能拿星云赏
+
+
+*****
+
+####  Case  
+##### 1096#       发表于 2023-9-9 21:33
+
+喜欢这集。奥特曼的风格就要来点多元化+人文关怀嘛。
+
+
+*****
+
+####  kcalb  
+##### 1097#       发表于 2023-9-9 21:52
+
+这几位应该没打算回去了，毕竟知了人对待逃兵的态度和米斯泰拉人如出一辙，最近一次登场时的形象还是机动奥里吸人内脏的全屏马赛克星人
+
+
+*****
+
+####  zzf111  
+##### 1098#       发表于 2023-9-9 22:10
+
+嘎拉蒙皮古蒙不论看几次都觉得丑的没眼看<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RainbowSealife  
+##### 1099#       发表于 2023-9-9 22:53
+
+强烈建议看这集前补一下奥特Q的第13集《嘎拉蛋》和 第16集《嘎拉蒙的逆袭》，因为本集是非常文艺且极具人文关怀气息的致敬回，不补奥特Q这两集可能就没这感觉。奥特Q这两集和音乐有直接关系的大概是那个大提琴箱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在来看奥特Q中用电子脑控制机器人怪兽的做法有点蠢，控制装置和侵略武器没有同步发射到地球就算了，明明都开发出嘎拉蒙这样的战争机器，结果还是用发射电磁波信号进行操控，就好比现在人类已经有了更快更稳的光纤通信，但是有人依旧固执地坚持选择无线电通信一样违和<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+更离谱的是游星人制定的入侵战术轻易就被几个科研人员破解了——做个金属网把电子脑一套，静电屏蔽完成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是以上吐槽难以掩饰本集的出色，准备入侵地球的外星人被人类文明的艺术，音乐，所折服，中间那个留声机有黑白变彩色的镜头堪称神来之笔，或许不同种族、不同文明之间，唯有真正的艺术是共同的，是没有边界，没有侵略性的。最后还能听到メインタイトル (M-1T2)和「ウルトラQ」メインテーマ (M-2T2)，要啥自行车啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺带一提，从泽塔到野人的OST全部出了，有兴趣可以去批站搜来听听<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  haoshion  
+##### 1100#       发表于 2023-9-9 23:13
+
+ 本帖最后由 haoshion 于 2023-9-9 23:15 编辑 
+
+这集真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">下集看预告的主题应该也值得期待
+
+头头应该会被上面做掉，其他几个演奏的头头不是说你们自由了嘛
+
+
+*****
+
+####  kcalb  
+##### 1101#       发表于 2023-9-10 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62349953&amp;ptid=2104492" target="_blank">RainbowSealife 发表于 2023-9-9 22:53</a>
+
+强烈建议看这集前补一下奥特Q的第13集《嘎拉蛋》和 第16集《嘎拉蒙的逆袭》，因为本集是非常文艺且极具人文 ...</blockquote>
+必竟奥特Q时代啊我方段位太低了，匹配不了太强的对手，与其说是击败，不如说是解迷，都是机制怪
+
+反过来后世为了给老祖宗面子，把这些老怪又拍得强得离谱，看起来就有点尴尬了
+
+另外，回顾这几集时请一定要注意一下里面的小P孩，其中有一个叫古谷彻的小胖子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天剑流星  
+##### 1102#       发表于 2023-9-10 02:05
+
+不过布莱泽的战力表现真的拉，甚至有种在鱼塘炸鱼的美，感觉布莱泽老怪少的真实原因不会是因为随便拉一只怪来都打不过吧
+
+
+*****
+
+####  洛克萨斯  
+##### 1103#       发表于 2023-9-10 18:28
+
+这集无论是艺术氛围还是人文关怀都很到位，十分优秀的一集单元剧，希望保持下去
+
+
+*****
+
+####  nh_zzz  
+##### 1104#       发表于 2023-9-10 20:09
+
+插播一个吉永亚由里 广州cicf
+<img src="https://p.sda1.dev/13/9fd2e5670743fc09f94de13b7bd519d2/CMP_20230910200825013.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 1105#       发表于 2023-9-11 22:52
+
+后知后觉，布莱泽这几集咋全是山里或者野地这种布景啊，多来点炸大楼，很馋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+感觉看多了野地，越看越穿帮，虽然至今也不知道特利迦tv的z回是怎么拍那么穿帮的
+
+*****
+
+####  novyDC  
+##### 922#       发表于 2023-8-18 20:47
+
+好像这三集会很精彩
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  novyMS  
+##### 923#       发表于 2023-8-19 09:09
+
+你这科学家比队长还壮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  zxc4563982  
+##### 924#       发表于 2023-8-19 09:25
+
+橡胶果实能力者——野人
+
+
+*****
+
+####  Ryuji1145  
+##### 925#       发表于 2023-8-19 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">怎么觉得这作对角色的描写好二次元啊，每集的篇幅也很短
+
+
+*****
+
+####  novyMS  
+##### 926#       发表于 2023-8-19 10:15
+
+田口又来客串了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  白玫瑰之夜  
+##### 927#       发表于 2023-8-19 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62081863&amp;ptid=2104492" target="_blank">novyMS 发表于 2023-8-19 09:09</a>
+你这科学家比队长还壮
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+不壮点怎么一个人抗设备搞改造你说是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  nonodundun  
+##### 928#       发表于 2023-8-19 10:58
+
+短暂的打戏，文戏有东西但不多，这感觉太熟悉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  7sevenseven  
+##### 929#       发表于 2023-8-19 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61927274&amp;ptid=2104492" target="_blank">无敌のpeach 发表于 2023-8-6 17:44</a>
+
+很稳的一集，开播前期待的有点成人化的剧情根本不会有吗</blockquote>
+导演都说了除了第一集外，还是要走王道路线
+
+*****
+
+####  永恒的王牌  
+##### 930#       发表于 2023-8-19 11:22
+
+各种意义上都笑出声的一集<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  a317216007  
+##### 931#       发表于 2023-8-19 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">光之野人-&gt;光之猴子-&gt;光之蒙奇-&gt;光之橡胶果实能力者-&gt;光之为茶水间带来欢笑的JoyBoy
+
+*****
+
+####  Case  
+##### 932#       发表于 2023-8-19 11:26
+
+笑点好多的一集。对泰信的塑造也不错。
+
+*****
+
+####  L-JoeW  
+##### 933#       发表于 2023-8-19 11:26
+
+ 本帖最后由 L-JoeW 于 2023-8-19 11:28 编辑 
+
+泰信的body，漂亮得很呐！<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+可恶，迦南人那个从下到上的登场镜头还以为会是一个穿长毛衣和裤袜的大姐姐人间体<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 934#       发表于 2023-8-19 11:31
+
+引用贴吧众语：布莱泽身体柔韧程度远超光之国老登，赛文当年有这一手就不用断腿了
+
+
+*****
+
+####  看完了  
+##### 935#       发表于 2023-8-19 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">这都明牌变身了吧
+
+
+*****
+
+####  vmon  
+##### 936#       发表于 2023-8-19 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泰信露肌肉和迦南星人对峙的时候，我总感觉下一秒他就要一拳把对面打爆了。
+
+
+*****
+
+####  Y.Cassano  
+##### 937#       发表于 2023-8-19 14:22
+
+<img src="https://img.saraba1st.com/forum/202308/19/142013nwcp72sw4hwhh7pd.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230819132931.png</strong> (38.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-19 14:20 上传
+
+SHF带眼部特效件。
+
+另外这集太草了。你们到底谁是领导啊www，队长被机魂震碎三观。迦南星人还推销衣服，有没有XXXL款的，来一打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  赛U灵  
+##### 938#       发表于 2023-8-19 14:40
+
+还是很有趣<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  novyMS  
+##### 939#       发表于 2023-8-19 14:56
+
+期待下集的彩虹怪兽
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  masonknight  
+##### 940#       发表于 2023-8-19 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 941#       发表于 2023-8-19 16:02
+
+路飞了根本就是
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 942#       发表于 2023-8-19 16:12
+
+不是 有摄像头拍着都没发现队长变身吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sokukei  
+##### 943#       发表于 2023-8-19 18:06
+
+好稳的一集，依旧很王道展开嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyDC  
+##### 944#       发表于 2023-8-19 19:02
+
+4个表情 还行
+
+<img src="https://img.saraba1st.com/forum/202308/19/190148m2vbob373ud2mf3v.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1692442866206.jpg</strong> (121.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-19 19:01 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  chiefshi  
+##### 945#       发表于 2023-8-19 20:26
+
+机械师身材这么好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 946#       发表于 2023-8-19 23:42
+
+原来可以扭的么...........奥特曼的肉体，shf应该有替换件吧
+
+
+*****
+
+####  Sokukei  
+##### 947#       发表于 2023-8-20 04:18
+
+是不是这次的目标是“每集几个小点子”呢 其实目前为止都还算是微创新的样子 比如招式的用法、穿插的日常笑点
+期待接下来的两集！
+
+
+*****
+
+####  仟音一心  
+##### 948#       发表于 2023-8-20 08:41
+
+连着三话都是队员个人回，副队的个人回要在下面两话之后了。
+
+
+*****
+
+####  布莱士·西伯利  
+##### 949#       发表于 2023-8-20 09:14
+
+哦！泰信~你全都长满结实的muscle呀！
+
+
+*****
+
+####  楠城旧篱  
+##### 950#       发表于 2023-8-20 21:24
+
+好看啊，如果我对番茄没ptsd就更好了
+
+
+*****
+
+####  hcho  
+##### 951#       发表于 2023-8-20 22:17
+
+卧槽泰信这个肌肉也太牛逼了
+
+
+*****
+
+####  阿刚  
+##### 952#       发表于 2023-8-20 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">话说这个迦南星人前面出现过吧？以前出场也是这么实诚的吗？？
+
+
+*****
+
+####  199april  
+##### 953#       发表于 2023-8-20 23:14
+
+说句题外话，最近贴吧讨论奥特曼的风气越来越歪了。
+
+说句布莱泽平淡，马上有人堵嘴“你看DGP看的吧”。说句布莱泽神作，马上有人过来说“比得上平成一根毛？”
+
+总之评价不是神作就是不行，而且无论什么评价都有人来堵嘴，根本就很难正常沟通
+
+只能说第一集调子起得太高，开香槟的人开得太早，现在趋向平淡一半放不下脸，一半触发德凯ptsd
+
+PS:再说一下，我觉得平成这种水平的剧集也不少，哪怕是tdg也不乏水剧情的集数，为啥要吹得平成好像集集神作回回精品呢？
+
+*****
+
+####  永恒的王牌  
+##### 954#       发表于 2023-8-20 23:19
+
+今天看到个评价，奥吧是特摄抗吧，假吧是特摄孙吧，笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 955#       发表于 2023-8-20 23:38
+
+这集比上集好不少，主要角色的行为逻辑是完整的，加南星人的行为说服力不太够。但无伤大雅，就是本来能活用操控机械的设定结果就这表现实在是浪费了。不过我朋友也是评价剧情平淡。
+
+上一集问题还是没足够突出重点，要体现杏梨的成长和融入队伍，至少在山上可以和队长谈谈心，相信了幼时好友之后就解开心结了，逻辑呢
+
+
+*****
+
+####  敏感词好多  
+##### 956#       发表于 2023-8-21 06:39
+
+目前的水平就是还行，但没啥爆点，泽塔起码还有打戏可以调动情绪，布莱泽就只有每集的花式丢标枪可以看了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  shineaslin  
+##### 957#       发表于 2023-8-21 08:00
+
+感觉是青春版赛文x，故事为主，打斗为辅，而且没有哐哐坐的形态转变与借力量，对xp系统已经很奇怪的奥迷多少有点素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  super0395  
+##### 958#       发表于 2023-8-21 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62102644&amp;ptid=2104492" target="_blank">shineaslin 发表于 2023-8-21 08:00</a>
+感觉是青春版赛文x，故事为主，打斗为辅，而且没有哐哐坐的形态转变与借力量，对xp系统已经很奇怪的奥迷多 ...</blockquote>
+对于我这种不喜欢玩具和切形态的老害反而是正正好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+多来点精巧的单元剧，我还在香槟海里口牙
+
+
+*****
+
+####  Lyzers  
+##### 959#       发表于 2023-8-21 09:31
+
+两集个人回确实都有点平，就是一个好像讲了什么又好像什么都没讲
+
+
+*****
+
+####  赤道氮  
+##### 960#       发表于 2023-8-21 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62082835&amp;ptid=2104492" target="_blank">唧唧歪歪八卦阵 发表于 2023-8-19 11:31</a>
+
+引用贴吧众语：布莱泽身体柔韧程度远超光之国老登，赛文当年有这一手就不用断腿了 ...</blockquote>
+赛文也会啊，不过是一次性的而已
+
+
+*****
+
+####  RainbowSealife  
+##### 961#       发表于 2023-8-21 23:59
+
+<img src="https://img.saraba1st.com/forum/202308/21/235439w6u275os46ows1z2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (202.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-21 23:54 上传
+
+终于轮到我出场了，我一定不会让导演失望的呀🧡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秋月艾莉  
+##### 962#       发表于 2023-8-22 12:04
+
+一连补了4话 暂时看下来是主打一个乐、舒服
+
+肉眼可见的加了不少专门就是为搞笑的细节，各种惯例主题也不打算要怎么深入讲，点到即止就算。结尾的处理都是固定播个皆大欢喜的scene再搭个抒情BGM收掉，应该也有意强调一件完美落着的感觉的提高满足感和痛快感
+
+就是情绪调动不够效果不足，具体情节和打戏都是。这种节奏上让我想起去年的暴太郎，但玩得没那么花，毕竟奥棚
+
+然后就是我觉得5比6强耶
+
+5只是杏梨的心路历程转变说明不足，6就是有点浪费点子，机器叛乱这种好玩的东西也没怎么展开
+
+加点基地机器宕机防卫队各种闹笑话的镜头啊防卫队离开泰信就玩不转那些机器之类的展开从那边让他们意识到自己平时过度依赖和使唤泰信也行嘛
+
+就直接机械龙出来搞破坏，而且最后都知道会叫醒机械龙还演得那么平<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  取名真是难  
+##### 963#       发表于 2023-8-22 12:49
+
+这几集都挺有意思但又差点意思，属于完全不看直接跳过也没关系的，单元剧里还是稍微插点主线信息才更有记忆点
+
+
+*****
+
+####  Sliurus  
+##### 964#       发表于 2023-8-22 14:24
+
+这集主要场景有点少，大部分时间都在洗衣店里，有种国产情景剧的味
+
+
+*****
+
+####  akiji  
+##### 965#       发表于 2023-8-22 14:35
+
+布莱泽看上去有主线……吗？
+
+
+*****
+
+####  novyDC  
+##### 966#       发表于 2023-8-23 19:04
+
+阿斯加隆加农炮和彩虹怪兽补款了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  novyDC  
+##### 967#       发表于 2023-8-23 21:38
+
+【【万代官方试玩】阿斯加隆电磁炮装备！奥特怪兽Advance 阿斯加隆Mod.2装备-哔哩哔哩】 [https://b23.tv/mUWpocw](https://b23.tv/mUWpocw)
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  chiefshi  
+##### 968#       发表于 2023-8-23 23:44
+
+shf的阿斯加隆好贵啊，要是来个价格合适的frs就好了
+
+
+*****
+
+####  haoshion  
+##### 969#       发表于 2023-8-24 11:29
+
+野人这腰太能扭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyMS  
+##### 970#       发表于 2023-8-26 09:09
+
+这集还可以哦 彩虹怪兽真强
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Sokukei  
+##### 971#       发表于 2023-8-26 10:32
+
+彩虹怪兽好好看
+
+
+*****
+
+####  scorbian  
+##### 972#       发表于 2023-8-26 10:46
+
+这集也太应景了，前面放总集篇不会就是为了卡着时间点放这集吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AAAzzz  
+##### 973#       发表于 2023-8-26 10:58
+
+好喜欢这集的演出，怪兽在乡村的场景太好看了，真实感拉满。奥出场的时候突然有种小时候奥来了就无敌的感觉，虽然没有无敌<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iceddd  
+##### 974#       发表于 2023-8-26 11:29
+
+彩虹怪兽帅啊，场景特别有感觉
+
+
+*****
+
+####  若菜  
+##### 975#       发表于 2023-8-26 12:01
+
+好看 前几集点到即止的话题这话也展开了。感觉是故意留到这集才展开谈的
+
+*****
+
+####  yuki-0014  
+##### 976#       发表于 2023-8-26 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿斯加隆能不能加个力场护盾之类的，防不防得住不要紧，别小短腿走位白白挨打了。。。
+
+
+*****
+
+####  zhao  
+##### 977#       发表于 2023-8-26 12:15
+
+阿斯加隆是怎么站起来的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  敏感词好多  
+##### 978#       发表于 2023-8-26 13:42
+
+压迫感真强啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Y.Cassano  
+##### 979#       发表于 2023-8-26 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">队长你跑出来变身是图啥，直接昏在驾驶舱不好么。
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 980#       发表于 2023-8-26 14:32
+
+<img src="https://img.saraba1st.com/forum/202308/26/143155ckliikijili669c3.jpg" referrerpolicy="no-referrer">
+
+<strong>拼接截图.jpg</strong> (365.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 14:31 上传
+
+虽然是奥里老生常谈的问题，但是放在今天有点莫名的讽刺<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 981#       发表于 2023-8-26 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集好有感觉啊
+
+
+*****
+
+####  nonodundun  
+##### 982#       发表于 2023-8-26 16:36
+
+期待下周副队长和教授对线能不能再说点有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  毛头子  
+##### 983#       发表于 2023-8-26 16:42
+
+这老爷子就是赤裸裸的**吧，嘴上说创造更好的世界其实就是想杀得片甲不留，上帝放大洪水前好歹还通知了诺亚呢。毁灭人类即正义buff再加上还刚好遇上了对面排废水，估计一下子支持者不会少，但仔细想想奥棚里这种人恰恰最需要铲除的，还氪命一边强调敬畏一边控制神明呢，雷都踩遍了下集领便当也不奇怪。
+
+
+*****
+
+####  Sokukei  
+##### 984#       发表于 2023-8-26 16:57
+
+阿斯加隆还是免不了7＋酱的命运 遭不住轰啊 打两下躺地上了
+
+
+*****
+
+####  angelooo  
+##### 985#       发表于 2023-8-26 17:04
+
+<blockquote>毛头子 发表于 2023-8-26 16:42
+这老爷子就是赤裸裸的**吧，嘴上说创造更好的世界其实就是想杀得片甲不留，上帝放大洪水前好歹还通知了诺亚 ...</blockquote>
+伊文斯：怎么你也想被切成三块吗
+
+
+*****
+
+####  洛克萨斯  
+##### 986#       发表于 2023-8-26 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙龙圈圈眼挺可爱的，就是老吃瘪
+
+*****
+
+####  199april  
+##### 987#       发表于 2023-8-26 17:17
+
+话说布莱泽的光矛只是用来扔的吗？就不能拿来打打近战吗？
+
+*****
+
+####  待宵  
+##### 988#       发表于 2023-8-26 17:20
+
+这集还有限时返场的心大人
+
+
+*****
+
+####  有骨气的百合  
+##### 989#       发表于 2023-8-26 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集节奏比前几集好不少，果然是要吃瘪才好看
+
+
+*****
+
+####  仟音一心  
+##### 990#       发表于 2023-8-26 21:21
+
+<img src="https://p.sda1.dev/12/0d581a9211358ac5c9a0aacbb3b27da5/CMP_20230826212108536.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/aa1cba57c3e31fd04f92b9a78632763a/CMP_20230826212108591.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 991#       发表于 2023-8-26 21:21
+
+<img src="https://p.sda1.dev/12/2a8aa0249dea4f968b8aca8974f3bc01/CMP_20230826212136538.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RainbowSealife  
+##### 992#       发表于 2023-8-26 22:31
+
+<img src="https://img.saraba1st.com/forum/202308/26/222909np87sf8pziy5yzgn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (447.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202308/26/222956rvrdcbrxm4wv5k44.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (333.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 22:29 上传
+
+<img src="https://img.saraba1st.com/forum/202308/26/223024ewbqq5w65mzz18b5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (370.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 22:30 上传
+
+比较喜欢这种远景镜头，巨物感立马突出来了
+
+*****
+
+####  Case  
+##### 993#       发表于 2023-8-26 22:32
+
+目前登场怪兽中印象最深刻、也是压迫感最强的一只。
+
+
+*****
+
+####  布莱士·西伯利  
+##### 994#       发表于 2023-8-27 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">怪兽的感觉甚至有点像哥总，很好。
+
+
+*****
+
+####  Piano-Forest  
+##### 995#         楼主| 发表于 2023-8-27 01:16
+
+天弓怪獣　ニジカガチ
+
+時に恵みの雨をもたらし、時に荒神となって全てを奪い去るという伝説の天弓怪獣。大気を吸い込む事で気圧を急激に下げ、雨雲を発達させて暴風雨をもたらす。
+
+ニジカガチの頭部を覆う鎧角が開いて後立角になると、額のクリスタルが発光してウルトラマンブレーザーのスパイラルバレードをも焼き尽くす虹光線を放つ。
+
+身長        60m
+
+体重        45,000t
+<img src="https://p.sda1.dev/12/13ae101acdced6b82a189303ba11419a/07_ニジカガチ_変化前_大サイズ_light.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/37db489d21bdb5d55b88236af61ae268/07_ニジカガチ_変化後_大サイズ_light.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/bab1d32ad14a65bc433543eaff6dfcc1/83beb51b-3b35-4e1c-9626-d2fe9aebe177.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/9bb6edf7231568b90933f1677085b243/b1c66346-82f1-4c27-9c25-f23d9a3a8b9e.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/12/a6eaacb6890af782614c8d0f2f65d18d/3c2b3715-b0ba-4468-8c7b-1fe757fcd9ba.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/22bb17242055f30b8b3a24136e7c6152/b5542681-65ca-4878-bd71-2d3c7f075cef.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/6800e72461d08866d30681912273804a/1d841712-8eda-4844-be3c-4be8155b5f8f.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/12/ca548a74be2bb1cd265ec663c52d44c8/武者モード.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/4ad9a2c5d58dac672f52fbc20c6ea0c6/ddb10e5f-0344-429b-b1d6-9c7991298eb8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/158595e8bd728b482796bed1614f05c1/b83ada70-65a8-4dd6-9a0e-ef7b6e946c75.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/f7b28cdd799ac3e8af65c95369ad8739/5e680ed0-a88d-46a9-85e0-8cf72901e88a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 996#         楼主| 发表于 2023-8-27 01:19
+
+武藤聖馬
+
+第7集、8集登场虹蛇神的设计师
+[https://twitter.com/cyq_joker/status/1695231711070802156](https://twitter.com/cyq_joker/status/1695231711070802156)
+
+『ウルトラマンブレーザー』
+
+ 第7話「虹が出た 前編」にて
+
+【天弓怪獣 ニジカガチ】のデザイン
+
+を担当させていただきました！
+
+ 第8話「虹が出た 後編」
+
+にも引き続き登場します！
+
+来週もよろしくお願いします！！
+<img src="https://p.sda1.dev/12/5535680e5a13c42e909e4f5f1c245061/20230827_011853.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzf111  
+##### 997#       发表于 2023-8-27 02:08
+
+远景一打上来就比上集那种翻滚面包车的便宜镜头好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黄泉川此方  
+##### 998#       发表于 2023-8-27 02:13
+
+<img src="https://img.saraba1st.com/forum/202308/27/021308sr1u1sjjbejoo94p.png" referrerpolicy="no-referrer">
+
+<strong>EGDG)JI5GW]T1CC@[_{)23M.png</strong> (242.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 02:13 上传
+
+啊哈哈
+
+*****
+
+####  黄泉川此方  
+##### 999#       发表于 2023-8-27 02:17
+
+抛开有的没的，这集的镜头切换很棒
+
+
