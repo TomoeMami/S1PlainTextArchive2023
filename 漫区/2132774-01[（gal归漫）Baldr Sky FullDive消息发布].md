@@ -791,3 +791,33 @@ nanoha和真是最没存在感的，其余四位都还行</blockquote>
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 那我记错了，好几年没碰了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+*****
+
+####  jedipiggy  
+##### 84#       发表于 2023-9-11 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60984551&amp;ptid=2132774" target="_blank">消毒液乐园 发表于 2023-5-25 12:14</a>
+
+感觉大伙没有那么喜欢空是因为她是作者钦定的吧，本身我感觉也是在学院篇不如千夏，现代篇不如蕾，完全是共 ...</blockquote>
+不知道为啥，姐姐线是当时年少冲的最爽的，特别是最后数字化之后不停的冲的生活<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jedipiggy  
+##### 85#       发表于 2023-9-11 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61002172&amp;ptid=2132774" target="_blank">好多树 发表于 2023-5-26 18:33</a>
+
+千夏可太棒了，不过千夏线也属实是搞谜语人搞得人血压最高的一条线，两边的目的几乎没有分歧，只要坐下来聊 ...</blockquote>
+这游戏里的AI感觉跟其它电影游戏里面不同，一般AI给人感觉是都是人类思维模式的延续但是有自己立场的数字生命
+
+这里面的AI感觉是彻底脱离人类，比人类强大很多，但同时也愿意关爱人类，又同时时刻保持在高处俯视你的感觉，难道这就是神性？
+
+
+*****
+
+####  zycilcy  
+##### 86#       发表于 2023-9-11 13:22
+
+还以为有什么新消息<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
