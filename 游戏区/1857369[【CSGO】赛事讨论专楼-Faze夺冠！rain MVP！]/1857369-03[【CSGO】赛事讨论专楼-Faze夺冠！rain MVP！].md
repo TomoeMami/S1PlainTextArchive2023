@@ -6828,3 +6828,77 @@ G2！go！
 今天上午打了一把把段位显示出来了，现在还没给资格，就看明天给不给资格了我也好想玩cs2 ...</blockquote>
 我是周五下班回去连干了6把短时，发现没出资格大骂傻逼v社不做人。今天下午就给我发了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">。这次的资格发放和前几次测试不一样，应该是持续性的随机发放，只要判定你满足条件基本都给
 
+*****
+
+####  舌怪  
+##### 3901#       发表于 2023-9-4 00:13
+
+游戏买了快十年一直没怎么玩，最新公告一看要有段位才行，也就是说得赢10把定级赛……要了本菜鸡的命了
+
+*****
+
+####  heseran  
+##### 3902#       发表于 2023-9-9 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62272708&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2023-9-2 23:41</a>
+我是周五下班回去连干了6把短时，发现没出资格大骂傻逼v社不做人。今天下午就给我发了。这次的资 ...</blockquote>
+今天又发资格了，刚刚上去打算看一眼就给资格了。
+
+
+*****
+
+####  魔域人  
+##### 3903#       发表于 2023-9-11 19:07
+
+玩了七八天国际服了，还是没给资格<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3904#       发表于 2023-9-11 19:50
+
+周末玩了两天，打完定级赛9600多分，体验就是“又香又臭”。
+
+香在哪？
+
+1、<strong>画面光影</strong>确实进步，再也不怕环境太黑看不清人了。2、<strong>烟雾弹的新特性</strong>确实有点意思，雷炸烟雾弹拿了击杀会很爽。3、新的武器选择好评，法玛斯A1A4我全都要，多一种选择总是好的；买错东西<strong>可以退款</strong>好评。4、<strong>回合数缩短</strong>节奏更快了，打一场没那么累了，利好老年选手，碰到碾压局也能更快结束，对于双方游戏体验来说应该都是不错的。。（5、我的皮肤和贴纸大部分变得更好看了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">）
+
+臭在哪？
+
+1、<strong>枪械手感</strong>。说实话可能是我太菜也可能是这游戏还没调整好，又或者是故意和CSGO区分开来，枪械手感这块儿简直可以用灾难来形容，打了近20场我还没玩懂AK，真就跪地30发3枪98，以前够起全甲AK，即便道具少两颗我都会直接起 AK，现在钱够我都得掂量一下是不是起个咖喱适合我，整的我对枪都不自信了。AK正面对枪第一枪不点头大概率就开see了。。。倒是咖喱和法玛斯的声音用起来就像激光枪一样好用。
+
+2、不知道是该归于服务器还是这个subtick技术，体感游戏的时候延迟很大，<strong>手感黏糊糊</strong>，40的延迟不如平台50延迟反馈迅速，例如米垃圾破窗，远距离一颗秒明显延迟，而且是从击杀到爆头声全部有延迟，非常不舒服，明显感到开枪后对面会顿一下才倒下。
+
+3、<strong>角色碰撞</strong>。开局人挤人撞到一起的感觉简直恶心到无法忍受，撞到人后停顿然后迅速前冲，就像在跳ping、滑冰、瞬移。
+
+*****
+
+####  曼陀罗肥  
+##### 3905#       发表于 2023-9-11 19:51
+
+subtick据说官匹还是64，只有部分动作是128
+
+
+*****
+
+####  heseran  
+##### 3906#       发表于 2023-9-11 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62369856&amp;ptid=1857369" target="_blank">曼陀罗肥 发表于 2023-9-11 19:51</a>
+
+subtick据说官匹还是64，只有部分动作是128</blockquote>
+听说faceit的CS2是固定128的，感觉好很多，但是我faceit等级不够没法尝试<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3907#       发表于 2023-9-11 20:10
+
+ 本帖最后由 Rainwedell 于 2023-9-11 20:12 编辑 
+
+手感确实大便，spray的问题是普遍的，ropz这几天高强度直播会发现他spray失误会相当多，还有非常明显的延迟问题，据说目前的默认设置下，peek方能比架枪方最多快接近200ms看到对方。b站有一个解释subtick的视频，如果那个视频结论是正确的，那目前这个手感的原因只可能是v社的测试服务器过于垃圾。
+按照我的理解subtick本身更像是v社在原服务器基础上的一次优化，平台本身就能提供更好的服务器，大概率大家以后还是打平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这几天faceit cs2 服务器代码图蓝鸟上有，官方还是64tick，而平台在128tick的基础上使用subtick技术。
+
