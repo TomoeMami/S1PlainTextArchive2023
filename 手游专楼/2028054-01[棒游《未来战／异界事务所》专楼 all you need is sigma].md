@@ -1327,3 +1327,22 @@ CODExGEASS
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">都没抽到，等歪了
 
+*****
+
+####  rgauss  
+##### 944#         楼主| 发表于 2023-9-11 22:45
+
+送的券要过期了 别侠客了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  rgauss  
+##### 945#         楼主| 发表于 2023-9-12 16:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">特效好看多了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
