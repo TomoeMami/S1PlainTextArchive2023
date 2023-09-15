@@ -3090,3 +3090,46 @@ nico评分虽然有均63左右，但在这季是稳定倒十→稳定倒五→�
 <img src="https://p.sda1.dev/13/408cb08278a014433ab5bf7f13cef941/CMP_20230906195944241.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/13/26c4d6f4a5a72cb0935799f01949dd2c/CMP_20230906195944282.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Delicatus545  
+##### 277#       发表于 2023-9-10 23:34
+
+全世界绕着女主转的大女主番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 278#       发表于 2023-9-11 00:12
+
+只能说，12不是烂活，那么1011是在搞什么，迷。
+
+看看13话变什么情况吧。
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  wolf1997  
+##### 279#       发表于 2023-9-11 22:51
+
+12集很好，好就好在显得前面十多集没有什么意义，就这一集就已经诠释了整部片的伏笔、核心、情感、意义，其他集就是凑数的
+
+
+*****
+
+####  cybernetics31  
+##### 280#       发表于 2023-9-12 00:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁大香老师：哎呀，我们家企划的动画现在就是大女主风格啦
+
+
+*****
+
+####  liwangli1983  
+##### 281#       发表于 2023-9-12 17:51
+
+这片人设是真好看，被人设吸引来看，但2集过去就撑不住了，弃了
+
