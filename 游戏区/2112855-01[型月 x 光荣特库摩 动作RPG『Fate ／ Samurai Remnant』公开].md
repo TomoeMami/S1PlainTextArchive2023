@@ -4712,3 +4712,79 @@ CV是悠木碧就更好玩了<img src="https://static.saraba1st.com/image/smiley
 
 大秦我方叫不出人，辈先都能叫出兰陵王
 
+*****
+
+####  死宅真恶心  
+##### 437#       发表于 2023-9-10 10:56
+
+【Fate新游戏好玩吗？Fate/Samurai Remnant上手试玩实况【UCG欢乐秀】-哔哩哔哩】 [https://b23.tv/aN7gN7e](https://b23.tv/aN7gN7e)
+
+
+*****
+
+####  水边井  
+##### 438#       发表于 2023-9-10 11:32
+
+不得不说日厂游戏是真的贵啊，这玩意跟星空豪华版一个价了
+
+
+*****
+
+####  iriyano  
+##### 439#       发表于 2023-9-12 02:59
+
+PV3我听到悠木碧声音了是我的错觉吗？有了就买！
+
+不过对割草游戏不是那么感冒估计是等打折入了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 440#       发表于 2023-9-12 22:44
+
+目前有说过主线和全收集分别多少时长吗，今天看到条弹幕说之前访谈说过主线有50小时，真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恋叶梦境  
+##### 441#       发表于 2023-9-12 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62383271&amp;ptid=2112855" target="_blank">桥洞底下盖小被 发表于 2023-9-12 22:44</a>
+目前有说过主线和全收集分别多少时长吗，今天看到条弹幕说之前访谈说过主线有50小时，真的假的 ...</blockquote>
+是的，出自https://ngabbs.com/read.php?tid=37079198
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 442#       发表于 2023-9-12 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62383453&amp;ptid=2112855" target="_blank">恋叶梦境 发表于 2023-9-12 23:01</a>
+是的，出自https://ngabbs.com/read.php?tid=37079198</blockquote>
+主线50，全收集100，再加上刷词条这些的话，那时长还是挺久的<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">该预购了
+
+
+*****
+
+####  死宅真恶心  
+##### 443#       发表于 2023-9-12 23:24
+
+一个预感，dlc会出百重塔
+
+*****
+
+####  xunit  
+##### 444#       发表于 2023-9-12 23:29
+
+百重塔？无限城！
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 445#       发表于 2023-9-12 23:42
+
+说是三个剧情dlc，肯定就只是屁大点事的剧情加大量刷刷刷内容<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
