@@ -272,3 +272,29 @@ David还是单纯在为了实现母亲、Maine和Lucy的愿望，可能是意识
 从第四集一吻甚至更早，Lucy就对把David带上不归路一直心有愧疚，觉得只是在满足自己自私的安全感而已，所以深陷矛盾，无论是继续默默保护David，还是和盘托出，都已经无法阻止David一路向死——这条死路早在第四集就定下了
 <img src="https://www.z4a.net/images/2023/06/06/Snipaste_2023-06-06_21-59-11.md.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 3204#         楼主| 发表于 2023-9-14 02:03
+
+吉成曜 绘
+
+Today marks the 1st year anniversary of Cyberpunk: Edgerunners⚡️
+
+The series is currently available on Netflix and still going hot!
+
+We're also working on an art book that includes production materials so stay tuned!!
+<img src="https://p.sda1.dev/13/2a6600a97c4d8f8081faf115d7dc22c5/20230914_020202.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 3205#         楼主| 发表于 2023-9-14 02:16
+
+[https://m.weibo.cn/detail/4945645515837038](https://m.weibo.cn/detail/4945645515837038)
+
+STAFF绘画集『NIGHT CITY MAGAZINE』节选
+
+《赛博朋克 边缘行者》开播1周年！
+
