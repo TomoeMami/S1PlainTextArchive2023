@@ -14198,3 +14198,11 @@ https://tieba.baidu.com/p/8524683551
 
 [夜市之王](https://bbs.nga.cn/read.php?tid=37560141)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  病態極端  
+##### 1163#       发表于 2023-9-13 13:18
+
+<img src="https://world-dai-star.com/MeNeEcJP/wp-content/uploads/2023/09/1080x1080_U-TREASURE.jpg" referrerpolicy="no-referrer">
+[https://u-treasure.jp/licensor/world-dai-star](https://u-treasure.jp/licensor/world-dai-star)
+
