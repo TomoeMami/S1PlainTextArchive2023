@@ -3154,3 +3154,38 @@ Deck 玩老游戏很舒服：
 
 2023-9-7 09:21 上传
 
+*****
+
+####  暗示我7酱  
+##### 835#       发表于 2023-9-10 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62318954&amp;ptid=2086469" target="_blank">bypass 发表于 2023-9-7 09:21</a>
+黑色看起来还行</blockquote>
+感觉不如win4啊，多厚？
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  忽克連  
+##### 836#       发表于 2023-9-10 22:44
+
+gpd win mini预售了，可惜不支持2280硬盘
+
+
+*****
+
+####  bypass  
+##### 837#         楼主| 发表于 2023-9-13 08:37
+
+<img src="https://img.saraba1st.com/forum/202309/13/081435ir4yyhyohb9s3yes.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (430.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-13 08:14 上传
+
+打了整整一年半终于通关了仙剑四，这种分辨率低，不支持手柄，支持键鼠但是不能完全用键盘，迷宫中不支持随时存档的老游戏，很适合 Steam Deck。
+

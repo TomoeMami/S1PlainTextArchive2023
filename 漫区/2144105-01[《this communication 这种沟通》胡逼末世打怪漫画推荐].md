@@ -640,3 +640,130 @@
 刚看完生肉，目前还没有确定死透。女猎人在对抗新型种时全部被击倒，研究所大破，有战斗力的只剩下德鲁哈 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">小八被附身后就已经没救了，小七寿命也用尽了，42话结尾明确写了ななが散る
 
+*****
+
+####  Unlight  
+##### 62#       发表于 2023-9-9 23:19
+
+汉化新出了35-36，看完以后一头雾水，搞不明白发生啥了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  redsouris  
+##### 63#       发表于 2023-9-10 09:21
+
+ 本帖最后由 redsouris 于 2023-9-10 09:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62350238&amp;ptid=2144105" target="_blank">Unlight 发表于 2023-9-9 23:19</a>
+汉化新出了35-36，看完以后一头雾水，搞不明白发生啥了
+
+—— 来自 S1Fun ...</blockquote>
+搞不清就对了，生肉最新都没搞清
+但是虫子不会等
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  第贰个十年  
+##### 64#         楼主| 发表于 2023-9-10 10:43
+
+盲猜老妈还真不是德鲁哈杀的，德鲁哈在研究所还真没杀过人
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ストック  
+##### 65#       发表于 2023-9-10 12:55
+
+那个大小感觉和磁带差不多吧，德鲁哈居然普通地吞得下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  1024676511  
+##### 66#       发表于 2023-9-12 20:32
+
+生肉最新这是快完结了吗
+
+看着老家好像都给端了
+
+*****
+
+####  1024676511  
+##### 67#       发表于 2023-9-12 20:32
+
+生肉最新这是快完结了吗
+
+看着老家好像都给端了
+
+
+*****
+
+####  redsouris  
+##### 68#       发表于 2023-9-12 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62381868&amp;ptid=2144105" target="_blank">1024676511 发表于 2023-9-12 20:32</a>
+生肉最新这是快完结了吗
+
+看着老家好像都给端了</blockquote>
+只干掉了那个产生自我的虫子
+虫子太年轻，能对话反而被骗了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  1024676511  
+##### 69#       发表于 2023-9-12 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62382485&amp;ptid=2144105" target="_blank">redsouris 发表于 2023-9-12 21:31</a>
+
+只干掉了那个产生自我的虫子
+
+虫子太年轻，能对话反而被骗了</blockquote>
+一地的那个什么血湖还以为是最终boss战了
+
+那估计还能再打几波吧
+
+
+*****
+
+####  redsouris  
+##### 70#       发表于 2023-9-12 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62382588&amp;ptid=2144105" target="_blank">1024676511 发表于 2023-9-12 21:39</a>
+一地的那个什么血湖还以为是最终boss战了
+
+那估计还能再打几波吧</blockquote>
+这个血糊的特殊虫子是新所长派搞出来的
+他们计划是主动送人给虫子吸收，那些吸收人的虫子会用人脑代替感觉器控制一部分身体，在虫子体内大量复制人脑反过来控制虫子
+结果出了岔子，变成虫子不断分裂增加
+最后血糊虫子也模仿人脑，把感觉器官复制连接产生自我了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  powerpyc  
+##### 71#       发表于 2023-9-13 07:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">剧情走向确实够暴走
+
+
+*****
+
+####  KDConan  
+##### 72#       发表于 2023-9-13 09:00
+
+原来在研究所出一个问题解决一次的套路没什么新活了，从德鲁哈失忆开始剧情暴走得很快<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
