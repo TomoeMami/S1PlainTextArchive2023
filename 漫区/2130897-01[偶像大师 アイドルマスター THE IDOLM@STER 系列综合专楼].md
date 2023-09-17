@@ -7906,3 +7906,906 @@ SC两位新人也追加上东蛋了，这下最速东蛋传说
 
 发售时间：2023年12月6日（水）
 
+*****
+
+####  Alicest  
+##### 736#       发表于 2023-9-6 23:20
+
+relax time系列的景品又公佈了三個
+<img src="https://p.sda1.dev/13/2724a90338598c878b7b3e973bdfc6b0/IMG_CMP_235728652.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Seeley  
+##### 737#       发表于 2023-9-7 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62317137&amp;ptid=2130897" target="_blank">Alicest 发表于 2023-9-6 23:20</a>
+relax time系列的景品又公佈了三個</blockquote>
+草，这是什么奇妙的结构<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  冰寒之月  
+##### 738#       发表于 2023-9-7 13:52
+
+<img src="https://p.sda1.dev/13/8fa25cb28daf9904a82d54d189ed0e35/2401_2668567.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/77e93d92e6657c97f45151a55efbcf8b/668w_668h.jpg" referrerpolicy="no-referrer">
+
+雾子终于出小人了 眼镜厂景品
+
+
+*****
+
+####  Alicest  
+##### 739#       发表于 2023-9-7 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62322220&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2023-9-7 13:52</a>
+雾子终于出小人了 眼镜厂景品</blockquote>
+有ash珠玉在仙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道会不会又是角度限定
+
+*****
+
+####  Alicest  
+##### 740#       发表于 2023-9-7 17:59
+
+<img src="https://p.sda1.dev/13/47b16b5c6026287bb44dbe3508974f91/IMG_CMP_170256194.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/c431d4acc811e34fed7cc779978332dd/IMG_CMP_239087296.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/793a13b0d0573336dac9d49776b7047a/IMG_CMP_211180003.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/e15c004c208ae1e3da7bb09ce78328d7/IMG_CMP_186306764.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/08d3e36e1137354824b25ddc0e1280d6/IMG_CMP_75181192.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/a4d4f5d0393c7fc33bc260923243716c/IMG_CMP_54383047.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/d6b946e3285422265ebb28d58f7cd37a/IMG_CMP_66465649.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/cc437301ae0fb0cf2d416ae472390f99/IMG_CMP_163586784.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/f9370e5e4bf7695b20054a658358a749/IMG_CMP_196466208.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七草にちか  
+##### 741#       发表于 2023-9-8 00:31
+
+<img src="https://p.sda1.dev/13/4fd25e0b86acd7281bf5e370b0f9006e/IMG_CMP_219832208.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/df9579d119062690e2d84fed9edba01a/IMG_CMP_115237086.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 742#       发表于 2023-9-8 08:35
+
+今天百万第二幕吧，过几个小时是不是就有一线线报了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 743#       发表于 2023-9-8 11:16
+
+<img src="https://img.saraba1st.com/forum/202309/08/111639hb83qaaamyjqzyye.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (113.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202309/08/111653uyzsbbtjmb3gb8gj.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (112.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 11:16 上传
+
+*****
+
+####  starcraft3  
+##### 744#       发表于 2023-9-8 11:19
+
+3d最不该出问题的live偷懒了可还行
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  アヘ顔  
+##### 745#       发表于 2023-9-8 11:58
+
+怎么个意思，八话了都没有几首新曲？全尼玛币是老歌？
+
+
+*****
+
+####  没取名啊  
+##### 746#       发表于 2023-9-8 12:14
+
+都3d了live还不给放全，那是真不行
+
+*****
+
+####  RhmBWT_Wu  
+##### 747#       发表于 2023-9-8 12:18
+
+第二幕新曲
+
+1.作词：儿玉沙织 作编曲：山口朗彦
+
+2.作词：真崎エリカ 作编曲：EFFY
+
+3.作词・作编曲：KOH
+
+*****
+
+####  アヘ顔  
+##### 748#       发表于 2023-9-8 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62333079&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2023-9-8 12:18</a>
+第二幕新曲
+
+1.作词：儿玉沙织 作编曲：山口朗彦
+
+2.作词：真崎エリカ 作编曲：EFFY</blockquote>
+好好好
+有新曲就好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+还有我最喜欢的effy哥哥
+
+
+*****
+
+####  acacaclove  
+##### 749#       发表于 2023-9-8 12:39
+
+live偷懒还行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Unlight  
+##### 750#         楼主| 发表于 2023-9-8 12:45
+
+氢氧化钾，是bba的新曲吗（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  白水潭的饿鬼  
+##### 751#       发表于 2023-9-8 13:01
+
+写的这么慢吞吞，十有八九有第二季吧
+
+要没有那可真是整大活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Seeley  
+##### 752#       发表于 2023-9-8 13:22
+
+百百这动画出来就满足了，还指望什么第二季<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Alicest  
+##### 753#       发表于 2023-9-8 14:10
+
+视觉图
+<img src="https://p.sda1.dev/13/5354e988fce67b9bb9a228f4a36d022f/IMG_CMP_153823899.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 754#       发表于 2023-9-8 14:32
+
+<img src="https://p.sda1.dev/13/d35f559a26b89e87fc51a3f756523222/IMG_CMP_244413535.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アヘ顔  
+##### 755#       发表于 2023-9-8 14:35
+
+你扣先行可以白嫖看吗
+
+
+*****
+
+####  BQlin  
+##### 756#       发表于 2023-9-8 14:55
+
+白天播啊，还行，看完来打战队差不多就能看了
+
+
+*****
+
+####  weifire  
+##### 757#       发表于 2023-9-8 15:12
+
+又是nico单独先播，那闪闪大概也是一样了
+
+
+*****
+
+####  Unlight  
+##### 758#         楼主| 发表于 2023-9-8 17:02
+
+白天播？
+
+<img src="https://img.saraba1st.com/forum/202309/08/170154pmohhheffbhn441s.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0396.JPG</strong> (623.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 17:01 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Alicest  
+##### 759#       发表于 2023-9-9 11:35
+
+<img src="https://img.saraba1st.com/forum/202309/09/113545egg0nfgnbggvf54n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (188.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 11:35 上传
+
+
+*****
+
+####  wfhtony  
+##### 760#       发表于 2023-9-9 19:36
+
+ 本帖最后由 wfhtony 于 2023-9-9 19:41 编辑 
+
+CG SoL Day 1 業務聯絡環節：
+
+9/29，小屋實裝私服店店長，以及相關的小屋佈景/道具（於暖場環節公開）：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193537nfh4mhy5s4eqrg55.jpg" referrerpolicy="no-referrer">
+
+<strong>6475aebagy1hhqcg7tloqj21hc0u0wmp.jpg</strong> (168.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:35 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193537niq1f8uv118ovf1p.jpg" referrerpolicy="no-referrer">
+
+<strong>6475aebagy1hhqcg7x2isj21hc0u0wuq.jpg</strong> (346.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:35 上传
+
+週邊：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193210wpsgmpnugd0nbdnz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h05m36s448.jpg</strong> (284.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+啊這...
+
+<img src="https://img.saraba1st.com/forum/202309/09/193210jvyf4563gyy3xva7.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h05m48s939.jpg</strong> (31.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193210a9ome44arra6lyas.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h05m50s009.jpg</strong> (67.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193210lblc0pw7v7pjvd1c.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h05m52s867.jpg</strong> (222.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193211bsge666zck5cdeag.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h05m59s868.jpg</strong> (256.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193211grgz7bwkgp7k78b4.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m03s743.jpg</strong> (240.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193211mzga1xaud3b130br.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m09s677.jpg</strong> (241.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193212e8kvk5b1c80f5s79.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m14s833.jpg</strong> (434.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+Astell &amp; Kern (艾利和) 的聯動：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193212fbe0qx6gg0qv6agt.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m19s790.jpg</strong> (244.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193212yzhhzmh15d05aa0p.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m27s695.jpg</strong> (247.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:32 上传
+
+LIVE卡池：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193306u4x4z94x7dz2r7uq.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m35s858.jpg</strong> (417.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193307yq271q67lz76kqnz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m43s960.jpg</strong> (412.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+8週年線下活動相關：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193307q8fql27zo3kklo67.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h06m52s120.jpg</strong> (254.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193307xz68fu11jpf7pc6x.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m00s339.jpg</strong> (358.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+接下來到十月初爲止的Roadmap：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193308j2mzdj57jtvj7zj2.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m08s330.jpg</strong> (411.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193308l443ytym4seh3cwh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m16s493.jpg</strong> (366.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193308rzqh4uuypwvvjs9f.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m24s536.jpg</strong> (389.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193311dr9my0hzo2ha2bdl.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m33s398.jpg</strong> (300.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193313lsn39hsk5ic3nn54.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m41s182.jpg</strong> (338.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193313ji55oz6g0wz9idgz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m48s857.jpg</strong> (430.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+U149 藍光全卷特典：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193314n7pjpsjqvzhsm5ps.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h07m56s940.jpg</strong> (334.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:33 上传
+
+[U149第四卷PV](https://www.youtube.com/watch?v=54buT0bDLtk)：
+
+<img src="https://img.saraba1st.com/forum/202309/09/193401eplmxp99l2rkyepu.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h08m31s697.jpg</strong> (320.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193401a2qsdr8dqdcxrd0y.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h08m35s918.jpg</strong> (137.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193401k0pjcpd8etjz6x5u.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h08m40s858.jpg</strong> (175.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193401exkv2082aawwakaz.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h08m47s243.jpg</strong> (218.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193402czxkkaqam2hctw0p.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h09m03s832.jpg</strong> (183.92 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/09/193402kfe0xmmtl0186x0f.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-09-19h09m17s072.jpg</strong> (305.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-9 19:34 上传
+
+那明天也許會是鴿倫比亞的回合？
+
+
+*****
+
+####  SchwarzX  
+##### 761#       发表于 2023-9-9 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没活了吗，哑巴都出黑FES
+
+
+*****
+
+####  Vacuolar  
+##### 762#       发表于 2023-9-9 22:11
+
+神tm白天播，目前所有剧情不都是深夜动画感
+
+*****
+
+####  Vacuolar  
+##### 763#       发表于 2023-9-9 22:11
+
+神tm白天播，目前所有剧情不都是深夜动画感
+
+
+*****
+
+####  flynnei  
+##### 764#       发表于 2023-9-9 22:25
+
+这是灰姑娘第一次没有伴舞的live吧
+
+
+*****
+
+####  Alicest  
+##### 765#       发表于 2023-9-9 22:40
+
+中午a店闪谷都没了，这么看其实闪人气挺好？
+<img src="https://p.sda1.dev/13/03577840161079bc409e562be26958cb/IMG_CMP_119413255.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/fad5e7b2b46eb2f60661f9cc990b8d23/IMG_CMP_129993301.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/9ebf7a2fac78d4a5ce07e7fc9c13dd7b/IMG_CMP_73610196.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/c50e42ce6bdc536d4a01f348e78f9138/IMG_CMP_135355777.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/233b4ef6b63ba45441b3844c8f73bac4/IMG_CMP_158102313.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰寒之月  
+##### 766#       发表于 2023-9-9 22:43
+
+新作动画影像是什么？ u149要有第二季了？
+
+*****
+
+####  任天索尼子  
+##### 767#       发表于 2023-9-9 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62349843&amp;ptid=2130897" target="_blank">冰寒之月 发表于 2023-9-9 22:43</a>
+
+新作动画影像是什么？ u149要有第二季了？</blockquote>
+BD送的OVA
+
+
+*****
+
+####  lawsherman  
+##### 768#       发表于 2023-9-10 12:38
+
+渔网袜，好涩……
+
+
+*****
+
+####  wfhtony  
+##### 769#       发表于 2023-9-10 18:30
+
+ 本帖最后由 wfhtony 于 2023-9-10 18:31 编辑 
+
+CG SoL Day 2 業務聯絡環節：
+
+① 日本哥倫比亞方面：
+
+7th三場巡演將會發售廉價版。
+
+<img src="https://img.saraba1st.com/forum/202309/10/182807wpf8dwk0hpghg5po.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h04m13s186.jpg</strong> (428.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+本場LIVE自然也會賣藍光：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182807pudu89scidct58si.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h04m21s152.jpg</strong> (254.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182807liob3xd2xumff7bq.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h04m29s193.jpg</strong> (245.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182808gciq081yxi0p0c4p.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h04m37s496.jpg</strong> (143.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182808kh1lq4de40fl4l0t.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h04m42s476.jpg</strong> (264.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+這次也有密接採訪記錄片。
+
+之前提到過的卡拉OK聯動：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182808zl6i2g5622t7i666.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h04m59s128.jpg</strong> (359.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+10/25發售總選CD（第一張），收錄A組曲和B組曲：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182809mw0cyhykk3rrw4ak.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h05m06s631.jpg</strong> (271.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182812ddebhrfggrsy0kqd.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h05m14s852.jpg</strong> (202.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182815l4hjj93awcacxa83.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h05m22s780.jpg</strong> (269.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+寶石04 Passion專開始收集翻唱曲：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182817wmt101x51t4tu1th.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h05m39s131.jpg</strong> (265.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182820dbdvn4rvut8dmatl.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h05m47s142.jpg</strong> (377.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:28 上传
+
+（李阿姆，歡迎回來。）
+
+以上內容的詳情都會在之後公開。
+
+② デレステ方面：
+
+LIVE卡池：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182917etzc8p8jn7m7ng0o.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m03s599.jpg</strong> (373.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+之後會實裝的翻唱曲：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182917xtzzde0puo0e2p2q.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m11s828.jpg</strong> (306.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182918fms3z06l0k0k9d3m.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m19s733.jpg</strong> (283 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+（看來存貨不少...）
+
+之前預告過的「攝影棚」場景（ロケ）攝影機能：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182918u9cdu2bgcupfmuot.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m27s877.jpg</strong> (303.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+今天的新曲大概十月左右開活動：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182919ojipy21y8jtikvmt.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m35s727.jpg</strong> (296 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+又來新型卡池了...
+
+<img src="https://img.saraba1st.com/forum/202309/10/182919a51krqjjg761mmxx.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m43s925.jpg</strong> (249.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+雙種類技能卡...
+
+③ 接下來的LIVE確定爲團體巡迴LIVE，具體消息將在10月公開：
+
+<img src="https://img.saraba1st.com/forum/202309/10/182922chxfbdgr5i31v9tm.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h06m58s809.jpg</strong> (236.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182925z3hp3hylvq3ohuhl.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h07m05s991.jpg</strong> (257.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182928ej95ehofj8ehobfh.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h07m13s959.jpg</strong> (212.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/182931s6pf0trftt4ruubi.jpg" referrerpolicy="no-referrer">
+
+<strong>vlcsnap-2023-09-10-18h07m19s870.jpg</strong> (319.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 18:29 上传
+
+
+*****
+
+####  darkendless  
+##### 770#       发表于 2023-9-10 18:42
+
+这次乐队场live实在是爽，意犹未尽
+
+
+*****
+
+####  库德里尔  
+##### 771#       发表于 2023-9-10 19:19
+
+打算开始看本家动画，请问比较好的观影方式是什么？
+
+我现在打算下vcb压制的源，外挂一个澄空版字幕
+
+*****
+
+####  yuuuuuuuu  
+##### 772#       发表于 2023-9-10 19:20
+
+名副其实的灰姑娘，继这次live被发配偏僻小场子后，下次大概率还是小场子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 773#       发表于 2023-9-10 19:25
+
+這次的overture不是中鶴負責的。
+
+<img src="https://img.saraba1st.com/forum/202309/10/192538z92l4527g1to4i42.jpg" referrerpolicy="no-referrer">
+
+<strong>F5p-PK_a0AAoLM6.jpg</strong> (218.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 19:25 上传
+
+*****
+
+####  wfhtony  
+##### 774#       发表于 2023-9-10 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62357221&amp;ptid=2130897" target="_blank">yuuuuuuuu 发表于 2023-9-10 19:20</a>
+
+名副其实的灰姑娘，继这次live被发配偏僻小场子后，下次大概率还是小场子 ...</blockquote>
+都是組合巡演了，規模大不了的（
+
+
+*****
+
+####  Unlight  
+##### 775#         楼主| 发表于 2023-9-10 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62357197&amp;ptid=2130897" target="_blank">库德里尔 发表于 2023-9-10 19:19</a>
+
+打算开始看本家动画，请问比较好的观影方式是什么？
+
+我现在打算下vcb压制的源，外挂一个澄空版字幕 ...</blockquote>
+VCB压制的就很好，比之前的压制好太多
+
+字幕的话，我用的是ACE字幕组的，根据角色分色了
+
+
+*****
+
+####  Alicest  
+##### 776#       发表于 2023-9-11 19:56
+
+南通是sc不可不品鉴的一环
+<img src="https://p.sda1.dev/13/4e6346f9a1d77cd1ba3d91d97e49071a/img-169443334096249389e746fc796bcab1dd0c22254b944e3e519b2e68a49922167b671ef027e1b.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 777#       发表于 2023-9-14 11:50
+
+<img src="https://img.saraba1st.com/forum/202309/14/115039i4grqgk4zjg4r28z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (281.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-14 11:50 上传
+
+
+*****
+
+####  acacaclove  
+##### 778#       发表于 2023-9-14 19:06
+
+哈哈，闲得无聊去下了个全dlc学习版星曜季节，被偶像祭折磨疯了，万代是不是有毛病啊搞这么恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
