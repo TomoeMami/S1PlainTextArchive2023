@@ -1285,3 +1285,170 @@ Aqua Ch. 湊あくあ
 
 有啥好快乐的 打的米都给EA了
 
+*****
+
+####  猫南北  
+##### 9449#       发表于 2023-9-7 19:52
+
+突然觉得希小姐好好看。。
+
+
+*****
+
+####  面具13  
+##### 9450#       发表于 2023-9-9 22:34
+
+听说regloss那边出了个复制人，代餐？
+
+
+*****
+
+####  zpy393  
+##### 9451#       发表于 2023-9-9 22:36
+
+先上大师再考虑代餐，枪都不打代什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9452#       发表于 2023-9-10 00:16
+
+是这个吗 看了下也代不了啊
+<img src="https://p.sda1.dev/13/51f4f4ee34c8df0498e66a485ba81db5/Screenshot 2023-09-09 at 9.14.59 AM.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 9453#       发表于 2023-9-10 05:48
+
+只看初配信，有种大亏开变声器直播的感觉
+
+crew的好日子来了
+
+
+*****
+
+####  越动天下  
+##### 9454#       发表于 2023-9-10 06:20
+
+哎 虽然突然吵叫 笑声之类的像 但是还是差的 来点高配aqua24小时直播
+
+
+*****
+
+####  面具13  
+##### 9455#       发表于 2023-9-10 22:06
+
+整了个帽子把后脑的洋葱挡住了
+
+
+*****
+
+####  qiyouuu  
+##### 9456#       发表于 2023-9-10 22:42
+
+还好主播一年都用不了一次家用3D，不然我的心脏可撑不住这种可爱暴击
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  andeloz  
+##### 9457#       发表于 2023-9-12 21:04
+
+唉 还得是正版阿夸
+
+
+*****
+
+####  lightsuger  
+##### 9458#       发表于 2023-9-14 08:46
+
+<img src="https://img.saraba1st.com/forum/202309/14/084300f244hwwey9f4487q.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (30.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-14 08:43 上传
+
+dota、 apex、瓦、原来是找了个韩版阿夸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  越动天下  
+##### 9459#       发表于 2023-9-14 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62398096&amp;ptid=1947500" target="_blank">lightsuger 发表于 2023-9-14 08:46</a>
+dota、 apex、瓦、原来是找了个韩版阿夸</blockquote>
+p的 原图没有
+
+
+*****
+
+####  lightsuger  
+##### 9460#       发表于 2023-9-14 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62398534&amp;ptid=1947500" target="_blank">越动天下 发表于 2023-9-14 09:22</a>
+
+p的 原图没有</blockquote>
+有的，第一次露出来没有图标，过了几秒又露出来一次就出现图标了，昨晚现场截的
+
+*****
+
+####  越动天下  
+##### 9461#       发表于 2023-9-14 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62398882&amp;ptid=1947500" target="_blank">lightsuger 发表于 2023-9-14 09:49</a>
+有的，第一次露出来没有图标，过了几秒又露出来一次就出现图标了，昨晚现场截的 ...</blockquote>
+我说图标错了 你再看看原图的下面图标是什么<img src="https://p.sda1.dev/13/f3c6c7de0788831601788afb5ccbdfcb/CMP_20230914095140485.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lightsuger  
+##### 9462#       发表于 2023-9-14 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62398906&amp;ptid=1947500" target="_blank">越动天下 发表于 2023-9-14 09:52</a>
+
+我说图标错了 你再看看原图的下面图标是什么</blockquote>
+那确实是p的，我截图有点糊，看到有图标的图就替换了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  andeloz  
+##### 9463#       发表于 2023-9-14 10:08
+
+P图的人到底在想什么、、
+
+*****
+
+####  越动天下  
+##### 9464#       发表于 2023-9-14 10:10
+
+说到apex 会限是说想上猎? 那天好卡
+
+
+*****
+
+####  lightsuger  
+##### 9465#       发表于 2023-9-14 10:17
+
+本来还指望新人能当个代餐或者能间接让阿夸播勤点，这下没指望了
+
+除了相似的品位和吸气，歌力还可以，其他完全比不了，播游戏虚无，杂谈虚无
+
+*****
+
+####  andeloz  
+##### 9466#       发表于 2023-9-14 10:25
+
+新人多吸吸血夸夸就该急了
+
+会限有聊上猎杀吗 我就记得聊了下algs
+
