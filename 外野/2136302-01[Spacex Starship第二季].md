@@ -1041,3 +1041,641 @@ SpaceX公布了热分离环的官方照片。官方名称“Vented interstage an
 
 这标题让我想到这个了[https://music.163.com/#/song?id=1997060923](https://music.163.com/#/song?id=1997060923)
 
+*****
+
+####  flypig_zhy4  
+##### 100#       发表于 2023-9-15 21:53
+
+FAA<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  commcody  
+##### 63#       发表于 2023-8-23 00:22
+
+可能受到当地风暴影响，在延误多日后安装好热分离级间段的B9终于从Mega Bay推出，启程运往发射台。
+
+<img src="https://img.saraba1st.com/forum/202308/23/001911o0yl1dyid9551y7g.jpg" referrerpolicy="no-referrer">
+
+<strong>F4JdXX5XgAE89iE.jpg</strong> (667.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-23 00:19 上传
+
+*****
+
+####  Ichthy  
+##### 64#         楼主| 发表于 2023-8-23 00:30
+
+二级中央发动机离一级保护罩就几厘米，不知道怎么解决点火问题。真空发动机先点？
+
+
+*****
+
+####  commcody  
+##### 65#       发表于 2023-8-23 13:36
+
+SpaceX官照，B9重回发射台以完成额外的飞前测试
+
+<img src="https://img.saraba1st.com/forum/202308/23/133216x0t0o0rwtiuqsqix.jpg" referrerpolicy="no-referrer">
+
+<strong>F4LRH4bawAAaYM9.jpg</strong> (680.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-23 13:32 上传
+
+<img src="https://img.saraba1st.com/forum/202308/23/133217p6x1xdcn29mtm71q.jpg" referrerpolicy="no-referrer">
+
+<strong>F4LRJdVboAAsVzF.jpg</strong> (486.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-23 13:32 上传
+
+<img src="https://img.saraba1st.com/forum/202308/23/133217egq3n4ga13hn1n9p.jpg" referrerpolicy="no-referrer">
+
+<strong>F4LRLfhbUAAOijW.jpg</strong> (884.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-23 13:32 上传
+
+<img src="https://img.saraba1st.com/forum/202308/23/133217m1kuffq2zoqix5zc.jpg" referrerpolicy="no-referrer">
+
+<strong>F4LRNPQakAAkNOv.jpg</strong> (596.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-23 13:32 上传
+
+
+*****
+
+####  commcody  
+##### 66#       发表于 2023-8-25 14:34
+
+重回发射台的B9于当地时间周三晚上完成了Spin Prime测试。当地时间周五有封路通知和撤离通告，预计B9将再次执行静点测试。
+
+目前第二次发射的计划时间是不早于9月8日。
+
+<img src="https://img.saraba1st.com/forum/202308/25/143252rdat252231hvz2dw.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (294.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-25 14:32 上传
+
+
+*****
+
+####  commcody  
+##### 67#       发表于 2023-8-26 09:56
+
+ 本帖最后由 commcody 于 2023-8-26 09:57 编辑 
+
+当地时间周五中午，B9进行了第二次静态点火测试。33台发动机点火，31台完成全时长测试，2台提前关机。总推力约3600吨。【【中文】SpaceX星舰助推器9全时长静态点火测试】 [https://www.bilibili.com/video/B ... bad2af28fb1e8f36cd1](https://www.bilibili.com/video/BV19p4y1K7hz/?share_source=copy_web&amp;vd_source=037197600e086bad2af28fb1e8f36cd1)
+
+<img src="https://img.saraba1st.com/forum/202308/26/094934nihkikizrkl9nhn9.jpg" referrerpolicy="no-referrer">
+
+<strong>F4Z9yUkWoAALePJ.jpg</strong> (148.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 09:49 上传
+
+
+*****
+
+####  commcody  
+##### 68#       发表于 2023-8-27 13:16
+
+FCC（不是FAA）发布了第二发的许可，时间从9月7日开始。
+
+S25隔热瓦恢复已进入最后阶段。工人今天在对筷子设置为夹Ship构型，S25和B9合体指日可待。
+
+<img src="https://img.saraba1st.com/forum/202308/27/131432ljyp955xtm1pkyp4.jpg" referrerpolicy="no-referrer">
+
+<strong>F4ZlsLuXgAAbtXN.jpg</strong> (496.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 13:14 上传
+
+<img src="https://img.saraba1st.com/forum/202308/27/131439hut8jnboocopcgpj.jpg" referrerpolicy="no-referrer">
+
+<strong>F4afg_AX0AE6WRM.jpg</strong> (67.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-27 13:14 上传
+
+*****
+
+####  Ichthys  
+##### 69#       发表于 2023-8-27 13:22
+
+FAA的许可有效期是五年，这次主要是做了更改从新送审，登月压力下看来就算是FAA也没法摸鱼了。
+
+
+*****
+
+####  commcody  
+##### 70#       发表于 2023-8-29 14:10
+
+SpaceX公布了两张B9静点官照
+
+<img src="https://img.saraba1st.com/forum/202308/29/140934p0vgarvhpz6rahmr.jpg" referrerpolicy="no-referrer">
+
+<strong>F4owRJrboAAhd0o.jpg</strong> (639.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-29 14:09 上传
+
+<img src="https://img.saraba1st.com/forum/202308/29/140936un02gsk0p8xeyins.jpg" referrerpolicy="no-referrer">
+
+<strong>F4owRBna0AAhEqD.jpg</strong> (228.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-29 14:09 上传
+
+
+*****
+
+####  commcody  
+##### 71#       发表于 2023-8-31 11:58
+
+S25的Logo已喷好，隔热瓦即将全面修复完成
+
+<img src="https://img.saraba1st.com/forum/202308/31/115749g3o5yowcuomxhohy.jpg" referrerpolicy="no-referrer">
+
+<strong>F4zrhiQWIAAcxUO.jpg</strong> (719.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 11:57 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/115749j4umlge9acz99awr.jpg" referrerpolicy="no-referrer">
+
+<strong>F4zrkz5W0AAbSOD.jpg</strong> (594.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 11:57 上传
+
+<img src="https://img.saraba1st.com/forum/202308/31/115749j1l1mbqlzgggvnvi.jpg" referrerpolicy="no-referrer">
+
+<strong>F4zrmwxW0AIZFGC.jpg</strong> (666.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-31 11:57 上传
+
+
+*****
+
+####  commcody  
+##### 72#       发表于 2023-9-3 09:50
+
+工厂区一个月建设进度对比
+
+<img src="https://img.saraba1st.com/forum/202309/03/095034hl78lzbsusyl7bba.jpg" referrerpolicy="no-referrer">
+
+<strong>F5Co-eOWEAEOUK5.jpg</strong> (582.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-3 09:50 上传
+
+
+*****
+
+####  commcody  
+##### 73#       发表于 2023-9-4 14:29
+
+墨西哥湾和夏威夷海域海事预警更新
+
+目前预警时间：世界标准时间，9月8日至9月13日，每天1310~1650
+
+
+*****
+
+####  flypig_zhy4  
+##### 74#       发表于 2023-9-4 14:46
+
+终于要来了？
+
+
+*****
+
+####  commcody  
+##### 75#       发表于 2023-9-5 14:59
+
+S25已抵达发射塔，准备与B9合体
+
+<img src="https://img.saraba1st.com/forum/202309/05/145846tb5bbyykfefff42f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_9484.jpeg</strong> (430.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-5 14:58 上传
+
+*****
+
+####  洛拉斯  
+##### 76#       发表于 2023-9-5 15:00
+
+这么帅的烟花炸了一定好看，没炸也能送东西上太空，对人来来说横竖不亏啊
+
+
+*****
+
+####  小木曾亚子  
+##### 77#       发表于 2023-9-6 08:57
+
+这才像话嘛，不管成了还是炸了，快速迭代才是SpaceX的风格嘛
+
+上一发一拖拖一年多，不知道的还以为是波音呢
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ichthy  
+##### 78#         楼主| 发表于 2023-9-6 09:54
+
+已经合体
+<img src="https://p.sda1.dev/13/c5d38922dac8c00537e59debc5008045/IMG_CMP_193719942.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/a47b28ddc25ef269efb0cdf21d4fa04e/IMG_CMP_104093467.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/a8000c4588a0725bfb30b4a57b2268df/IMG_CMP_42345902.jpeg" referrerpolicy="no-referrer">
+
+*****
+
+####  flypig_zhy4  
+##### 79#       发表于 2023-9-6 09:57
+
+还是感觉好丑
+
+
+*****
+
+####  commcody  
+##### 80#       发表于 2023-9-6 10:55
+
+<img src="https://img.saraba1st.com/forum/202309/06/105539rys056o0065omacz.jpg" referrerpolicy="no-referrer">
+
+<strong>F5SQ0PZX0AAIpMn.jpg</strong> (594.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-6 10:55 上传
+
+<img src="https://img.saraba1st.com/forum/202309/06/105539xigti5n934t44rq3.jpg" referrerpolicy="no-referrer">
+
+<strong>F5SQ0PcWoAAmr7C.jpg</strong> (760.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-6 10:55 上传
+
+*****
+
+####  wpcc  
+##### 81#       发表于 2023-9-6 10:57
+
+发射台还是太草 
+
+*****
+
+####  瓦格雷  
+##### 82#       发表于 2023-9-6 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62308717&amp;ptid=2136302" target="_blank">commcody 发表于 2023-9-6 10:55</a></blockquote>
+还是3+3的老版本啊   什么时候上6+3啊
+
+*****
+
+####  瓦格雷  
+##### 83#       发表于 2023-9-6 11:00
+
+有没有  
+
+猛禽和梅林的
+
+真空/海平版的同比例图
+
+
+*****
+
+####  commcody  
+##### 84#       发表于 2023-9-6 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62308772&amp;ptid=2136302" target="_blank">瓦格雷 发表于 2023-9-6 10:58</a>
+
+还是3+3的老版本啊   什么时候上6+3啊</blockquote>
+目前还没有在制造区发现6+3的部件
+
+*****
+
+####  Ichthy  
+##### 85#         楼主| 发表于 2023-9-6 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62308799&amp;ptid=2136302" target="_blank">瓦格雷 发表于 2023-9-6 11:00</a>
+有没有  
+
+猛禽和梅林的
+
+真空/海平版的同比例图</blockquote>
+<img src="https://p.sda1.dev/13/36bda089b26a6a6e1d4d2d69d0078fdd/IMG_CMP_140062611.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zzzzzzzzzzz  
+##### 86#       发表于 2023-9-6 15:21
+
+星舰同款材料<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+这要是外纸盒是S25造型就好了
+
+<img src="https://img.saraba1st.com/forum/202309/06/151306v2rv3rim37ttv0i3.png" referrerpolicy="no-referrer">
+
+<strong>1693984261283.png</strong> (44.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-6 15:13 上传
+
+
+*****
+
+####  Ichthy  
+##### 87#         楼主| 发表于 2023-9-7 00:50
+
+<img src="https://p.sda1.dev/13/3245afceca0b4103d4c96181ce31a8f4/ezgif.com-video-to-gif.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  commcody  
+##### 88#       发表于 2023-9-8 00:25
+
+水塔S26今日被运往发射场准备静点测试
+
+<img src="https://img.saraba1st.com/forum/202309/08/002513xzickcqr8v9vd9p7.jpg" referrerpolicy="no-referrer">
+
+<strong>S26.jpg</strong> (310.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 00:25 上传
+
+
+*****
+
+####  commcody  
+##### 89#       发表于 2023-9-8 11:35
+
+航拍转运中的S26
+
+S25和B9组合体
+
+转运到发射场的S26已被吊至测试台B上
+
+<img src="https://img.saraba1st.com/forum/202309/08/113453b4d64p6y6et1y64y.jpg" referrerpolicy="no-referrer">
+
+<strong>F5b5uQIXwBsSPhE.jpg</strong> (351.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 11:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/08/113453h7v1o1wp7cfd679v.jpg" referrerpolicy="no-referrer">
+
+<strong>F5chqXmWEAEMhyb.jpg</strong> (878.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 11:34 上传
+
+<img src="https://img.saraba1st.com/forum/202309/08/113410rxhjzkhbxgj7lk2m.jpg" referrerpolicy="no-referrer">
+
+<strong>F5dUutlXoAAznOV.jpg</strong> (260.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-8 11:34 上传
+
+
+*****
+
+####  commcody  
+##### 90#       发表于 2023-9-8 22:20
+
+ 本帖最后由 commcody 于 2023-9-8 22:21 编辑 
+
+据NASASpaceflight报道，FAA已完成了B7/S24的事故调查。调查结论要求SpaceX完成63项修正措施以防止事故再发生。包括飞行器硬件、发射台、自毁系统、设计评估等方面的改进。
+
+但FAA同时也表示事故调查的结束并不意味着可以马上恢复发射。SpaceX必须完成所有的修正措施后获得新许可证。
+
+另外，由于调查报告内容涉及专有资料和美国出口管制信息，因此将不会对外公开。
+[https://www.faa.gov/newsroom/faa ... ishap-investigation](https://www.faa.gov/newsroom/faa-closes-spacex-starship-mishap-investigation)
+ <blockquote>FAA closes Starship mishap investigation from Booster 7/Ship 24's test flight. Following was emailed out by the FAA:
+
+"The FAA has closed the SpaceX Starship Super Heavy mishap investigation.  
+
+"The final report cites multiple root causes of the April 20, 2023,  mishap and  63 corrective actions SpaceX must take to prevent mishap reoccurrence.  
+
+"Corrective actions include redesigns of vehicle hardware to prevent  leaks and fires, redesign of the launch pad to increase its robustness, incorporation of additional reviews in the design process, additional analysis and testing of safety critical systems and  components including the Autonomous Flight Safety System, and the  application of additional change control practices."
+
+"The closure of the mishap investigation does not signal an immediate resumption of Starship launches at Boca Chica. SpaceX must implement all corrective actions that impact public safety and apply for and receive a license modification from the FAA that addresses all safety, environmental and other applicable regulatory  requirements prior to the next Starship launch."</blockquote><blockquote>Additional background on the release:
+
+The FAA oversaw the SpaceX-led investigation to ensure the company complied with its FAA-approved mishap plan and other regulatory requirements.
+
+The FAA was involved in every step of the mishap  investigation and granted NASA and the National Transportation Safety  Board official observer status.
+
+The mishap investigation report contains proprietary data and U.S Export Control information and is not available for public release.</blockquote>
+
+
+*****
+
+####  瓦格雷  
+##### 91#       发表于 2023-9-8 22:22
+
+光头捐了多少钱给FAA
+
+
+*****
+
+####  commcody  
+##### 92#       发表于 2023-9-8 23:24
+
+在FAA发布调查结论后SpaceX也公布了声明
+
+[https://www.spacex.com/updates/index.html](https://www.spacex.com/updates/index.html)
+
+在首飞时Super Heavy后部泄露的推进剂引发了火灾，最终切断了主飞行计算机的连接。导致失去了同大部分发动机的通讯，最终失去了对载具的控制。SpaceX已对发动机和助推器进行了改进，以减少泄露并完成了测试。同时作为一项额外的修正措施，SpaceX也扩大了已有的灭火系统，以应对发动机舱的火灾。
+
+在载具偏离轨迹，失去高度并开始翻滚时，自毁系统自动激活发出了指令，并且按计划引爆了所有爆炸装置。但在自毁系统激活后发生了未预料的延迟，载具最终在发动机点火237.474秒后解体。为了提升系统可靠性，SpaceX已增强并重新取证了自毁系统。
+
+SpaceX还对系统性能进行了全方面改进，尽管这些项目并不涉及首飞中遇到的问题。例如，SpaceX制造并测试了一种热分离系统。二级将点火推离助推器。此外，SpaceX也为助推器的Raptor引擎研发了一种电驱推力矢量控制系统。通过使用全电驱马达，相比传统的液压系统，新系统会有更少的故障点，更有能量效率。
+
+SpaceX也对发射台进行了重大升级，以避免首飞时出现的地基问题。升级包括增强的地基和火焰偏流器。
+ <blockquote>SEPTEMBER 8, 2023
+
+UPGRADES AHEAD OF STARSHIP’S SECOND FLIGHT TEST
+
+The first flight test of a fully integrated Starship and Super Heavy was a critical step in advancing the capabilities of the most powerful launch system ever developed. Starship’s first flight test provided numerous lessons learned that are directly contributing to several upgrades being made to both the vehicle and ground infrastructure to improve the probability of success on future Starship flights. This rapid iterative development approach has been the basis for all of SpaceX’s major innovative advancements, including Falcon, Dragon, and Starlink. SpaceX has led the investigation efforts following the flight with oversight from the FAA and participation from NASA and the National Transportation and Safety Board.
+
+Starship and Super Heavy successfully lifted off for the first time on April 20, 2023 at 8:33 a.m. CT (13:33:09 UTC) from the orbital launch pad at Starbase in Texas. Starship climbed to a maximum altitude of ~39 km (24 mi) over the Gulf of Mexico. During ascent, the vehicle sustained fires from leaking propellant in the aft end of the Super Heavy booster, which eventually severed connection with the vehicle’s primary flight computer. This led to a loss of communications to the majority of booster engines and, ultimately, control of the vehicle. SpaceX has since implemented leak mitigations and improved testing on both engine and booster hardware. As an additional corrective action, SpaceX has significantly expanded Super Heavy’s pre-existing fire suppression system in order to mitigate against future engine bay fires.
+
+The Autonomous Flight Safety System (AFSS) automatically issued a destruct command, which fired all detonators as expected, after the vehicle deviated from the expected trajectory, lost altitude and began to tumble. After an unexpected delay following AFSS activation, Starship ultimately broke up 237.474 seconds after engine ignition. SpaceX has enhanced and requalified the AFSS to improve system reliability.
+
+SpaceX is also implementing a full suite of system performance upgrades unrelated to any issues observed during the first flight test. For example, SpaceX has built and tested a hot-stage separation system, in which Starship’s second stage engines will ignite to push the ship away from the booster. Additionally, SpaceX has engineered a new electronic Thrust Vector Control (TVC) system for Super Heavy Raptor engines. Using fully electric motors, the new system has fewer potential points of failure and is significantly more energy efficient than traditional hydraulic systems.
+
+SpaceX also made significant upgrades to the orbital launch mount and pad system in order to prevent a recurrence of the pad foundation failure observed during the first flight test. These upgrades include significant reinforcements to the pad foundation and the addition of a flame deflector, which SpaceX has successfully tested multiple times.
+
+Testing development flight hardware in a flight environment is what enables our teams to quickly learn and execute design changes and hardware upgrades to improve the probability of success in the future. We learned a tremendous amount about the vehicle and ground systems during Starship’s first flight test. Recursive improvement is essential as we work to build a fully reusable launch system capable of carrying satellites, payloads, crew, and cargo to a variety of orbits and Earth, lunar, or Martian landing sites.</blockquote>
+
+
+*****
+
+####  commcody  
+##### 93#       发表于 2023-9-10 11:42
+
+发射场第一发和第二发对比
+
+老马发射台下视角
+
+<img src="https://img.saraba1st.com/forum/202309/10/114151nd86ltlp6ed22a9w.jpg" referrerpolicy="no-referrer">
+
+<strong>F5mX8HGWQAAQlsN.jpg</strong> (735.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 11:41 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/114157wa93nvllo8pyivdl.jpg" referrerpolicy="no-referrer">
+
+<strong>F5mpqtibMAAl61F.jpg</strong> (882.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 11:41 上传
+
+
+*****
+
+####  commcody  
+##### 94#       发表于 2023-9-10 17:26
+
+老马公布了63项改进清单，宣布SpaceX已经完成了57项，其余6项会在未来的飞行时完成。
+
+<img src="https://img.saraba1st.com/forum/202309/10/172430mrjs4su10xddpi1l.jpg" referrerpolicy="no-referrer">
+
+<strong>F5pq9CsWgAA7T5V.jpg</strong> (421.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 17:24 上传
+
+<img src="https://img.saraba1st.com/forum/202309/10/172432oq0spa8x72x8xp8q.jpg" referrerpolicy="no-referrer">
+
+<strong>F5pq9CtXcAAvRWO.jpg</strong> (400.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-10 17:24 上传
+
+*****
+
+####  laotoutou  
+##### 95#       发表于 2023-9-10 17:30
+
+星舰赶紧再射一发看看啊，长九还改不改就看你的了。说实话那么多台并联还是有点慌。
+
+
+*****
+
+####  shiraikuroko  
+##### 96#       发表于 2023-9-10 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61989933&amp;ptid=2136302" target="_blank">憂鬱臺灣烏龜 发表于 2023-8-11 11:41</a>
+最后一张图那个罐子的吊绳，似乎已经损伤了罐子的外层？</blockquote>
+这个不承压，只是个破水罐
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  commcody  
+##### 97#       发表于 2023-9-12 23:45
+
+首发射后和第二发射前发射场对比
+
+B10被装上推力模拟器后送到了靶场测试场准备新的测试
+
+B11被从火箭花园移至了Mega Bay 1
+
+<img src="https://img.saraba1st.com/forum/202309/12/234408zyyn19tg1nzheeee.jpg" referrerpolicy="no-referrer">
+
+<strong>F5yVB0cXUAApRn7.jpg</strong> (756.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-12 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202309/12/234411w30ssd3jl9sy9dns.jpg" referrerpolicy="no-referrer">
+
+<strong>F5v1lMkWkAAB_SC.jpg</strong> (624.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-12 23:44 上传
+
+<img src="https://img.saraba1st.com/forum/202309/12/234351bl7jomvoonl3ni9e.jpg" referrerpolicy="no-referrer">
+
+<strong>F50bIXQXoAAwnRt.jpg</strong> (351.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-12 23:43 上传
+
+
+*****
+
+####  Ichthy  
+##### 98#         楼主| 发表于 2023-9-14 12:42
+
+<img src="https://p.sda1.dev/13/3991719bf45cb681ba3aaddc09a05436/IMG_CMP_214928561.jpeg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  commcody  
+##### 99#       发表于 2023-9-15 21:18
+
+FAA执行局长在采访中透露，最早要10月给许可证。
+
+S25被从B9拆下。
+
+前NASA商业航天载人负责人，现SpaceX德州星舰基地总经理Kathy Lueders在采访中表示，希望能在2-3周内发射第二发。
+
+<img src="https://img.saraba1st.com/forum/202309/15/211303sfj1nhfrjiff6tyj.jpg" referrerpolicy="no-referrer">
+
+<strong>F5_WMz3X0AABvgI.jpg</strong> (314.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 21:13 上传
+
+
