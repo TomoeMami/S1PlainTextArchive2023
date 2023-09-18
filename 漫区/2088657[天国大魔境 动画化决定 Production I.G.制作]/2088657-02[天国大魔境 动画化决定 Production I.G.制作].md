@@ -2343,3 +2343,98 @@ URLはコチラから↓
 
 还没看动画，但不好卖感觉合理。本来就是没有完结的作品悬疑作品，初见体验但复看场面不刺激，再者故事发展太扎实，不玩商业套路，反而吃不太到角色粉的红利
 
+*****
+
+####  lucky95  
+##### 1705#       发表于 2023-9-13 22:38
+
+ 本帖最后由 lucky95 于 2023-9-13 22:39 编辑 
+
+一口气补完，一半的时候大概猜到了剧情，但长耳朵和代的故事能收线有点感动
+总体看得很爽，但最后两集。。。
+最后两集的制作是被换脑了啊，怎么各种莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被莫名其妙雷普不解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+时男爆炸/变虫了也没后续<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这些放到不存在的下一季讲起码有后续，没那么恶心人
+
+总的来说，制作过于精良，基本是剧场版级，是真不错
+但这销量，应该是有网飞补贴吧，不然用脚想也知道销量最多一般
+感觉猪社又要亏穿裤衩了，第二季很玄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1706#       发表于 2023-9-13 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62315024&amp;ptid=2088657" target="_blank">NeloAngelo 发表于 2023-9-6 19:38</a>
+这…虽然被关进迪斯尼大牢, 但感觉 天国大魔境 热度并不低啊.  在哪都有一定讨论度.  怎么会这么惨
+ ...</blockquote>
+外国人不买BD啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  lucky95  
+##### 1707#       发表于 2023-9-13 22:44
+
+ 本帖最后由 lucky95 于 2023-9-13 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62321161&amp;ptid=2088657" target="_blank">schneehertz 发表于 2023-9-7 12:13</a>
+这种流媒体投资独播的就没打算多卖碟片吧，不是一个市场的
+
+—— 来自 Xiaomi 2203121C, Android 13上的 S1 ...</blockquote>
+要不是有补贴猪社不会这么浪吧，感觉上个十年做体育给番还有几个闭嘴番赚到的钱都丢了进去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  lucky95  
+##### 1708#       发表于 2023-9-13 22:47
+
+港真的猪社PP后基本没啥拿得出手的，想浪一把把自己的名声再抬起来很正常
+
+只希望有第二季了，小众题材是真不可能拿到这么多的资源去讲故事<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  lucky95  
+##### 1709#       发表于 2023-9-13 22:53
+
+雷普放在下一季讲比较合理，这种莫名其妙被雷普然后就什么都没了，真没必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要雷普e站一大堆本，不用看这种拍得不刺激的雷普<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OnePlus CPH2493, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  千恋万花  
+##### 1710#       发表于 2023-9-15 17:01
+
+OST selected vol.1・vol.2 将于 9 月 27 日配信 <blockquote>／
+
+TVアニメ『#天国大魔境』
+
+オリジナル・サウンドトラック 
+
+selected vol.1・vol.2配信決定！✨
+
+＼
+
+9月27日(水) デジタル配信🎧
+
+ #牛尾憲輔 さんが贈る極上の楽曲集✨
+
+音楽でも『天国大魔境』の世界をお楽しみください！</blockquote>
+
