@@ -448,3 +448,36 @@ gr2级别的都能刷，推荐gt500和新出的奥迪dtm
 
 首周北美票房拿了周冠，排片算少的（好几个三线城市都基本没排，比神海排片少很多），这个成绩肯定是赚了
 
+*****
+
+####  我不知道3_3  
+##### 1763#       发表于 2023-9-15 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">GT7这个KERS可以手动设置吗，对于跑耐力赛来说真的很重要，能给我设置充放电行了，不想在飞行圈之前把电都用完
+
+
+*****
+
+####  iou90  
+##### 1764#       发表于 2023-9-15 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62417346&amp;ptid=2027972" target="_blank">我不知道3_3 发表于 2023-9-15 14:48</a>
+
+GT7这个KERS可以手动设置吗，对于跑耐力赛来说真的很重要，能给我设置充放电行了，不想在飞行圈之前 ...</blockquote>
+[https://www.reddit.com/r/grantur ... rs_overtake_button/](https://www.reddit.com/r/granturismo/comments/b6f7xa/you_can_map_kers_overtake_button/)
+
+好像是可以 map 的
+
+
+*****
+
+####  我不知道3_3  
+##### 1765#       发表于 2023-9-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62417454&amp;ptid=2027972" target="_blank">iou90 发表于 2023-9-15 14:56</a>
+
+https://www.reddit.com/r/granturismo/comments/b6f7xa/you_can_map_kers_overtake_button/
+
+好像是可以  ...</blockquote>
+带超越的车就可以通过按键启动，主要是919 TS010和GR010这几个LMP1，就没得设置动能回收和放电的幅度，不知道是不是LMP的规则只能通过控制油门和刹车来决定
+
