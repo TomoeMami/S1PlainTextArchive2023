@@ -7294,3 +7294,733 @@ TV<img src="https://p.sda1.dev/13/3339cf145a20749cf72c8900193a0650/c0df79835f23c
 丢枕头那段笑死 ...</blockquote>
 是的，丢枕头前地上没有灰（轮堂发现真打的手上是干净的），那么就说明没有人从烟囱进入，门窗又是锁着的密室，唯一的解释就是，露易丝和人狼一伙，或者露易丝自己就是人狼。考虑到这么个村子里，家里事先藏一个人狼，可能性并不高。
 
+*****
+
+####  fshzx  
+##### 653#       发表于 2023-9-7 00:35
+
+草啊，这集男女主kiss好瑟啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CHCL3  
+##### 654#       发表于 2023-9-7 00:45
+
+这话做的好，断的地方也过分，没话讲，就是感觉在原作党的基础上来看，有的地方给的线索是不是太多了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+看小说时没注意到劳合社这凯尔怎么是个黑皮男大姐我喷了
+
+
+*****
+
+####  550616  
+##### 655#       发表于 2023-9-7 05:46
+
+最后那段声优演出是认真的吗，笑死了
+
+
+*****
+
+####  red2077  
+##### 656#       发表于 2023-9-7 06:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62262343&amp;ptid=2125379" target="_blank">azbhg1 发表于 2023-9-1 23:38</a>
+本来就很黑了巴哈为什么还会更黑一层啊，这片源怎么拿的，地上波TV都没这么黑两周了已经，根本没法 ...</blockquote>
+我乃最强这个片子巴哈又是亮到离谱，真的无语
+
+*****
+
+####  red2077  
+##### 657#       发表于 2023-9-7 06:58
+
+没太看懂啊，所以画家到底是不是凶手，如果是的话，之前侦查到的信息，怎么不叫村长直接抓人呢
+
+
+*****
+
+####  敏感词好多  
+##### 658#       发表于 2023-9-7 08:23
+
+睡衣静句可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 659#       发表于 2023-9-7 12:19
+
+提到火烧也没用，是不是和上一集开头放火那段能对上？
+
+那个女儿人狼和露易丝好像，说一年半前露易丝一度失踪后来找到了，感觉就是那时候掉包了吧？说是想去画家的家里，结合画家对自己出身说了谎，是不是她也有份？
+
+医生好惨，突然两伙人在自己家上演全武行，桌子椅子杯子全砸了
+
+接吻那段真的色，女仆还吃醋了
+
+画家突然自爆我是没想到，虽然前半段已经感觉她有问题了，战斗力也相当强劲啊
+
+女主惨叫“no————”那句笑死我了，不过女仆为了救女主坠入悬崖了，估计不会死就是了，会不会找到人狼的村子？
+
+
+*****
+
+####  ParadiseMartyr  
+##### 660#       发表于 2023-9-7 13:01
+
+不是都经过试炼了吗还能是人狼。怎么你们都能看出来线索，就我一个看戏纯看了个乐呵？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  azbhg1  
+##### 661#       发表于 2023-9-7 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62318154&amp;ptid=2125379" target="_blank">red2077 发表于 2023-9-7 06:55</a>
+
+我乃最强这个片子巴哈又是亮到离谱，真的无语</blockquote>
+啥，我还以为那片的摄影有点大病，原来其他地方的源很正常吗
+
+
+*****
+
+####  aptx8285144  
+##### 662#       发表于 2023-9-7 13:50
+
+节奏很流畅，这个案件是不是还有内情，感觉没那么简单
+
+*****
+
+####  aptx8285144  
+##### 663#       发表于 2023-9-7 13:51
+
+女仆吃醋笑死我233，这集地狱笑话也不少呀
+
+
+*****
+
+####  新HGCG  
+##### 664#       发表于 2023-9-7 18:59
+
+我觉得画家不是狼人
+
+她变狼的时候所有人都只看到了影子
+
+我觉得是类似无人生还的诡计
+
+她和狼人合作，狼人冒充她离开村子，这样之后她在村里偷偷摸摸做事给狼人打掩护就不会有人怀疑她了
+
+
+*****
+
+####  镜hinata  
+##### 665#       发表于 2023-9-7 19:04
+
+画家变狼人根本就没人亲眼见过
+
+
+*****
+
+####  wolf1997  
+##### 666#       发表于 2023-9-7 19:45
+
+剧情还没正式进入揭晓阶段就迅速接入到人狼村，看来事情没有那么简单
+
+本集分镜的川畑乔也是SHAFT系，记得当年绯弹AA动画化的时候大家还想着又一个SHAFT小将要输出业界了，结果当导演也就此一次，至今仍然是到处打杂的命……
+
+*****
+
+####  cybernetics31  
+##### 667#       发表于 2023-9-7 19:48
+
+肯定不是画师 盲猜是没死的女儿<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TOYSTORY  
+##### 668#       发表于 2023-9-7 19:55
+
+<img src="https://img.saraba1st.com/forum/202309/07/195607sj8wpppq3etnwtpw.jpg" referrerpolicy="no-referrer">
+
+<strong>11_01.jpg</strong> (80.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-7 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202309/07/195607u5sz9eligei5i3vi.jpg" referrerpolicy="no-referrer">
+
+<strong>11_02.jpg</strong> (46.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-7 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202309/07/195608m9pkms18p768mxpk.jpg" referrerpolicy="no-referrer">
+
+<strong>11_03.jpg</strong> (34.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-7 19:56 上传
+
+<img src="https://img.saraba1st.com/forum/202309/07/195608ve6il29rhtt295tr.jpg" referrerpolicy="no-referrer">
+
+<strong>11_04.jpg</strong> (43.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-7 19:56 上传
+
+第11話「狼の棲家」
+
+人狼との戦いで滝に落ちていってしまった静句。目を覚ますとノラ・ヴェラ・カーヤという3人の人狼の少女に助けられていた。一方、ロイスを引き連れ人狼の村を目指す鴉夜と津軽だが、＜夜宴＞も2人の動きを探っていて―――。
+
+                                                
+
+脚本：高木 登　絵コンテ：三浦 唯　演出：平向智子
+
+
+*****
+
+####  acejoe  
+##### 669#       发表于 2023-9-7 20:32
+
+这绝逼影子戏法
+
+
+*****
+
+####  Piano-Forest  
+##### 670#         楼主| 发表于 2023-9-7 21:20
+
+[https://twitter.com/FabienRosado/status/1699495943337292224](https://twitter.com/FabienRosado/status/1699495943337292224)
+
+I had permission to share the 13 LO cuts I did for Undead Girl Murder Farce #10
+
+It was my 1st step in the anime industry, I learnt a lot through the work and through the feedback I got from it
+
+I want to truly thanks people of the production who corrected it ! Will do better 👊🙏
+<img src="https://p.sda1.dev/13/dfa223d02406a8412f63fe3d69b0ea18/SaveTwitter.Net_1699495813238435841_720p_ _1_.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  notromeo  
+##### 671#       发表于 2023-9-7 22:07
+
+kiss那段感觉有点恶心<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">女仆吃醋倒是不错
+
+
+*****
+
+####  oneoutsider  
+##### 672#       发表于 2023-9-7 23:10
+
+那个第三代理人的牛仔装扮有点搞笑，该不会是个搞笑角色吧
+
+
+*****
+
+####  霖星  
+##### 673#       发表于 2023-9-8 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62325816&amp;ptid=2125379" target="_blank">新HGCG 发表于 2023-9-7 18:59</a>
+
+我觉得画家不是狼人
+
+她变狼的时候所有人都只看到了影子
+
+我觉得是类似无人生还的诡计</blockquote>
+当时屋子周围围了一圈的人，狼人跑走后不可能没人检查下屋子的吧
+
+而且就算她当时躲过去了，除非后续村子里还有她的帮手，不然她怎么个偷摸做事，整个村就那么点大那么点人
+
+主要是画家这个自爆突出一个意义不明
+
+*****
+
+####  アルメリア  
+##### 674#       发表于 2023-9-8 00:28
+
+这人狼明显有理智  肯定不是发疯吃人
+
+
+*****
+
+####  仟音一心  
+##### 675#       发表于 2023-9-8 10:14
+
+巴哈的错误翻译
+<img src="https://p.sda1.dev/13/ded26321325732d4858055b8d0051b4c/CMP_20230908101359867.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  t222  
+##### 676#       发表于 2023-9-8 16:47
+
+这剧看了前面几集还挺爽的
+
+
+*****
+
+####  Alicest  
+##### 677#       发表于 2023-9-8 17:33
+
+狼应该是捡来的狼人的女儿吧，一年半之前取代了轮椅妹的位置
+
+
+*****
+
+####  仟音一心  
+##### 678#       发表于 2023-9-8 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62336549&amp;ptid=2125379" target="_blank">Alicest 发表于 2023-9-8 17:33</a>
+狼应该是捡来的狼人的女儿&amp;#x5 ...</blockquote>
+应该就是这样的，所以轮椅妹露易丝早就被替换成人狼了，这次被掳走就是自导自演。
+
+
+*****
+
+####  pockee  
+##### 679#       发表于 2023-9-8 22:48
+
+为啥路易斯和女儿长得几乎一摸一样，不会是巧合吧
+难道是双胞胎，狼妈生产时被偷走了一只
+
+
+*****
+
+####  梦诗歌雪  
+##### 680#       发表于 2023-9-8 23:08
+
+不知该说女仆真爱还是蠢了，为了救一个不死者舍命跳瀑布，人头妹哪怕掉下去了甚至都不会受伤，回头下去捞上来就行，而女仆掉下去真的会寄啊
+
+
+*****
+
+####  米德  
+##### 681#       发表于 2023-9-8 23:40
+
+重看了第九集 狼人躲进塔里有一个镜头是给了狼的 这样基本可以确定10集里小狼的骨头不是女儿的了
+
+
+*****
+
+####  Piano-Forest  
+##### 682#         楼主| 发表于 2023-9-9 01:30
+
+[https://twitter.com/iwamoto_05/status/1697904661221798121](https://twitter.com/iwamoto_05/status/1697904661221798121)
+<img src="https://p.sda1.dev/13/5821a50bd2d1ff0098bc4be8842df3f1/20230909_012657.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/just_kei_/status/1699933990382194783](https://twitter.com/just_kei_/status/1699933990382194783)
+
+3話のレイアウト
+<img src="https://p.sda1.dev/13/513f2aaff54b9c82de4d2ebe2ad6df51/20230909_012700.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/adb2532f58afa542c804192660cd5a0d/20230909_012702.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/07784d52001e0e9b4724786afeb0a86f/20230909_012703.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/08382e91b63945077f8255ab3d3e83c9/20230909_012704.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drzas  
+##### 683#       发表于 2023-9-9 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62340577&amp;ptid=2125379" target="_blank">梦诗歌雪 发表于 2023-9-8 23:08</a>
+ 不知该说女仆真爱还是蠢了，为了救一个不死者舍命跳瀑布，人头妹哪怕掉下去了甚至都不会受伤，回头下去捞上 ...</blockquote>
+是真爱啊，第四本的前传里直接说了爱着女主，当时看到女主被鬼杀了还没复活的时候还想着和她一起死
+
+
+*****
+
+####  フミさん  
+##### 684#       发表于 2023-9-9 12:35
+
+唉 医疗行为<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kwin_  
+##### 685#       发表于 2023-9-9 19:13
+
+狼人那么敏锐的嗅觉，还能认错女儿？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这是bug还是说其实就是别有内情。
+
+
+*****
+
+####  CHCL3  
+##### 686#       发表于 2023-9-9 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62347527&amp;ptid=2125379" target="_blank">kwin_ 发表于 2023-9-9 19:13</a>
+
+狼人那么敏锐的嗅觉，还能认错女儿？这是bug还是说其实就是别有内情。 ...</blockquote>
+别有内情
+
+
+*****
+
+####  Piano-Forest  
+##### 687#         楼主| 发表于 2023-9-10 17:22
+
+／
+
+🪶 #アンファル
+
+Blu-ray＆DVD BOX 情報💿
+
+＼
+
+🪶ジャケットイラスト解禁🕵️‍♀️
+
+ #ラパントラック 描き下ろし✒️
+
+鳥籠使いの3人がBlu-ray＆DVDのジャケットになります🧥
+<img src="https://p.sda1.dev/13/e5e96d19c162a8f3baccfeb1ee030552/20230910_171825.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/d48d2636deefc85360cdbb020d69ed0f/bd_jk.jpg" referrerpolicy="no-referrer">
+
+岩本ゼロゴ 先生描き下ろしミニ色紙
+<img src="https://p.sda1.dev/13/e42705a4da8ed548f497b480cd7ad98b/20230910_171829.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/3b6d04c76a74cee5741d0e68a6cf7a4f/tokuten_klockworxstore.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kwin_  
+##### 688#       发表于 2023-9-11 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62348161&amp;ptid=2125379" target="_blank">CHCL3 发表于 2023-9-9 20:13</a>
+别有内情</blockquote>
+很好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">期待
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  rainsheep  
+##### 689#       发表于 2023-9-11 19:01
+
+保险公司的3、4不会又要垫吧
+
+
+*****
+
+####  orcher1945  
+##### 690#       发表于 2023-9-12 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62369361&amp;ptid=2125379" target="_blank">rainsheep 发表于 2023-9-11 19:01</a>
+
+保险公司的3、4不会又要垫吧</blockquote>
+牛仔妹目前观感还不错，别再死的跟之前的黑皮妹一样惨了，那个口红倪哥赶紧死了去求<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HGCG3  
+##### 691#       发表于 2023-9-14 00:27
+
+啊！啊！啊！静句！不穿衣服！小姐姐们！睡一起！啊啊啊啊啊啊啊
+
+
+*****
+
+####  fshzx  
+##### 692#       发表于 2023-9-14 00:43
+
+好惨的金发女，一出场5分钟都没就死了
+
+
+*****
+
+####  CHCL3  
+##### 693#       发表于 2023-9-14 00:57
+
+这集节奏也太快了我本来预想的是金发妹之死在结尾没想到塞了这么多……明天起来看一下熟肉再看看
+
+
+*****
+
+####  镜hinata  
+##### 694#       发表于 2023-9-14 02:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真扎这就死了啊
+
+
+*****
+
+####  敏感词好多  
+##### 695#       发表于 2023-9-14 03:10
+
+看样子人狼村被杀的女孩和人类村被杀的的女孩应该是被对调了，但这么干是图啥呢，没搞懂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我是大鲨鱼  
+##### 696#       发表于 2023-9-14 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62396649&amp;ptid=2125379" target="_blank">HGCG3 发表于 2023-9-14 00:27</a>
+
+啊！啊！啊！静句！不穿衣服！小姐姐们！睡一起！啊啊啊啊啊啊啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">我想在盛夏把那个橘子味的高冷女仆日出蝉鸣
+
+
+*****
+
+####  天剑流星  
+##### 697#       发表于 2023-9-14 16:37
+
+人狼篇的节奏怎么这么拖沓，这个篇章观感比前两个篇章还要差<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  罗克萨斯  
+##### 698#       发表于 2023-9-14 18:06
+
+如此可爱的金发美少女兽娘就这么没了，太令人心痛了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 699#       发表于 2023-9-14 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62397336&amp;ptid=2125379" target="_blank">敏感词好多 发表于 2023-9-14 03:10</a>
+
+看样子人狼村被杀的女孩和人类村被杀的的女孩应该是被对调了，但这么干是图啥呢，没搞懂 ...</blockquote>
+与其说是对调，不如说是顶替吧，人类村子的女孩子都是被人狼掳走，人狼村的则都是无法辨认面部的尸体。
+
+换句话说都是杀了人类村子的女孩来顶替人狼村的，动机应该是人狼村的女孩子们不想做巫女。
+
+*****
+
+####  敏感词好多  
+##### 700#       发表于 2023-9-14 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405677&amp;ptid=2125379" target="_blank">仟音一心 发表于 2023-9-14 18:35</a>
+与其说是对调，不如说是顶替吧，人类村子的女孩子都是被人狼掳走，人狼村的则都是无法辨认面部的尸体。
+
+换 ...</blockquote>
+人类村子留下的不是残尸吗？人狼村的三个女孩要是逃走了又从哪搞来的那三具残尸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  仟音一心  
+##### 701#       发表于 2023-9-14 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405348&amp;ptid=2125379" target="_blank">罗克萨斯 发表于 2023-9-14 18:06</a>
+
+如此可爱的金发美少女兽娘就这么没了，太令人心痛了</blockquote>
+如果推理成立，那么诺拉应该还没死吧？同样用人类村子的女孩尸体来代替，故意为了给静句制造不在场证明才杀的人，所以等不到下雨的时候就出手了。但是这次居然明明打了两枪（枪声只有一声）却没有破坏面部，为什么呢？
+
+*****
+
+####  仟音一心  
+##### 702#       发表于 2023-9-14 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405737&amp;ptid=2125379" target="_blank">敏感词好多 发表于 2023-9-14 18:43</a>
+
+人类村子留下的不是残尸吗？人狼村的三个女孩要是逃走了又从哪搞来的那三具残尸
+
+—— 来自 S1Fun ...</blockquote>
+尸体可以重复利用吧，下葬后把尸体挖出来再搬回去。
+
+
+*****
+
+####  好much橘  
+##### 703#       发表于 2023-9-14 19:19
+
+这一集看得好紧张，一直在想鸦夜小姐和真打什么时候能来，后面静句能平稳落地开展侦探活动真是松了一口气，但金毛小姐姐又死了……<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+两个案件过两天仔细看看，感觉下一话就是解密篇了，该理理线索了，第13集感觉会是四五方势力打斗的样子。
+
+
+*****
+
+####  霖星  
+##### 704#       发表于 2023-9-15 00:58
+
+人狼篇的剧情胡扯程度怎么比之前的高那么多
+
+
+*****
+
+####  cauchua3  
+##### 705#       发表于 2023-9-15 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405677&amp;ptid=2125379" target="_blank">仟音一心 发表于 2023-9-14 18:35</a>
+与其说是对调，不如说是顶替吧，人类村子的女孩子都是被人狼掳走，人狼村的则都是无法辨认面部的尸体。
+
+换 ...</blockquote>
+人类侧的医生不是验过尸了吗，随便找来的怎么符合死者特征？
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  仟音一心  
+##### 706#       发表于 2023-9-15 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62413057&amp;ptid=2125379" target="_blank">cauchua3 发表于 2023-9-15 09:18</a>
+
+人类侧的医生不是验过尸了吗，随便找来的怎么符合死者特征？
+
+—— 来自 Xiaomi 2112123AC, Android 13上 ...</blockquote>
+人类侧死的都是本人啊肯定符合的，人狼那边基本都是靠气味的吧。
+
+
+*****
+
+####  NamE1esS  
+##### 707#       发表于 2023-9-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62413133&amp;ptid=2125379" target="_blank">仟音一心 发表于 2023-9-15 09:23</a>
+
+人类侧死的都是本人啊肯定符合的，人狼那边基本都是靠气味的吧。
+
+等一下！气味！我明白了！</blockquote>
+前面三个都好说，11集诺拉的尸体没法解释吧，子弹没有直接命中脸部总不至于连脸都不认识吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 708#       发表于 2023-9-15 14:21
+
+这人狼村的人狼和人类太像了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 709#       发表于 2023-9-15 14:24
+
+真扎她们是姐妹关系吗，金发看起来是最聪慧的一个，就这么死了太可惜了，谈话时什么巫女，喝茶，我都差点以为她们不是人狼而是人类了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 710#       发表于 2023-9-15 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405348&amp;ptid=2125379" target="_blank">罗克萨斯 发表于 2023-9-14 18:06</a>
+
+如此可爱的金发美少女兽娘就这么没了，太令人心痛了</blockquote>
+主要还是金发明显三姐妹里最聪慧的一个，好可惜<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 711#       发表于 2023-9-15 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62416371&amp;ptid=2125379" target="_blank">NamE1esS 发表于 2023-9-15 13:22</a>
+
+前面三个都好说，11集诺拉的尸体没法解释吧，子弹没有直接命中脸部总不至于连脸都不认识吧 ...</blockquote>
+这个是唯一我目前还没想通的地方，硬解释的话就是本来就长得很像？
+
+*****
+
+####  aptx8285144  
+##### 712#       发表于 2023-9-15 14:31
+
+女仆和兽娘们围在一起取暖睡觉，可以出本子了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 713#       发表于 2023-9-15 14:31
+
+人狼吃啥啊
+
+
+*****
+
+####  aptx8285144  
+##### 714#       发表于 2023-9-15 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62417139&amp;ptid=2125379" target="_blank">千叶铁矢 发表于 2023-9-15 14:31</a>
+
+人狼吃啥啊</blockquote>
+颇为喜欢喝茶，火炉取暖，还有巫女这种职业，感觉很多习俗已经人类化了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 715#       发表于 2023-9-16 10:48
+
+体感五分钟
+
+没想到人狼的村子和人类的村子发生了完全对称的凶杀案，甚至雨夜这种情况也复刻了，雨夜还可以是为了掩盖气息，但第四次都是非雨夜感觉就是完全故意了
+
+结合这集开头，我怀疑是第九集开头那个小狼对两边进行的报复？
+
+但结合人类那边最后的露易丝大概率不是真死了，人狼这边的诺拉应该也不是？或许是为了逃避那个成为巫女？
+
+另外最后女主在笼子里生无可恋地听男主讲落语笑死我了，按设定这时候是不是应该用日语讲，劳合社那俩岂不是得跟着后面听男主一直用听不懂的语言瞎比比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TOYSTORY  
+##### 716#       发表于 2023-9-16 21:20
+
+<img src="https://img.saraba1st.com/forum/202309/16/212053l550rasqqijag7ds.jpg" referrerpolicy="no-referrer">
+
+<strong>12_01.jpg</strong> (41.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202309/16/212054eloh7hsl3poo0iot.jpg" referrerpolicy="no-referrer">
+
+<strong>12_02.jpg</strong> (45.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202309/16/212054jdm4n1vzsfmvyyvd.jpg" referrerpolicy="no-referrer">
+
+<strong>12_03.jpg</strong> (89.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 21:20 上传
+
+<img src="https://img.saraba1st.com/forum/202309/16/212055ojpxl6fljsumlxpu.jpg" referrerpolicy="no-referrer">
+
+<strong>12_04.jpg</strong> (75.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 21:20 上传
+
+第12話「流れの交わる場所」
+
+ノラが殺害され、静句は犯人として疑われる。一方、鴉夜と津軽は＜夜宴＞のヴィクターに連れられ、ある交換条件を持ち掛けられる。そして人狼村・ヴォルフィンヘーレへとたどり着いた2人は静句と再会し、事件解決へと動く―――。
+
+                                                
+
+脚本：高木 登　絵コンテ：畠山 守　演出：高野やよい
+
+
+*****
+
+####  CHCL3  
+##### 717#       发表于 2023-9-16 21:39
+
+守哥哥果然是负责最后两集啊
+
