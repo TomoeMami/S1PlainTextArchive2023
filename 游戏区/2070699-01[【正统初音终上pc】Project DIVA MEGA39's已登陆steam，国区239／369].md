@@ -2055,3 +2055,18 @@ ns版也是狗屎，要便携不如买个PSV，假如搞个类似大乱斗的息
 反应到游戏里的问题就是复杂谱面会冲键，hold没法切</blockquote>
 我自己试了下，肩键映射键盘。其余维持不变不会冲，当然我是个菜鸡，打不了高难度，你可以试试看，或许有用
 
+*****
+
+####  MobileMeowbot  
+##### 206#       发表于 2023-9-16 14:10
+
+又半价了
+
+<img src="https://img.saraba1st.com/forum/202309/16/141047fj05x4na4lsuzumu.png" referrerpolicy="no-referrer">
+
+<strong>tako.png</strong> (374.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 14:10 上传
+
