@@ -1789,3 +1789,57 @@ JB比较复杂，总之是准备这次泳装月中下个一两井再砸光老王
 
 ....
 
+*****
+
+####  江戸前ルナ  
+##### 17407#       发表于 2023-9-15 19:04
+
+顶一下，这武器和辉夜太吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  (:影子:)  
+##### 17408#       发表于 2023-9-15 21:50
+
+评价：不如石油一根<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不如想想怎么救一下雷霆破碎和夜燕吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usoda  
+##### 17409#       发表于 2023-9-16 09:47
+
+加护做进角色也就算了，现在已经快进到做进武器里了，四字母突出一个“自由”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jxzeroga0  
+##### 17410#       发表于 2023-9-16 10:24
+
+方阵3.0：不要方，让风老王先爽半年
+这次最离谱的还是上限也变词条还能吃加护了
+
+
+*****
+
+####  leeskies  
+##### 17411#       发表于 2023-9-16 13:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">有志变身风老王的可以下井
+
+猫武辉夜武都是up
+
+
+*****
+
+####  はちたや  
+##### 17412#       发表于 2023-9-16 13:28
+
+最近两个池子根本好的不像gbf
+
+我直接一气呵成转成顶配风王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么，你说雷霆破碎，那玩意真不如我手上这一铳一剑吧
+
