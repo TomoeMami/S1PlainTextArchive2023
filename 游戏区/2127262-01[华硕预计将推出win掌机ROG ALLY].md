@@ -4724,3 +4724,10 @@ TESTV 的评测：[https://www.bilibili.com/video/BV1Au4y1z79R](https://www.bili
 我选择两个都留着等新款。有些原生不支持手柄的游戏rog就是玩不了/玩起来非常痛苦的，反之亦然 ...</blockquote>
 嗯暂时打算两个都留着了，SD 我主要拿来玩老游戏，顺便多写几篇文章教程发挥一下它的价值。
 
+*****
+
+####  bypass  
+##### 449#       发表于 2023-9-17 10:01
+
+话说 ROG Ally 接客厅电视，客厅电视 eARC 接回音壁，如果用来串流卧室 PC，能启用回音壁的杜比全景声吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
