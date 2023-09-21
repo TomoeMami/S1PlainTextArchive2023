@@ -3189,3 +3189,44 @@ gpd win mini预售了，可惜不支持2280硬盘
 
 打了整整一年半终于通关了仙剑四，这种分辨率低，不支持手柄，支持键鼠但是不能完全用键盘，迷宫中不支持随时存档的老游戏，很适合 Steam Deck。
 
+*****
+
+####  bypass  
+##### 838#         楼主| 发表于 2023-9-16 15:16
+
+用 Pocket Air 的注意一下：
+
+<img src="https://img.saraba1st.com/forum/202309/16/151654bnxf40e6gng61448.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 15:16 上传
+
+
+*****
+
+####  筒井彩芽  
+##### 839#       发表于 2023-9-18 14:09
+
+现阶段综合考虑性能续航和省心，是不是还是steamdeck最优解。这几天gpdwinmini看着挺好的，但是一看那个外围功耗高的要死，而且gpd一贯的吹得震天响然后小毛病多。
+
+
+*****
+
+####  qqks  
+##### 840#       发表于 2023-9-18 14:30
+
+GPDMINI不知为啥选了个120刷新的高刷屏，纯属脑子有病
+
+
+*****
+
+####  bypass  
+##### 841#         楼主| 发表于 2023-9-18 20:24
+
+Z1芯片版ROG Ally终于到来，游戏性能不如Steam Deck：[https://www.expreview.com/90125.html](https://www.expreview.com/90125.html)
+
+笑死 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
