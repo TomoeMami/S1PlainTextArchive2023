@@ -2979,3 +2979,42 @@ luca的痛苦让她觉得一切都毫无意义，对过于痛苦的人来说根�
 
 ランタン祭り的新闻，边上彗星的新闻，感觉就是在暗示enza版コメティック登场的时间。
 
+*****
+
+####  kria  
+##### 2884#       发表于 2023-9-18 18:21
+
+ 本帖最后由 kria 于 2023-9-18 18:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202309/18/182114pu4vvoeo5hmen95k.jpg" referrerpolicy="no-referrer">
+
+<strong>F5jVdvbbcAAiHnl.jpg</strong> (82.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-18 18:21 上传
+
+<img src="https://img.saraba1st.com/forum/202309/18/182246es99ht2p0itekadu.jpg" referrerpolicy="no-referrer">
+
+<strong>F55bWT1a8AAGCpm.jpg</strong> (89.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-18 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202309/18/182246pynnv1xasst1mnzm.png" referrerpolicy="no-referrer">
+
+<strong>F6DSdT_awAAk-xg.png</strong> (76.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-18 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202309/18/182246jsdv9151e90cewgm.jpg" referrerpolicy="no-referrer">
+
+<strong>F6DRHTMa0AA8jSr.jpg</strong> (87.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-18 18:22 上传
+
