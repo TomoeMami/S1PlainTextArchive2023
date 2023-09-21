@@ -978,3 +978,41 @@ asmr第二弹出了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+*****
+
+####  铁火辉夜  
+##### 91#       发表于 2023-9-18 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一个日服先行的活动下周就上
+<img src="https://cdnimg.gamekee.com/wiki2.0/images/941/2023/9a238a084-cc9d-4fe0-b8c3-3a37aa2779fa.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leina0602  
+##### 92#       发表于 2023-9-18 21:26
+
+哦，官推那个是日服独占新角色吗，我就说韩服好像没见过
+
+
+*****
+
+####  黑上シグマ  
+##### 93#       发表于 2023-9-18 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62451178&amp;ptid=2078383" target="_blank">leina0602 发表于 2023-9-18 21:26</a>
+
+哦，官推那个是日服独占新角色吗，我就说韩服好像没见过</blockquote>
+你说维护公告上那个？韩服肯定有啊
+
+
+*****
+
+####  铁火辉夜  
+##### 94#       发表于 2023-9-18 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62451294&amp;ptid=2078383" target="_blank">黑上シグマ 发表于 2023-9-18 21:40</a>
+
+你说维护公告上那个？韩服&amp;# ...</blockquote>
+是说日服新活动封面上那个吧
+
