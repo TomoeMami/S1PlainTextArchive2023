@@ -965,3 +965,91 @@ C级左右的威胁，一般当地魔王就足够镇压了，赫鲁库里属于�
 
 — from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+*****
+
+####  TR4835  
+##### 1131#       发表于 2023-9-17 23:37
+
+ポー...
+
+
+*****
+
+####  Ditfran  
+##### 1132#       发表于 2023-9-18 00:02
+
+下一话该来人救场了吧
+
+
+*****
+
+####  小黑鱼  
+##### 1133#       发表于 2023-9-18 00:30
+
+<img src="https://p.sda1.dev/13/6dbc9480cc976d4ff56b05ae9c679068/CMP_20230918002901764.jpg" referrerpolicy="no-referrer">
+
+轮回说算是盖棺定论了，看后面如何翻盘了
+
+
+*****
+
+####  瓦米里奥  
+##### 1134#       发表于 2023-9-19 10:08
+
+原来寄生种子是找阿祖借的，越来越好奇本作的时间线了
+
+
+*****
+
+####  如水  
+##### 1135#       发表于 2023-9-19 10:38
+
+阿祖把世界樹當普攻用，然後你現在說是燒命技？
+
+
+*****
+
+####  starring  
+##### 1136#       发表于 2023-9-19 10:59
+
+相信琥珀不会就那样没了，可能只是暂时退场<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天下何人  
+##### 1137#       发表于 2023-9-19 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62455230&amp;ptid=1047361" target="_blank">如水 发表于 2023-9-19 10:38</a>
+
+阿祖把世界樹當普攻用，然後你現在說是燒命技？</blockquote>
+阿祖从勇者杀手变成四天王最弱，说不定就是烧命烧的呢
+
+
+*****
+
+####  姬茧墨  
+##### 1138#       发表于 2023-9-19 11:35
+
+不许打我的琥珀😭
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  东林之石  
+##### 1139#       发表于 2023-9-19 11:42
+
+感觉比赫鲁库好看，特别是琥珀，前作没啥特别喜欢的人物
+
+
+*****
+
+####  azbhg1  
+##### 1140#       发表于 2023-9-19 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62455627&amp;ptid=1047361" target="_blank">天下何人 发表于 2023-9-19 11:09</a>
+
+阿祖从勇者杀手变成四天王最弱，说不定就是烧命烧的呢</blockquote>
+阿祖反而是转法了才多了一堆烧命技能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做个深绿契约书都要烧命
+
