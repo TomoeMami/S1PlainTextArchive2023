@@ -1852,3 +1852,18 @@ syl，新翻唱数据好猛
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+*****
+
+####  夏小筱ss  
+##### 14686#       发表于 2023-9-20 21:40
+
+b站号复活了
+
+
+*****
+
+####  因为你不会  
+##### 14687#       发表于 2023-9-21 00:19
+
+绫总以前b站多少粉来着，看了一眼现在24W<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
