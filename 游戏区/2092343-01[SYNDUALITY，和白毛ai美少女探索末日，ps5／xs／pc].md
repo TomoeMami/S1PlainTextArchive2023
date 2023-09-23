@@ -1197,3 +1197,207 @@ TGS届时直播地址：[https://youtube.com/live/niCpSqXwxRU](https://youtube.c
 
 石川由依（エイダ役）/ 大塚剛央（カナタ役）/ 古賀葵（ノワール役）/ 二見プロデューサー（BNE）/ 松田プロデューサー（BNFW）
 
+*****
+
+####  Piano-Forest  
+##### 115#       发表于 2023-9-19 11:21
+
+ 本帖最后由 Piano-Forest 于 2023-9-19 11:23 编辑 
+
+实机前瞻PV：[https://youtu.be/aiK3naocp9c](https://youtu.be/aiK3naocp9c)
+
+仍需要一定的开发时间
+
+▽開発延期のお知らせ▽
+
+『#SYNDUALITY Echo of Ada』は
+
+皆様のご期待に応えるため
+
+もうしばらく開発にお時間を頂くことになりました。
+
+#TGS2023 での試遊出展を含め
+
+発売前に世界中の皆様に触れていただく機会を検討しております。
+
+引き続き応援のほど宜しくお願い致します。
+<img src="https://p.sda1.dev/13/fed4dca3012e14161a972e7092666140/20230919_111925.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/7f6ed322e6fe90e6e00d9bea666063da/20230919_112235.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 116#       发表于 2023-9-20 14:37
+
+试玩介绍&amp;STAFF访谈
+
+[https://weibo.com/ttarticle/x/m/show#/id=2309404948053076344956](https://weibo.com/ttarticle/x/m/show#/id=2309404948053076344956)
+
+在TGS2023开幕前，A9VG来到了万代南梦宫总部试玩了本作，并采访了本作的制作人二见鹰介先生和游戏总监片冈阳平先生
+
+Fami通：
+[https://s.famitsu.com/news/202309/20317568.html](https://s.famitsu.com/news/202309/20317568.html)
+
+电击：
+[https://youtu.be/vUgwDq1Dsj0](https://youtu.be/vUgwDq1Dsj0)
+[https://dengekionline.com/articles/203074/](https://dengekionline.com/articles/203074/)
+
+
+*****
+
+####  Booorunestud  
+##### 117#       发表于 2023-9-20 15:35
+
+…这实机看着像劝退的，开局loading半分钟
+女鬼设定就是方便，无惯性漂浮穿模，还能在屏幕左边塞一个惊悚大脸
+机设从tv丑到游戏
+评论说像塔科夫，没玩过不知道什么类型
+
+
+*****
+
+####  NeloAngelo  
+##### 118#       发表于 2023-9-20 17:12
+
+[https://blog.ja.playstation.com/ ... ?emcid=or-3r-473942](https://blog.ja.playstation.com/2023/09/20/20230920-synduality/?emcid=or-3r-473942)
+
+本作的时间线位于正在播放的动画《SYNDUALITY Noir》之前，虽然世界观相同，但故事的描绘方式却不同。这个故事的主题是人类和AI之间的差距，AI想要理解人，但人类不理解这一点并寻求更高的效率。这个故事表达了人类和AI之间的差距。
+
+玩家与他的 AI 伙伴 Magus 一起冒险，并依靠 Magus 的建议来完成游戏。这是一款在线 PvPvE 射击游戏，目标是争夺地面物品并返回家园。每位玩家定制一个名为“摇篮棺材”的机甲，并与魔法师协商，以达到夺回AO水晶的目的。
+
+主要模式是“Online Raid”。每个参与的玩家的行动目标都是获得并带回AO水晶，当他们遇到AO水晶时，他们可以使用表情相互交流，也可以攻击并摧毁它们。失败的玩家会失去材料并被对手偷走。Magus分析他遇到的其他玩家并给出建议，比如告诉你你可以感到安全，因为他们是同一个协会的成员，或者警告你他们是多次被杀的危险玩家，这样你就可以决定是否信任他们根据这个来判断是否有。
+
+本作中的摇篮棺材和武器都是消耗品，使用越多，耐用性就越差，维护成本也越高。在探索野外的过程中，你会遇到名为“Enders”的敌人和其他玩家，但目标不是战斗和胜利，而是带回AO水晶和指定材料。通过将它们变成金钱来推进游戏。
+
+当你听到这样的解释时，你可能会想象一款生存射击游戏，在有限的空间里一边争夺补给一边玩 PvPvE。然而，虽然现有的游戏都有有趣的游戏设计，你可以偷取补给并取得优势，但这款游戏的概念是所有游戏风格都有优势，无论是 PvP、PvE 还是合作。根据玩家的行为，他们在游戏中的社会地位以及他们的请求内容和故事情节都会发生变化。此外，仅仅拥有高水平的玩家水平并不一定会给你带来优势，我们引入了一个系统来防止强玩家垄断。这是一个让擅长射击的玩家遭遇逆境的系统，这使得它成为不擅长 PvP 的人应该玩的游戏。
+
+最引人注目的当然是魔术师的存在。每次Magus进行重复出击时，它都会了解玩家的行为倾向和偏好，并积累在场上看到和听到的信息。因此，它提供了各种建议，例如警告采取高风险行为的玩家并推荐高回报的行为。这个机制也是让射击经验很少的玩家能够玩出适当平衡的一个要素。
+
+它也可能因与安德斯或其他玩家的战斗而被摧毁。如果你即将被摧毁，即使你失去了飞机和补给，你也可以随时跳伞（紧急逃生）并与马格斯一起返回。如果你未能成功逃生并被击败，你将与魔法师分开。失踪的魔法师会自行返回基地，但如果不幸被其他玩家捡到，则需要向该玩家支付收集费。虽然在没有魔法师的情况下也可以出击，但你将无法接收操作，HUD显示也会消失，让你在探索中处于不利地位。从这些因素可以看出，游戏设计对Magus的重视程度高于Cradle。
+
+还有一种模式可以让您在单人游戏中享受故事。在《阿玛西亚的调查》中，玩家与魔法师一起前往倒塌的阿玛西亚地下城，收集同样出现在动画中的阿尔巴·库斯和艾达的记录。当你通关这个故事时，各种视频和语音剧将会发布，Amazia崩溃的谜团将会被解开。
+
+
+*****
+
+####  pf67  
+##### 119#       发表于 2023-9-20 18:54
+
+在线pve和pvp？整的什么玩意
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kaolimadepi  
+##### 120#       发表于 2023-9-20 18:58
+
+游戏艾达长这样还有人想和她一起探险吗
+
+
+*****
+
+####  半江瑟瑟半江红  
+##### 121#       发表于 2023-9-20 19:15
+
+什么？又是PVEVP？怎么日厂最近就喜欢这种PVE玩家玩着不爽PVP玩家也玩的不舒服的模式
+卡普空那个机甲打开了恐龙的游戏也是PVEVP给我劝退的
+
+—— 来自 HUAWEI WGRR-W19, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Rainwedell  
+##### 122#       发表于 2023-9-20 19:37
+
+之前就公布了这玩意是p v e v p啊，所以我才奇怪代哥还猛砸钱搞个多企划联动，真觉得这游戏能大卖吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  SchwarzX  
+##### 123#       发表于 2023-9-20 19:39
+
+看访谈说还能绑架别人的老婆赚赎金，这么缺德的玩法是万代哪个天才领导想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NeloAngelo  
+##### 124#       发表于 2023-9-20 20:18
+
+剧情在单人模式, 核心玩法是PvPvE这个奇葩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 看了直感觉万代真有钱, 这种企划也能通过
+
+
+*****
+
+####  HATENA  
+##### 125#       发表于 2023-9-20 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62473850&amp;ptid=2092343" target="_blank">SchwarzX 发表于 2023-9-20 19:39</a>
+
+看访谈说还能绑架别人的老婆赚赎金，这么缺德的玩法是万代哪个天才领导想出来的 ...</blockquote>
+最神奇的不是你的老婆跟剧情主角的老婆还长得一模一样么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就算是量产型ai我觉得也挺那啥的
+
+*****
+
+####  傍观者  
+##### 126#       发表于 2023-9-20 20:39
+
+看了PV，感觉白毛表情好僵硬。
+
+
+*****
+
+####  TriSPD  
+##### 127#       发表于 2023-9-20 22:42
+
+都女鬼了居然不是裸漂，对得起机器人吗
+
+
+*****
+
+####  医生狼多  
+##### 128#         楼主| 发表于 2023-9-20 22:46
+
+今天新消息看下来最大感受：危
+
+
+*****
+
+####  novyDC  
+##### 129#       发表于 2023-9-20 22:54
+
+机甲版的塔科夫
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Evomenon  
+##### 130#       发表于 2023-9-20 23:36
+
+太怪了只能说，分明不是alba和ada的主视角，魂棺和贤士的初始外观却是他们的<img src="https://static.saraba1st.com/image/smiley/face2017/195.png" referrerpolicy="no-referrer">
+
+莫非是开发过程中换了游戏类型？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  格雷殿下  
+##### 131#       发表于 2023-9-20 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲个笑话，财团B的联机游戏
+
+
+*****
+
+####  461757753  
+##### 132#       发表于 2023-9-21 01:27
+
+PVP？感觉要凉
+
