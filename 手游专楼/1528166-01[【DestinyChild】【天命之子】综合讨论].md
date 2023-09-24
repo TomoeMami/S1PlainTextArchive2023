@@ -8507,3 +8507,23 @@ doa还好，一轮stepup就把角色抽全了，至于皮肤就算了，那个�
 
 话说剧情是不是卡在一个很关键的位置了，跟白毛牵了小手再起之后还没找回多少队友，金三角还下落不明呢？
 
+*****
+
+####  澜沫  
+##### 791#       发表于 2023-9-20 17:02
+
+明天关服记得绑邮箱<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  澜沫  
+##### 792#       发表于 2023-9-21 16:50
+
+86a4f394-ec95-4ecf-b573-bcce2cee0a83
+全天子骨灰盒，缺6个小皮肤
+
+—— 来自 OnePlus IN2020, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
