@@ -5576,3 +5576,94 @@ W社二人组技能预览：
 
 突然有点好奇食指的独一会是什么样...拇指倒是能想象出来，一二技能装弹，三技能耗子弹加威力...
 
+*****
+
+####  Jamaisvu  
+##### 355#       发表于 2023-9-15 20:59
+
+ 本帖最后由 Jamaisvu 于 2023-9-15 21:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202309/15/210245mc9ccqwc1edxwxbw.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230915_210224.jpg</strong> (352.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 21:02 上传
+
+9.21的新池子，第十协会Dieci南部四科的罗佳。
+
+Dieci是意大利语的10，看这身打扮像神职人员，不过技能动作更像黑手党...
+
+
+*****
+
+####  Jamaisvu  
+##### 356#       发表于 2023-9-15 21:06
+
+ 本帖最后由 Jamaisvu 于 2023-9-15 21:10 编辑 
+
+另外今天二号线因为bug被关闭一会，七点十五重开的，发了500狂气...
+
+之前有个击破部位后蒸汽机器人有概率回满血的bug，查出来后竟然说9.21再修，我就没碰...其实更想等奥尔佳奥提斯领完后再打的...
+
+
+*****
+
+####  Jamaisvu  
+##### 357#       发表于 2023-9-17 21:18
+
+<img src="https://img.saraba1st.com/forum/202309/17/211457hjbzgrwrvhcbgbrz.jpg" referrerpolicy="no-referrer">
+
+<strong>20230917210828_1.jpg</strong> (171.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-17 21:14 上传
+
+没忍住奖励，找了个便宜阵容打了一遍，熟悉了一下机制，感觉还行。
+
+（如果不是第四圈的时候点了敌方体力debuff，也许最后能压进150...）
+
+<img src="https://img.saraba1st.com/forum/202309/17/211457tucf9sysqiq9tizo.jpg" referrerpolicy="no-referrer">
+
+<strong>20230917211359_1.jpg</strong> (489.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-17 21:14 上传
+
+再抄个黄金大队玩一遍...纽已经剩两位数了，十罗和臼奥到手也养不起来，就这样吧...
+
+
+*****
+
+####  Jamaisvu  
+##### 358#       发表于 2023-9-18 22:44
+
+<img src="https://img.saraba1st.com/forum/202309/18/224147shpeo72qqqs2peqs.png" referrerpolicy="no-referrer">
+
+<strong>eb852d02c5740d634a28d33fcb2fb1441247764479.png</strong> (219.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-18 22:41 上传
+
+十协罗佳技能一览。
+
+344的硬币看起来挺可观的，马上要出的两个三星都是弃牌流，看起来是之后的主推。
+
+应该算是深潜队的盾吧，振动队好像之前削了一下，玫罗是时候退出舞台了...
+
+这家伙如果对2号线有帮助我就抽几发...
+
+
+*****
+
+####  erratic璃月  
+##### 359#       发表于 2023-9-21 13:47
+
+没想到第一个w级ego来的这么快<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+玛玛是yj亲女儿（确信
+
