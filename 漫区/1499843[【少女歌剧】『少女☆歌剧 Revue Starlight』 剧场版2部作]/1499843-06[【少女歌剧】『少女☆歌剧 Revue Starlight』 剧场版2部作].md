@@ -16679,3 +16679,84 @@ mygo官号今天发的那个商店就行
 
 看完火速去团购群里预定了设定集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  nh_zzz  
+##### 8913#       发表于 2023-9-21 13:44
+
+ 本帖最后由 nh_zzz 于 2023-9-21 13:50 编辑 
+
+tgs新图
+🎮 #TGS2023🎮
+TOKYO GAME SHOW2023のブシロードブースでは
+#スタァライト 初のコンソールゲーム「少女☆歌劇 レヴュースタァライト　舞台奏像劇　遙かなるエルドラド」のイメージボードを設置🌊
+さらに「遙かなるエルドラド」が初登場した「劇場版 少女☆歌劇 レヴュースタァライト」を上映中🎥🦒<img src="https://p.sda1.dev/13/9acdbfc38f95ec29ef328f557af110e9/CMP_20230921134444697.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ff111  
+##### 8914#       发表于 2023-9-21 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481540&amp;ptid=1499843" target="_blank">nh_zzz 发表于 2023-9-21 13:44</a>
+
+tgs新图
+
+🎮 #TGS2023🎮
+
+TOKYO GAME SHOW2023のブシロードブースでは</blockquote>
+等等?所以少歌會有續作嗎? 遙かなるエルドラド又是什麼鬼
+
+*****
+
+####  风速前进mo  
+##### 8915#       发表于 2023-9-21 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481657&amp;ptid=1499843" target="_blank">ff111 发表于 2023-9-21 13:54</a>
+等等?所以少歌會有續作嗎? 遙かなるエルドラド又是什麼鬼</blockquote>
+应该是今年冬发售的游戏吧
+
+*****
+
+####  ff111  
+##### 8916#       发表于 2023-9-21 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481686&amp;ptid=1499843" target="_blank">风速前进mo 发表于 2023-9-21 13:57</a>
+
+应该是今年冬发售的游戏吧</blockquote>
+請問是手游嗎?pc端?ps?
+
+*****
+
+####  风速前进mo  
+##### 8917#       发表于 2023-9-21 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481728&amp;ptid=1499843" target="_blank">ff111 发表于 2023-9-21 14:00</a>
+請問是手游嗎?pc端?ps?</blockquote>
+pc端，会上steam，详细的情报翻翻前几页就知道了
+
+
+*****
+
+####  ff111  
+##### 8918#       发表于 2023-9-21 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481753&amp;ptid=1499843" target="_blank">风速前进mo 发表于 2023-9-21 14:01</a>
+
+pc端，会上steam，详细的情报翻翻前几页就知道了</blockquote>
+謝謝!得知這個消息真是太開心了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我還能再燒久一點
+
+
+*****
+
+####  nh_zzz  
+##### 8919#       发表于 2023-9-21 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481793&amp;ptid=1499843" target="_blank">ff111 发表于 2023-9-21 14:04</a>
+謝謝!得知這個消息真是太開心了我還能再燒久一點</blockquote>
+放送科b站账号再生产了，微博剧fes委员会也有搬运消息
+
+简单总结一下
+除了今冬游戏还有12月的同名朗读剧，2024年秋季有新的舞台剧
+最近10.14有齐格飞初中的Live会公布企划新情报，2024也有齐格飞的朗读剧
+
