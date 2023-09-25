@@ -6077,3 +6077,90 @@ NS版专楼为啥我搜不到了</blockquote>
 
 我龙绘美AN来了，钓鱼姥的狂欢。我还以为和岛田闹翻了才迟迟不出呢
 
+*****
+
+####  不灭的旋律  
+##### 705#       发表于 2023-9-14 14:27
+
+DMM活动又来喽，老规矩登陆一次服袋，十次100白嫖点
+[https://games.dmm.com/cp/festival/autumn/](https://games.dmm.com/cp/festival/autumn/)
+
+新活动新卡池钓鱼姥们空军没啊？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alialex  
+##### 706#       发表于 2023-9-14 14:32
+
+大部队还在抽初音呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+和岛田闹翻了是什么情况？
+
+
+*****
+
+####  希望之花  
+##### 707#       发表于 2023-9-15 00:42
+
+笑死，白嫖点all in初音了啥都没有
+
+
+*****
+
+####  xmai  
+##### 708#       发表于 2023-9-17 21:47
+
+最后3票用来单抽，最后一票出了原版初音<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 709#       发表于 2023-9-17 21:55
+
+这是要实装京姐姐了吗？（做梦）
+
+
+*****
+
+####  不灭的旋律  
+##### 710#       发表于 2023-9-19 21:01
+
+按以前的用人倾向女神装置AN睦海的封面和初音联动的视觉图都应该是岛田画的结果不是。现在岛田设计的亲女儿绘美出AN了他只字未提连推都不转了，很难不让人遐想。要知道最近少战和高达GBD新动画的推他都转了的。
+
+这段时间岛田推上狂产文工团的涩图，发文工团线下活动的感想，我看他已经被声优迷痴了已经没心思管AGA了，搞不好金字塔已经打算早点切割去岛田化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 711#         楼主| 发表于 2023-9-19 21:19
+
+现在那条赛道是MYGO的时代了，岛田这是为了民工团苦苦挣扎是扛不住时代洪流的，看他啥时候放念回到阿嘎吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 712#       发表于 2023-9-21 01:54
+
+屮，好像上线时间错过整个20号，没接到天狐天的生日任务，血亏一个装备箱子<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  yygundam  
+##### 713#       发表于 2023-9-22 00:08
+
+8个币而已。。。现在我不常用的角色的生日任务完全懒得做，因为我甚至觉得把这个角色翻出来都很麻烦。
+
+
+*****
+
+####  不灭的旋律  
+##### 714#       发表于 2023-9-22 14:10
+
+追加泳装，新活动FA睦海+爱花。睦海的声优养病养好了？
+
