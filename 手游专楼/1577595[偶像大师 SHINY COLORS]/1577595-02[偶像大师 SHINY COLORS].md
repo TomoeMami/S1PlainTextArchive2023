@@ -3018,3 +3018,14 @@ luca的痛苦让她觉得一切都毫无意义，对过于痛苦的人来说根�
 
 2023-9-18 18:22 上传
 
+*****
+
+####  shadowof  
+##### 2885#         楼主| 发表于 2023-9-23 02:20
+
+[https://lnk.to/LZC-2489](https://lnk.to/LZC-2489)
+
+<img src="https://i.imgur.com/C56vas3.jpg" referrerpolicy="no-referrer">
+
+最近用在斑鳩ルカ身上的白色越来越多了。
+
