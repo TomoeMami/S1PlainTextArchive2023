@@ -1318,3 +1318,43 @@ https://www.bilibili.com/opus/829301688865128480?spm_id_from= ...</blockquote>
 自己去她的推看</blockquote>
 今天再看已经删了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 135#       发表于 2023-9-22 07:07
+
+算是回来了？
+<img src="https://p.sda1.dev/13/86e6cf7dccc7317d77d49e13f05dee83/Image_1695337497612.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  香草味图书  
+##### 136#       发表于 2023-9-22 07:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62488925&amp;ptid=2148134" target="_blank">仟音一心 发表于 2023-9-22 07:07</a>
+算是回来了？</blockquote>
+评论里说了不会发了。看看x上面有没有
+
+—— 来自 HUAWEI LNA-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  粪坑蝶泳  
+##### 137#       发表于 2023-9-22 07:40
+
+太大了并没有美感啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  第七月球  
+##### 138#       发表于 2023-9-22 13:05
+
+怎么这种话题都有美感哥，看个nsfw还给你装上了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
