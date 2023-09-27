@@ -5907,3 +5907,676 @@ PPAP笑死
 通关了，最后的演出非常棒，但是最终boss 战打得还是不够爽
 还是没有拿到蛮族头，穿着鬼神套通关了╮(¯▽¯)╭
 
+*****
+
+####  脑洞  
+##### 15503#       发表于 2023-9-14 11:34
+
+时隔几个月终于有空玩了，目前主线才做了火山和鱼人，
+相比前作，游戏体验最不舒服的是战斗方面变化很大，好像血量没用，我凑了10格血了，石头人一拳打残，地下随便进个猪猪营地，挨两下就死了。
+玩前作的时候，在我挑战人马前，基本没怎么用过林克时间反击，一路对撸，神庙挑战就摆个闪电阵，只有打人马和电的神兽boss才开始练习格斗技术，基本没有因为手残死过，打完架嫌血少就炸自己招一下米法老婆回血。
+玩王泪随便一个猪猪营地都有重来的风险，经常空着血找神庙回，不爱作料理，做料理回的好的好少，不如回家睡一觉，米法老婆不在生活不能自理。
+
+
+*****
+
+####  冷泉夜月  
+##### 15504#       发表于 2023-9-14 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62400468&amp;ptid=1997982" target="_blank">脑洞 发表于 2023-09-14 11:34:09</a>
+时隔几个月终于有空玩了，目前主线才做了火山和鱼人，
+相比前作，游戏体验最不舒服的是战斗方面变化很大， ...</blockquote>该升服装等级了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这次前期难度是比野炊高一点，但是应对策略其实也多很多，战斗时不需要蛮干，活用各种道具和余料还有武器特性，敌人多了就用烟雾蘑菇和混乱花，闪耀果也是好帮手（岩石巨人也吃烟雾蘑菇效果<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+而且元素材料比野炊时更容易获取，上一次龙能薅12个属性龙岩石，冰电武器交替控场随便打<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  a317216007  
+##### 15505#       发表于 2023-9-14 12:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我后期的爱好就是跟人马老师拼刀，看看谁血多
+
+防御不够的话血多也不太能提高容错，想要提升容错还是先把升级服装防御的任务支线做了，升一套标准的60防出来
+
+
+*****
+
+####  nancygreenlife  
+##### 15506#       发表于 2023-9-14 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62400468&amp;ptid=1997982" target="_blank">脑洞 发表于 2023-9-14 11:34</a>
+
+时隔几个月终于有空玩了，目前主线才做了火山和鱼人，
+
+相比前作，游戏体验最不舒服的是战斗方面变化很大， ...</blockquote>
+这作怪物根本不够看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hisousihou  
+##### 15507#       发表于 2023-9-14 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62400468&amp;ptid=1997982" target="_blank">脑洞 发表于 2023-9-14 11:34</a>
+
+时隔几个月终于有空玩了，目前主线才做了火山和鱼人，
+
+相比前作，游戏体验最不舒服的是战斗方面变化很大， ...</blockquote>
+风险高是因为性能过于强而平衡出的脆皮。多利用手头的道具和余料，除了人马，基本都能很轻松地干掉
+
+*****
+
+####  lilod  
+##### 15508#       发表于 2023-9-14 13:41
+
+王泪战斗比野炊好太多了（因为野炊基本可以不战斗
+
+
+*****
+
+####  脑洞  
+##### 15509#       发表于 2023-9-14 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62401938&amp;ptid=1997982" target="_blank">nancygreenlife 发表于 2023-9-14 13:37</a>
+这作怪物根本不够看啊混乱花，烟雾蘑菇，闪光果，炸弹花，各种属性果实，加上绿胶科技，想怎么玩 ...</blockquote>
+烟雾花配戒心是贼好玩，可是不想回地下步行采花<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冷泉夜月  
+##### 15510#       发表于 2023-9-14 14:18
+
+ 本帖最后由 冷泉夜月 于 2023-9-14 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62402158&amp;ptid=1997982" target="_blank">脑洞 发表于 2023-09-14 13:55:36</a>
+
+烟雾花配戒心是贼好玩，可是不想回地下步行采花</blockquote>
+去呀哈哈森林那边拿森民武器（有支线直接送）特性是余料建造的果实素材会在使用之后过几秒就复原，无限烟雾蘑菇偷袭杀法<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  牛奶笛  
+##### 15511#       发表于 2023-9-15 09:11
+
+<img src="https://img.saraba1st.com/forum/202309/15/091047lt6tby1b7v7qtgzb.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230915091014.jpg</strong> (303.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 09:10 上传
+
+<img src="https://img.saraba1st.com/forum/202309/15/091051vf228ddbm82beydt.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20230915091021.jpg</strong> (301.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 09:10 上传
+
+amiibo 11月3日发售，感觉这俩滑翔伞都能夜光
+
+*****
+
+####  冷泉夜月  
+##### 15512#       发表于 2023-9-15 09:16
+
+<img src="https://img.saraba1st.com/forum/202309/15/090812re2uu66hexu46xkz.jpg" referrerpolicy="no-referrer">
+
+<strong>投票1.jpg</strong> (478.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 09:08 上传
+
+<img src="https://img.saraba1st.com/forum/202309/15/090812k11b0lbp060xppbp.jpg" referrerpolicy="no-referrer">
+
+<strong>投票2.jpg</strong> (470.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 09:08 上传
+
+<img src="https://img.saraba1st.com/forum/202309/15/090812i2p27wq0pjf2j9q0.jpg" referrerpolicy="no-referrer">
+
+<strong>投票3.jpg</strong> (513.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 09:08 上传
+
+<img src="https://img.saraba1st.com/forum/202309/15/090812knwztxxwwkz3l7t4.jpg" referrerpolicy="no-referrer">
+
+<strong>投票4.jpg</strong> (556.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-15 09:08 上传
+
+这期法米通除了之前已经公开的访谈外还搞了个投票挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+共1290人参与投票，其中女性5成多，男性4成多，30代玩家占了3成，20代占2成，整体来看年龄层分布还是比较平均的。
+
+已经通关的有67.7%，玩了100小时以上的有77.2%，觉得难度刚刚好的占57.2%，玩过野炊的有9成以上<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+人气投票塞尔达压倒性第一，真正的塞尔达传说<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+怪物里印象最深的果然是瘴气之手，另外大师剑与新式·英杰服也是压倒性人气，左纳乌装置TOP3是风扇·操纵杆·火箭（合理）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nwplsh  
+##### 15513#       发表于 2023-9-15 09:24
+
+操纵杆简直就像魔法，这东西代码不知道咋设计的
+
+
+*****
+
+####  beer  
+##### 15514#       发表于 2023-9-15 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62412956&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-9-15 09:11</a>
+amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
+1.0.0版的时候数据其实就已经有了，在流出了amiibo数据以后可以刷出来
+
+
+*****
+
+####  兰芳园冻柠茶  
+##### 15515#       发表于 2023-9-15 20:56
+
+王泪会出设定集吗？大师之书看的真的很开心
+
+
+*****
+
+####  事象变移机关  
+##### 15516#       发表于 2023-9-16 08:08
+
+我记得之前用扇子向上扇可以把魔像吹上高空摔死，但刚刚试了下不行了。是当成bug修复了吗？
+
+
+*****
+
+####  佐倉綾音.  
+##### 15517#       发表于 2023-9-17 12:32
+
+王泪神庙有所谓正确解法吗？有个神庙是一堆铁条像堆积木一样堆成塔，中间有个宝箱，塔顶有铁球的，正确解法是吸2-3根铁条去通电，然后坐悬浮移动电梯移动过去吸铁球的，，但是我通的时候是歪打正着，乱吸一通碰巧铁球掉下去的一瞬间被我吸住了…，但是我这种歪打正着的解答不是正统解谜吧
+
+
+*****
+
+####  siro1987  
+##### 15518#       发表于 2023-9-17 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62435136&amp;ptid=1997982" target="_blank">佐倉綾音. 发表于 2023-09-17 12:32:36</a>
+王泪神庙有所谓正确解法吗？有个神庙是一堆铁条像堆积木一样堆成塔，中间有个宝箱，塔顶有铁球的，正确解法 ...</blockquote>看访谈神庙都是设计了不止一种解法的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黄泉川此方  
+##### 15519#       发表于 2023-9-17 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王泪神庙的真正难点是找出正规解法
+
+
+*****
+
+####  佐倉綾音.  
+##### 15520#       发表于 2023-9-17 13:05
+
+<blockquote>siro1987 发表于 2023-9-17 12:45
+看访谈神庙都是设计了不止一种解法的
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+不算逃课的话也无所谓了，不过有种强迫症，还是希望按照“正规”的方式过
+
+
+*****
+
+####  chaos7  
+##### 15521#       发表于 2023-9-17 16:24
+
+之前偶然见到讨论说章鱼可以修复武器，还以为章鱼是指某个新NPC，
+
+一直没有看攻略，打了过百小时终于通关了，还想着为什么没遇到可以修复武器的NPC，
+
+今天查了一下，才发现"章鱼"真的指章鱼怪，如果不查攻略，感觉我永远都不知道这个机制。
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holomoon  
+##### 15522#       发表于 2023-9-17 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62436694&amp;ptid=1997982" target="_blank">chaos7 发表于 2023-9-17 16:24</a>
+
+之前偶然见到讨论说章鱼可以修复武器，还以为章鱼是指某个新NPC，
+
+一直没有看攻略，打了过百小时终于通关了 ...</blockquote>
+因为野炊时章鱼哥就能修复锈剑啊
+
+新作大家都会自然而然去试一下
+
+*****
+
+####  kuarwbwe  
+##### 15523#       发表于 2023-9-17 18:21
+
+黄昏里，时林只有七场技能教学的戏份吗？甚至片尾staff列表都没有他的后日谈。是我没全收集错过了什么彩蛋吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 15524#       发表于 2023-9-17 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62437469&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 18:21</a>
+
+黄昏里，时林只有七场技能教学的戏份吗？甚至片尾staff列表都没有他的后日谈。是我没全收集错过了什么彩蛋 ...</blockquote>
+时林已经是死去的人了，没必要眷恋
+
+*****
+
+####  原来如此  
+##### 15525#       发表于 2023-9-17 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62437469&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 18:21</a>
+黄昏里，时林只有七场技能教学的戏份吗？甚至片尾staff列表都没有他的后日谈。是我没全收集错过了什么彩蛋 ...</blockquote>
+什么意思？游戏里没明说那是时林啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  whybelieve  
+##### 15526#       发表于 2023-9-17 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62437469&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 18:21</a>
+黄昏里，时林只有七场技能教学的戏份吗？甚至片尾staff列表都没有他的后日谈。是我没全收集错过了什么彩蛋 ...</blockquote>
+他就只出场七次而已，没有别的彩蛋
+应该说他出现就已经是彩蛋了……
+
+
+*****
+
+####  kuarwbwe  
+##### 15527#       发表于 2023-9-17 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62437660&amp;ptid=1997982" target="_blank">原来如此 发表于 2023-9-17 18:42</a>
+
+什么意思？游戏里没明说那是时林啊
+
+论坛助手,iPhone</blockquote>
+好像是官方出的Hyrule Historia这本书说了勇者之魂是时林。
+
+
+*****
+
+####  牛奶笛  
+##### 15528#       发表于 2023-9-17 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62437469&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 18:21</a>
+
+黄昏里，时林只有七场技能教学的戏份吗？甚至片尾staff列表都没有他的后日谈。是我没全收集错过了什么彩蛋 ...</blockquote>
+有一个墓碑上有写（暗示）时林是怎么死的。在设定书上有明确的骷髅是时林。
+
+
+*****
+
+####  kuarwbwe  
+##### 15529#       发表于 2023-9-17 21:30
+
+顺便吐个槽。时笛和假面是很久以前玩的了，印象很模糊了。剩下的3d塞基本没玩。但黄昏盖的最后一个阶段是真的菜，等他出踢腿侧跳绕背砍砍砍就完事了。最后处决我甚至没啥最后终于把最终boss干掉了的实感。王泪我只用大师剑打的人形盖，对比前辈，招式丰富度、战斗爽快度和战斗交互是确实大幅进步了的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过不是说黄昏盖完全没意思，野兽阶段还挺有意思的。一阶段附身塞尔达打羽毛球我模糊的印象里应该是复刻了时之笛，算普普通通吧。
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15530#       发表于 2023-9-17 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62437469&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 18:21</a>
+黄昏里，时林只有七场技能教学的戏份吗？甚至片尾staff列表都没有他的后日谈。是我没全收集错过了什么彩蛋 ...</blockquote>
+黄昏里时林的后日谈，得去看官方漫画～
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  伊迪潘宫森  
+##### 15531#       发表于 2023-9-17 22:41
+
+<blockquote>kuarwbwe 发表于 2023-9-17 21:30
+顺便吐个槽。时笛和假面是很久以前玩的了，印象很模糊了。剩下的3d塞基本没玩。但黄昏盖的最后一个阶段是真 ...</blockquote>
+纯对砍打不过，五连爆炸花过的
+
+
+*****
+
+####  kuarwbwe  
+##### 15532#       发表于 2023-9-17 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62440113&amp;ptid=1997982" target="_blank">伊迪潘宫森 发表于 2023-9-17 22:41</a>
+
+纯对砍打不过，五连爆炸花过的</blockquote>
+能过啊，我玩自限只用大师剑砍过去的。
+
+*****
+
+####  kuarwbwe  
+##### 15533#       发表于 2023-9-17 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62440038&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-9-17 22:33</a>
+
+黄昏里时林的后日谈，得去看官方漫画～
+
+—— 来自 S1Fun</blockquote>
+行吧，我找找。
+
+
+*****
+
+####  原来如此  
+##### 15534#       发表于 2023-9-18 02:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62438219&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 19:42</a>
+好像是官方出的Hyrule Historia这本书说了勇者之魂是时林。</blockquote>
+对啊，后来设定集里交待的。游戏里没什么收集彩蛋。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  伊迪潘宫森  
+##### 15535#       发表于 2023-9-18 08:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62440199&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-9-17 22:51</a>
+
+能过啊，我玩自限只用大师剑砍过去的。</blockquote>
+我的意思是<strong>我</strong>纯砍打不过<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  冷泉夜月  
+##### 15536#       发表于 2023-9-18 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62442109&amp;ptid=1997982" target="_blank">伊迪潘宫森 发表于 2023-09-18 08:33:41</a>
+我的意思是</blockquote>纯靠大师剑对砍的话不一定非要跟加侬拼林克时间，只要把各种瘴气弹都砍回去也能搞死他，我记得我当时的最后一击就是用回旋斩把一圈瘴气弹全砍回去，还挺解压<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kuarwbwe  
+##### 15537#       发表于 2023-9-18 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62442109&amp;ptid=1997982" target="_blank">伊迪潘宫森 发表于 2023-9-18 08:33</a>
+
+我的意思是我纯砍打不过</blockquote>
+不好意思，理解错了。
+
+
+*****
+
+####  青冥  
+##### 15538#       发表于 2023-9-18 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62413038&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-9-15 09:16</a>
+这期法米通除了之前已经公开的访谈外还搞了个投票挺有意思的
+
+共1290人参与投票，其中女性5成多， ...</blockquote>
+狙神比小舅子只多19票，也算不上碾压吧。
+
+倒是小舅子和露珠差了40+票数有点没想到，
+
+*****
+
+####  冷泉夜月  
+##### 15539#       发表于 2023-9-18 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62443138&amp;ptid=1997982" target="_blank">青冥 发表于 2023-09-18 10:05:43</a>
+狙神比小舅子只多19票，也算不上碾压吧。
+
+倒是小舅子和露珠差了40+票数有点没想到， ...</blockquote>你看右下方有个最喜欢的贤者投票，狙神691票第一，露珠185票第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  liekong  
+##### 15540#       发表于 2023-9-18 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62440038&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-9-17 22:33</a>
+
+黄昏里时林的后日谈，得去看官方漫画～
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一直觉得黄昏漫画的改编有点过火了，又是时林被艾多娜召唤变成守护兽黄金狼、又是黄昏塞尔达有前世时塞记忆什么的，感觉跟游戏本篇不是一回事了
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15541#       发表于 2023-9-18 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62443188&amp;ptid=1997982" target="_blank">liekong 发表于 2023-9-18 10:09</a>
+我一直觉得黄昏漫画的改编有点过火了，又是时林被艾多娜召唤变成守护兽黄金狼、又是黄昏塞尔达有前 ...</blockquote>
+其实黄昏漫画你从嗑CP的角度就特别好理解了，黄昏林和米多娜钦定在一起了，那黄昏塞怎么办呢，就让她觉醒了时塞记忆，圆了时林塞生死不得复见的一个长久的梦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+（虽然这样黄昏塞确实就变成工具人了）
+另外这也不是漫画家拍脑袋的设定，他们和任天堂讨论过，能走这样的故事线也是你任拍板的：
+
+<img src="https://img.saraba1st.com/forum/202309/18/132016thujbdha5m33m14b.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4542.PNG</strong> (872 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-18 13:20 上传
+
+本时林塞党嗑得一本满足！
+（虽然这样黄昏塞真的太太太太工具人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liekong  
+##### 15542#       发表于 2023-9-18 14:15
+
+ 本帖最后由 liekong 于 2023-9-18 14:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62445725&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-9-18 13:21</a>
+
+其实黄昏漫画你从嗑CP的角度就特别好理解了，黄昏林和米多娜钦定在一起了，那黄昏塞怎么办呢，就让她觉醒 ...</blockquote>
+我不喜欢这种设定的原因还是跟基础设定有一定冲突的原因，
+
+毕竟塞尔达的力量继承是靠血缘而不是灵魂转生继承，
+
+在这个设定下，每个塞尔达都是独立的个体，继承记忆就显得很没有道理，甚至很具有误导性
+
+而从磕CP的角度来说，毕竟时林时塞都各自成家有了后代的人，我其实不太喜欢这样，显得他们的原配很可怜......
+
+
+*****
+
+####  whybelieve  
+##### 15543#       发表于 2023-9-18 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62445725&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-9-18 13:21</a>
+其实黄昏漫画你从嗑CP的角度就特别好理解了，黄昏林和米多娜钦定在一起了，那黄昏塞怎么办呢，就让她觉醒 ...</blockquote>
+漫画每作虽然都说和任天堂进行过打ち合わせ，但基本的人设上就和游戏有很大区别，比如更早的时之笛漫画虽然篇幅很短也有过显著的人设更改，原作希克全程都是以塞尔达的个人意志行动，漫画却改成封印记忆暂时归于盖侬麾下，而黄昏公主漫画也有完全原创的“林克是犯了错导致故乡毁灭后从骑士团出逃的”这种背景设定。
+既然具有这样明显的分歧，个人感觉漫画设定更适合作为一种官方au类型的补充阅读，但并不太适合作为真正的“角色后续”来介绍。
+另外就算是漫画也没有钦定过哪一个cp，其实给很多对都发了糖，我觉得更像是一种谁都能获得满足的官方杀必死吧……
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15544#       发表于 2023-9-18 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62447206&amp;ptid=1997982" target="_blank">whybelieve 发表于 2023-9-18 15:20</a>
+漫画每作虽然都说和任天堂进行过打ち合わせ，但基本的人设上就和游戏有很大区别，比如更早的时之笛漫画虽 ...</blockquote>
+道理我都懂，你说漫画不是canon吧，剧情任天堂确实也审核过，凭这一点吊打无数玩家创作；你说它是canon吧，剧情和游戏剧情存在明显矛盾，也有很多额外增加的……我赞成你说的把漫画当作一种补充阅读，但在你任官方放真·后续之前，在不严肃的讨论场合把漫画当相对正经的后日谈我觉得也未尝不可（个人意见哈）。
+我官方漫画也就看过时之笛还有黄昏，给我的感觉就是至少时林塞是钦定的，钦定到把黄昏塞当工具人也要让两个人死后的灵魂再见一面的那种……不过CP党看这些东西本身也有滤镜就是xD
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15545#       发表于 2023-9-18 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62446385&amp;ptid=1997982" target="_blank">liekong 发表于 2023-9-18 14:15</a>
+我不喜欢这种设定的原因还是跟基础设定有一定冲突的原因，
+
+毕竟塞尔达的力量继承是靠血缘而不是灵魂转生继 ...</blockquote>
+嗐，都是可怜人，时林时塞也都是责任放在第一位的人，所以这样玻璃渣里掺糖的CP才好嗑口牙！嗑的点并不是他们在一起而是他们永远没办法在一起，不知道我有没有说明白我的意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+总之黄昏漫画里的处理办法倒是挺戳我萌点的，当然我也很理解你要表达的意思，这也是为啥我一直反对把塞尔达系列，特别是老塞尔达搬上大屏幕的原因……游戏本身的轻剧情性一定会导致编剧加戏，而加的戏也必然会众口难调（比如黄昏漫画里这段，嗑黄昏林塞的估计要疯，坚持游戏原设的人看着也不舒服）……
+嘛，反正漫画严格意义上说不是Canon，但在官方Canon出来前，当个半官方性质的补充篇我觉得还是蛮不错的，至少比B站一堆深黑残解读强不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liekong  
+##### 15546#       发表于 2023-9-18 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62449400&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-9-18 18:12</a>
+
+嗐，都是可怜人，时林时塞也都是责任放在第一位的人，所以这样玻璃渣里掺糖的CP才好嗑口牙！嗑的点并不是 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">那肯定比为黑而黑搞黑深残要强多了，我这种分歧主要还是个人偏好的问题而已
+
+
+*****
+
+####  牛奶笛  
+##### 15547#       发表于 2023-9-19 09:16
+
+希望再来个王国之泪无双。以光荣的尿性，肯定又是穿越if线，至少把索尼娅给救了
+
+
+*****
+
+####  冷泉夜月  
+##### 15548#       发表于 2023-9-19 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62454245&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-09-19 09:16:55</a>
+希望再来个王国之泪无双。以光荣的尿性，肯定又是穿越if线，至少把索尼娅给救了 ...</blockquote>野炊无双因为因为希卡之石是道具可以分享使用，王泪无双劳鲁剁几只手也不够用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  a317216007  
+##### 15549#       发表于 2023-9-19 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">可以做一个塞尔达无双：左纳乌核心，就不用分享老卢手了，分享老卢胶自定义左纳乌机甲载具然后无双猪猪么
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  牛奶笛  
+##### 15550#       发表于 2023-9-19 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62454308&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-9-19 09:23</a>
+
+野炊无双因为因为希卡之石是道具可以分享使用，王泪无双劳鲁剁几只手也不够用啊
+
+  -- 来自 能看大 ...</blockquote>
+应该会在贤者之石上做文章吧，主角团几乎都有石头。没有的普尔亚用新平板，英帕用忍术，感觉这次松达社长也可以操纵。
+
+
+*****
+
+####  beer  
+##### 15551#       发表于 2023-9-19 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62454245&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-9-19 09:16</a>
+
+希望再来个王国之泪无双。以光荣的尿性，肯定又是穿越if线，至少把索尼娅给救了 ...</blockquote>
+确实特别想要无双，可以洗刷五贤者目前的恶名
+
+
+*****
+
+####  chdhdhd  
+##### 15552#       发表于 2023-9-19 12:59
+
+不知道在聊啥。复读一下：我觉得塞尔达搞官方时间线蠢死了。如果马里奥也给个官方时间线，把2d、3d主系列和衍生的rpg、纸马、鬼屋、瓦里奥、派对、高尔夫都排进去，全部设定出前后和平行宇宙分支关系，不知道会怎么样。大概也会有人认真对待吧
+
+
+*****
+
+####  牛奶笛  
+##### 15553#       发表于 2023-9-19 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62456970&amp;ptid=1997982" target="_blank">chdhdhd 发表于 2023-9-19 12:59</a>
+
+看到有人聊黄昏剧情。虽然没人问我，还是想复读一下：我觉得塞尔达搞官方时间线蠢死了。
+
+如果马里奥也给个 ...</blockquote>
+官方搞时间线主要是两个原因，1是欧美民间一直在搞，百家争鸣，官方出来统一一下。放任民间瞎搞，会越来越离谱。2是为了捧天剑。当时25周年，为了增加销量等原因，把天剑故事放在时间线顶点。
+
+事后来看，在天剑发售之后，官方就抛弃了这个时间线，开始开发野炊。官方觉得这玩意只有核心玩家翻阅百科的时候会留意一下，没想到会引发广泛讨论。
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15554#       发表于 2023-9-20 21:57
+
+今天真是峰回路转，首先悲伤地发现欧任已经关停了塞尔达和农叔amiibo的预约通道，然后更加悲伤地发现本地电商不是已经售罄就是加价翻倍卖……
+结果下午随手刷新了下网页，发现另一家最靠谱的电商开了预售！更幸运的是赶在了高铁开车前成功下单，我没想到香港到深圳一路都在地下，垃圾苹果信号差到不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+总之是顺利买到了，了却一桩心事，坐等11月3号了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  冷泉夜月  
+##### 15555#       发表于 2023-9-21 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62475332&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-09-20 21:57:37</a>
+今天真是峰回路转，首先悲伤地发现欧任已经关停了塞尔达和农叔amiibo的预约通道，然后更加悲伤地发现本地电 ...</blockquote>不过看这个风向感觉五贤者的amiibo要凉了，本来有dlc的话正好一起发售像四英杰那样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  iou90  
+##### 15556#       发表于 2023-9-24 00:26
+
+终于通了 加农会回避林克时间里的攻击还挺意外的
+
+
+*****
+
+####  牛奶笛  
+##### 15557#       发表于 2023-9-24 10:06
+
+最近欧美塞学家关于野炊时间线的讨论，又出现了新的流派。之前普遍是认为在战败线之后，但近期藤林接受采访时说“劳鲁所建立的海拉鲁，也许不一定是相同的王国，可能之前有被毁灭的历史”。这种模棱两可的话诞生了新流派。
+
+ 一些人认为劳鲁所建立的海拉鲁，是大地汽笛里的“新海拉鲁”，之前的原始海拉鲁已灭亡。这也解释了为什么劳鲁时代没有大师剑和三角力量，因为在风之杖的结局一起消失了。另一些证据诸如克洛格和利特族是起源于这条线，其他线没有。
+
+总结：劳鲁时代是位于风之杖之后的重新建国，汽笛是位于一万年间的和平年代，野炊王泪位于汽笛的久远之后。新流派有点拆东墙圆西墙的感觉
+
