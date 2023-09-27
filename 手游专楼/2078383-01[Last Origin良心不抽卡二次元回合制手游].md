@@ -1016,3 +1016,12 @@ asmr第二弹出了
 你说维护公告上那个？韩服&amp;# ...</blockquote>
 是说日服新活动封面上那个吧
 
+*****
+
+####  铁火辉夜  
+##### 95#       发表于 2023-9-24 13:20
+
+<img src="https://cdnimg.gamekee.com/wiki2.0/images/w_2560/h_1370/941/366950/2023/8/23/987031.png" referrerpolicy="no-referrer">
+
+四天搞定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
