@@ -3133,3 +3133,140 @@ nico评分虽然有均63左右，但在这季是稳定倒十→稳定倒五→�
 
 这片人设是真好看，被人设吸引来看，但2集过去就撑不住了，弃了
 
+*****
+
+####  灼眼的夏娜酱  
+##### 282#       发表于 2023-9-16 14:55
+
+这一集MV的画面真漂亮。
+
+
+*****
+
+####   匿名
+##### 283#        匿名   发表于 2023-9-17 22:33
+
+动画播出完了，你对这部作品打几分呢，欢迎到鉴赏区参加投票。
+[https://bbs.saraba1st.com/2b/thread-2153177-1-1.html](https://bbs.saraba1st.com/2b/thread-2153177-1-1.html)
+[2023.07][TV.13]幻日夜羽 -镜中晖光-/幻日のヨハネ -SUNSHINE in the MIRROR-/Yohane the Parhelion: Sunshine in the Mirror
+
+
+*****
+
+####  flynnei  
+##### 284#       发表于 2023-9-18 15:42
+
+真的有必要出第二季吗……看年底live如何吧。
+
+只看动画质量的话还是希望企划方及时收手，把资源留点给原本的水团
+
+
+*****
+
+####  ads147147  
+##### 285#       发表于 2023-9-18 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62447520&amp;ptid=2078039" target="_blank">flynnei 发表于 2023-9-18 15:42</a>
+
+真的有必要出第二季吗……看年底live如何吧。
+
+只看动画质量的话还是希望企划方及时收手，把资源留点给原本 ...</blockquote>
+可能会有圣雪厨希望能有第二季复活圣雪吧，反正这么水的脚本，漫画同编剧又正常，那不就是做实导演的锅，代哥换个人弄第二季也不奇怪。
+
+如果演唱会坐的满，出2问题也不大，反正还有星3这个肯定垫底的玩意要拍，怕什么。
+
+
+*****
+
+####  Yeaha123  
+##### 286#       发表于 2023-9-18 18:59
+
+游戏倒是可以买买，看起来像是比较喜欢的银河城
+
+
+*****
+
+####  wolf1997  
+##### 287#       发表于 2023-9-18 19:42
+
+只有最后两集能看
+
+
+*****
+
+####  ads147147  
+##### 288#       发表于 2023-9-18 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">来个控制变量法，中谷滚蛋酒井回来，就能证明谁的锅了
+
+—— 来自 OPPO PGU110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  super_uni  
+##### 289#       发表于 2023-9-18 22:20
+
+可以，碟片就买最后一张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi 23049RAD8C, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 290#       发表于 2023-9-19 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后一集前面有段旁白，真的是听了以后完全没必要看前12集了
+
+
+*****
+
+####  payboy  
+##### 291#       发表于 2023-9-19 23:40
+
+这季设定创新了，但整季故事怎么这么无聊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cmyk1234  
+##### 292#       发表于 2023-9-21 14:07
+
+ 本帖最后由 cmyk1234 于 2023-9-21 14:12 编辑 
+
+【【幻日夜羽 -湛海耀光-】 第二弹介绍视频 [横版pv2](https://b23.tv/0Wc8Dh5)
+新增内容：
+探索八大区域：海底神殿、洞窟、遗迹、海底火山、遇难船、树海、珊瑚礁山、水晶洞窟（洛克人X2水晶蜗牛）。
+九个队友（副武器）的能力演示。
+移动辅助插件：爬墙手套、空中跳跃（可能是鞋子）、水下移动泡泡。
+强化道具：乐谱，使用后播放歌曲《Deep Blue》获得强化效果。
+
+
+*****
+
+####  cmyk1234  
+##### 293#       发表于 2023-9-22 19:06
+
+9月23日15时（北京时间）在“ハピネットゲームフェス！ in TGS2023 リアルステージ生放送！【9月23日】”频道直播《幻日夜羽湛海耀光》游戏专题演出，嘉宾包括高槻かなこ （花丸）、斉藤朱夏 （曜）、鈴木愛奈 （鞠莉）。
+
+https://t.co/VnaGhzHR6M
+
+感想：Inti粉丝可能会失望。
+
+
+*****
+
+####  cmyk1234  
+##### 294#       发表于 2023-9-23 16:44
+
+横版演示的乐谱掉落率明显给高了，正式版有可能下调。
+
+
+*****
+
+####  Piano-Forest  
+##### 295#       发表于 2023-9-25 01:42
+
+<img src="https://p.sda1.dev/13/3446c1d3cd01a52fe5d06042f3621095/20230925_014216.jpg" referrerpolicy="no-referrer">
+
