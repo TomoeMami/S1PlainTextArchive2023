@@ -618,3 +618,40 @@ I tried my best to sing in Korean. I hope it sounds natural!
 死神这个MV凸显一个财大气粗，别人都是翻唱一下抖两下招牌动作完了，calli这个完全是照着做了个翻版。（翻 ...</blockquote>
 版权原作者所有
 
+*****
+
+####  shimmy1996  
+##### 1892#       发表于 2023-9-25 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">bubba也有3d了
+
+
+*****
+
+####  wiig  
+##### 1893#       发表于 2023-9-25 11:23
+
+<img src="https://img.saraba1st.com/forum/202309/25/112331kenha7snw6mvazip.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230925112259.jpg</strong> (48.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 11:23 上传
+
+Buuba POV
+
+
+*****
+
+####  wiig  
+##### 1894#       发表于 2023-9-25 13:55
+
+<img src="https://img.saraba1st.com/forum/202309/25/135519mqq2ux2wftco0uft.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230925135455.jpg</strong> (149.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 13:55 上传
+
