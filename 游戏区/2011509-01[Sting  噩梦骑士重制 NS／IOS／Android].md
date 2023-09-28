@@ -774,3 +774,14 @@ boss rush！！！！！！！！
 
 家里翻出一本以前国内翻印的噩梦骑士团的设定集，自理邮费免费给了，有需要的可以。
 
+*****
+
+####  藤钢剑姬  
+##### 64#       发表于 2023-9-25 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62019587&amp;ptid=2011509" target="_blank">夜之光 发表于 2023-8-14 07:49</a>
+家里翻出一本以前国内翻印的噩梦骑士团的设定集，自理邮费免费给了，有需要的可以。 ...</blockquote>
+**还有么<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
