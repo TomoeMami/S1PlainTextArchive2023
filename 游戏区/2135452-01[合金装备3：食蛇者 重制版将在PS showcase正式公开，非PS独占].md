@@ -1550,3 +1550,52 @@ nationality:コナミjapan
 
 土鳖在合金装备3里形象还行
 
+*****
+
+####  泰坦失足  
+##### 151#       发表于 2023-9-25 10:16
+
+|[Metal Gear Solid: Master Collection Vol. 1 | TGS 2023 Impressions | Switch - YouTube](https://www.youtube.com/watch?v=3GPhkBR9x14)|
+
+Konami居然还专门在TGS展馆里开辟了个MGS区域,还会发售前提供Demo。 NS上MGS2 3只有30FPS有点不满意。虽然当初PC/PS2玩MGS2/3时候连30FPS都没，但是过了这么久了，感觉还是得对自己好点，在Steam Deck上玩算了
+
+<img src="https://img.saraba1st.com/forum/202309/25/101225vtotwfag26dowjgt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (469.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 10:12 上传
+
+<img src="https://img.saraba1st.com/forum/202309/25/101239kc283e299c2t3c9z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (464.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 10:12 上传
+
+<img src="https://img.saraba1st.com/forum/202309/25/101255jpv7gmqhbhpzp8h8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (478.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 10:12 上传
+
+<img src="https://img.saraba1st.com/forum/202309/25/101309h6d2ly3my53l4gxh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (407.91 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 10:13 上传
+
+<img src="https://img.saraba1st.com/forum/202309/25/101354fudai8wo3uiw0zit.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (462.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-25 10:13 上传
+
