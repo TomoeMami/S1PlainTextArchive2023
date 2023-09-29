@@ -1787,3 +1787,1840 @@ RPG的话没必要这么搞吧  真の仲间的血泪教训 就是不知道老
 
 如龙工作室秋季发布会将于9月20日早11点（北京时间）举办，届时将会有 如龙工作室 作品的最新消息。 ​​​
 
+*****
+
+####  byisme001  
+##### 219#       发表于 2023-9-20 11:11
+
+1月就发售和7外离那么近啊
+
+*****
+
+####  Piano-Forest  
+##### 220#       发表于 2023-9-20 11:13
+
+<img src="https://p.sda1.dev/13/9d32445d2727d525beecf4c6c460ed8a/20230920_111310.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 221#         楼主| 发表于 2023-9-20 11:14
+
+<img src="https://p.sda1.dev/13/7b636105e0767c9718409a354822140d/IMG_20230920_111151_513.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  雨翼free  
+##### 222#       发表于 2023-9-20 11:14
+
+这么快<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 223#         楼主| 发表于 2023-9-20 11:20
+
+不会自己和自己打架吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光是sega明年q1就有如龙p3圣兽之王了
+
+*****
+
+####  陈词与芍药  
+##### 224#       发表于 2023-9-20 11:23
+
+<img src="https://img.saraba1st.com/forum/202309/19/232329l8u4ugu9pqp164fu.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5709.PNG</strong> (164.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 11:23 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Demi.Albertini  
+##### 225#       发表于 2023-9-20 11:24
+
+新女角色有点像狭山薰阿……
+
+*****
+
+####  ultraseven  
+##### 226#       发表于 2023-9-20 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62467558&amp;ptid=2082084" target="_blank">医生狼多 发表于 2023-9-20 11:20</a>
+
+不会自己和自己打架吗光是sega明年q1就有如龙p3圣兽之王了</blockquote>
+受众还是很大不同吧
+
+
+*****
+
+####  byisme001  
+##### 227#       发表于 2023-9-20 11:34
+
+山田孝之什么时候才能进如龙宇宙
+
+*****
+
+####  黑修士  
+##### 228#       发表于 2023-9-20 11:35
+
+几个老角色都在，新角色是个出租车司机
+
+*****
+
+####  adw667  
+##### 229#       发表于 2023-9-20 11:36
+
+看到小道消息说春日去夏威夷是去找妈的，我寻思他妈都被沉东京湾了还找个屁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天悬星河  
+##### 230#       发表于 2023-9-20 11:39
+
+遗憾，宁愿得癌症的是横山
+
+*****
+
+####  真岛建设泥头车  
+##### 231#       发表于 2023-9-20 11:39
+
+横山昌义撒的狗血让我得了癌症
+
+*****
+
+####  黑上シグマ  
+##### 232#       发表于 2023-9-20 11:39
+
+癌，这8是给背锅侠送终吗
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  nakedsnake  
+##### 233#       发表于 2023-9-20 11:43
+
+错啦，最后一定是搞出什么特效药把癌症治好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  又花了五块钱  
+##### 234#       发表于 2023-9-20 11:43
+
+背锅侠得癌了？所以说剧情肯定应该是有什么特效药吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+懂了，是jojo7
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  新世界的派蒙  
+##### 235#       发表于 2023-9-20 11:43
+
+新老角色太多了，还要安排新派系，新女角色，新敌人，人物塑造这次铁定是要爆掉了，横山对自己也太自信了.....
+
+作品元素太糅杂，卖点就不明显，结果就是唐突拿出一个“前主角患绝症”当宣传噱头，除了让人难受也没啥作用阿
+
+*****
+
+####  黑修士  
+##### 236#       发表于 2023-9-20 11:46
+
+录屏版预告
+[https://www.bilibili.com/video/BV17P411b7WR](https://www.bilibili.com/video/BV17P411b7WR)
+
+*****
+
+####  TheOccuria  
+##### 237#       发表于 2023-9-20 11:47
+
+这也太近了吧，7外传还没发售呢
+
+*****
+
+####  希克苏鲁伯  
+##### 238#       发表于 2023-9-20 11:49
+
+如果癌症不能康复，那就殴打癌细胞，直到他自己康复
+
+*****
+
+####  喀秋莎450  
+##### 239#       发表于 2023-9-20 11:49
+
+华人黑社会的气质就好像在快手上跳爱河的大哥<img src="https://p.sda1.dev/13/1a0b346681d6100f72d9bb27e8f73b69/CMP_20230920114929610.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cuchulain2021  
+##### 240#       发表于 2023-9-20 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62467970&amp;ptid=2082084" target="_blank">TheOccuria 发表于 2023-9-20 11:47</a>
+这也太近了吧，7外传还没发售呢</blockquote>
+外传11月9
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  clover293  
+##### 241#       发表于 2023-9-20 11:51
+
+明年才是jrpg大年(
+
+*****
+
+####  医生狼多  
+##### 242#         楼主| 发表于 2023-9-20 11:52
+
+《如龙 7 外传 无名之龙》开场动画公开，主题曲为野田洋次郎 x J.I.D合作的《片時》，11 月 9 日登陆 Steam、PS4、PS5、Xbox Series X|S、Xbox One，支持中文。通关《如龙 7》外传后能解锁《如龙 8》特别体验版，收录了 8 代本体中没有的内容。
+
+桐生一马，曾经被称为“传说中的黑道”的男人。为了保护心爱的家人，他隐姓埋名，长久以来栖身于黑暗之中…… 以桐生一马的视角，描写《如龙 6》之后空白时期的系列新作。#如龙#  http://t.cn/A6Ol6Pkr
+
+
+*****
+
+####  抹茶瓜  
+##### 243#       发表于 2023-9-20 11:55
+
+狗血大师横皮尔伯格永远不会让人失望<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 244#       发表于 2023-9-20 11:55
+
+有纱酱有胜熙已经满足了，居然还加了一个女角色，横山开窍了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 245#       发表于 2023-9-20 11:58
+
+泽城竟然还能有出场
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  黑修士  
+##### 246#       发表于 2023-9-20 11:59
+
+滴滴打人模式健在！西部牛仔、热带风情舞者这些新职业看着挺有趣的
+
+*****
+
+####  卡博雷z  
+##### 247#       发表于 2023-9-20 12:00
+
+夏威夷能不能让狭山熏出来啊，看预告纱荣子还没跟春日一块，和桐生一组
+
+*****
+
+####  仰望神的括约肌  
+##### 248#       发表于 2023-9-20 12:01
+
+所以桐生这发型是因为治病导致脱发戴的假发？以后打架避免着凉也不脱衣了 改脱假发 手一挥露出锃光瓦亮的地中海 是不是还得在上面纹点啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 249#       发表于 2023-9-20 12:02
+
+江湖宝贝的玩法也升级了，玩法预告看下来的卖相看着还是不错的
+
+*****
+
+####  星海坊主  
+##### 250#       发表于 2023-9-20 12:03
+
+平时回合，放大招的时候动作
+
+
+*****
+
+####  星海坊主  
+##### 251#       发表于 2023-9-20 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有这真不剧透外传结局么
+
+*****
+
+####  jaicka  
+##### 252#       发表于 2023-9-20 12:04
+
+還真是有狭山熏
+
+*****
+
+####  陈词与芍药  
+##### 253#       发表于 2023-9-20 12:08
+
+ 本帖最后由 陈词与芍药 于 2023-9-20 00:13 编辑 
+
+Xbox已经开预购了，468/518/618
+
+<img src="https://img.saraba1st.com/forum/202309/20/001300tzms16ksh1iqhqza.jpg" referrerpolicy="no-referrer">
+
+<strong>DA262C7D-DDD6-41E1-A056-10E35C32F189.jpg</strong> (583.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 12:13 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  SergeGlenn  
+##### 254#       发表于 2023-9-20 12:09
+
+这个没搞上XGP？
+
+*****
+
+####  Demi.Albertini  
+##### 255#       发表于 2023-9-20 12:11
+
+狭山薰居然是滴滴打人……
+
+
+*****
+
+####  阿布都督  
+##### 256#       发表于 2023-9-20 12:15
+
+这剧情也太狗血了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一次次拉背锅侠出来，还让人家得绝症是吧
+
+*****
+
+####  Soyo  
+##### 257#       发表于 2023-9-20 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">加入中文语音
+
+*****
+
+####  crisisbug  
+##### 258#       发表于 2023-9-20 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468081&amp;ptid=2082084" target="_blank">diectt 发表于 2023-9-20 11:55</a>
+
+有纱酱有胜熙已经满足了，居然还加了一个女角色，横山开窍了？</blockquote>
+关键是还不丑<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  youun  
+##### 259#       发表于 2023-9-20 12:21
+
+完蛋，7的剧情快忘完了，看到剧情都在想这是谁
+
+*****
+
+####  狗屁不通  
+##### 260#       发表于 2023-9-20 12:21
+
+都没法直播的游戏加什么中文语音啊
+
+*****
+
+####  Demi.Albertini  
+##### 261#       发表于 2023-9-20 12:22
+
+这次滴滴打人太豪华了……狭山薰 伊达 俩小雪 秋山 一辉
+
+
+*****
+
+####  天堂大法  
+##### 262#       发表于 2023-9-20 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468443&amp;ptid=2082084" target="_blank">狗屁不通 发表于 2023-9-20 12:21</a>
+都没法直播的游戏加什么中文语音啊</blockquote>
+那照你这个逻辑 这不能直播游戏 还加什么中文啊？<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黑修士  
+##### 263#       发表于 2023-9-20 12:25
+
+中文语音不知道是找湾湾还是国内配的，等个中文配音预告片，不错就首发了
+
+*****
+
+####  禾芙绿豆沙  
+##### 264#       发表于 2023-9-20 12:28
+
+赶紧摇木村拓（
+
+*****
+
+####  s32244153  
+##### 265#       发表于 2023-9-20 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468140&amp;ptid=2082084" target="_blank">卡博雷z 发表于 2023-9-20 12:00</a>
+
+夏威夷能不能让狭山熏出来啊，看预告纱荣子还没跟春日一块，和桐生一组</blockquote>
+出现在滴滴打人
+
+那应该就会有相关支线任务了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Demi.Albertini  
+##### 266#       发表于 2023-9-20 12:31
+
+善熙的色诱好色哦
+
+*****
+
+####  陈词与芍药  
+##### 267#       发表于 2023-9-20 12:33
+
+<img src="https://img.saraba1st.com/forum/202309/20/003307nzc7sj631cuj3h0r.jpg" referrerpolicy="no-referrer">
+
+<strong>4C56B6E3-1991-4475-BE1D-83800D5B2AFF.jpg</strong> (433.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 12:33 上传
+
+<img src="https://img.saraba1st.com/forum/202309/20/003312n0bub2e60yuvemme.jpg" referrerpolicy="no-referrer">
+
+<strong>35817502-2961-47BF-AA87-B9378E2E7B64.jpg</strong> (445.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 12:33 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  狗屁不通  
+##### 268#       发表于 2023-9-20 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468471&amp;ptid=2082084" target="_blank">天堂大法 发表于 2023-9-20 12:24</a>
+那照你这个逻辑 这不能直播游戏 还加什么中文啊？</blockquote>
+别的游戏也就算了，你觉得如龙一个日本黑道游戏在中国除了直播的故意搞效果，有几个人会去用这个中文语音
+
+*****
+
+####  adw667  
+##### 269#       发表于 2023-9-20 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468541&amp;ptid=2082084" target="_blank">s32244153 发表于 2023-9-20 12:29</a>
+出现在滴滴打人
+
+那应该就会有相关支线任务了吧</blockquote>
+相关支线也不会让桐生和狭山见面的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 270#       发表于 2023-9-20 12:35
+
+脑子里响起白银圣经<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蛋头电玩  
+##### 271#       发表于 2023-9-20 12:40
+
+古谷配老头
+
+
+*****
+
+####  Demi.Albertini  
+##### 272#       发表于 2023-9-20 12:44
+
+南希酱都找到女朋友寄居蟹了
+
+*****
+
+####  日日日日日野  
+##### 273#       发表于 2023-9-20 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468584&amp;ptid=2082084" target="_blank">陈词与芍药 发表于 2023-9-20 12:33</a>
+
+—— 来自 S1Fun</blockquote>
+春日一番能穿桐生的衣服，桐生不能穿春日一番的
+
+
+*****
+
+####  三葉Mitsuha  
+##### 274#       发表于 2023-9-20 12:54
+
+游戏里居然都有管人了，就算平时不看管人，只要玩了，也不得不看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  flyzzhj  
+##### 275#       发表于 2023-9-20 12:54
+
+看了视频，像是加了两个女队友？
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 276#       发表于 2023-9-20 12:56
+
+可以控制角色移动了，一下提升到轨迹的高度<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aha  
+##### 277#       发表于 2023-9-20 12:57
+
+[https://twitter.com/famitsu/status/1704354250950840778](https://twitter.com/famitsu/status/1704354250950840778)
+
+『龍が如く8』 ハワイマップは伊勢佐木異人町の3倍の広さでシーリーズ最大に
+
+夏威夷地图是横滨的3倍，估计要重复利用很久了
+
+*****
+
+####  黑修士  
+##### 278#       发表于 2023-9-20 12:59
+
+中文配音到时有这种水平就可以了
+[https://www.bilibili.com/video/BV1A94y1t7fr](https://www.bilibili.com/video/BV1A94y1t7fr)
+
+*****
+
+####  水边井  
+##### 279#       发表于 2023-9-20 13:00
+
+ 本帖最后由 水边井 于 2023-9-20 13:02 编辑 
+
+这回女 优部分总算换实拍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，知道自己女性真人建模烂了是吧
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  diectt  
+##### 280#       发表于 2023-9-20 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468812&amp;ptid=2082084" target="_blank">三葉Mitsuha 发表于 2023-9-20 12:54</a>
+
+游戏里居然都有管人了，就算平时不看管人，只要玩了，也不得不看了</blockquote>
+艹，到时候这楼要不要移到管人区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h1r0  
+##### 281#       发表于 2023-9-20 13:02
+
+这个新女队友感觉像真三国无双里的
+
+*****
+
+####  陈词与芍药  
+##### 282#       发表于 2023-9-20 13:02
+
+这么大的新场景，得找个理由让八神也去一趟
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  你好s1  
+##### 283#       发表于 2023-9-20 13:13
+
+听说Steam锁国区？？？
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  狗屁不通  
+##### 284#       发表于 2023-9-20 13:13
+
+癌细胞可能是橡胶做的，死不了人
+
+
+*****
+
+####  u2deack  
+##### 285#       发表于 2023-9-20 13:16
+
+木村还有没有机会去夏威夷<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡拉德利姆  
+##### 286#       发表于 2023-9-20 13:20
+
+做了中配锁国区？sega得疯的彻底才这样干吧
+
+*****
+
+####  cashhellsing  
+##### 287#       发表于 2023-9-20 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469062&amp;ptid=2082084" target="_blank">u2deack 发表于 2023-9-20 13:16</a>
+木村还有没有机会去夏威夷</blockquote>
+木村退社，或者杰尼斯原地爆炸，现在看好像不远的将来会有一个实现的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zeroboss  
+##### 288#       发表于 2023-9-20 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469013&amp;ptid=2082084" target="_blank">你好s1 发表于 2023-9-20 13:13</a>
+听说Steam锁国区？？？
+
+—— 来自 realme RMX3350, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+这个系列大头在主机上把 估计想卖一波ps版
+
+
+*****
+
+####  ナルバレック  
+##### 289#       发表于 2023-9-20 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469117&amp;ptid=2082084" target="_blank">cashhellsing 发表于 2023-9-20 13:21</a>
+
+木村退社，或者杰尼斯原地爆炸，现在看好像不远的将来会有一个实现的 ...</blockquote>
+木村因为要捧自己两个女儿，目前算是挺忠诚的，而且他号召力太高，对他影响不是很大
+
+*****
+
+####  センコウ  
+##### 290#       发表于 2023-9-20 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468782&amp;ptid=2082084" target="_blank">日日日日日野 发表于 2023-9-20 12:51</a>
+
+春日一番能穿桐生的衣服，桐生不能穿春日一番的</blockquote>
+一番那一身就是錦的，几乎一模一样了
+
+*****
+
+####  山岚夜雨  
+##### 291#       发表于 2023-9-20 13:27
+
+ 本帖最后由 山岚夜雨 于 2023-9-20 13:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469013&amp;ptid=2082084" target="_blank">你好s1 发表于 2023-9-20 13:13</a>
+听说Steam锁国区？？？
+
+—— 来自 realme RMX3350, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+听有些博主说可能是因为商店页出现了"此游戏标记为包含频繁的裸露画面或色情内容"。可能需要世嘉和V社去交涉。 ​​​
+如龙7之前也锁过后面也开了
+
+*****
+
+####  EdSheeran  
+##### 292#       发表于 2023-9-20 13:28
+
+说有中配，所以打架都在骂粗话吗？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi 23049RAD8C,Android 13](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  你好s1  
+##### 293#       发表于 2023-9-20 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469145&amp;ptid=2082084" target="_blank">zeroboss 发表于 2023-9-20 13:23</a>
+这个系列大头在主机上把 估计想卖一波ps版
+
+锁国区的话那可能pc也没中配</blockquote>
+全系列都不锁，为了上pc，审判系列还跟杰尼斯闹掰了，维新极也同步pc，这次上中文配音锁国区？
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑修士  
+##### 294#       发表于 2023-9-20 13:30
+
+又看了遍预告片，赵颠勺炒人，难波御鸽飞行......各种欢乐恶搞不输前作
+
+*****
+
+####  otaku21126  
+##### 295#       发表于 2023-9-20 13:30
+
+很期待
+如龙7有非常本味的JRPG乐趣
+
+*****
+
+####  新世界的派蒙  
+##### 296#       发表于 2023-9-20 13:31
+
+这回合制几乎和前作一样的胡逼，一堆职业全图一乐没有配合一说，b站评论区说这个回合制没深度还有人杠我云，我吐了
+
+*****
+
+####  你好s1  
+##### 297#       发表于 2023-9-20 13:33
+
+听说低价区都锁了，只能寄希望是还没想好定价，不然世嘉纯傻x<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  星海坊主  
+##### 298#       发表于 2023-9-20 13:34
+
+[https://steamdb.info/app/2072450/](https://steamdb.info/app/2072450/)
+
+不是小道消息，就是锁国区
+
+*****
+
+####  ntr8  
+##### 299#       发表于 2023-9-20 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468916&amp;ptid=2082084" target="_blank">陈词与芍药 发表于 2023-9-20 13:02</a>
+
+这么大的新场景，得找个理由让八神也去一趟
+
+—— 来自 S1Fun</blockquote>
+源田法律事务所曝出惊天丑闻 八神作为曾经的当事人卷入舆论风波 连累侦探事务所接不到活 无所事事跑去夏威夷 每天沉迷冲浪不能自拔 后面编不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你好s1  
+##### 300#       发表于 2023-9-20 13:39
+
+<img src="https://img.saraba1st.com/forum/202309/20/133923p14nncmi5ugnun2c.png" referrerpolicy="no-referrer">
+
+<strong>djq.png</strong> (58.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 13:39 上传
+
+ 除了国区，只有这些地区锁了，全是低价区
+
+  所以，感觉还是没想好低价区策略，暂时锁了
+
+
+*****
+
+####  UnrealApartheid  
+##### 301#       发表于 2023-9-20 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469243&amp;ptid=2082084" target="_blank">你好s1 发表于 2023-09-20 13:33:21</a>
+听说低价区都锁了，只能寄希望是还没想好定价，不然世嘉纯傻x v2.5.4</blockquote>目前已知的是中国大陆、俄罗斯、乌克兰、土耳其、印度、哥伦比亚、阿根廷锁区
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黑修士  
+##### 302#       发表于 2023-9-20 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62468814&amp;ptid=2082084" target="_blank">flyzzhj 发表于 2023-9-20 12:54</a>
+
+看了视频，像是加了两个女队友？</blockquote>
+新角色富泽估计和春日老妈那边有亲缘关系，和春日同母异父也说不定。
+
+反正对剧本不抱啥期待，游戏体验够丰富有趣就行。
+
+*****
+
+####  ナルバレック  
+##### 303#       发表于 2023-9-20 13:43
+
+<img src="https://img.saraba1st.com/forum/202309/20/134335d7t72ddh9wz0rted.jpg" referrerpolicy="no-referrer">
+
+<strong>cc11728b4710b912f44585cd85fdfc0392452278.jpg</strong> (31.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202309/20/134336e7hxomnxzotmmeod.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230920134320.jpg</strong> (12.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 13:43 上传
+
+<img src="https://img.saraba1st.com/forum/202309/20/134336llfdphs4flmln4f6.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230920134324.jpg</strong> (20.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 13:43 上传
+
+
+*****
+
+####  山岚夜雨  
+##### 304#       发表于 2023-9-20 13:45
+
+我最关心的是回合制有没有改进，7初玩有趣，但是后面真接不住
+
+*****
+
+####  牙狼GARO  
+##### 305#       发表于 2023-9-20 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469243&amp;ptid=2082084" target="_blank">你好s1 发表于 2023-9-20 13:33</a>
+听说低价区都锁了，只能寄希望是还没想好定价，不然世嘉纯傻x
+
+—— 来自 realme RMX3350, Android  ...</blockquote>
+喷了，本来看新预告片还有点想玩的，这玩尼玛呢**segay
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  septer  
+##### 306#       发表于 2023-9-20 13:47
+
+癌症？
+看8的风格印象，最后还是要包饺子！
+
+*****
+
+####  flyzzhj  
+##### 307#       发表于 2023-9-20 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469343&amp;ptid=2082084" target="_blank">黑修士 发表于 2023-9-20 13:43</a>
+
+新角色富泽估计和春日老妈那边有亲缘关系，和春日同母异父也说不定。
+
+反正对剧本不抱啥期待，游戏体验够 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人会期待横皮尔博格的剧本，游戏够欢乐就行了
+
+*****
+
+####  UnrealApartheid  
+##### 308#       发表于 2023-9-20 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469395&amp;ptid=2082084" target="_blank">flyzzhj 发表于 2023-09-20 13:47:55</a>
+没人会期待横皮尔博格的剧本，游戏够欢乐就行了</blockquote>这次的编剧是古田刚志和竹内一信，横山挂名总导演
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  CCMkIII  
+##### 309#       发表于 2023-9-20 13:51
+
+有一种结局时会有未来人送来癌症治疗药的感觉
+
+*****
+
+####  水边井  
+##### 310#       发表于 2023-9-20 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469227&amp;ptid=2082084" target="_blank">新世界的派蒙 发表于 2023-9-20 13:31</a>
+
+这回合制几乎和前作一样的胡逼，一堆职业全图一乐没有配合一说，b站评论区说这个回合制没深度还有人杠我云 ...</blockquote>
+不就是dq味，还是加了战斗互动的dq11<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冷泉夜月  
+##### 311#       发表于 2023-9-20 13:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starcraft3  
+##### 312#       发表于 2023-9-20 13:56
+
+ 本帖最后由 starcraft3 于 2023-9-20 14:02 编辑 
+
+狭山也50岁了吧 说雪藏就雪藏十几年 现在时间几十年过去了还要拉出来只怕是洋老公都换了几个了 还不如不出场<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黑修士  
+##### 313#       发表于 2023-9-20 13:58
+
+早期购入特典的两个职业是网球和橄榄球运动员
+
+<img src="https://img.saraba1st.com/forum/202309/20/135559s46qn3yyj2muqkru.jpg" referrerpolicy="no-referrer">
+
+<strong>01.jpg</strong> (36.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-20 13:55 上传
+
+*****
+
+####  水边井  
+##### 314#       发表于 2023-9-20 13:59
+
+春日倒是很符合如龙78这种欢乐胡逼风格，背锅侠那苦逼脸怎么看都想象不出赤身裸体站海滩上是什么情景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  抹茶瓜  
+##### 315#       发表于 2023-9-20 14:00
+
+期望下审判3 yagami桑在夏威夷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑修士  
+##### 316#       发表于 2023-9-20 14:10
+
+既然有中配了，卡拉OK应该也是中文唱的。不由想起7代的英配歌曲<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1DD4y1Q7Jk?p=6](https://www.bilibili.com/video/BV1DD4y1Q7Jk?p=6)
+
+*****
+
+####  你好s1  
+##### 317#       发表于 2023-9-20 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469662&amp;ptid=2082084" target="_blank">黑修士 发表于 2023-9-20 14:10</a>
+既然有中配了，卡拉OK应该也是中文唱的。不由想起7代的英配歌曲
+
+https://www.bilibili.com/video/B ...</blockquote>
+中文巫师3的普西拉之歌还是很好听的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  新世界的派蒙  
+##### 318#       发表于 2023-9-20 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469452&amp;ptid=2082084" target="_blank">水边井 发表于 2023-9-20 13:52</a>
+不就是dq味，还是加了战斗互动的dq11</blockquote>
+真不如dq11，dq的必杀条是额外的管理槽，这个共用蓝条，打起来就是喂药，dq的传统坦克说坦就是锁仇恨，这个的警察还是嘲讽几率仇恨，关键是如龙这一堆职业和异度3似的还要刷一堆熟练度，玩得又累又没啥正反馈
+
+*****
+
+####  starrynight  
+##### 319#       发表于 2023-9-20 14:21
+
+7也是古田的剧本我记得，貌似后面全都交给他了
+
+好事情啊
+
+
+*****
+
+####  医生狼多  
+##### 320#         楼主| 发表于 2023-9-20 14:29
+
+锁低价区是世嘉所有新游戏现行的政策，国区被锁估计就是频繁的裸露和色情的标记
+
+*****
+
+####  flyzzhj  
+##### 321#       发表于 2023-9-20 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469750&amp;ptid=2082084" target="_blank">新世界的派蒙 发表于 2023-9-20 14:18</a>
+
+真不如dq11，dq的必杀条是额外的管理槽，这个共用蓝条，打起来就是喂药，dq的传统坦克说坦就是锁仇恨，这 ...</blockquote>
+不如DQ11不是正常的吗？勇者斗恶龙在RPG里也是顶级水平了，哪轮得到如龙碰瓷啊...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 322#       发表于 2023-9-20 14:30
+
+战斗看来就像我说的那样，学黎之轨迹了
+
+
+*****
+
+####  曼陀罗肥  
+##### 323#       发表于 2023-9-20 14:38
+
+只玩过0，7和审判，问一下名越稔洋走了对这系列影响大不
+
+*****
+
+####  炯Ⅺ  
+##### 324#       发表于 2023-9-20 14:40
+
+狭山薰就别再出场了吧，出来了只怕也是喂屎，而且狭山这建模也不太对吧，都十几年过去了，怎么建模还这么嫩？顶着这么一张脸在剧情里出场不对劲吧
+
+—— 来自 Xiaomi 22021211RC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  卡拉德利姆  
+##### 325#       发表于 2023-9-20 14:41
+
+大概是和隔壁卡普空片场联动了，注入了容颜不老病毒
+
+
+*****
+
+####  晓C  
+##### 326#       发表于 2023-9-20 14:46
+
+这怎么就得癌症了·······有这么搞主角的吗，惨了一辈子的人还不给善终了·····<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">特么联动福岛食品本地海产吃多了是吧
+
+*****
+
+####  diectt  
+##### 327#       发表于 2023-9-20 14:53
+
+查了下，桐生是68年生人，狭山薰是81年生人，狭山薰按游戏时间应该是40出头的样子，还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 328#       发表于 2023-9-20 15:02
+
+狭山只怕混血孩子都好几个都上学了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 329#       发表于 2023-9-20 15:11
+
+如龙7是20年5月登录Steam，锁国区。21年2月解锁的，售价389元。
+
+
+*****
+
+####  razielzyc  
+##### 330#       发表于 2023-9-20 15:52
+
+背锅侠也该退休了。7代的大转变我还挺喜欢，这种欢乐虎b风挺合我胃口，看系统和地图，全通怕不是50小时。
+
+
+*****
+
+####  stoiorz  
+##### 331#       发表于 2023-9-20 16:09
+
+看了下低价区没了，那估计得买PS实体碟子了。好想要如龙8的阿根廷价格啊。
+
+
+*****
+
+####  你好s1  
+##### 332#       发表于 2023-9-20 18:04
+
+ 本帖最后由 你好s1 于 2023-9-20 18:07 编辑 
+
+这游戏不可能比2077巫师3博德之门3漏的多啊，人家都能过，除非真人演员这次漏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  smdzh2  
+##### 333#       发表于 2023-9-20 18:51
+
+横皮尔伯格真™恶心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 334#         楼主| 发表于 2023-9-20 19:11
+
+看了下xbox也把低价区干掉了（除了没法买的埃及）
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 335#       发表于 2023-9-20 20:52
+
+癌症也就是个噱头罢了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真有底气把背锅侠写死我倒立吃屎
+
+
+*****
+
+####  尤伽  
+##### 336#       发表于 2023-9-20 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62469878&amp;ptid=2082084" target="_blank">医生狼多 发表于 2023-9-20 14:29</a>
+
+锁低价区是世嘉所有新游戏现行的政策，国区被锁估计就是频繁的裸露和色情的标记 ...</blockquote>
+大概不是，我之前解除了仅限成人的偏好限制，能在国区商店搜到纳迪亚之宝都搜不到龙8，估计就是世嘉自己的行为<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 337#         楼主| 发表于 2023-9-20 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62474755&amp;ptid=2082084" target="_blank">尤伽 发表于 2023-9-20 21:01</a>
+大概不是，我之前解除了仅限成人的偏好限制，能在国区商店搜到纳迪亚之宝都搜不到龙8，估计就是世嘉自己 ...</blockquote>
+世嘉专门找了一大堆大小kol搞转发如龙中配新闻抽奖，连平常微博三四个回复的steam打折情报之类的都找了，你说他闲着蛋疼自己锁国区吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  尤伽  
+##### 338#       发表于 2023-9-20 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62474896&amp;ptid=2082084" target="_blank">医生狼多 发表于 2023-9-20 21:17</a>
+
+世嘉专门找了一大堆大小kol搞转发如龙中配新闻抽奖，连平常微博三四个回复的steam打折情报之类的都找了， ...</blockquote>
+前面楼里不是有老哥分析了吗，低价区都没上，可能是世嘉还没想好怎么定价吧，鬼知道世嘉在搞什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 339#         楼主| 发表于 2023-9-20 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62474981&amp;ptid=2082084" target="_blank">尤伽 发表于 2023-9-20 21:27</a>
+前面楼里不是有老哥分析了吗，低价区都没上，可能是世嘉还没想好怎么定价吧，鬼知道世嘉在搞什么 ...</blockquote>
+我不也说了吗，低价区没上是世嘉从索尼克超级巨星开始起的政策，那之后国区就是最低价了，包括索尼克和p3re<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山岚夜雨  
+##### 340#       发表于 2023-9-20 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62471152&amp;ptid=2082084" target="_blank">stoiorz 发表于 2023-9-20 16:09</a>
+看了下低价区没了，那估计得买PS实体碟子了。好想要如龙8的阿根廷价格啊。 ...</blockquote>
+不可能了，日厂早明白过来阿根廷价格现在比国区没有任何优势
+
+
+*****
+
+####  石中剑二  
+##### 341#       发表于 2023-9-21 01:40
+
+我在ps4上玩的jrpg味儿最正的游戏一个是dq11另一个就是如龙7
+
+
+*****
+
+####  starcraft3  
+##### 342#       发表于 2023-9-21 04:11
+
+杏树用的是本人脸模吗 感觉有点像但是又不完全像
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  一个陆仁贾  
+##### 343#       发表于 2023-9-21 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62477173&amp;ptid=2082084" target="_blank">starcraft3 发表于 2023-9-21 04:11</a>
+杏树用的是本人脸模吗 感觉有点像但是又不完全像
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 S1Next-鹅 ...</blockquote>
+<img src="https://p.sda1.dev/13/9678ce5a5014691425489953f96abd52/CMP_20230921082440552.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/41be24a24188ffe462f7a5fa5d763fba/CMP_20230921082440626.jpg" referrerpolicy="no-referrer">
+同感，像又不像，不过感觉还是比之前系列里面的女角色好不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  EdSheeran  
+##### 344#       发表于 2023-9-21 08:36
+
+这次的小游戏突出一个量大管饱啊，看着都好有趣，7代沉迷开公司
+
+----发送自 [Xiaomi 23049RAD8C,Android 13](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  医生狼多  
+##### 345#         楼主| 发表于 2023-9-21 09:28
+
+《如龙8》Steam国区页面解锁，2024年1月26日发售，支持中文字幕和中文语音。预购价格标准版¥349，豪华版¥389，究极版¥459。
+
+【豪华版 套装内容】《人中之龙8》正篇、终极度假包
+【究极版 套装内容】《人中之龙8》正篇、终极度假包、服装组合包、江湖宝贝对决&amp;太鼓岛全套优惠包、BGM变更道具“CD”卡拉OK音乐全曲包
+【预购特典内容】■轻松培养加速包 ■特殊职业套装
+
+
+*****
+
+####  少年的深渊  
+##### 346#       发表于 2023-9-21 09:40
+
+看完两个预告有点想入首发了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">如龙7玩的超爽超满足的
+
+
+*****
+
+####  byisme001  
+##### 347#       发表于 2023-9-21 10:02
+
+不知道7外和8有没有简易赚钱方法，维新赚钱要没有虚幻引擎祖传赛鸡bug就太难了，结果后来bug
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 348#       发表于 2023-9-21 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62478373&amp;ptid=2082084" target="_blank">少年的深渊 发表于 2023-9-21 09:40</a>
+看完两个预告有点想入首发了怎么办如龙7玩的超爽超满足的</blockquote>
+玩法目前看就是7的超级plus，喜欢7的玩法就首发呗。
+
+*****
+
+####  牛奶笛  
+##### 349#       发表于 2023-9-21 10:19
+
+国区解锁了。
+
+
+*****
+
+####  Demi.Albertini  
+##### 350#       发表于 2023-9-21 10:38
+
+预购也不说打个折……
+
+*****
+
+####  wyy123  
+##### 351#       发表于 2023-9-21 10:41
+
+ 本帖最后由 wyy123 于 2023-9-21 10:43 编辑 
+
+原本不想入8代，不太喜欢rpg模式，但看预告还不错，小游戏挺有意思，地图能去海外。就等psn港服开预购了。
+
+*****
+
+####  starrynight  
+##### 352#       发表于 2023-9-21 10:43
+
+港服不知道多少钱，加上现在港币汇率直逼1：1，有点方
+
+
+*****
+
+####  真岛建设泥头车  
+##### 353#       发表于 2023-9-21 10:44
+
+psn港服有得等等了，之前7外传比steam晚了感觉有一个多月才上预购
+
+
+*****
+
+####  安瓦尔阿明  
+##### 354#       发表于 2023-9-21 11:02
+
+新的女队友比绘里捏得像人就算胜利……
+
+
+*****
+
+####  starrynight  
+##### 355#       发表于 2023-9-21 11:18
+
+确实换龙引擎之后，女性角色的样貌水准在慢慢上升
+
+*****
+
+####  ナルバレック  
+##### 356#       发表于 2023-9-21 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62479836&amp;ptid=2082084" target="_blank">starrynight 发表于 2023-9-21 11:18</a>
+
+确实换龙引擎之后，女性角色的样貌水准在慢慢上升</blockquote>
+第一个换的是维新极吧
+
+*****
+
+####  czxiang_0  
+##### 357#       发表于 2023-9-21 11:23
+
+你们非得把锅侠玩死才开心是吧<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/13/8517bb3a69e0a9d78702461c139d179f/CMP_20230921112209854.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  猪突猛进  
+##### 358#       发表于 2023-9-21 11:29
+
+Steam虽然给出了价格但是没有做购买链接，点加入购物车是空的，也太草台了。
+
+*****
+
+####  byisme001  
+##### 359#       发表于 2023-9-21 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62479891&amp;ptid=2082084" target="_blank">ナルバレック 发表于 2023-9-21 11:22</a>
+第一个换的是维新极吧</blockquote>
+维新极是虚幻4，第一个龙引擎是6
+
+
+*****
+
+####  HellMaster  
+##### 360#       发表于 2023-9-21 12:11
+
+别的不说，这送汉堡游戏不就是原来疯狂出租车改的么……
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 361#       发表于 2023-9-21 12:33
+
+站在同伴身边攻击发动协击，好轨啊
+
+
+*****
+
+####  你好s1  
+##### 362#       发表于 2023-9-21 12:44
+
+<img src="https://img.saraba1st.com/forum/202309/21/124156fy8mf8fhoifhhhx5.png" referrerpolicy="no-referrer">
+
+<strong>sbs.png</strong> (175.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-21 12:41 上传
+
+[@kazuma](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=9025) 别搁这恶心人偷偷扣鹅，不服我就贴出我PSN和Steam都有如龙全系列<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萌二  
+##### 363#       发表于 2023-9-21 13:37
+
+怎么还有管人 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个管人什么来头
+
+
+*****
+
+####  黑修士  
+##### 364#       发表于 2023-9-21 13:58
+
+TGS试玩
+[https://www.bilibili.com/video/BV1dk4y1F7qf](https://www.bilibili.com/video/BV1dk4y1F7qf)
+
+
+*****
+
+####  蓝雉  
+##### 365#       发表于 2023-9-21 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481447&amp;ptid=2082084" target="_blank">萌二 发表于 2023-9-21 13:37</a>
+怎么还有管人 这个管人什么来头</blockquote>
+到时候开盒剧情揭晓，是我久米哒！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kevinausting  
+##### 366#       发表于 2023-9-21 14:13
+
+不知道deck能不能跑动这游戏
+
+
+*****
+
+####  ナルバレック  
+##### 367#       发表于 2023-9-21 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481447&amp;ptid=2082084" target="_blank">萌二 发表于 2023-9-21 13:37</a>
+
+怎么还有管人 这个管人什么来头</blockquote>
+反派的马甲，大概率的
+
+<img src="https://img.saraba1st.com/forum/202309/21/141304j5yy4yr4tryyr6tg.jpg" referrerpolicy="no-referrer">
+
+<strong>20f9bb7eca8065381a4ede20d1dda144ac348243.jpg</strong> (52.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-21 14:13 上传
+
+这个宣传图是在明示谁是反派吗...
+
+
+*****
+
+####  黑修士  
+##### 368#       发表于 2023-9-21 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62481916&amp;ptid=2082084" target="_blank">ナルバレック 发表于 2023-9-21 14:14</a>
+
+反派的马甲，大概率的
+
+这个宣传图是在明示谁是反派吗...</blockquote>
+出租车司机是队里的可操作角色。
+
+剧情里开局就坑了春日，但从预告片来看春日拿他当兄弟。
+
+
+*****
+
+####  nagamasa  
+##### 369#       发表于 2023-9-21 14:42
+
+所以steam上的7优化怎样，想预购看到有D加密有点慌<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  你好s1  
+##### 370#       发表于 2023-9-21 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62482261&amp;ptid=2082084" target="_blank">nagamasa 发表于 2023-9-21 14:42</a>
+所以steam上的7优化怎样，想预购看到有D加密有点慌</blockquote>
+d加密哪有那么可怕，7代Steamdeck都能玩
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nagamasa| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  nagamasa  
+##### 371#       发表于 2023-9-21 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62482295&amp;ptid=2082084" target="_blank">你好s1 发表于 2023-9-21 14:44</a>
+
+d加密哪有那么可怕，7代Steamdeck都能玩
+
+—— 来自 realme RMX3350, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">好，那我放心买了
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 372#       发表于 2023-9-21 23:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">豪华版的这个终极度假包包含什么东西，是武器素材之类的吗
+
+
+*****
+
+####  你好s1  
+##### 373#       发表于 2023-9-22 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62487925&amp;ptid=2082084" target="_blank">桥洞底下盖小被 发表于 2023-9-21 23:53</a>
+豪华版的这个终极度假包包含什么东西，是武器素材之类的吗</blockquote>
+反正我看Steam页面，完全不懂都是啥玩意，感觉只买普通版就行，预购送两个职业，但是现在还买不了，只有价格，感觉世嘉真草台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  你好s1  
+##### 374#       发表于 2023-9-22 01:29
+
+原来早就有人发过中文配音了，我之前以为是up主自己配着玩的【《人中之龙8》中文配音先导影片 Like A Dragon 8 Infinity Wealth-Reveal Trailer Chinese Version-哔哩哔哩】 https://b23.tv/FMqw9Gl
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ナルバレック  
+##### 375#       发表于 2023-9-22 10:15
+
+A9独家采访，横山说的简直让人无力吐槽
+
+*****
+
+####  曼彻斯特联  
+##### 376#       发表于 2023-9-22 10:17
+
+难受，宁愿得癌症的是横山。
+
+
+*****
+
+####  新世界的派蒙  
+##### 377#       发表于 2023-9-22 10:45
+
+这爆气即时制咋用的六代王八拳阿，毫无操作感打得还累，比起黎轨的即时制清杂设计差远了
+
+
+*****
+
+####  冷泉夜月  
+##### 378#       发表于 2023-9-22 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62488466&amp;ptid=2082084" target="_blank">你好s1 发表于 2023-09-22 01:29:35</a>
+原来早就有人发过中文配音了，我之前以为是up主自己配着玩的【《人中之龙8》中文配音先导影片 Like A Drago ...</blockquote>这个不是官方中配，就是他们配着玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 379#       发表于 2023-9-22 11:17
+
+横山说桐生的生活是整个系列之中最快乐的，感觉是快活够了然后“在众人的簇拥下死去”，写得好的话还能接受。
+
+*****
+
+####  stoiorz  
+##### 380#       发表于 2023-9-22 11:18
+
+<img src="https://img.saraba1st.com/forum/202309/22/111744sgw0rregj0gb5xcd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-22 11:17 上传
+
+埃及区貌似是个新低价区？
+
+*****
+
+####  桥洞底下盖小被  
+##### 381#       发表于 2023-9-22 11:19
+
+中之龙工作室在本周召开了「RGG Summit Fall 2023人中之龙工作室新作发布会」，并公开了《人中之龙7 外传 无名之龙》和《人中之龙8》的大量新情报。
+
+在随后的TGS 2023东京电玩展上，我们采访了人中之龙工作室代表·制作总指挥 横山昌义、系列主制作人 阪本宽之、系列主监督 堀井亮佑 先生，主要询问了关于《人中之龙8》最新宣传片放出之后的相关问题。以下是采访详情。
+【关于《人中之龙8》】
+
+——首先想问问大家关心的剧情方面，最新宣传片中公开了桐生一马得了癌症这件事让大家非常震惊。桐生这一生背了很多锅，老了以后还得了癌症，这样的设定对他来说是不是太残忍了?
+横山：我们在塑造桐生的人生经历时是按照普通人的经历去塑造的，从《人中之龙6》开始遇到孩子出生、抚育孩子到现在自然生病等等，其实都是普通人在生命中有可能遇到的事，是一种自然的人生变化。桐生已经五十多岁了，对他这个年龄的人来说生病也不算一个很令人震惊的事吧，并不是说特别想让他经历这么多悲剧来欺负他。
+
+——很多玩家都希望在《人中之龙8》或今后的作品里给桐生一个美好的结局，制作组有意向给他一个大团圆之类的结局吗?
+横山：我对于Happy Ending有些属于自己的想法，大家预设的一些完美结局对我来说并不是快乐的Happy Ending，我觉得一个人从出生到死亡，中间的一系列经历是否圆满才是决定一个人是不是快乐的结局。在最新预告片里提到了“这是世界上最倒霉却又最快乐的一群人”，虽然他看上去非常悲惨，但在我心中《人中之龙8》里描绘的桐生的生活是整个系列之中最快乐的。
+
+——我注意到在TGS的世嘉展位中有放出一张《人中之龙8》的视觉图，它以达芬奇的《最后的晚餐》为主题而设计，将《人中之龙8》的角色们都放在了里面。这是否是在暗示游戏的剧情会和这幅画有关系，比如有的人是叛徒、有的人会死亡之类。
+横山：这幅《最后的晚餐》我们其实做了好几个版本，一些人的位置在每个版本中都会有一些不同，希望大家以这张图为线索去猜测一下故事会发生什么，来期待新作的发售。
+
+——既然本作的舞台来到了美国夏威夷，而狹山薰此前也前往了美国，那么她除了在本作的战斗召唤帮手环节出场之外，还有没有其它的登场机会?
+横山：保密。当然我一说保密大家就会有各种联想，昨天的故事预告片里放出了一部分主线剧情，她没有在这预告片里出现就说明了她不会在主线剧情里登场。可以期待她在其它方面出现。
+
+——异人町和夏威夷在《人中之龙8》故事中所占的各自比例大概是多少?
+横山：本作没有将哪个舞台设定为主舞台，随着故事流程进行，我们会前往不同的舞台。由于夏威夷是全新的舞台所以会包含很多新要素，以及和当地特色结合的新内容，这些内容会非常丰富。
+
+——最新预告中可以看到春日一番等人的剧情非常快乐阳光，但桐生和真岛的剧情部分看起来比较落魄悲凉，剧情上是刻意这样设计两人的情绪对比的吗?这种对比是不是可以体现出新老两代黑道的交替?
+横山：故事方面并不是春日一番的部分特别欢乐和桐生真岛部分会悲惨阴暗，其实是人物性格方面有差异，桐生的性格会比较认真，所以看起来和春日有很大区别。
+
+——除了已公布的这些职业，还有其他没公布的职业吗?你们在选择职业的时候是怎样考量的，是以搞笑为主还是说希望加入一些平常很少见的职业?
+堀井：除了已公开的职业之外还有很多新职业，包括7代中人气比较高的职业也会加入8代。这次舞台加入了夏威夷，所以也会考量一些能联想到夏威夷特色的职业，然后再思考这些职业会有什么特殊的战斗模式和比较有趣的游玩要素。
+
+【关于《人中之龙》系列】
+
+——今年内发售了 《人中之龙维新! 极》，还有即将在年内发售的《人中之龙7 外传 无名之龙》，该系列今年的动作让人应接不暇，促成这种频率推出新作的理由是什么?
+横山：其实最初没有计划做《人中之龙7 外传 无名之龙》，我们在开发《人中之龙8》的过程中觉得需要补完桐生从6代到8代的经历，于是才开始了《7外传》的制作计划，整个开发时间大概也就半年多。大家可能觉得《7外传》和《8》合在一起发售就行，但从游戏的容量、价格设定等方面考量，将这两部作品合在一起会非常困难。所以与其说我们是以很快的节奏推出新作，不如说《7外传》是一个意外产物。
+
+——《人中之龙8》已经走出了日本来到海外地区，这是系列今后的发展方向吗?
+横山：目前还没有考虑这些。这次选择夏威夷是因为春日一番的寻母记，如果他母亲在日本的话势必会被黑道追杀，她的逃亡地必须设置在海外。如果选择一个有很多日本人而又不会让人觉得有违和感的地方，所以我们最终选择了夏威夷。如果今后的故事没有类似的发展的话，我们就不会选择海外作为舞台，一切还是要以故事为主。
+
+——《人中之龙》最初以针对日本市场开发的作品被人熟知，现如今的受众已经扩展到了世界范围，促成这种改变的主要原因是什么?
+堀井：很高兴能受到很多海外粉丝的喜欢，但我们在制作过程中没有特别考虑是否要加入海外粉丝喜欢的要素，而是以我们感兴趣和兴奋的方面为主去开发游戏，所以《人中之龙》系列才会有属于自己的风格。
+
+——从正传到外传再到《审判之眼》系列，人中之龙工作室应该非常忙，请问制作组内是如何平衡各个项目的?
+横山：其实都是同一个开发团队在做游戏，所有项目都是同时进行的。
+
+——《人中之龙》系列对于现实社会现象有很多映射，剧本团队在构思故事时是如何处理游戏剧情和现实社会事件的关系呢?
+横山：我们在构思作品时想要反映现在社会上正在发生的事情，但是游戏开发需要好几年的时间，所以我们通常会预设类似三年之后世界会变成什么样的前提来构思，我们比较厉害的一点是这些预测往往都会正确，所以大家会觉得《人中之龙》游戏和现实有着映射关系。对我来说，我的作品是我自己感兴趣的东西和自己人生经历的反映，其实并不是需要大家一定要从游戏里学到什么东西。
+
+——《人中之龙》系列未来会不会考虑让女性担当主角?
+横山：有可能。
+
+——还有哪些知名的商业街是适合出现在今后的《人中之龙》游戏中的吗?
+横山：以后会不会有新的舞台还是要根据故事来决定，目前来看还没有哪个商业街是我非常想要放在游戏之中的。
+
+——是否会考虑推出更多类似《人中之龙 维新》这种平行宇宙的作品?
+横山：没有。
+
+【结语】
+堀井：非常高兴《人中之龙》系列作品能受到全球这么多玩家的欢迎和期待，这次会在短时间内发售7外传和8代，这是能让系列新老粉丝都能感到满意的两部作品，希望大家多多期待正式发售。
+
+阪本：这次连续发售的《人中之龙7 外传 无名之龙》和《人中之龙8》，虽然一个是动作类一个是回合类游戏、故事不同、主角也会发生变化，当它们都是和《人中之龙》系列故事主轴联系紧密的作品，希望喜欢这个系列的玩家都能体验这两部作品。此外昨天也公布了《人中之龙8》是系列首部加入中文配音的作品，希望能够更符合中国和亚洲玩家的期待。
+
+横山：希望大家多多期待中文配音。昨天我们发布的《人中之龙8》剧情预告片有10分钟之长，在发售前应该不会再发布任何剧情预告片了，除了今天的采访内容之外可能我也不会给出更多的暗示了，希望大家根据现有的资料去推测新作的剧情。先发售的《人中之龙7 外传 无名之龙》也会有很多《人中之龙8》相关的信息留给玩家去想象和推测，希望大家能体验和关注这两部作品。
+
+*****
+
+####  ultraseven  
+##### 382#       发表于 2023-9-22 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62491519&amp;ptid=2082084" target="_blank">stoiorz 发表于 2023-9-22 11:18</a>
+
+埃及区貌似是个新低价区？</blockquote>
+理论上买一得二的Xbox版是最便宜的，可惜埃及区一般买不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  凌云三才  
+##### 383#       发表于 2023-9-22 11:28
+
+这作明面的BOSS应该是长谷川博己吧，至于有没有暗处的就难说了
+
+
+*****
+
+####  日日日日日野  
+##### 384#       发表于 2023-9-22 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62491684&amp;ptid=2082084" target="_blank">凌云三才 发表于 2023-9-22 11:28</a>
+
+这作明面的BOSS应该是长谷川博己吧，至于有没有暗处的就难说了</blockquote>
+幕后黑手井口理和成田凌二选一吧
+
+
+*****
+
+####  byisme001  
+##### 385#       发表于 2023-9-22 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62492049&amp;ptid=2082084" target="_blank">日日日日日野 发表于 2023-9-22 11:54</a>
+幕后黑手井口理和成田凌二选一吧</blockquote>
+肯定是瘸子，出租车司机前期就反水了还能入队明显就是上一部安田显那样了
+
+
+*****
+
+####  s32244153  
+##### 386#       发表于 2023-9-22 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62491511&amp;ptid=2082084" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-9-22 11:17</a>
+
+横山说桐生的生活是整个系列之中最快乐的，感觉是快活够了然后“在众人的簇拥下死去”，写得好的话还能接受 ...</blockquote>
+这样感觉后半段会转成遗愿清单路线 
+
+边打各大势力BOSS边找老友们寻求帮助 然后把以前的人脉留给一番 最后了无牵挂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一见大吉  
+##### 387#       发表于 2023-9-22 16:53
+
+“桐生的人生经历时是按照普通人的经历去塑造的，从《人中之龙6》开始遇到孩子出生、抚育孩子到现在自然生病等等，其实都是普通人在生命中有可能遇到的事”
+
+我tm笑死，出狱后养自己喜欢的女人和野男人生下来的孩子，再次出狱后照顾自己喜欢女人和野男人生下来的孩子与另一个野男人生下来的孩子。操逼是别人的，就养孩子、生病是自己的事情？
+
+我希望这样“普通的人生”是横山自己的人生总结。
+
+
+*****
+
+####  医生狼多  
+##### 388#         楼主| 发表于 2023-9-22 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62491519&amp;ptid=2082084" target="_blank">stoiorz 发表于 2023-9-22 11:18</a>
+埃及区貌似是个新低价区？</blockquote>
+埃及底价很久了，一般人买不到，代购都找不到
+
+
+*****
+
+####  黑魔导始祖  
+##### 389#       发表于 2023-9-22 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62495424&amp;ptid=2082084" target="_blank">一见大吉 发表于 2023-9-22 16:53</a>
+
+“桐生的人生经历时是按照普通人的经历去塑造的，从《人中之龙6》开始遇到孩子出生、抚育孩子到现在自然生 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3年之后这狗逼不得癌症就让他感受一些什么叫生命中可能遇到的事
+
+*****
+
+####  shizumaru2009  
+##### 390#       发表于 2023-9-22 17:05
+
+希望横山也50多岁得癌症并度过最快乐的一段时光吧，反正是自然规律
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 391#       发表于 2023-9-22 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62494387&amp;ptid=2082084" target="_blank">s32244153 发表于 2023-9-22 15:29</a>
+
+这样感觉后半段会转成遗愿清单路线 
+
+边打各大势力BOSS边找老友们寻求帮助 然后把以前的人脉留给一番 最后 ...</blockquote>
+无名之龙宣传片里桐生说过把夏威夷留在最后享受，人已经在那，遗愿清单划完了。
+
+*****
+
+####  石中剑二  
+##### 392#       发表于 2023-9-22 17:59
+
+<blockquote>一见大吉 发表于 2023-9-22 16:53
+“桐生的人生经历时是按照普通人的经历去塑造的，从《人中之龙6》开始遇到孩子出生、抚育孩子到现在自然生 ...</blockquote>
+所以你们应该打男拳而不是骂横山👬
+
+
+*****
+
+####  三千珈蓝  
+##### 393#       发表于 2023-9-24 10:41
+
+井口理直接扮演主角团成员了，那我是不是可以畅想下这次主题曲是王牛来唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  Demi.Albertini  
+##### 394#       发表于 2023-9-24 10:59
+
+果然在横山的基佬思维里男主女主就是不能结婚的
+
+
+*****
+
+####  s32244153  
+##### 395#       发表于 2023-9-24 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+媒体：公关小姐可以带出场吗？
+
+坂本：这次出场不能像以前一样带一个有游戏内模型的公关小姐上街，而是会利用很多真人拍摄的影片素材呈现，然后最后有一个气氛不错的影片。（笑）
+
+横山：也就是说会有一起在公关店以外的地方互动的场景，但并不能带着 3D 的 CG 人物上街。
+
+　　酒店在日本已经受到大家厌倦了，和小姐一直进行一样的对话，至今为止我们在游戏里也都是这么做。然而实际上，日本国内酒店渐渐地不再流行，所以现在就算做到游戏里也不会有趣，果然还是要用真人影像拍出震撼的画面，邀请有名的小姐们来演出，然后让大家享受像甄选这样的过程，如果不是这么做的话酒店这个玩法根本无法成立。
+
+　　坦白说 8 代已经没有酒店了，因为现在根本不流行了，也不有趣。所以只有 7 外传用真人影像是为了提升冲击力，想做出一个热闹的酒店。
+
+
+*****
+
+####  s32244153  
+##### 396#       发表于 2023-9-24 13:56
+
+[https://gnn.gamer.com.tw/detail.php?sn=256660](https://gnn.gamer.com.tw/detail.php?sn=256660)
+
+媒体：会场上有公开一个特别致敬「最后的晚餐」的图，这是代表这次的伙伴里会有一个叛徒吗？
+
+横山：到底是如何呢？（笑）这张图其实不只有一种版本，而是有很多种，在不同时间会展示不同的版本。日本的官方 X（旧称推特）也有上传这张图的照片，那算是这次电玩展特别做给粉丝的福利，希望能给大家一个提示。
+
+<img src="https://img.saraba1st.com/forum/202309/24/135308nlvalreba7ratte9.jpg" referrerpolicy="no-referrer">
+
+<strong>F6mosYtaIAAUb0d.jpg</strong> (334.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-24 13:53 上传
+
+<img src="https://img.saraba1st.com/forum/202309/24/135324tbcqnkbqkiqdixxz.jpg" referrerpolicy="no-referrer">
+
+<strong>F6mosYqasAA9K7p.jpg</strong> (314.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-24 13:53 上传
+
+<img src="https://img.saraba1st.com/forum/202309/24/135339afwcztwu46uxa9ug.jpg" referrerpolicy="no-referrer">
+
+<strong>F6mosYwaMAAyTfk.jpg</strong> (353.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-24 13:53 上传
+
+<img src="https://img.saraba1st.com/forum/202309/24/135356jbmpl0wxbh04qqm1.jpg" referrerpolicy="no-referrer">
+
+<strong>F6mosYrbwAAfAPr.jpg</strong> (330.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-24 13:53 上传
+
+横山：我虽然在立场上是最高领导人，但其实像录音、制作过场动画还有捕捉真人动作演出时我都会在现场监督。之前在制作《人中之龙 7 外传 英雄无名》时共哭了 10 次，制作《人中之龙 8》也哭了 20 次，虽然原因不能明说，但这并不是因为难过而哭，而是因为太过感动而哭。很少会有制作的一方因为自己的作品而落泪，这也代表我真心觉得游戏的内容很棒。我自己也认为这两部作品已经超出了游戏这个娱乐的框架，变成非常棒的作品，所以即使不相信我也没关系，我非常希望能与大家一起分享这份感动。
+
+哭了 20 次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 397#       发表于 2023-9-24 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我要玩经营夜总会啊
+
+
+*****
+
+####  byisme001  
+##### 398#       发表于 2023-9-26 18:23
+
+【《人中之龙8》新情报汇总：桐生得病早有提示，你们却只关注发型！】《人中之龙8》开发团队（工作室代表横山昌义、总制作人阪本宽之、系列总监堀井亮佑）在日前的TGS会场中接受了Fami通的采访，以下为要点整理：
+1、本作的夏威夷地图从外部看是伊势佐木異人町的三倍大，但其还有着规模更大的建筑内部以及地下区域，所以总面积非常之大，若和初代比较的话应该是其10倍！
+2、本作中神室町和伊势佐木异人町都可以前往。
+3、战斗系统在上代的基础上也得到了进化，如羁绊觉醒系统等（桐生在该模式下可暂时解放回合制的束缚大展拳脚）。
+4、横导解释桐生觉醒时间有限是因为其身体状况不是很好。
+5、如封面图（图1）所示，本作双主角将以两个小队分开进行，其中春日和新角色不二宫千岁、艾里克富泽等人一队，桐生则与赵天佑、向田纱荣子等人一道。
+6、预告中出现了一位由子安武人配音的角色，“他的人气可能会超过真岛哦”公司内部经常有这样的言论出现！
+7、采访人称当看到白发桐生时脑海中曾闪过是否生病的相法，对此横导表示“早就给了提示~”（如身材明显变瘦等），坂本补充道“大多数目光都集中在形象改变上了……”
+8、TGS现场有致敬“最后的晚餐”的宣传图，大家也不妨从中再推测一番。
+
+预告中出现了一位由子安武人配音的角色，“他的人气可能会超过真岛哦”公司内部经常有这样的言论出现！
+<img src="https://p.sda1.dev/13/cfbd91707bbb59af0b2f536b7a573f85/CMP_20230926182229493.png" referrerpolicy="no-referrer">
+疑似新人气王
+
+
+*****
+
+####  Carlfie-  
+##### 399#       发表于 2023-9-26 19:02
+
+横山自己都说想不明白真岛为什么受欢迎，那反之他觉得会受欢迎的角色感觉要打个问号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  山岚夜雨  
+##### 400#       发表于 2023-9-26 19:22
+
+游戏开发者自吹的不可信吧，尤其是制作人还有营销的想法说夸张点也很正常
+
