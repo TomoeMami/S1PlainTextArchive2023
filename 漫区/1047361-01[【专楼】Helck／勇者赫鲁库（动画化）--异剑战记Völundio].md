@@ -1053,3 +1053,18 @@ C级左右的威胁，一般当地魔王就足够镇压了，赫鲁库里属于�
 阿祖从勇者杀手变成四天王最弱，说不定就是烧命烧的呢</blockquote>
 阿祖反而是转法了才多了一堆烧命技能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做个深绿契约书都要烧命
 
+*****
+
+####  powerpyc  
+##### 1141#       发表于 2023-9-26 12:35
+
+感觉琥珀下线跑不掉了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tansapple  
+##### 1142#       发表于 2023-9-26 17:30
+
+阿祖能玩大变活人，琥珀玩个石头门的选择也是有可能的，但是最后会不会变成“小安妮，只有你的能力最没用了”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
