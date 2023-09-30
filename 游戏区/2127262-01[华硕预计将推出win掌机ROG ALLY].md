@@ -4731,3 +4731,86 @@ TESTV 的评测：[https://www.bilibili.com/video/BV1Au4y1z79R](https://www.bili
 
 话说 ROG Ally 接客厅电视，客厅电视 eARC 接回音壁，如果用来串流卧室 PC，能启用回音壁的杜比全景声吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 450#       发表于 2023-9-27 17:51
+
+新固件：
+
+<strong>23/09/27 更新 BIOS 330</strong>
+ <blockquote><strong>ACSE v1.3.15 on 9/27/23 through Armoury Crate SE // ACSE v1.3.15 更新</strong>
+
+New feature: Added joystick and trigger calibration in the Control Mode menu (requires MCU v313 or later) 
+<strong>新功能：在控制模式菜单中添加 摇杆和扳机校准功能（要求 MCU v313 或者更高版本）。</strong>
+
+New feature: Added "Anti-Deadzone" slider to Stick adjustments in the Control Mode and Game Profile menus (requires MCU v313 or later)
+<strong>新功能：在控制模式和游戏配置菜单中添加 "反死区" 滑块（要求 MCU v313 或者更高版本）。</strong>
+
+Enhancement: Added iGPU driver version under Content &gt; System &gt; About &gt; Service version check.
+<strong>改进：在内容 -&gt; 系统 -&gt; 关于 -&gt; 系统版本检查 下添加了集显驱动版本号信息。</strong>
+
+Enhancement: Microcontroller Unit firmware can now be updated through the Armoury Crate SE Update Center
+<strong>改进：MCU 固件版本可以通过奥创更新中心中进行更新。</strong>
+
+Bug fixed: Fixed issue where using an external keyboard would cause input delay when gaming
+<strong>Bug 修复：修复了外接键盘会导致游戏时出现输入延迟的问题。</strong>
+
+Bug fixed: Fixed a problem where the ROG XG Mobile would randomly disconnect or not function properly
+<strong>Bug 修复：修复了在外接 ROG XG Mobile 显卡的时候会随机出现断连或者不正常工作的问题。</strong>
+
+<strong>MCU 313 on 9/27/23 through Armoury Crate SE</strong> // MCU 313 版本
+
+New feature: Added support for joystick and trigger calibration in ACSE   
+<strong>新功能：添加了在奥创中心可以校准手柄和扳机的支持。</strong>
+
+New feature: Added support for the Anti-Deadzone feature in ACSE
+<strong>新功能：添加了在奥创中心可以调整死区支持。</strong>
+
+<strong>BIOS 330 on 10/12 through MyASUS // BIOS 330 更新</strong>
+
+Enhancement: optimized overall system stability.
+<strong>改进：优化了整体系统的稳定性。</strong></blockquote>
+
+
+*****
+
+####  bypass  
+##### 451#       发表于 2023-9-27 17:51
+
+新固件：
+
+<strong>23/09/27 更新 BIOS 330</strong>
+ <blockquote><strong>ACSE v1.3.15 on 9/27/23 through Armoury Crate SE // ACSE v1.3.15 更新</strong>
+
+New feature: Added joystick and trigger calibration in the Control Mode menu (requires MCU v313 or later) 
+<strong>新功能：在控制模式菜单中添加 摇杆和扳机校准功能（要求 MCU v313 或者更高版本）。</strong>
+
+New feature: Added "Anti-Deadzone" slider to Stick adjustments in the Control Mode and Game Profile menus (requires MCU v313 or later)
+<strong>新功能：在控制模式和游戏配置菜单中添加 "反死区" 滑块（要求 MCU v313 或者更高版本）。</strong>
+
+Enhancement: Added iGPU driver version under Content &gt; System &gt; About &gt; Service version check.
+<strong>改进：在内容 -&gt; 系统 -&gt; 关于 -&gt; 系统版本检查 下添加了集显驱动版本号信息。</strong>
+
+Enhancement: Microcontroller Unit firmware can now be updated through the Armoury Crate SE Update Center
+<strong>改进：MCU 固件版本可以通过奥创更新中心中进行更新。</strong>
+
+Bug fixed: Fixed issue where using an external keyboard would cause input delay when gaming
+<strong>Bug 修复：修复了外接键盘会导致游戏时出现输入延迟的问题。</strong>
+
+Bug fixed: Fixed a problem where the ROG XG Mobile would randomly disconnect or not function properly
+<strong>Bug 修复：修复了在外接 ROG XG Mobile 显卡的时候会随机出现断连或者不正常工作的问题。</strong>
+
+<strong>MCU 313 on 9/27/23 through Armoury Crate SE</strong> // MCU 313 版本
+
+New feature: Added support for joystick and trigger calibration in ACSE   
+<strong>新功能：添加了在奥创中心可以校准手柄和扳机的支持。</strong>
+
+New feature: Added support for the Anti-Deadzone feature in ACSE
+<strong>新功能：添加了在奥创中心可以调整死区支持。</strong>
+
+<strong>BIOS 330 on 10/12 through MyASUS // BIOS 330 更新</strong>
+
+Enhancement: optimized overall system stability.
+<strong>改进：优化了整体系统的稳定性。</strong></blockquote>
+
