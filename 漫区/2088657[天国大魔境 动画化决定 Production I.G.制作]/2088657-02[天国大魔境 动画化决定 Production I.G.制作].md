@@ -2438,3 +2438,58 @@ selected vol.1・vol.2配信決定！✨
 
 音楽でも『天国大魔境』の世界をお楽しみください！</blockquote>
 
+*****
+
+####  Piano-Forest  
+##### 1711#       发表于 2023-9-27 00:08
+
+OST selected vol.1・vol.2
+
+／
+
+TVアニメ『#天国大魔境』
+
+オリジナル・サウンドトラック 
+
+selected vol.1・vol.2配信開始！🎧
+
+＼
+
+ #牛尾憲輔 さんが贈る極上の楽曲集✨
+
+音楽でも『天国大魔境』の世界をお楽しみください！
+
+配信リンク先🔗
+
+Vol.1 : [https://lnk.to/R5xxfL](https://lnk.to/R5xxfL)
+
+Vol.2 : [https://lnk.to/brFRp1](https://lnk.to/brFRp1)
+
+blue,blue sky
+
+
+*****
+
+####  牛尾宪辅  
+##### 1712#       发表于 2023-9-27 12:39
+
+ost真棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  OWO.OMO  
+##### 1713#       发表于 2023-9-27 14:44
+
+太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  frosta  
+##### 1714#       发表于 2023-9-28 03:33
+
+会有第二季吧，看了动画之后漫画都不想看了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
