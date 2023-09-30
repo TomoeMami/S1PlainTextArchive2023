@@ -1357,3 +1357,33 @@ CODExGEASS
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  克瓦特罗大尉  
+##### 947#       发表于 2023-9-26 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有觉醒角色节奏榜？
+
+*****
+
+####  rgauss  
+##### 948#         楼主| 发表于 2023-9-26 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62534053&amp;ptid=2028054" target="_blank">克瓦特罗大尉 发表于 2023-9-26 14:12</a>
+有没有觉醒角色节奏榜？</blockquote>
+女儿和滑铲被加强了 
+<img src="https://p.sda1.dev/13/e9d751946da1fa6cc71af4c372b9be6e/CMP_20230926142007793.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  克瓦特罗大尉  
+##### 949#       发表于 2023-9-27 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62534128&amp;ptid=2028054" target="_blank">rgauss 发表于 2023-9-26 14:20</a>
+
+女儿和滑铲被加强了 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">感谢，容我康康
+
