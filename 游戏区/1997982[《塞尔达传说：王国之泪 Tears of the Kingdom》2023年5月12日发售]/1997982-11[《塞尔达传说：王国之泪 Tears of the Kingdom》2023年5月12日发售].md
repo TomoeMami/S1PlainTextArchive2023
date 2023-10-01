@@ -6580,3 +6580,33 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 总结：劳鲁时代是位于风之杖之后的重新建国，汽笛是位于一万年间的和平年代，野炊王泪位于汽笛的久远之后。新流派有点拆东墙圆西墙的感觉
 
+*****
+
+####  冷泉夜月  
+##### 15558#       发表于 2023-9-28 14:48
+
+电击的王泪攻略到了，翻到大师剑那页看了下，好家伙——
+大师剑对瘴气敌人攻击力1.5倍，对加侬类敌人攻击力2倍且不消耗耐久这些大家都知道对吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+那么对黑龙时？攻击力5倍，同时剑气伤害30倍，也就是说白板状态砍一剑都有150，剑气一发300，当然，也不消耗耐久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  藏獒·烨  
+##### 15559#       发表于 2023-9-28 15:01
+
+原来林克蹲久了也会松筋骨，还会挠背，好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  liekong  
+##### 15560#       发表于 2023-9-28 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62509378&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-9-24 10:06</a>
+
+最近欧美塞学家关于野炊时间线的讨论，又出现了新的流派。之前普遍是认为在战败线之后，但近期藤林接受采访 ...</blockquote>
+其实藤林这段话出来后，接哪条线都不是不可能了，毕竟加侬多夫也不是同一个人，劳鲁也只是不知道大师之剑并不代表没有大师之剑，三角力量也是一样的，况且野炊的时候大师之剑和三角力量都在的。
+
