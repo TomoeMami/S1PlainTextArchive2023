@@ -4941,3 +4941,11 @@ i.imgur.com/SRpCkOo.jpg
 
 果然是当偶像活动拍了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+*****
+
+####  shadowof  
+##### 520#         楼主| 发表于 2023-9-29 14:57
+
+BD的情报出来了，第三卷有额外+一话
+[https://shop.asobistore.jp/produ ... anime_bd/s/older#a1](https://shop.asobistore.jp/product/catalog/n/30/t/category/ca/millionlive-anime_bd/s/older#a1)
+
