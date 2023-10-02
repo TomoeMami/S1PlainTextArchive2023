@@ -1162,3 +1162,78 @@ EXNOA，你值得信赖，笑死
 
 坏女人要实装力！（升天
 
+*****
+
+####  killbillwillil  
+##### 87#       发表于 2023-9-27 17:15
+
+后天坏女人实装，井已经准备好力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  V2ABGundam  
+##### 88#       发表于 2023-9-28 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62548065&amp;ptid=2102602" target="_blank">killbillwillil 发表于 2023-9-27 17:15</a>
+
+后天坏女人实装，井已经准备好力</blockquote>
+竟然还有和鄙人一样在坚持玩这游戏的人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在资源真是全投A25那边去了
+
+这次蓝反坏女人新建模都没有，直接用的蓝反帝DLC猫猫服和JK服，变身都不打算变了
+
+期待早点把主线剧情做完停服，大家都解脱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+感觉坏女人和其他三个前作女主一样，还是不能约
+
+鉴于其他三个前作女主的卡片剧情都是和男主好友互动以及和诗帆百合贴贴
+
+坏女人大概率还是这个套路
+
+
+*****
+
+####  killbillwillil  
+##### 89#       发表于 2023-9-28 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62553252&amp;ptid=2102602" target="_blank">V2ABGundam 发表于 2023-9-28 08:06</a>
+
+竟然还有和鄙人一样在坚持玩这游戏的人
+
+现在资源真是全投A25那边去了</blockquote>
+主线里面nina（？）都有战斗服建模，我看坏女人单纯就是没刻画完还不好把东西全都拿出来，
+
+说不准早晚还得和主角团一样another spirit<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+资源本身就不冲突，你现在a25上线说明至少开发美术已经持续用人一两年了，那时候s这边一样是拖着exnoa的人在做，何况s的3d人力工数本身就不高，量上应该还不如2d班子，要苟还能苟到猴年马月
+
+反正这游戏发石头也多，消耗的操作时间也少，0氪冲着要的角色都能随便浪，玩起来也根本没压力<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  6030sylar  
+##### 90#       发表于 2023-9-28 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是上线签到，日菜子和阳樱莉都有了，还有眼罩诗帆，就是爱央沉了
+
+
+*****
+
+####  6030sylar  
+##### 91#       发表于 2023-9-29 16:20
+
+ao再次沉了早知道先抽坏女人
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  killbillwillil  
+##### 92#       发表于 2023-9-29 19:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">一井下去才一个3★，还好是坏女人，能井另一半，不然真写信先去骂运营再说了
+
