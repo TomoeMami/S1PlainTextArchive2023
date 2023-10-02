@@ -8809,3 +8809,91 @@ VCB压制的就很好，比之前的压制好太多
 
 哈哈，闲得无聊去下了个全dlc学习版星曜季节，被偶像祭折磨疯了，万代是不是有毛病啊搞这么恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  Ask_10A  
+##### 779#       发表于 2023-9-23 17:27
+
+<img src="https://img.saraba1st.com/forum/202309/23/172638afss556s6g3h0t3w.png" referrerpolicy="no-referrer">
+
+<strong>V3}E]NYOIQRZI~4LDK6T(@V.png</strong> (213.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-23 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202309/23/172642ohd0knhv0k00envw.png" referrerpolicy="no-referrer">
+
+<strong>YM{%NX~N{LD~Z8V69L`TYZ4.png</strong> (35.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-23 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202309/23/172649pbm9gsoodsyzyoyd.png" referrerpolicy="no-referrer">
+
+<strong>90LRH0K~E0(7YBTHK]GDT]Y.png</strong> (40.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-23 17:26 上传
+
+捏嘿嘿
+
+
+*****
+
+####  rexzhanghao  
+##### 780#       发表于 2023-9-23 17:58
+
+不好意思因为最近一直被推送杨明的视频想起来角元明日香最近有出镜吗。。。
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 781#       发表于 2023-9-24 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405949&amp;ptid=2130897" target="_blank">acacaclove 发表于 2023-9-14 19:06</a>
+
+哈哈，闲得无聊去下了个全dlc学习版星曜季节，被偶像祭折磨疯了，万代是不是有毛病啊搞这么恶心人 ...</blockquote>
+都下学习版了，为什么不把风灵月影一起下了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实我买了正版也下了风灵月影，不然太折磨了
+
+
+*****
+
+####  acacaclove  
+##### 782#       发表于 2023-9-27 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513674&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2023-9-24 18:12</a>
+都下学习版了，为什么不把风灵月影一起下了呢
+
+其实我买了正版也下了风灵月影，不然太折磨了 ...</blockquote>
+下了下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太轻松了现在
+
+
+*****
+
+####  王九的哥哥  
+##### 783#       发表于 2023-9-28 01:45
+
+<img src="https://img.saraba1st.com/forum/202309/28/014544rl14d1drmfmzxs46.png" referrerpolicy="no-referrer">
+
+<strong>3Q(54TZWM~%~V}]1]M@~K}6.png</strong> (123.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-28 01:45 上传
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 784#       发表于 2023-9-29 09:47
+
+第三幕观后感是不是快了，等一手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
