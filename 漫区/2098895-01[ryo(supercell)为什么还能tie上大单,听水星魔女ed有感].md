@@ -1336,3 +1336,10 @@ wowaka我很吃他的电子舞曲风和调教，我觉得所有的翻唱版本�
 
 请问要学啥知识才能和坛友一样锐评歌曲质量
 
+*****
+
+####  戏言学者  
+##### 150#       发表于 2023-9-29 17:58
+
+是不是勇气默示录2的失败对他打击太大了，记得当时被喷爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间刚好也对的上
+
