@@ -528,3 +528,24 @@ qq群：568981296
 
 不负责假药，小飞1st公布动画
 
+*****
+
+####  nh_zzz  
+##### 758#       发表于 2023-9-29 23:48
+
+<img src="https://img.saraba1st.com/forum/202309/29/234825tmj0gnkwk4oe1hix.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (69.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-29 23:48 上传
+
+贴吧翻译：
+
+问：关于starlight，还在上映的剧场版受到好评，那么实施像tv之类的能收获更多受众的措施有考虑吗？
+
+答：要说starlight的话，应该算是minor major（次要的），在必须取得收视率的时间段里放送是很困难的。
+
+虽然这么说但也不是放弃让更多的人知道（starlight），还是会踏实地继续活动。
+
