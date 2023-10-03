@@ -1,0 +1,20 @@
+
+*****
+
+####  Piano-Forest  
+##### 768#       发表于 2023-9-27 21:12
+
+『Project Sekai』3周年纪念 主线故事摘要动画化 9月30日起YouTube频道陆续公开
+
+PV（PA制作）：
+[https://twitter.com/pj_sekai/status/1707013162904744264](https://twitter.com/pj_sekai/status/1707013162904744264)
+<img src="https://p.sda1.dev/13/8ddf5adf0c9f3996e6798a79221f2192/20230927_211018.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  宫藤芳佳  
+##### 769#       发表于 2023-9-30 12:10
+
+你游3周年这UI改的一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
