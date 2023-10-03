@@ -3230,3 +3230,43 @@ Z1芯片版ROG Ally终于到来，游戏性能不如Steam Deck：[https://www.ex
 
 笑死 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+*****
+
+####  筒井彩芽  
+##### 842#       发表于 2023-9-27 09:28
+
+ 本帖最后由 筒井彩芽 于 2023-9-27 09:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">塑料撬片撬外壳一撬一个坑。
+
+
+*****
+
+####  医生狼多  
+##### 843#       发表于 2023-9-28 23:06
+
+闲鱼看到个手搓的3070掌机，现在都能这么搞了吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 844#         楼主| 发表于 2023-9-29 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62563120&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-9-28 23:06</a>
+
+闲鱼看到个手搓的3070掌机，现在都能这么搞了吗</blockquote>
+2333 我也看到了，板砖型平板
+
+
+*****
+
+####  noahhhh  
+##### 845#       发表于 2023-9-30 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62446325&amp;ptid=2086469" target="_blank">筒井彩芽 发表于 2023-9-18 14:09</a>
+现阶段综合考虑性能续航和省心，是不是还是steamdeck最优解，我这等改良版等到现在了，等着改进屏幕啥的， ...</blockquote>
+不是最优解，而是只能选，软件优化远远大于硬件，给steamdeck做软件的开发者工资都会大于这种寨厂卖出硬件的总收入
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
