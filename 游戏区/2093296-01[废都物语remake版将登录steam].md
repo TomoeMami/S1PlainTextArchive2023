@@ -1469,3 +1469,45 @@ PV里有
 
 赶快端上来吧！
 
+*****
+
+####  秦南心  
+##### 563#       发表于 2023-10-1 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">不错，美术有一点小天野的味道
+
+
+*****
+
+####  哈扎马  
+##### 564#       发表于 2023-10-1 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62522534&amp;ptid=2093296" target="_blank">acejoe 发表于 2023-9-25 13:38</a>
+
+艹，场景这角色怎么是这么蠢的大头身材啊</blockquote>
+同感<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">我咋不记得领主是个五短
+
+
+*****
+
+####  totopo1231  
+##### 565#       发表于 2023-10-1 14:46
+
+美术风格挺有味道的，要是能上个Demo玩玩就好了
+
+
+*****
+
+####  topia  
+##### 566#       发表于 2023-10-1 15:00
+
+有些之前用了免费素材的怪物造型应该要重新设计了吧
+
+
+*****
+
+####  cot495  
+##### 567#       发表于 2023-10-1 15:50
+
+友友们，请问立绘画师是哪位？很喜欢这个风格。
+
