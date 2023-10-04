@@ -2314,3 +2314,216 @@ steam社区也有全宝箱全收集攻略，白金攻略还有滚球谜题攻略
 说到二次元浓度，自己第一次换机甲看到巴巴托斯时直接喷了，拿大剑还是矛锤造型 ...</blockquote>
 我目前版本大概是BUG，大剑的外形和剑盾的造型一样，不过我在看别人的攻略时看到过，确实很铁血
 
+*****
+
+####  三千珈蓝  
+##### 232#       发表于 2023-9-23 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62471937&amp;ptid=2139422" target="_blank"> gold013 发表于 2023-9-20 17:00</a> 终于打完了，由于挂机时间比较多，再加上补全奖励板的内容，一共60小时。 作者很懂二次元，就我云通关最近的《星之海》而言，锁链回声比星之海高了一个罪恶王冠的二次元浓度。 结尾男主的选择，感觉更多是基于自由，不仅是出人头地的自由，更是能够选择放弃的自由。也因此，我认为女主更多是因为尊重男主的选择，而对于某人释怀。关于“真王”，感觉涅沙支线里女学者提到的书王明显是为了结局故意误导。 说到作者的二次元浓度 </blockquote>
+我在xbox 上碰到了，存档关闭游戏再启动读档打开奖励盘就跳了来自: iPhone客户端
+
+*****
+
+####  三千珈蓝  
+##### 233#       发表于 2023-9-23 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62452467&amp;ptid=2139422" target="_blank"> 治丧委 发表于 2023-9-18 23:43</a> 另外，剧透反白但是有疑问，先驱者的故事通关以后，没有了吗？我看是返回到了打最终 BOSS 前，是要搞第二部再揭晓，还是说我漏了什么 </blockquote>
+估计就是留给第二部，马卡斯那一系的人就只出现了那个肉身高达，他自己和黑天铠都遁了，因为当下目的一致他们就没出来挡主角团的路吧来自: iPhone客户端
+
+
+*****
+
+####  gold013  
+##### 234#       发表于 2023-9-23 21:35
+
+<blockquote>三千珈蓝 发表于 2023-9-23 21:05
+我在xbox 上碰到了，存档关闭游戏再启动读档打开奖励盘就跳了</blockquote>
+你这个方法，我在A9那边也看到过类似的方法，说是多绕圈，多聊天能够触发成就。可惜steam不行，我反正已经放弃了
+
+
+*****
+
+####  三千珈蓝  
+##### 235#       发表于 2023-9-24 05:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62506258&amp;ptid=2139422" target="_blank"> gold013 发表于 2023-9-23 21:35</a> 引用:三千珈蓝 发表于 2023-9-23 21:05 我在xbox 上碰到了，存档关闭游戏再启动读档打开奖励盘就跳了 你这个方法，我在A9那边也看到过类似的方法，说是多绕圈，多聊天能够触发成就。可惜steam不行，我反正已经放弃了 </blockquote>
+是有点小毛病，我就遇到了最后一个技能点拿不到的问题来自: iPhone客户端
+
+
+*****
+
+####  nagamasa  
+##### 236#       发表于 2023-9-24 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完隐藏boss不给技能点，就差最后一个全人物学完全技能的成就做不了，吐了，什么狗屎bug
+
+
+*****
+
+####  三千珈蓝  
+##### 237#       发表于 2023-9-24 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513183&amp;ptid=2139422" target="_blank"> nagamasa 发表于 2023-9-24 17:20</a> 打完隐藏boss不给技能点，就差最后一个全人物学完全技能的成就做不了，吐了，什么狗屎bug </blockquote>
+你和一样，和哪个boss 没关系，就是拿不到最后一个来自: iPhone客户端
+
+
+*****
+
+####  nagamasa  
+##### 238#       发表于 2023-9-24 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513349&amp;ptid=2139422" target="_blank">三千珈蓝 发表于 2023-9-24 17:37</a>
+
+你和一样，和哪个boss 没关系，就是拿不到最后一个</blockquote>
+我看了眼steam讨论区，老外也全是这样最后一个点拿不到，估计是前两天更新出的新bug，要等一个修了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三千珈蓝  
+##### 239#       发表于 2023-9-24 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513959&amp;ptid=2139422" target="_blank"> nagamasa 发表于 2023-9-24 18:46</a> 引用:三千珈蓝 发表于 2023-9-24 17:37 你和一样，和哪个boss 没关系，就是拿不到最后一个 我看了眼steam讨论区，老外也全是这样最后一个点拿不到，估计是前两天更新出的新bug，要等一个修了 </blockquote>
+草早知道不开自动更新了
+还打算上**看看有没有攻略来自: iPhone客户端
+
+
+*****
+
+####  IlldianX  
+##### 240#       发表于 2023-9-24 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62506258&amp;ptid=2139422" target="_blank">gold013 发表于 2023-9-23 21:35</a>
+你这个方法，我在A9那边也看到过类似的方法，说是多绕圈，多聊天能够触发成就。可惜steam不行，我反正已经 ...</blockquote>
+我也是steam版奖励板全收集没跳成就，存档退出重进就跳了，不需要到处说话。
+
+
+*****
+
+####  gold013  
+##### 241#       发表于 2023-9-24 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62515029&amp;ptid=2139422" target="_blank">IlldianX 发表于 2023-9-24 20:40</a>
+
+我也是steam版奖励板全收集没跳成就，存档退出重进就跳了，不需要到处说话。 ...</blockquote>
+你说的我也试过了，我甚至切语言，然后存档退出再进，也没跳。估计我不会再去动这个游戏了，除非真出续作，那可能回来试试二周目，精看一下剧情，以及一些散落的文档和世界观
+
+
+*****
+
+####  nagamasa  
+##### 242#       发表于 2023-9-25 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62514927&amp;ptid=2139422" target="_blank">三千珈蓝 发表于 2023-9-24 20:29</a>
+
+草早知道不开自动更新了
+
+还打算上**看看有没有攻略</blockquote>
+今天有补丁，已经修复这个bug了
+
+
+*****
+
+####  碎月  
+##### 243#       发表于 2023-9-25 22:15
+
+作者有续集计划么
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  三千珈蓝  
+##### 244#       发表于 2023-9-27 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62526177&amp;ptid=2139422" target="_blank"> nagamasa 发表于 2023-9-25 18:15</a> 引用:三千珈蓝 发表于 2023-9-24 20:29 草早知道不开自动更新了 还打算上**看看有没有攻略 今天有补丁，已经修复这个bug了 </blockquote>
+感谢提醒，回去再打一次最终boss 来自: iPhone客户端
+
+*****
+
+####  三千珈蓝  
+##### 245#       发表于 2023-9-27 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62528330&amp;ptid=2139422" target="_blank"> 碎月 发表于 2023-9-25 22:15</a> 作者有续集计划么    -- 来自 能搜索的 Stage1官方 iOS客户端 </blockquote>
+剧情和设定上很明确了，先驱者和教会降临派，就看赚的钱够不够了来自: iPhone客户端
+
+
+*****
+
+####  Hidewhite  
+##### 246#       发表于 2023-9-27 22:25
+
+感觉主角重拾前世记忆后挺怪，主人公们忽然多了几世记忆，而玩家（我）得到的信息只有几个有限演出来的前世片段。感觉我的体验和游戏中人物的体验错开了，前期玩家是和人物进度一致的，到后面这里人物却陌生了。这导致结局主角那个背负责任累了的理由感受很单薄。
+
+有点奇怪，感觉系统内容还充分的，各种地图收集、敌人、隐藏要素。但剧情收尾却有仓促感，最终战斗没多少动画演出。双方的对峙恩怨情仇也不浓。好像还不如前面公主死那次？
+
+各个队友还是挺有趣的，性格种族经历都不太一样，凑在一起的感觉很好，JRPG混乱大家庭的冒险感。就是审判官和妖精来得太晚了，培养和打都不太想弄了。
+
+弱点数值有点爆炸，不打弱点的普通输出感觉打小怪都磨蹭，附魔打弱点带蓄力技能那伤害又高得出奇，数值公式有点奇怪。坦克还分了法坦和物坦，但这游戏群攻技能不少，真能用吗？感觉想保输出靠不住啊，这两位一直放板凳上
+
+
+*****
+
+####  otakun  
+##### 247#       发表于 2023-9-27 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62551126&amp;ptid=2139422" target="_blank">Hidewhite 发表于 2023-9-27 22:25</a>
+感觉主角重拾前世记忆后挺怪，主人公们忽然多了几世记忆，而玩家（我）得到的信息只有几个有限演出来的前世 ...</blockquote>
+打弱点是强，但后期水晶成型后纯菜刀都能爽砍一切了，个个自备吸血也不需要坦。我是给主角的装备搞了个浸油的，三连击太容易上状态，上了就打一发火焰斩也很爽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Hidewhite  
+##### 248#       发表于 2023-9-28 22:15
+
+ 本帖最后由 Hidewhite 于 2023-9-28 22:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62552007&amp;ptid=2139422" target="_blank">otakun 发表于 2023-9-27 23:57</a>
+
+打弱点是强，但后期水晶成型后纯菜刀都能爽砍一切了，个个自备吸血也不需要坦。我是给主角的装备搞了个浸 ...</blockquote>
+弱点和蓄力组合强度爆炸吧，好像公式上是乘算，导致后期boss不能前几回合给出压力让我这边减员，那就一定会死。甚至大部分boss都不需要极限输出，debuff buff完全没上全boss就倒了。
+
+我靠蕾妮上状态，她的多段攻击有4-7的，上debuff更加稳定。配女贼的风速斩扩散debuff，然后米卡作弱点输出终结。
+
+我想培养个副队的，但其他稳定多段攻击一般就3段，现在敏捷龙牙5刀好像也砍了，至于看脸随机的都不太行。 
+
+
+*****
+
+####  valand  
+##### 249#       发表于 2023-9-29 13:54
+
+这个游戏初期要怎么打啊，boss打不动，也不能打小怪升级，sp点数收集太慢。还有很多地图上的小怪也打不动，比如那个仙人球一样的，一招全员只剩一滴血玩个蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IlldianX  
+##### 250#       发表于 2023-9-29 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62567517&amp;ptid=2139422" target="_blank">valand 发表于 2023-9-29 13:54</a>
+
+这个游戏初期要怎么打啊，boss打不动，也不能打小怪升级，sp点数收集太慢。还有很多地图上的小怪也打不动， ...</blockquote>
+这游戏不用练级，初期把路上不得不打的怪打了就可以了。默认难度下一般每个地图主要就是两个精英怪比较难，可以回头再来打，要打也至少等满4个人一队，特别是buff机吟游诗人入队再去打。全场打剩1点血那招是机制，满血也是打剩1点血，只剩1点血就血量不变，其他招伤害都一般，所以出了这招稍微回复一下就可以了。
+
+
+*****
+
+####  gold013  
+##### 251#       发表于 2023-9-29 14:27
+
+<blockquote>valand 发表于 2023-9-29 13:54
+这个游戏初期要怎么打啊，boss打不动，也不能打小怪升级，sp点数收集太慢。还有很多地图上的小怪也打不动， ...</blockquote>
+那个植物的技能是所有人降至1血，然后通过召唤的幼苗输出。不过幼苗血很少的。
+
+初期如果要打得稍微舒服一点，建议把手头拿到的最高星数的武器防具升级满。初期用传送点来回刷，主要是攒升级素材，和战利品解锁商店兑换包，SP点一般等到第二大章节，收NPC工具人之后再折腾
+
+
+*****
+
+####  valand  
+##### 252#       发表于 2023-10-1 18:58
+
+降难度后就啥问题都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">感觉这个游戏有那么一丢丢借鉴ff7的地方，比如关于以太的设定，再比如武器镶嵌也有点像劣化版魔石系统，但是没做好，战斗还是太无聊了
+
