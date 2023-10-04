@@ -8024,3 +8024,1039 @@ Blu-ray＆DVD BOX 情報💿
 
 守哥哥果然是负责最后两集啊
 
+*****
+
+####  fshzx  
+##### 718#       发表于 2023-9-21 00:26
+
+妈呀，最后那几个画面转场蚌埠住了，就单纯放大放大，万策尽？
+
+
+*****
+
+####  镜hinata  
+##### 719#       发表于 2023-9-21 01:54
+
+人狼村真惨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lambl  
+##### 720#       发表于 2023-9-21 03:59
+
+女主这就是故意把人引去人狼村杀他们吧，因为他们想杀她的女仆。
+
+
+*****
+
+####  550616  
+##### 721#       发表于 2023-9-21 08:25
+
+最后是时间进度不够了吗，这么多幻灯片
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 722#       发表于 2023-9-21 11:16
+
+每个画面都在动的怎么能叫PPT呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+劳合社这俩装模作样的最后免不了领便当吧 本剧唯一指定炮灰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hagiwara  
+##### 723#       发表于 2023-9-21 14:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的集体行动是人狼的特点呢，怎么这群狼打男主要一个个上啊，一拥而上不是胜率还高点吗
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 724#       发表于 2023-9-21 15:42
+
+之前还吹人狼多么厉害多么牛逼，结果这集就被人类村子、莫里亚蒂、劳合社三方联手图图了，挺惨的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+特别是野兽帮，之前还以为多强呢结果被男主全干了，我只能请出怒吼天尊那句“三个打一个被反杀会不会玩”了，另外解决第一个的方法竟然是滑铲，原来这招真的有用啊，马上去和老虎对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉谜团基本都能猜到了，就看下集怎么收尾了，另外劳合社这两个人看起来也是一副死相啊
+
+
+*****
+
+####  好much橘  
+##### 725#       发表于 2023-9-21 18:11
+
+彻头彻尾的闹剧悲剧啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+人类方和人狼方看着都有种烦闷感，情绪无处安放，果然还是只能和侦探方稍稍共情，等着看下一集真相揭开的一地狼藉了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿塔丽  
+##### 726#       发表于 2023-9-21 18:42
+
+人狼篇好长呀，教授的部下一出现，保险机构两位就危险了
+
+
+*****
+
+####  阿塔丽  
+##### 727#       发表于 2023-9-21 18:54
+
+话说人狼村被图图，红发看起来也不怎么伤心，看样子她们是五岁以后也就是自立以后感情比较淡?
+
+*****
+
+####  zayrq  
+##### 728#       发表于 2023-9-21 18:59
+
+狼人怎么这么拉，难怪要躲起来生活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+
+*****
+
+####  罗克萨斯  
+##### 729#       发表于 2023-9-21 21:19
+
+竟然敢抛弃这么可爱的女儿，这对可恶的人类夫妇<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+劳工社确实烦人，这俩更是，赶紧领便当吧<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  秘银mithril  
+##### 730#       发表于 2023-9-22 00:13
+
+感觉再不死几个“反派”我就要看着难受了
+
+最烦装了逼又全身而退的敌人
+
+
+*****
+
+####  霖星  
+##### 731#       发表于 2023-9-22 01:07
+
+露易丝的尸体是怎么突然出现的
+
+一开始还以为是拖车里滑出来的棺材掉出来的，再看了一遍是路边的树底下趴着
+
+感觉很明显了人狼少女诺拉没有死去，自始至终就一具人类少女的尸体
+
+在人狼村那边冒充诺拉死去并给人狼发现后再丢去了人类的村子外
+
+顺便地道那里记录了一年半的时间，大概是露易丝被诺拉在那里面囚禁生存的时间吧
+
+
+*****
+
+####  屈江鸟  
+##### 732#       发表于 2023-9-22 01:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好惨一村人，啥都没干被图图完了
+
+
+*****
+
+####  花生酥王  
+##### 733#       发表于 2023-9-22 01:43
+
+人狼好惨，还有这集最后那几秒有点<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pzk  
+##### 734#       发表于 2023-9-22 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62476529&amp;ptid=2125379" target="_blank">fshzx 发表于 2023-9-21 00:26</a>
+
+妈呀，最后那几个画面转场蚌埠住了，就单纯放大放大，万策尽？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但实际上也没有省什么作画内容，只能说是在搞一种很土的演出方式
+
+
+*****
+
+####  ParadiseMartyr  
+##### 735#       发表于 2023-9-22 10:14
+
+ 本帖最后由 ParadiseMartyr 于 2023-9-22 10:16 编辑 
+
+确实土，还不如直接切呢
+或者搞个素晴日章节选择那样每角一块
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  敏感词好多  
+##### 736#       发表于 2023-9-22 13:10
+
+人狼村这部分真的拖太长了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  罗克萨斯  
+##### 737#       发表于 2023-9-22 13:28
+
+下一话男主是不是要杀金发兽娘了？毕竟手里好几条人命，难逃男主的杀人笑剧，假死变真死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yugao  
+##### 738#       发表于 2023-9-22 14:36
+
+只能说时代变了，这堆人狼打打冷兵器的人类还行，遇到火枪大炮当场去世
+
+
+*****
+
+####  bandage_n2_ki  
+##### 739#       发表于 2023-9-22 15:03
+
+插入图片动画放大进入连续n张图……职场里有谁这么做ppt会被直接撕碎吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TOYSTORY  
+##### 740#       发表于 2023-9-22 17:58
+
+ 本帖最后由 TOYSTORY 于 2023-9-22 18:01 编辑 
+
+<img src="https://img.saraba1st.com/forum/202309/22/175540rswzdm4o24wo8442.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (59.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-22 17:55 上传
+
+人狼村的几个少女和人类村子里被害的少女长得像，这是人类村子里的部分人都是潜在人狼血统或者凶手专门挑长得像的下手？
+
+前边女主也问过医生被害的几个少女是不是本人，感觉不会是人类觉醒人狼血统后会蜕掉的皮什么的吧
+
+*****
+
+####  ardito  
+##### 741#       发表于 2023-9-22 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62493786&amp;ptid=2125379" target="_blank">Yugao 发表于 2023-9-22 14:36</a>
+
+只能说时代变了，这堆人狼打打冷兵器的人类还行，遇到火枪大炮当场去世</blockquote>
+人狼也变了啊，这不都防弹了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+结果人类村民枪都没几条还能追着他们跑
+
+*****
+
+####  霖星  
+##### 742#       发表于 2023-9-22 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62496086&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-9-22 17:58</a>
+
+人狼村的几个少女和人类村子里被害的少女长得像，这是人类村子里的部分人都是潜在人狼血统或者凶手专门挑 ...</blockquote>
+之前村长好像说过人是不会变人狼的吧
+
+那么猜测就是人狼村的狼女借人类村的女性尸体伪装自杀然后逃出人狼村吧
+
+*****
+
+####  ParadiseMartyr  
+##### 743#       发表于 2023-9-22 20:44
+
+凭啥一个小破村的人类和人狼女孩儿能那么像？总觉得不仅仅是简单的拉个相像的顶包
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  oneoutsider  
+##### 744#       发表于 2023-9-22 22:07
+
+ 本帖最后由 oneoutsider 于 2023-9-22 22:12 编辑 
+
+人狼篇的篇幅有点长啊，加之下一集的解谜共5集了，其实如果只讲破案过程只需谈到主角一行人，人类村和人狼村三方，但因为要讲到破案外的斗争又得加入劳合社和夜宴势力，事情就变得复杂起来，于是一季动画就完了。
+
+我只想多看几个案件，能不能有第二季<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  霖星  
+##### 745#       发表于 2023-9-22 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62497582&amp;ptid=2125379" target="_blank">ParadiseMartyr 发表于 2023-9-22 20:44</a>
+
+凭啥一个小破村的人类和人狼女孩儿能那么像？总觉得不仅仅是简单的拉个相像的顶包
+
+—— 来自 S1Fun ...</blockquote>
+并没有特别像吧，只是找了年龄相近发色一样的人代替，死法好像都是散弹枪毁容了
+
+*****
+
+####  アルメリア  
+##### 746#       发表于 2023-9-23 01:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人狼太几把菜了吧
+
+*****
+
+####  薄荷之野  
+##### 747#       发表于 2023-9-23 01:17
+
+人狼篇太无聊了，角色又多又不仔细刻画，推剧情节奏飞快且撩不起情绪，跟本格推理更是没有什么关系了。还是吸血鬼篇那种故事好看。
+
+*****
+
+####  reficulp  
+##### 748#       发表于 2023-9-23 12:59
+
+瀑布上的人类村子感觉个个ptsd很难让人喜欢上，人狼村虽然迂腐但薇拉这样的少女还是无辜的，村子就这样被图图了看得有点难受，要是薇拉回去发现村子里死伤惨重而且很可能是自己带人过来的原因，怕不是要昏死过去
+
+劳合社的几个赶紧挂了吧
+
+
+*****
+
+####  天剑流星  
+##### 749#       发表于 2023-9-24 16:40
+
+人狼战力拉是肯定的吧，世外小村来了一群牛鬼蛇神，感觉如果不是静句性格原因她一个人应该就能把这个村屠了吧
+
+另外最后那个PPT好难绷啊，怎么想的做成这样
+
+
+*****
+
+####  TOYSTORY  
+##### 750#       发表于 2023-9-26 20:28
+
+<img src="https://img.saraba1st.com/forum/202309/26/202837nn78uj9az16zcad7.jpg" referrerpolicy="no-referrer">
+
+<strong>13_01.jpg</strong> (59.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-26 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/26/202838lfn0yce4fw4fexuc.jpg" referrerpolicy="no-referrer">
+
+<strong>13_02.jpg</strong> (70.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-26 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/26/202838fg57kfk4ixk8fxym.jpg" referrerpolicy="no-referrer">
+
+<strong>13_03.jpg</strong> (63.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-26 20:28 上传
+
+<img src="https://img.saraba1st.com/forum/202309/26/202839nbehzyv4ohci5veh.jpg" referrerpolicy="no-referrer">
+
+<strong>13_04.jpg</strong> (35.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-26 20:28 上传
+
+第13話「犯人の名前」
+
+ヴォルフィンヘーレにホイレンドルフの村人が攻め入ってくる。さらに＜夜宴＞とロイスが激突、そして静句も宿敵・カーミラと対峙する。
+
+                                                
+
+一方、鴉夜はヴォルフィンヘーレとホイレンドルフの村人たちを集め、2つの事件の謎解きを始める―――。
+
+                                                
+
+脚本：高木登　絵コンテ：畠山守　演出：小池裕樹
+
+
+*****
+
+####  TOYSTORY  
+##### 751#       发表于 2023-9-27 10:08
+
+[https://www.bilibili.com/video/BV1LH4y1U7op](https://www.bilibili.com/video/BV1LH4y1U7op)
+
+十三话预告
+
+战斗水平好像比前几话提升很多啊
+
+
+*****
+
+####  HGCG3  
+##### 752#       发表于 2023-9-27 23:57
+
+白衣人都是炮灰吗
+
+
+*****
+
+####  镜hinata  
+##### 753#       发表于 2023-9-28 01:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">巫女的任务就是要被全村轮?
+
+
+*****
+
+####  屈江鸟  
+##### 754#       发表于 2023-9-28 02:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">所以夜宴来这干嘛的，就让吸血鬼吸几口么
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 755#       发表于 2023-9-28 02:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只有窝心疼劳合社吗
+
+出场就注定要被两边一起打死的悲惨命运
+
+
+*****
+
+####  lambl  
+##### 756#       发表于 2023-9-28 05:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62552691&amp;ptid=2125379" target="_blank">Mc凉月奏酱 发表于 2023-9-28 02:23</a>
+
+只有窝心疼劳合社吗
+
+出场就注定要被两边一起打死的悲惨命运</blockquote>
+妹子没死啦。。
+
+
+*****
+
+####  达达葱2  
+##### 757#       发表于 2023-9-28 06:29
+
+<blockquote>lambl 发表于 2023-9-28 05:16
+妹子没死啦。。</blockquote>
+不是中毒了吗
+
+得救了？
+
+
+*****
+
+####  TOYSTORY  
+##### 758#       发表于 2023-9-28 10:17
+
+ 本帖最后由 TOYSTORY 于 2023-9-28 10:22 编辑 
+
+劳合社估计是这个系列的专用垫脚石吧，其他角色好歹能装几下，就他们没怎么装马上就被拿去垫甚至命都没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+夜宴说好的要拿人狼细胞强化开膛手杰克，结果3个人进村就顾着乱杀了
+
+好歹抓一个活口当实验体回去交差啊，还以为诺拉被放跑后会被夜宴抓住呢，这样她毕竟杀了人也算讲点因果报应（或者结尾教授做实验那个槽里装的就是抓来的人狼？）
+
+还有主角团也挺恶趣味的，人狼村都被混合三打了也没什么帮的打算，就算是觉得两个村子都有陋习活该遭报应，也太那啥了点.......<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+反而女仆除了有时候护主过度意外地是个常识人，难怪对不上男女主的电波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 759#         楼主| 发表于 2023-9-28 11:17
+
+／
+
+全話ご視聴ありがとうございました🙇
+
+＼
+
+TVアニメ「アンデットガール・マーダーファルス」第13話最速放送ご視聴ありがとうございました✨
+
+キャラクターデザインの #伊藤憲子 さんよりイラストが到着！
+
+TVアニメの放送は今回で終わりですが作品の応援これからもよろしくお願いします🪶
+<img src="https://p.sda1.dev/13/7a54b95b4b288ee61d2b6dd0e4f037f5/20230928_111659.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zxc4563982  
+##### 760#       发表于 2023-9-28 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62554689&amp;ptid=2125379" target="_blank">TOYSTORY 发表于 2023-9-28 10:17</a>
+
+劳合社估计是这个系列的专用垫脚石吧，其他角色好歹能装几下，就他们没怎么装马上就被拿去垫甚至命都没了[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">明显装的是十四岁美少女的身体，两人鉴赏呢
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 761#       发表于 2023-9-28 13:22
+
+劳合社俩人不出意外垫了
+
+女仆真成专业负责女同福利的角色了
+
+莫里亚蒂手下那帮人不是来搞人狼细胞给杰克 /强化的吗，细胞呢，你们怎么光顾着图图了
+
+这次的推理倒是猜的没什么错，感觉比吸血鬼那段好猜多了
+
+畠山守这套风格确实不错，以后多关注他了
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 762#       发表于 2023-9-28 13:26
+
+另外我才发现巴哈源的二流演员，原文是ぜんざ也就是前座吧
+
+*****
+
+####  罗克萨斯  
+##### 763#       发表于 2023-9-28 13:32
+
+本以为诺拉要被男主处决，结果被女主放过一马，太有人情味了。露易丝好可惜，如果没揭发诺拉的话，就有两个超可爱的金发美少女了。
+
+
+*****
+
+####  好much橘  
+##### 764#       发表于 2023-9-28 14:17
+
+刚看见人狼村少女害怕野兽帮那群人、xx岁就会成为巫女的设定的时候就想到换尸体帮助逃跑的手法了，结果和想象的一致，过程确实没想到这些，揭秘还是挺有意思的。
+打斗和演出好看是好看，但总感觉有些意味不明，劳合社和夜宴打也没打出个啥意义来，角色塑造也没啥爱看的点，感情上比较想看两村人互相打的场景，感觉会比较有“露易丝计划得逞”的意味，上一集屠村死了那么多人类与人狼这集感觉也像没事人一样。现有的打斗戏和剧情实在太割裂了，像是想把主线往你头上摁着看的感觉，严重忽视了当下的故事，但实际上主线现在并没有设置多令人好奇的点，无非就是鸦夜身体在哪、什么时候能拿回来这种程度的在意点，甚至看打斗看得都有些想跳过了。
+后两个案子没有太满意，最喜欢的还是吸血鬼的案子，不过作为动画来说整体好评，演出风格非常有意思，三个揭秘环节看着也挺开心的。
+
+
+*****
+
+####  月独  
+##### 765#       发表于 2023-9-28 14:32
+
+没看过原作小说呢，最后一集静句和卡米拉这演出，明显是做了吗？有木有叼大发一段战斗的原文？
+
+
+*****
+
+####  hagiwara  
+##### 766#       发表于 2023-9-28 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62557659&amp;ptid=2125379" target="_blank">好much橘 发表于 2023-9-28 14:17</a>
+
+刚看见人狼村少女害怕野兽帮那群人、xx岁就会成为巫女的设定的时候就想到换尸体帮助逃跑的手法了，结果和想 ...</blockquote>
+氢气的角色塑造整体水平就一般般吧，本作有奇幻背景已经算好一点了
+
+*****
+
+####  阿塔丽  
+##### 767#       发表于 2023-9-28 14:40
+
+可圈可点，但人狼篇拖得太长了
+
+
+*****
+
+####  阿塔丽  
+##### 768#       发表于 2023-9-28 14:43
+
+<blockquote>TOYSTORY 发表于 2023-9-28 10:17
+劳合社估计是这个系列的专用垫脚石吧，其他角色好歹能装几下，就他们没怎么装马上就被拿去垫甚至命都没了[f ...</blockquote>
+人狼村和人类村也不是什么善茬吧，特别是人类村杀本来只想平静生活的母女吧，我觉得最后放金毛一马也可以理解
+
+*****
+
+####  阿塔丽  
+##### 769#       发表于 2023-9-28 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62557659&amp;ptid=2125379" target="_blank">好much橘 发表于 2023-9-28 14:17</a>
+
+刚看见人狼村少女害怕野兽帮那群人、xx岁就会成为巫女的设定的时候就想到换尸体帮助逃跑的手法了，结果和想 ...</blockquote>
+我挺喜欢前两个案件出场的萝莉记者的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，活力十足且对其他种族也没有先入为主的歧视
+
+
+*****
+
+####  权志龙  
+##### 770#       发表于 2023-9-28 16:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">津轻都看懂拖那么久的原因了（
+
+
+*****
+
+####  大丈夫萌大乃  
+##### 771#       发表于 2023-9-28 17:36
+
+那个打枪的妹子怎么被反杀的没看明白...
+
+
+*****
+
+####  schneehertz  
+##### 772#       发表于 2023-9-28 18:40
+
+静句好色哦
+
+
+*****
+
+####  kenqqex  
+##### 773#       发表于 2023-9-28 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">本季毫无疑问的top1
+
+
+*****
+
+####  梦诗歌雪  
+##### 774#       发表于 2023-9-28 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">放走诺拉之后又专门给了个画家尸体的镜头是想强调她的罪恶吗，不管怎么说确实杀害了很多无辜的人
+
+本来以为给金发眼镜佬那么多意味深长的镜头是暗示他跟人狼村这边的凶手有联系，结果真就纯路人
+
+
+*****
+
+####  フミさん  
+##### 775#       发表于 2023-9-28 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">完结撒花，op比较魔性，但是我还是最喜欢ed，已加入歌单。
+
+师傅，女仆，人狼妹妹们各有各的美，真好看（唉女仆女同恩色情，人狼巫女做生育机器。。。感觉是个出本的好设定）
+
+真打也很可爱，吐槽役+卖萌役
+
+
+*****
+
+####  辻君  
+##### 776#       发表于 2023-9-28 22:03
+
+静句和卡米拉之间到底啥关系啊，没看懂，感觉也不像普通的死敌啊<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pzk  
+##### 777#       发表于 2023-9-28 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62562623&amp;ptid=2125379" target="_blank">辻君 发表于 2023-9-28 22:03</a>
+
+静句和卡米拉之间到底啥关系啊，没看懂，感觉也不像普通的死敌啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是女同关系，很明显是在故意凹CP。
+
+
+*****
+
+####  pzk  
+##### 778#       发表于 2023-9-28 22:33
+
+人狼案为了做成结尾，找线索的三集有点拉得太长，解密这集又有点太赶，感觉就差一口气。
+
+还是最开始那四集比较惊艳，后面的水平下滑不少。
+
+
+*****
+
+####  notromeo  
+##### 779#       发表于 2023-9-28 22:45
+
+人类贱如猪狗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+后面2个故事压缩太厉害了，好多情节没说清楚<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  notromeo  
+##### 780#       发表于 2023-9-28 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">再求推荐下光线亮一点的字幕组，黑暗画面根本没法看
+
+
+*****
+
+####  406  
+##### 781#       发表于 2023-9-28 23:08
+
+牛仔妹被反杀的那段装死，及装死前的打铲子镜头愣是没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Boliva  
+##### 782#       发表于 2023-9-29 00:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">可怜的3个人类女孩和画师，爱丽丝反而是死得其所~
+
+
+*****
+
+####  Compor  
+##### 783#       发表于 2023-9-29 00:54
+
+唯一没懂的是女主最后一幕一脸震惊是看到啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 SHARP 803SH, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+
+*****
+
+####  reficulp  
+##### 784#       发表于 2023-9-29 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62563145&amp;ptid=2125379" target="_blank">406 发表于 2023-9-28 23:08</a>
+
+牛仔妹被反杀的那段装死，及装死前的打铲子镜头愣是没看懂</blockquote>
+劳合社的靠子弹打铁铲，让子弹改变方向打到掩体后面的夜宴；夜宴配合着用村民的尸体和自己的帽子，假装自己被击中骗劳合社过来查看，从背后给了她一针毒
+
+
+*****
+
+####  reficulp  
+##### 785#       发表于 2023-9-29 01:24
+
+虽然五个理由很充分，但是约特白天在人类村里生活，晚上在狼人村里生活，真就是超人啊？
+
+这集有点赶火车了，和前面四集的分配不是很好，是不是可以挪一挪，把前面四集的内容压缩一下，用劳合社跟夜宴的退场作为上一集的结尾，可能会好一些，这集战斗和破案解说部分都特别紧张
+
+*****
+
+####  須理出未来  
+##### 786#       发表于 2023-9-29 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62557158&amp;ptid=2125379" target="_blank">RhmBWT_Wu 发表于 2023-9-28 13:26</a>
+
+另外我才发现巴哈源的二流演员，原文是ぜんざ也就是前座吧</blockquote>
+真打和前座都是落语家的段位，知道这个知识点后津轻的自我介绍会更有韵味：「名は真打ですが器は前座ってちゃちな男でございます」
+
+<img src="https://img.saraba1st.com/forum/202309/29/012407q08zcnb2apri80rr.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (28.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-29 01:24 上传
+
+不过翻译的时候，要不就保留这层意思但要加注释，要不就丢掉这层意思直接意译了，只是一种取舍啦
+
+
+*****
+
+####  reficulp  
+##### 787#       发表于 2023-9-29 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62552660&amp;ptid=2125379" target="_blank">屈江鸟 发表于 2023-9-28 02:13</a>
+
+所以夜宴来这干嘛的，就让吸血鬼吸几口么</blockquote>
+看到人狼太菜了决定回家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能被村民打死的不配缝合进去
+
+
+*****
+
+####  Ichthys  
+##### 788#       发表于 2023-9-29 01:52
+
+进展太快了吧，还有点意识流。
+
+
+*****
+
+####  reficulp  
+##### 789#       发表于 2023-9-29 01:56
+
+本季度的黑马，看得很开心。不过确实最有推理内容的反而是第一章的吸血鬼，算是正儿八经的推理；第二章绕了那么多的戏份，其实就只有一点：鲁邦计划如何偷钻石；第三章人狼村为了让犯罪成立，做了好多都合设定：连通两村的地道/身形容貌相似的3对少女等等
+
+不过瑕不掩瑜，这片能感觉到动画组有意识地在每一次对话中加入演出，让对话不会显得无聊和冗长，实际效果也非常好，即使只是简单地把说话人的头/嘴特写。鸦夜和真打的互动，也数第一章的部分最有趣
+
+回头一想，露易丝的死是她自己定下的计划吗？要实现约特的目的的话（一个是救村里的巫女，一个是破坏两个村子），杀掉第三人的时候，村里的矛盾已经挑起来了，自己所剩时间不多也已经没法再救其他人，把地道展示给双方让冲突爆发就可以了。但没能看到约特和露易丝一起逃离，反而是露易丝被枪杀，是对生活现状绝望，还是对小时候揭发约特的补偿？村里的人狼下个雨就能跟丢目标，约特如果不是要挑起矛盾的话，压根不需要点开地道和杀人，找一个雨夜大家一起从地道逃跑就是了
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 790#       发表于 2023-9-29 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62564244&amp;ptid=2125379" target="_blank">須理出未来 发表于 2023-9-29 01:31</a>
+真打和前座都是落语家的段&amp;#x ...</blockquote>
+这点我倒是知道，前段时间刚刚看了昭和元禄落语心中
+个人感觉这种还是保留原意加注释更合适，意译少了点乐趣
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Wildfire  
+##### 791#       发表于 2023-9-29 09:29
+
+劳合社这俩属实有点菜，真空女仆太涩了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 792#       发表于 2023-9-29 10:48
+
+劳合社看起来过不久会被全灭啊，人类还是太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+希望有2期
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  取名真是难  
+##### 793#       发表于 2023-9-29 12:40
+
+<blockquote>reficulp 发表于 2023-9-29 01:56
+本季度的黑马，看得很开心&amp;#x3 ...</blockquote>
+路易斯的举报完全是恩将仇报，害死了约特她妈啊。
+
+约特后面就把路易斯绑架到洞里养着，自己分饰二角，然后年纪到了14想润就用路易斯尸体当替身混淆视听
+
+
+*****
+
+####  reficulp  
+##### 794#       发表于 2023-9-29 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62566903&amp;ptid=2125379" target="_blank">取名真是难 发表于 2023-9-29 12:40</a>
+
+路易斯的举报完全是恩将仇报，害死了约特她妈啊。
+
+约特后面就把路易斯绑架到洞里养着，自己分饰二角，然 ...</blockquote>
+因为约特自己说她和露易丝的关系比较奇妙，而鸦夜也说自己推理错了约特做的不是为了复仇，但我理解上如果不是为了复仇的话，露易丝，甚至是其他三个村民都可以不用死去
+
+
+*****
+
+####  取名真是难  
+##### 795#       发表于 2023-9-29 14:38
+
+<blockquote>reficulp 发表于 2023-9-29 13:18
+因为约特自己说她和露易丝&amp;# ...</blockquote>
+应该说是救人顺带复仇？反正我看约特早也就对两边村的人都失望透了，对她来说也只有年轻的狼人姑娘算是值得共情值得去救的，不过这样看画家这个外人属于纯纯的倒霉蛋了
+
+
+*****
+
+####  orcher1945  
+##### 796#       发表于 2023-9-29 19:31
+
+     画家妹真就是躺着也中枪啊，太惨了………………
+
+
+*****
+
+####  a2532521  
+##### 797#       发表于 2023-9-29 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62564197&amp;ptid=2125379" target="_blank">reficulp 发表于 2023-9-29 01:24</a>
+
+虽然五个理由很充分，但是&amp;#x7 ...</blockquote>
+白天在人类村睡觉就好了.毕竟是残疾人,一般父母也不管她
+
+
+*****
+
+####  今天不守尸  
+##### 798#       发表于 2023-9-29 23:27
+
+终于补完了，只能说高开低走
+
+尤其是自从劳合社和夜宴这群表面不停凹造型装逼一举一动跟演舞台剧似的，实则内里空空不知所谓的玩意登场后观感更是直线下降
+
+最后的人狼村也是为了约特这瓶醋硬包的饺子，不管是人狼村民还是人类村民都突出一个工具人
+
+看到最后双方大战完各回各家，我不仅毫无触动甚至还笑了出来
+
+
+*****
+
+####  亚瑟邓特  
+##### 799#       发表于 2023-9-30 02:36
+
+后面几集怎么乱七八糟的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zhhy  
+##### 800#       发表于 2023-9-30 03:48
+
+所以两个金毛长得像甚至能直接替换就是单纯的巧合吗，还以为背后有故事
+
+
+*****
+
+####  Ashice  
+##### 801#       发表于 2023-9-30 04:02
+
+确实只有吸血鬼篇还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  ardito  
+##### 802#       发表于 2023-9-30 04:33
+
+人狼篇挺难看，关联的偷钻石那两集还能忍忍，连着下来就<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+倒是静句怎么演的听到药劲下降还有点小失落最后一副意犹未尽的样子，上回真就嘴硬是伐
+
+不过也是，只摸了背上两下就喷出一句技术不好，鉴定为急了。迫真科技(?)改变生活
+
+
+*****
+
+####  自宅警备员  
+##### 803#       发表于 2023-9-30 06:36
+
+主角团和科学怪人是什么关系，怎么最后两集突然暗通起来了？是我漏看了什么，还是原作问题
+
+
+*****
+
+####  notromeo  
+##### 804#       发表于 2023-9-30 07:49
+
+人造人之前和主角团认识，动画删掉了人造人的故事章节
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  敏感词好多  
+##### 805#       发表于 2023-9-30 08:09
+
+评价为原作就这水平，监督尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oneoutsider  
+##### 806#       发表于 2023-9-30 11:40
+
+心疼被杀的那几个人类少女和人狼村民一秒，冤有头债有主本该以约特的死谢幕但还是被鸦夜放了，果然从鸦夜的立场看真的无所谓吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿塔丽  
+##### 807#       发表于 2023-9-30 12:24
+
+宝石篇至少大致能看懂而且打斗也刺激，人狼篇就拖得太长且神经质的人太多了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhhy  
+##### 808#       发表于 2023-9-30 13:56
+
+人狼篇除了杀人手法背景上没解释，为什么人类村长对人狼知之甚详还知道找到人狼村的方法，两个村子隔离到人狼巫女润了都想不起来到人类村找，人类这边对人狼一有机会就图图的剧烈反应是怎么产生的，以及这秘密通道暴露又造成了重大伤亡，就这么各回各家是认真的吗
+
+
+*****
+
+####  临界点  
+##### 809#       发表于 2023-9-30 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62562965&amp;ptid=2125379" target="_blank">notromeo 发表于 2023-9-28 22:45</a>
+
+人类贱如猪狗
+
+后面2个故事压缩太厉害了，好多情节没说清楚</blockquote>
+人狼不也是  感觉死得还更多  而且弱得一比
+
+
+*****
+
+####  reficulp  
+##### 810#       发表于 2023-9-30 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62574376&amp;ptid=2125379" target="_blank">oneoutsider 发表于 2023-9-30 11:40</a>
+
+心疼被杀的那几个人类少女&amp;#x5 ...</blockquote>
+故意的，真打都问了明明早就知道凶手为什么拖到两边打起来，给两边各来点教训
+
+
+*****
+
+####  sephal  
+##### 811#       发表于 2023-9-30 20:46
+
+放真凶走的时候我还担心夜宴最后要收掉凶手，毕竟跑一趟不就为了人狼之力，这人狼之王怎么能放掉
+
+结果夜宴没动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是你们来一趟就为了让主角组回伦敦是吧
+
+
+*****
+
+####  游戏无用  
+##### 812#       发表于 2023-10-1 17:37
+
+后面感觉很莫名其妙啊！？
+
+犯人这终极狼人的身份是最后加上去的吧？有这必要吗？
+
+犯人杀死人类少女是想让狼人女孩顶替她们的身份活下去？有这必要吗？玩辐射4代入铁路组织了？
+
+那个什么社是不是有病啊？开场吹上天结果一点威慑力都没有，发现狼人村，发现夜宴的人参合进来了，发现了密道……不摇人，带着帮村民大半夜杀进狼人村去了？脑子呢？
+
+就是个卖角色的闹剧。
+
+
+*****
+
+####  Fragment  
+##### 813#       发表于 2023-10-1 18:00
+
+完结之后人狼篇一口气看下来感觉也还行，最后收尾赶了点。夜宴可能不知道终极人狼所以没去追金发萝莉，但好像也没见他们抓几只人狼带走，来不及交代直接省略了吗
+
+越往后打戏份量越多，但我还是最喜欢刚开始了解案情的文戏环节，推理篇幅比较多的吸血鬼篇太有意思了
+
+
+*****
+
+####  心怀感恩  
+##### 814#       发表于 2023-10-1 20:44
+
+医生这个角色就有点莫名，总有一种知道隐情的感觉，但最后真的就是纯路人，前面的欲言又止只是对人类不分青红皂白就仇视狼人母女的内疚，还不如把透露宝石用法的戏份分配给他呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  asdqwe_123  
+##### 815#       发表于 2023-10-1 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62574376&amp;ptid=2125379" target="_blank">oneoutsider 发表于 2023-9-30 11:40</a>
+
+心疼被杀的那几个人类少女&amp;#x5 ...</blockquote>
+毕竟活了几百年，这种事怕不是见得太多了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
