@@ -767,3 +767,10 @@
 
 原来在研究所出一个问题解决一次的套路没什么新活了，从德鲁哈失忆开始剧情暴走得很快<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Rafale  
+##### 73#       发表于 2023-10-2 13:43
+
+确实有当年看死亡笔记时的快感，漫画里的邪道主角有点太少了
+
