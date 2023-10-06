@@ -11818,3 +11818,1362 @@ shf的阿斯加隆好贵啊，要是来个价格合适的frs就好了
 抛开有的没的，这集的镜头切换很棒
 
 
+*****
+
+####  novyDC  
+##### 1106#       发表于 2023-9-16 09:16
+
+跟布莱泽抢控制权了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  novyDC  
+##### 1107#       发表于 2023-9-16 10:25
+
+这 队长迟早要跟防卫队闹矛盾啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  不灭的旋律  
+##### 1108#       发表于 2023-9-16 10:36
+
+这是作茧沉入地下冬眠？那也只是把问题往后延吧。Z的小雷德王也是不了了之。记得昭和奥有几集是大力把怪兽运到其他地方。
+
+这集机器狗子的眼睛完全是反派了
+
+
+*****
+
+####  novyDC  
+##### 1109#       发表于 2023-9-16 10:50
+
+这集真不错
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  novyDC  
+##### 1110#       发表于 2023-9-16 10:52
+
+防卫队高层果然有问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  海帕可乐  
+##### 1111#       发表于 2023-9-16 11:32
+
+这三波导弹的成本感觉好高，完全没有预算不足的样子
+
+
+*****
+
+####  水边井  
+##### 1112#       发表于 2023-9-16 11:54
+
+话说野人为什么要抢手柄？野人急着要变身的原因不是为了保护迪玛伽吗？
+
+
+*****
+
+####  不灭的旋律  
+##### 1113#       发表于 2023-9-16 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62426233&amp;ptid=2104492" target="_blank">水边井 发表于 2023-9-16 11:54</a>
+
+话说野人为什么要抢手柄？野人急着要变身的原因不是为了保护迪玛伽吗？</blockquote>
+我觉得是队长在抢手柄，因为之前和孩子的对话。野人只是急着出战。
+
+如果是野人抢也很好解释，开头野人不是在夺舍看电视的小宝宝吗
+
+
+*****
+
+####  Aeroblast  
+##### 1114#       发表于 2023-9-16 12:45
+
+一开始觉得孩子都质问了怎么还会发生抢控制权的事情很奇怪。看了看讨论，发现猜谁想下手谁阻止的都有。现在感觉是故意模糊化处理，炒热度。
+
+
+*****
+
+####  上坂莲华  
+##### 1115#       发表于 2023-9-16 12:58
+
+这个处理就很绝绝子
+
+队长抢有可能，队长左撇子，抢手柄的是左手，可以说成野人只想狩猎
+
+野人抢也有可能，野人之前盯着小宝宝看，队长回答儿子的话是不得不杀
+
+看后续怎么搞吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  雷之  
+##### 1116#       发表于 2023-9-16 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62371614&amp;ptid=2104492" target="_blank">游蜓 发表于 2023-9-11 22:52</a>
+
+后知后觉，布莱泽这几集咋全是山里或者野地这种布景啊，多来点炸大楼，很馋
+
+感觉看多了野地，越看越 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">山还算高了，至少有七十八十米高？反正几百米的大山基本不会有
+
+
+*****
+
+####  游蜓  
+##### 1117#       发表于 2023-9-16 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62426916&amp;ptid=2104492" target="_blank">雷之 发表于 2023-9-16 13:11</a>
+
+山还算高了，至少有七十八十米高？反正几百米的大山基本不会有</blockquote>
+山的问题是高山很难在布景里做出来，到野外取景就跟红超人似的根本看不出来巨大感了，目前来说用cg合成还好点
+
+
+*****
+
+####  游蜓  
+##### 1118#       发表于 2023-9-16 13:44
+
+这集挺好，感情也充足，节奏也紧凑，看的好爽
+
+布莱泽和闲人抢控制权那段确实乐，被围观发癫
+
+*****
+
+####  novyDC  
+##### 1119#       发表于 2023-9-16 13:47
+
+阿斯加隆（限时反派模式）
+
+<img src="https://img.saraba1st.com/forum/202309/16/134654fjspxsjozl9lzbzo.jpg" referrerpolicy="no-referrer">
+
+<strong>984EAB295C9FB31156156224037E9861.jpg</strong> (644.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-16 13:46 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  pokemon最爱  
+##### 1120#       发表于 2023-9-16 14:26
+
+我觉得思路不要那么死，随着弦人和布莱泽的融合加深，凭什么非认为操控布莱泽时的两个人格非得还是弦人和布莱泽，而不能是二者各自自身矛盾的一面融合出来的新人格间在抢手柄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（也就是可能不是弦人和布莱泽抢手柄，而是认为怪兽应该消灭的弦人和布莱泽的理性形成的人格与认为应该放过怪兽的弦人和布莱泽的感性形成的人格在抢手柄）
+
+*****
+
+####  待宵  
+##### 1121#       发表于 2023-9-16 14:26
+
+目前为止我很在意小黑屋为何一反新生代常态维持在第一人称视角，难道切第三人称会有爆点？
+
+
+*****
+
+####  novyDC  
+##### 1122#       发表于 2023-9-16 14:47
+
+这世界已经默认把怪兽当成灾害了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  linchuanwangmou  
+##### 1123#       发表于 2023-9-16 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62427466&amp;ptid=2104492" target="_blank">待宵 发表于 2023-9-16 14:26</a>
+
+目前为止我很在意小黑屋为何一反新生代常态维持在第一人称视角，难道切第三人称会有爆点？ ...</blockquote>
+切全景发现等身布莱泽站在对面是吧
+
+
+*****
+
+####  星火龙  
+##### 1124#       发表于 2023-9-16 16:01
+
+<blockquote>待宵 发表于 2023-9-16 14:26
+目前为止我很在意小黑屋为何一反新生代常态维持在第一人称视角，难道切第三人称会有爆点？ ...</blockquote>
+只是单纯想回避小黑屋吧？第一人称的违和感会小一点～
+
+
+*****
+
+####  Case  
+##### 1125#       发表于 2023-9-16 16:55
+
+不像是传统奥的神性。
+
+这次更像是野性 VS 人性的碰撞。
+
+田口说的关于“交流”的主旨开始慢慢展开了。
+
+
+*****
+
+####  敏感词好多  
+##### 1126#       发表于 2023-9-16 17:27
+
+渐入佳境了啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  HSJ1992  
+##### 1127#       发表于 2023-9-16 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62427466&amp;ptid=2104492" target="_blank">待宵 发表于 2023-9-16 14:26</a>
+
+目前为止我很在意小黑屋为何一反新生代常态维持在第一人称视角，难道切第三人称会有爆点？ ...</blockquote>
+第一人称是主角视角啊。
+
+感觉后面这个第一人称画面会出现在在防卫军上层开会的投影仪画面上，
+
+“弦人队长变身布莱泽奥特曼 头盔摄像头第一视角 20XX:XX:XX，总计XX秒”。
+
+然后加上远程瞄准拍摄的第三视角<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喷火飞龙  
+##### 1128#       发表于 2023-9-16 20:39
+
+真好看啊这一集！
+
+b站高亮解释说是两个人误会对方是想干掉怪兽的那一个，其实都是想保护迪玛伽，我倒觉得会不会是布莱泽被队长一步步说服呢？
+
+后面应该还会有回响。
+
+
+*****
+
+####  你听得到  
+##### 1129#       发表于 2023-9-16 22:29
+
+可惜最近这几集的编剧也去世了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">越导也是肉眼可见的火力全开
+
+
+*****
+
+####  永恒的王牌  
+##### 1130#       发表于 2023-9-16 22:54
+
+讨论到底谁抢谁手柄其实还挺有意义的，但看了几个帖子为了这事吵到火气都上来了，令人感慨
+
+*****
+
+####  RainbowSealife  
+##### 1131#       发表于 2023-9-16 22:56
+
+太太看着队长对着育儿节目失神，会不会以为想要二胎了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+野人视角最先看到幼兽，队长这里想要把威胁最小化，完了，这下真不知道谁顶谁号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ナルバレック  
+##### 1132#       发表于 2023-9-16 22:58
+
+其实好奇布莱泽结局怎么弄，大概率是盖亚那种继续呆着吧，职位太高+有妻子儿子是最不适合跑路的
+
+
+*****
+
+####  最强惠酱  
+##### 1133#       发表于 2023-9-16 23:19
+
+问题的留白处理真好
+
+
+*****
+
+####  kcalb  
+##### 1134#       发表于 2023-9-16 23:52
+
+如果想玩点新意的话，说不定这次是野人留下来，搞不好膜的是七爷初期的企划团实为R星人和地球人的混血儿，落叶归根回地球找妈的
+
+野人的背景一直捂得比较严实，结合数十年前巨人有来过银河系的传闻，大的应该在这里
+
+
+*****
+
+####  Case  
+##### 1135#       发表于 2023-9-17 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62427622&amp;ptid=2104492" target="_blank">novyDC 发表于 2023-9-16 14:47</a>
+
+这世界已经默认把怪兽当成灾害了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+“小怪兽不用跑，大怪兽跑不了。”
+
+
+*****
+
+####  hulaoda007  
+##### 1136#       发表于 2023-9-17 00:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">确实越来越好看了。
+
+
+*****
+
+####  vmon  
+##### 1137#       发表于 2023-9-17 11:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抢控制肯定是队长抢啊，这个和变身时候的染色是对应的，变身器在左手，变身时候特效也是原本原色左半身染色，暗示两人合体，野人明显就是个战斗狂啊，看到怪兽就想干。
+
+
+*****
+
+####  若菜  
+##### 1138#       发表于 2023-9-17 12:24
+
+连续4集都很棒，蝉那集太棒了,和泽塔是不同方向的好看
+
+
+*****
+
+####  Blackson  
+##### 1139#       发表于 2023-9-17 13:53
+
+下一集还是分上下回的单元回，嘎拉蒙蛋剑要出来了（现在就怕成剑架子）
+
+
+*****
+
+####  洛克萨斯  
+##### 1140#       发表于 2023-9-17 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥片场看得舒服，这周刚看完骑士过来洗洗眼
+
+
+*****
+
+####  Sleipnirω  
+##### 1141#       发表于 2023-9-18 22:29
+
+感觉阿斯加隆一碰就碎啊，出来之后一直在吃瘪，这就是奥棚友方巨大萝卜的宿命吗
+
+
+*****
+
+####  Garterbelt  
+##### 1142#       发表于 2023-9-20 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62451775&amp;ptid=2104492" target="_blank">Sleipnirω 发表于 2023-9-18 22:29</a>
+
+感觉阿斯加隆一碰就碎啊，出来之后一直在吃瘪，这就是奥棚友方巨大萝卜的宿命吗 ...</blockquote>
+因为卑鄙的布莱泽躲在后面让阿斯加隆打头阵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1143#       发表于 2023-9-20 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到个给阿斯嘉隆升级成大赛沙的同人图，这个的话就不会吃瘪了！
+
+
+*****
+
+####  Sokukei  
+##### 1144#       发表于 2023-9-20 12:19
+
+阿斯加隆高攻低防啊
+
+
+*****
+
+####  novyDC  
+##### 1145#       发表于 2023-9-23 09:15
+
+下集有新玩具了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  haoshion  
+##### 1146#       发表于 2023-9-23 09:24
+
+阿斯加隆c了野人怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  novyDC  
+##### 1147#       发表于 2023-9-23 09:35
+
+野人有点怂啊 动不动就跑路
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  纯狐娘娘  
+##### 1148#       发表于 2023-9-23 09:47
+
+ 本帖最后由 纯狐娘娘 于 2023-9-23 09:48 编辑 
+
+有点意思啊，弦人与布莱泽的分歧很好的描写出来了。没想到稳的是布莱泽，莽的是队长<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+布莱泽的战斗意思还挺强，打的过就打，打不过就先溜了。
+
+*****
+
+####  不灭的旋律  
+##### 1149#       发表于 2023-9-23 09:47
+
+看来是野人在夺控制权？
+
+这次怪兽的动作和战斗方式非常贴合怪兽的造型设计，就像真的生物一样
+
+*****
+
+####  novyMS  
+##### 1150#       发表于 2023-9-23 10:16
+
+op那个投弹镜头是投温压弹?
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Sokukei  
+##### 1151#       发表于 2023-9-23 10:22
+
+不会吧 上集的理解居然是反的
+下集有新玩具！
+
+*****
+
+####  游蜓  
+##### 1152#       发表于 2023-9-23 10:30
+
+这集怪兽太对味了，真得好，又怪异又合理
+
+剧情来讲信息太空了，上集那种紧凑的多来点啊
+
+跑路符合野人思维倒是，目前来看布莱泽道德文明水平不高，做事靠感情和直觉
+
+*****
+
+####  novyMS  
+##### 1153#       发表于 2023-9-23 10:34
+
+这新怪兽真强
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  DOACAON  
+##### 1154#       发表于 2023-9-23 11:23
+
+开播前以为是队长要受夹板气，结果队员乖得一比
+
+这话看下来反而参谋长才是受夹板气的那个了
+
+*****
+
+####  vmon  
+##### 1155#       发表于 2023-9-23 11:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跑的不是队长吗，阿斯加隆的时候就是队长先见势不妙喊的撤退，然后布雷泽两个人分歧的时候还重复了这个画面。
+
+*****
+
+####  桥洞底下盖小被  
+##### 1156#       发表于 2023-9-23 12:59
+
+野人你在搞什么飞机
+
+*****
+
+####  取名真是难  
+##### 1157#       发表于 2023-9-23 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62501489&amp;ptid=2104492" target="_blank">vmon 发表于 2023-9-23 11:38</a>
+
+跑的不是队长吗，阿斯加隆的时候就是队长先见势不妙喊的撤退，然后布雷泽两个人分歧的时候还重复了 ...</blockquote>
+你没看明白，在阿斯加隆里面也是布雷萨脑控队长喊跑路的
+
+*****
+
+####  敏感词好多  
+##### 1158#       发表于 2023-9-23 13:23
+
+你给路大有<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Sliurus  
+##### 1159#       发表于 2023-9-23 13:26
+
+上集也是布莱泽阻止弦人，其实很合理，弦人是正规军人，阻止怪兽是职责，而布莱泽没这种包袱，可以放过的怪兽就放过，打不过就逃跑
+
+*****
+
+####  utakata  
+##### 1160#       发表于 2023-9-23 14:50
+
+确实有点分不清到底是布莱泽在线还是队长在线，这集还好，前面其实剧本是有点故意混淆设计的吧
+
+*****
+
+####  kcalb  
+##### 1161#       发表于 2023-9-23 16:00
+
+带飞行形态的宇宙海产果然都是强者
+
+下回又到大宝剑环节…感觉野人还是应该用长柄武器才搭啊
+
+
+*****
+
+####  黑魔导始祖  
+##### 1162#       发表于 2023-9-23 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这才符合野人的习性啊，打得过就打、打不过就跑
+
+
+*****
+
+####  Sleipnirω  
+##### 1163#       发表于 2023-9-23 17:43
+
+这集基本全在打架，海星压迫感感觉比彩虹神还强了
+
+
+*****
+
+####  novyDC  
+##### 1164#       发表于 2023-9-23 19:19
+
+队长：不如阿斯加隆
+
+<img src="https://img.saraba1st.com/forum/202309/23/191857u4bzu9f4anfvn3u8.jpg" referrerpolicy="no-referrer">
+
+<strong>938305DDE5F557010EE0D79B4EDEE1D7.jpg</strong> (229.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-23 19:18 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  若菜  
+##### 1165#       发表于 2023-9-23 19:37
+
+布莱泽不会说话，彻底没法沟通了....下集怎么解决
+
+
+*****
+
+####  王九的哥哥  
+##### 1166#       发表于 2023-9-23 22:06
+
+说起来还有一点，这集第一次给怪叫配了字幕，而且是跟队长同色的……
+
+不知道可不可以当作战斗开始时主控是队长的实锤……
+
+
+*****
+
+####  Sokukei  
+##### 1167#       发表于 2023-9-24 00:23
+
+因为布莱泽既有自己的意识（不像德凯）但是又不会和人间体对话（Z，X），显得交流格外困难了……
+
+
+*****
+
+####  敏感词好多  
+##### 1168#       发表于 2023-9-24 00:34
+
+所以每次的战吼到底是队长喊的还是布莱泽喊的，又或者无论说什么都会转化成urrrrr~<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Case  
+##### 1169#       发表于 2023-9-24 01:32
+
+布莱泽副本的怪都有点猛的。
+
+而且这次一堆新怪。也没法横向对比其他奥的副本强度了。
+
+只能说这次的几只新怪压迫感都很足。
+
+
+*****
+
+####  永恒的王牌  
+##### 1170#       发表于 2023-9-24 06:20
+
+现在能实锤上一集要阻止动手的也是布莱泽了吧
+
+
+*****
+
+####  洛克萨斯  
+##### 1171#       发表于 2023-9-24 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">野人应该不是光之国编制的吧，奥特曼也需要扫盲！不会交流的坏处啊
+
+
+*****
+
+####  水边井  
+##### 1172#       发表于 2023-9-24 15:06
+
+不过野人的技能库现在看来还是小了一点，一般都是光矛派生/彩虹派生，本体用的光线技好像就是这集算是第二次出现的王子战法
+
+
+*****
+
+####  RoPlem  
+##### 1173#       发表于 2023-9-25 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62508235&amp;ptid=2104492" target="_blank">Case 发表于 2023-9-24 01:32</a>
+
+布莱泽副本的怪都有点猛的。
+
+而且这次一堆新怪。也没法横向对比其他奥的副本强度了。</blockquote>
+目前的新怪单论设定是不如前几年强力的，甚至可能顶多到超兽那个级别。主要是表现力好再加上布莱泽也没那么多奇奇怪怪的设定和buff，我感觉布莱泽的怪都是表现力很强但是设定战力一般的水准
+
+
+*****
+
+####  RoPlem  
+##### 1174#       发表于 2023-9-25 10:59
+
+这集这个反转一下子就有味起来了
+
+之前都觉得是光之野人，原始人莽子，现在告诉你队长才是莽比布莱泽才是那个稳扎稳扎身经百战的战士
+
+这一整一下子又把奥棚久违的神性给拉上来了，比起短视的人类（队长），布莱泽才是那个梗体恤万物，站在平衡角度思考的第三者，甚至不能说是“爱着人类”，有可能只是因为遭遇了某些事故所以不得已才依托于队长，和往年的附身系那种一心同体形成鲜明对比了
+
+这么一看，队长的人设可能也要反转，虽然队长因为在司令部对比下显得很暖男通人意，但是实际上可能也是鹰派，毕竟不需要洋子所谓“地球上没有怪兽生存之地”的说辞，也在很坚定地消灭怪兽，而这集通过对防卫队的展现，再加上参谋长设定上是“犬派”，SKaRD反倒是为了能摆脱防卫队控制能更高效打击怪兽而存在的
+
+上一集亲情回这么一看也怪起来了，上一集还感觉是慈爱的父亲对怪兽的共鸣，现在回头看儿子喜欢支持的是“布莱泽”而不是队长控制的杀伐果断“布莱泽”，现在看来可能队长更有点人类至上主义的感觉，为了保护人类和家人不择手段
+
+这部的主题说是“交流”，而布莱泽和队长现在看来是完全没有直接交流的，反倒是布莱泽通过“本能”偶尔夺舍下队长，再加上是田口的作品，可能成长线更类似于欧布这种寻找自我的主体。最后布莱泽的新形态应该就是队长和布莱泽互相理解后找回了布莱泽真正力量的样子，现在的样子是因为某些原因不得已附身队长而使用的劣化形态
+
+
+*****
+
+####  Piano-Forest  
+##### 1175#         楼主| 发表于 2023-9-25 14:06
+
+<img src="https://p.sda1.dev/13/f7ee035fa95858c4772a9d21ce431a3c/7926035dgy1h8hjdifkn7j21400u010a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/05b63ddcf56848ec8f8ee3c3f5325f19/8797dff0ly1gyhuermv6gj210w0u016e.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 1176#         楼主| 发表于 2023-9-25 14:12
+
+宇宙电磁怪兽 盖巴尔加
+
+体内积蓄着大量电磁能量的宇宙电磁怪兽。
+
+从头部的獠牙和手上的指爪放出电击，身体中央的突起状器官打开后会产生呈穹顶状扩散的电磁场。一旦被电磁场捕获，电子设备就会陷入瘫痪的境地。
+
+会将身体蜷曲成球状进行攻击，如果体表被电磁屏障覆盖，即便是螺旋光枪也无法伤其分毫。
+<img src="https://p.sda1.dev/13/41d5bf02e415cae659d24382b28ffa57/2573189c-d379-4ab7-8fd3-c8bb6c08316d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/5b6a6708ff31d693d23086f92be78184/8c85d85c-58d9-4857-9fbb-bc6ca1636e64.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/2169f5a810754f3ad747deaf63cd29e7/04b80770-4eda-4d01-acc7-1ace6486a681.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/6bb0a45c4ae15c809894ef4f228e95ff/ef22c8e2-3f97-469f-b880-a3d8dc0c4223.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/7a089f3b2a554ae09a5b0db945afd5dc/47ae1a02-9df9-41d1-b7f7-b23334fc15a3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/38f065488114e2a737637e59a0eacb0a/01465966-7b99-4d02-b54b-72e9a73605ff.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/f070217972b268a5db69df6c25ce1692/1351dcaf-82d2-4584-811f-445d4a2706e4.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kawaic09/status/1705566394899931436](https://twitter.com/kawaic09/status/1705566394899931436)
+
+「ゲバルガぁ！ブレーザーさんになんて事を‼️」…と言う訳でゲバルガのデザインを担当させていただきました！
+
+怪獣デザインとしてはジランゴン、ボルテックファイヤー(これはお手伝い♪)に続き三体目ですが、初の立体です！ソフビが出るんです！やったぜウチのコ♪
+<img src="https://p.sda1.dev/13/d0bfc6b1ca4ce98fc114e46e65659ad2/6b633449-6162-4bda-8942-4b844e2d2de2.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 1177#       发表于 2023-9-25 15:30
+
+原来这货有尾巴的啊，还以为就是海星
+
+
+*****
+
+####  无名的刀锋  
+##### 1178#       发表于 2023-9-25 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样一来的话就变成了队长想要斩草除根，野人立刻拉住队长主动无力化解除威胁（可能是只杀妈不杀子观感也不太好所以改现在这样）；队长天职所在打不过也得拼了，野人是猎人会尽力避免严重受伤的场面
+
+什么杀性比奥还高的人间体
+
+
+*****
+
+####  不灭的旋律  
+##### 1179#       发表于 2023-9-25 21:37
+
+那些野人战舞难道也是队长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我特么吹爆  
+##### 1180#       发表于 2023-9-26 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62528062&amp;ptid=2104492" target="_blank">不灭的旋律 发表于 2023-9-25 21:37</a>
+那些野人战舞难道也是队长</blockquote>
+durrra～durrrrrrrrrrrrrrrrra～（原地怪跳）
+这要是队长……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  vorfeed  
+##### 1181#       发表于 2023-9-26 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62532185&amp;ptid=2104492" target="_blank">我特么吹爆 发表于 2023-9-26 11:17</a>
+durrra～durrrrrrrrrrrrrrrrra～（原地怪跳）
+这要是队长……</blockquote>
+可见已婚育儿的压力之大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  angelooo  
+##### 1182#       发表于 2023-9-26 13:53
+
+这个宇宙海星的设计感太强了，所以眼睛到底在哪里
+
+
+*****
+
+####  游蜓  
+##### 1183#       发表于 2023-9-28 10:06
+
+新形态目前看剧照还挺帅
+
+
+*****
+
+####  Piano-Forest  
+##### 1184#         楼主| 发表于 2023-9-28 18:25
+
+ 本帖最后由 Piano-Forest 于 2023-9-28 18:28 编辑 
+
+10月剧集剧照（13～16话）
+
+新ED“Brave Blazar”（14～25话）
+
+<img src="https://p.sda1.dev/13/535a1c44b883693d9968e4ab433c9b2b/20230927231739.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/e3b252be469cd7c344d427983afac9e0/20230927231739_20230927231753.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/3ba673381a1b6666bc6011e133027562/20230927231906_20230927231920.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/d356cd9dd57b4f95d4843e0d438e2ed1/20230927231906.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/3658b4626a023bccf99e969f382bce8c/20230927231947.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/d67775367b0ef7607a8c4e18c519c601/20230927231947_20230927232001.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/a06bf9599388011ad39b490e22e2bdea/20230927232021.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/ffa84912c41eaf48f4d30601408fcfda/20230927232022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1185#       发表于 2023-9-28 18:59
+
+最后一张这怪给人一种超兽的感觉
+
+
+*****
+
+####  王九的哥哥  
+##### 1186#       发表于 2023-9-28 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62560493&amp;ptid=2104492" target="_blank">Piano-Forest 发表于 2023-9-28 18:25</a>
+10月剧集剧照（13～16话）
+
+新ED“Brave Blazar”（14～25话）</blockquote>
+哇，那个大可爱难道是ガヴァドン<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Lyzers  
+##### 1187#       发表于 2023-9-28 23:08
+
+有点搞不懂了，一开始看难得蹦了一次加上打得那么狂暴以为这次是野人主导，但是后面又说伸手阻止和下命令跑路的是野人
+
+
+*****
+
+####  novyMS  
+##### 1188#       发表于 2023-9-30 10:10
+
+长官这训话有内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyMS  
+##### 1189#       发表于 2023-9-30 10:21
+
+这防卫队作战真好看
+
+
+*****
+
+####  vorfeed  
+##### 1190#       发表于 2023-9-30 10:29
+
+大B哥是不加点拉环和扳机做不来玩具是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyMS  
+##### 1191#       发表于 2023-9-30 10:33
+
+这剑玩具不带发光机构鉴定假货<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 1192#       发表于 2023-9-30 10:42
+
+<blockquote>王九的哥哥 发表于 2023-9-28 22:41
+哇，那个大可爱难道是ガヴァドン</blockquote>
+这个加巴顿A看起来比初代还要呆萌，求不要变成B
+
+
+*****
+
+####  novyMS  
+##### 1193#       发表于 2023-9-30 10:55
+
+ 本帖最后由 novyMS 于 2023-9-30 10:56 编辑 
+
+连上第四集了
+
+QQ截图20230930105417.png
+(260.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-30 10:54 上传
+
+<img src="https://img.saraba1st.com/forum/202309/30/105441kuylhp7pkp40wquh.png" referrerpolicy="no-referrer">
+
+*****
+
+####  游蜓  
+##### 1194#       发表于 2023-9-30 10:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来野人跑路是连队长一起保护，然后还宠的飞起，给扔柜子了还直接撞破墙飞过来，什么男妈妈。
+
+嘎啦蒙这音效和雷鸣剑战斗曲都不错，玩具实际效果不知道咋样。
+
+开局参谋还上压力skard没独立干死过怪兽，结尾看好像参谋长上头还有人，把布莱泽也算进战斗力了。
+
+
+*****
+
+####  布莱士·西伯利  
+##### 1195#       发表于 2023-9-30 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">这集真精彩，本来以为剑很鸡肋结果嘎拉蒙音效和演出帅的不行。感觉布猴子定位不只是野人，而是心智也不成熟。
+
+不过下集是不是总集篇？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以及这一集最恐怖的一幕是炸emp的时候，把某个社畜的excel给炸没了，太恐怖了。
+
+
+*****
+
+####  不灭的旋律  
+##### 1196#       发表于 2023-9-30 12:01
+
+恭喜野人从石器时代进化到铁器时代。
+
+看来不让狗子赢是有理由的，之后肯定专门有一集拿下首胜。
+
+队长终于意识到不能一个人莽了，最后一片狼藉就像是主人回家发现被蠢猫傻狗拆家了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+炮管都弯了原来是软胶素材吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202309/30/120106ez52722uht4zhthp.jpg" referrerpolicy="no-referrer">
+
+<strong>34564365546.jpg</strong> (57.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-30 12:01 上传
+
+*****
+
+####  上坂莲华  
+##### 1197#       发表于 2023-9-30 12:02
+
+结果三次全是野人在阻止队长，也就是说猴子跳真的是队长干出来的事情，建议别演了掏家伙变heart<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 1198#       发表于 2023-9-30 12:07
+
+我就喜欢拟人化，可惜官方怪兽娘根本不行
+
+作者：金栗
+[https://twitter.com/kinkuri_](https://twitter.com/kinkuri_)
+
+<img src="https://img.saraba1st.com/forum/202309/30/120549bpmltpl8zi1pl22l.jpg" referrerpolicy="no-referrer">
+
+<strong>F7O749zakAAXtMK.jpg</strong> (268.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-30 12:05 上传
+
+<img src="https://img.saraba1st.com/forum/202309/30/120555tnn8k58m41419wo4.jpg" referrerpolicy="no-referrer">
+
+<strong>F7O749Ra8AAiRpq.jpg</strong> (425.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-9-30 12:05 上传
+
+
+*****
+
+####  深渊萃取  
+##### 1199#       发表于 2023-9-30 12:45
+
+参谋说的second wave已击退，第一话是first wave，第一第二波指的原来是宇宙来的威胁？这么久不可能只有两只宇宙怪兽其他的都是本土，至少宇宙来的贾拉蒙并没有算进去，两个被算进去的宇宙怪兽原型都是水产，估计是水产系都是某个特殊的地外势力派过来的尖兵。
+
+
+*****
+
+####  橙冰  
+##### 1200#       发表于 2023-9-30 12:54
+
+最好看的一集，和第一集不相上下
+
+
+*****
+
+####  秘银mithril  
+##### 1201#       发表于 2023-9-30 12:56
+
+这集真好看啊
+
+*****
+
+####  haojie_ma  
+##### 1202#       发表于 2023-9-30 12:59
+
+最后储物柜那个烂摊子队长想好要怎么圆过去吗
+
+
+*****
+
+####  若菜  
+##### 1203#       发表于 2023-9-30 13:03
+
+太好看了，文戏武戏都一流
+
+*****
+
+####  不灭的旋律  
+##### 1204#       发表于 2023-9-30 13:10
+
+既然野人能通过剪片和队长交流，为什么不把队长说过的五十音全部剪下来搞一个队长VOCALOID？还能出官方鬼畜视频<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛油  
+##### 1205#       发表于 2023-9-30 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62574901&amp;ptid=2104492" target="_blank">深渊萃取 发表于 2023-9-30 12:45</a>
+
+参谋说的second wave已击退，第一话是first wave，第一第二波指的原来是宇宙来的威胁？这么久不可能只有两 ...</blockquote>
+能找到的共通点是怪兽身上有类似科技的东西，这次second wave的怪兽EMP器官让我想起来first wave的怪兽身上有弹药量限制的火炮，那真的只是生物器官吗
+
+
+*****
+
+####  Case  
+##### 1206#       发表于 2023-9-30 13:25
+
+好好看的一集。居然看到了奥特曼拆家。
+
+文戏武戏演技都在线。奥特曼也没抢了人类部分的风头。
+
+那段人类配合作战真的精彩。
+
+带货都带的好帅。
+
+*****
+
+####  Cloudslin  
+##### 1207#       发表于 2023-9-30 13:30
+
+不错不错，武居单集功力还是强的
+
+
+*****
+
+####  取名真是难  
+##### 1208#       发表于 2023-9-30 13:40
+
+看完第一次想买玩具的一集，这野人匕首有点帅啊
+
+
+*****
+
+####  水边井  
+##### 1209#       发表于 2023-9-30 14:43
+
+这个怪好强，明明没搞什么怪力乱神的设定，纯靠打斗显示出的强度
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Sokukei  
+##### 1210#       发表于 2023-9-30 14:55
+
+这怪有点太数值怪了吧，虹蛇是机制怪，这怪又能近战，还有远程EMP，防护盾。
+很难想象后辈怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  就是剑鞘  
+##### 1211#       发表于 2023-9-30 15:07
+
+感觉全方位超过虹蛇神篇，文戏点到即止没有过分煽情很舒服，武戏尽情宣泄没有差一口气也很舒服，就是这怪兽长得过于杂鱼了，和强度极其不相符啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rainsheep  
+##### 1212#       发表于 2023-9-30 15:22
+
+我感觉这怪兽形象设计的挺有意思的，平时是个海星形状，战斗时会把两只手合起来和头形成一个新的嘴去用咬的方式攻击
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 1213#       发表于 2023-9-30 15:40
+
+李涛，布莱泽把珍贵的陨石材料毛走了算不算国有资产流失
+
+
+*****
+
+####  Y.Cassano  
+##### 1214#       发表于 2023-9-30 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62576132&amp;ptid=2104492" target="_blank">华发夜眼[CN] 发表于 2023-9-30 15:40</a>
+
+李涛，布莱泽把珍贵的陨石材料毛走了算不算国有资产流失</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这原材料也没掏钱买，是白捡的。最多损失点加工费，回去让领导报销得了。
+
+
+*****
+
+####  Sliurus  
+##### 1215#       发表于 2023-9-30 16:00
+
+很喜欢派大星咬住布莱泽甩出去的动作，像在打意形拳
+不知道是不是另一个文明自灭游戏，参谋长似乎在促进军事力量的发展
+布莱泽还是文戏少了点，拍了半季没有印象深刻的文戏，入队回算一个吧
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1216#       发表于 2023-9-30 16:22
+
+长官训话挺乐的，想组建个大c出来结果现在0击杀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  纯狐娘娘  
+##### 1217#       发表于 2023-9-30 16:49
+
+这个海星居然这么强，大招小技能都有，远程近战都可以，远可emp攻击，近会滚石和咬人，还很肉，能打能抗，拼力量还能比布莱泽强点，这集里面还会护盾技能，可以说是打团的一把好手<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+感觉代哥的玩具就差点意思了，可动关节少了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  纯狐娘娘  
+##### 1218#       发表于 2023-9-30 17:13
+
+ 本帖最后由 纯狐娘娘 于 2023-9-30 17:15 编辑 
+
+还有第一集是“第一次冲击”，这是“第二次冲击”，明显中间的蝉人类与嘎啦蒙是不算入在内的，这两集的防卫军准备与出力也不一般。
+高层明显是知道什么的，同一个地方的宇宙人侵略计划？与Lv99有关？宇宙海鲜怪兽类似于盖亚里面的破灭性招来体？如果后面再放过两个地球怪兽的话，我都会怀疑最后会不会致敬盖亚复刻奥特曼地球人地球怪兽联手对抗来自宇宙的侵略了。
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  angelooo  
+##### 1219#       发表于 2023-9-30 17:23
+
+ 本帖最后由 angelooo 于 2023-9-30 17:26 编辑 
+<blockquote>纯狐娘娘 发表于 2023-9-30 16:49
+这个海星居然这么强，大招小技能都有，远程近战都可以，远可emp攻击，近会滚石和咬人，还很肉，能打能抗， ...</blockquote>
+我爱上这个海星了，虹蛇神虽然颜色很艳丽但还是戴着面罩好看，露脸之后不是很喜欢，这个海星的玩具只有尾巴能动代哥也太敷衍了，前面在微博刷到一个大佬把这玩意重涂改造成了全身可动版，爆杀原版了属于是
+[https://weibo.com/3247961375/4950991088650962](https://weibo.com/3247961375/4950991088650962)
+
+*****
+
+####  angelooo  
+##### 1220#       发表于 2023-9-30 17:30
+
+<blockquote>就是剑鞘 发表于 2023-9-30 15:07
+感觉全方位超过虹蛇神篇，文戏点到即止没有过分煽情很舒服，武戏尽情宣泄没有差一口气也很舒服，就是这怪兽 ...</blockquote>
+我头像那只长得也很蠢，但差点搞死归曼，相比之下海星的长相已经很强者了233
+
+
+*****
+
+####  kcalb  
+##### 1221#       发表于 2023-9-30 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62576014&amp;ptid=2104492" target="_blank">rainsheep 发表于 2023-9-30 15:22</a>
+
+我感觉这怪兽形象设计的挺有意思的，平时是个海星形状，战斗时会把两只手合起来和头形成一个新的嘴去用咬的 ...</blockquote>
+博迦鲁类型，适合扔给trigger做动画，特摄实拍不太好表现
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1222#       发表于 2023-9-30 20:16
+
+这个海星太全面了，法术肉搏都是一流。
+
+
+*****
+
+####  xzhlj0325  
+##### 1223#       发表于 2023-9-30 21:25
+
+海星从机制上是不是能把金古桥到百万巴萨库一众机械怪秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  hulaoda007  
+##### 1224#       发表于 2023-9-30 21:36
+
+海星上一集有一个分镜是水的倒影。那个感觉就是致敬7**打王乔时的一段经典画面。
+
+
+*****
+
+####  double8  
+##### 1225#       发表于 2023-9-30 22:11
+
+<blockquote>angelooo 发表于 2023-9-30 17:30
+我头像那只长得也很蠢，但差点搞死归曼，相比之下海星的长相已经很强者了233 ...</blockquote>
+你这也是电磁波怪兽了吧，输给天下无敌德奥特手镯，不冤！
+
+
+*****
+
+####  kcalb  
+##### 1226#       发表于 2023-9-30 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62578908&amp;ptid=2104492" target="_blank">xzhlj0325 发表于 2023-9-30 21:25</a>
+
+海星从机制上是不是能把金古桥到百万巴萨库一众机械怪秒了
+
+论坛助手,iPhone ...</blockquote>
+金古乔有紧急备份系统，被防卫军回收改造时自己就动起来了，海星能否破得了培丹尼姆合金也难说
+
+*****
+
+####  白玫瑰之夜  
+##### 1227#       发表于 2023-9-30 23:06
+
+胸口拔刀，建议来个美少女拟人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Garterbelt  
+##### 1228#       发表于 2023-10-1 06:36
+
+<blockquote>不灭的旋律 发表于 2023-9-30 12:07
+我就喜欢拟人化，可惜官方怪兽娘根本不行
+
+</blockquote>
+用奇酷比放电磁波是吧（笑）
+
+
+*****
+
+####  vmon  
+##### 1229#       发表于 2023-10-1 10:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前感觉最佳回了，然后这集终于卖了波玩具，另外下集看预告不会又是总集篇吧。。。。。
+
+
+*****
+
+####  仟音一心  
+##### 1230#       发表于 2023-10-1 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62575920&amp;ptid=2104492" target="_blank">就是剑鞘 发表于 2023-9-30 15:07</a>
+感觉全方位超过虹蛇神篇，文戏点到即止没有过分煽情很舒服，武戏尽情宣泄没有差一口气也很舒服，就是这怪兽 ...</blockquote>
+死鱼眼可是强者的画风！<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喷火飞龙  
+##### 1231#       发表于 2023-10-1 11:06
+
+这集的最大观感是：太流畅了！！
+
+
+*****
+
+####  上坂莲华  
+##### 1232#       发表于 2023-10-1 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62578908&amp;ptid=2104492" target="_blank">xzhlj0325 发表于 2023-9-30 21:25</a>
+
+海星从机制上是不是能把金古桥到百万巴萨库一众机械怪秒了
+
+论坛助手,iPhone ...</blockquote>
+克雷奇贡皮尔卡蒙这种应该随便过，你说的这俩都算机械怪巅峰了，海星过起来还是挺困难的
+
+以赛文金古乔为例，首先金古乔体防非常高（OV被头镖连打4次+奥特撞击战法才穿）海星没法破
+
+其次金古乔反应速度高到可以分体躲光线技能，他分成四部分在电磁场外风筝请问海星阁下如何破解
+
+百万走剧情的话他前置巴萨库哨兵，看到你有EMP立马准备对策了，走遭遇战海星理论上能瘫痪，但一样啃不动
+
+而且机械怪里面还有麦加奇拉斯这种吧友手操堪比回家水门的，海星防扛不住飞弹（这点斗兽非常吃亏）攻EMP要蓄力动作和展开时间，还是谨慎不看好
+
+
+*****
+
+####  洛克萨斯  
+##### 1233#       发表于 2023-10-1 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">龙龙第一个人头啥时候啊，好惨，kpi不达标
+
+
+*****
+
+####  猫兔同笼  
+##### 1234#       发表于 2023-10-1 21:42
+
+<img src="https://img.saraba1st.com/forum/202310/01/214109lzh16mv7oz3ez1z3.png" referrerpolicy="no-referrer">
+
+<strong>1096916961675172.png</strong> (105.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-10-1 21:41 上传
+
+最新一集剧情be like
+
+
+*****
+
+####  仟音一心  
+##### 1235#       发表于 2023-10-2 21:33
+
+新角色——ドバシ ユウ
+ 第14话开始登场，为原地球防卫队日本支部长。
+ 是与惠美所调查的地球防卫队内幕密切相关的重要人物。
+演员：寺田农
+特摄常客
+《奥特曼》卡车司机
+《迪迦奥特曼》根津博士、宫川
+《戴拿奥特曼》垃圾站站长
+《奥特Q黑暗幻想》真柄太郎
+《麦克斯奥特曼》梅特龙星人人间体
+《假面骑士W》园咲琉兵卫
+《捷德奥特曼》朝仓锤
+<img src="https://p.sda1.dev/13/3385c76b39c6083349826f99f4ff6b5e/970218BE0C493D4058228AD197EC2EC1.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  楠城旧篱  
+##### 1236#       发表于 2023-10-3 00:02
+
+大的要来了？
+
+
+*****
+
+####  仟音一心  
+##### 1237#       发表于 2023-10-3 20:53
+
+【月光怪兽德尔坦达尔】
+ 身高45米，体重1.4万吨。世界各地频发的未确认航空现象的真面目。以9马赫的速度飞行，以随之而来的冲击波为武器。机动性也很强，可以在超过空气动力极限的超高空活动，也可以在大气层外活动。阿斯加隆的4马赫最高速度与月光怪兽相差甚远，SKaRD将如何应对？
+ 【幻视怪兽摩古乔】
+ 身高54米，体重5万9千吨。从藤垣市郊外的开发现场的大洞里出来的巨大的地下生物。用两掌的发光器官放出的光线让对方陷入恐怖的幻觉。
+ 【二次元怪兽加巴顿】
+ 身高40厘米~ 30米，体重400克~ 2万吨。弦人儿子纯画的怪兽沐浴在未知的宇宙射线下，与太阳光线融合在一起，变成了三维的怪兽。巨大化后出现在美多摩市中央大街，光是睡觉就会阻碍生命线（交通枢纽），威胁市民生活。
+
+<img src="https://p.sda1.dev/13/86ead238b65fd98986a0f52fcd3d3792/CMP_20231003205306402.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/b6524c9c9060b2bfd1b3dba5f6095be7/CMP_20231003205306589.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/0696653943cf802e0e0fc039ebb86eb8/CMP_20231003205306791.jpg" referrerpolicy="no-referrer">
+
