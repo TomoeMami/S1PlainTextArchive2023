@@ -1843,3 +1843,109 @@ JB比较复杂，总之是准备这次泳装月中下个一两井再砸光老王
 
 我直接一气呵成转成顶配风王<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么，你说雷霆破碎，那玩意真不如我手上这一铳一剑吧
 
+*****
+
+####  Aureth  
+##### 17413#       发表于 2023-9-29 18:30
+
+次回，土老王の死
+
+—— 来自 OnePlus KB2000, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Sylpheed  
+##### 17414#       发表于 2023-9-30 12:54
+
+乐，还真寄了。
+这下又能憋到年底收菜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  镜hinata  
+##### 17415#       发表于 2023-9-30 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就问你是不是黄色的飞哥
+
+
+*****
+
+####  江戸前ルナ  
+##### 17416#       发表于 2023-9-30 23:03
+
+ 本帖最后由 江戸前ルナ 于 2023-9-30 23:07 编辑 
+
+老咸鱼就这次开了兽王的极致后都没啥材料了，去研究下老7。太恶心了要么RUSH到线然后大概率烂车，要么自己当个修车的还不一定到线<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">再想想这种还要去手操的
+
+在NGA看了个FA配置，马上去商店看看，黑化武器还是被当宝就那几把能换，本来想咸个2~3个月弄把治愈武器FA老7的。
+
+现在要不是每天抽时间翻译能把GBF扔后台FA我才不会打开GBF，妈的实在不想贡献手动时间给这逼游戏。
+
+
+*****
+
+####  Sylpheed  
+##### 17417#       发表于 2023-10-1 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62579885&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2023-9-30 23:03</a>
+
+老咸鱼就这次开了兽王的极致后都没啥材料了，去研究下老7。太恶心了要么RUSH到线然后大概率烂车，要么自己 ...</blockquote>
+环境如此，这几个高难除了水机神，都是要么竞速，要么烂完基本没有中间的时候
+
+下个月更新第二批武器水机神大概也是没法fa了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+单纯想搞极致材料的话，摸得出来配置其实可以去fa大公，4键以内现在都还算有竞争力，顺便能摸金。但这么搞收菜频率也很高就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poor  
+##### 17418#       发表于 2023-10-1 00:58
+
+大巴现在不是人打的，艾蕾没有蘑菇烧贝的话可以打大公跟akx吗？
+
+
+*****
+
+####  Sylpheed  
+##### 17419#       发表于 2023-10-1 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62580830&amp;ptid=1158205" target="_blank">poor 发表于 2023-10-1 00:58</a>
+
+大巴现在不是人打的，艾蕾没有蘑菇烧贝的话可以打大公跟akx吗？</blockquote>
+akx没蘑菇就诱惑法角色带波曼梅格教官，1+1看配置A2-3t，要么就6换波曼2+1 2t稳到
+
+大公也一样，需要注意的就是教官放四号位防50掉人，主角血量需要最高防85
+
+
+*****
+
+####  poor  
+##### 17420#       发表于 2023-10-1 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62580871&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2023-10-1 01:09</a>
+akx没蘑菇就诱惑法角色带波曼梅格教官，1+1看配置A2-3t，要么就6换波曼2+1 2t稳到
+
+大公也一样，需要注意的 ...</blockquote>
+其实现在配置得打3T<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">那还是算了
+
+
+*****
+
+####  (:影子:)  
+##### 17421#       发表于 2023-10-3 17:16
+
+10号要炸10年屎山重构系统了，到时候那一天能上号就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jxzeroga0  
+##### 17422#       发表于 2023-10-3 17:49
+
+改3倍维护补偿原来是因为这个，可以光明正大维护一天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
