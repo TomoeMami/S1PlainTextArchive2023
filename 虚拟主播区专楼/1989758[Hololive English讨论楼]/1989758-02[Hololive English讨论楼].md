@@ -655,3 +655,33 @@ Buuba POV
 
 2023-9-25 13:55 上传
 
+*****
+
+####  shimmy1996  
+##### 1895#       发表于 2023-10-3 10:40
+
+<img src="https://img.saraba1st.com/forum/202310/03/104006dv2b352h11vuus3m.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-10-02_22-17-00.png</strong> (533.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-3 10:40 上传
+
+<img src="https://img.saraba1st.com/forum/202310/03/104010dth9wuww9uw9u6ex.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-10-02_22-20-24.png</strong> (554.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-3 10:40 上传
+
+*****
+
+####  a2276382  
+##### 1896#       发表于 2023-10-3 10:45
+
+这排班太专业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
