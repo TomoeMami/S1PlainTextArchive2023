@@ -1068,3 +1068,56 @@ C级左右的威胁，一般当地魔王就足够镇压了，赫鲁库里属于�
 
 阿祖能玩大变活人，琥珀玩个石头门的选择也是有可能的，但是最后会不会变成“小安妮，只有你的能力最没用了”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  TR4835  
+##### 1143#       发表于 2023-10-1 23:48
+
+还以为要黑化了
+
+
+*****
+
+####  starring  
+##### 1144#       发表于 2023-10-2 08:33
+
+琥珀要暂时下线，还以为库雷欧要黑化，还好是坚定的眼神。
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  azbhg1  
+##### 1145#       发表于 2023-10-4 13:18
+
+果然死不了，是暂时下线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  LLLLLuB  
+##### 1146#       发表于 2023-10-4 15:22
+
+男主最后真的帅
+
+
+*****
+
+####  ppa11  
+##### 1147#       发表于 2023-10-4 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62536416&amp;ptid=1047361" target="_blank">tansapple 发表于 2023-9-26 17:30</a>
+阿祖能玩大变活人，琥珀玩个石头门的选择也是有可能的，但是最后会不会变成“小安妮，只有你的能力最没用了 ...</blockquote>
+只有她对个c级威胁，多半就是最菜了
+
+—— 來自 Xiaomi 22041216C, Android 12上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cen  
+##### 1148#       发表于 2023-10-4 18:41
+
+琥珀不可能死，真死了谁还要看啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
