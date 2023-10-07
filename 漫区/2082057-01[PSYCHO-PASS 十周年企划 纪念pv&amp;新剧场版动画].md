@@ -1327,3 +1327,31 @@ IG做近身搏击的演出一直都可以的
 
 不断被置顶，是有熟肉了？
 
+*****
+
+####  Piano-Forest  
+##### 126#       发表于 2023-10-4 11:32
+
+◤BD＆DVD 12月20日発売決定◢
+
+「劇場版 PSYCHO-PASS サイコパス PROVIDENCE」BD＆DVD発売決定！
+
+キャラクターデザイン･総作画監督：恩田尚之による
+
+描き下ろしデジパック＆特製三方背ケース仕様。
+
+オーディオコメンタリーなども収録！
+<img src="https://p.sda1.dev/13/f00b7f558846204033a5877ae6125052/20231004_113207.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  阿塔丽  
+##### 127#       发表于 2023-10-4 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62610894&amp;ptid=2082057" target="_blank">Piano-Forest 发表于 2023-10-4 11:32</a>
+
+◤BD＆DVD 12月20日発売決定◢
+
+「劇場版 PSYCHO-PASS サイコパス PROVIDENCE」BD＆DVD発売決定！</blockquote>
+12月能看到资源的意思吧
+
