@@ -9678,3 +9678,19 @@ Do It Yourself!! -どぅ－・いっと・ゆあせるふ-
 <img src="https://p.sda1.dev/13/1e8a3707d82df4f19493078ae8026f94/20230916_171626.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/13/befee63b923433a9afdea1dfa7b6b56d/20230916_171836.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 702#         楼主| 发表于 2023-10-4 23:06
+
+🍊･ﾟ•.✧🍓･ﾟ•.✧🍊･ﾟ•.✧🍓
+
+　  　　 #diyアニメ
+
+   　   𝟏𝐭𝐡 𝐀𝐧𝐧𝐢𝐯𝐞𝐫𝐬𝐚𝐫𝐲
+
+🍊･ﾟ•.✧🍓･ﾟ•.✧🍊･ﾟ•.✧🍓
+
+加藤けえさん描きおろしのスペシャルイラストを公開🍔🕯 本イラストは、10/8（日）開催･イオンシネマ県央でのトークイベントで特典シールとしてお配りします🎁
+<img src="https://p.sda1.dev/13/91ea27bc1a306da2030ed658228a3805/20231004_230049.jpg" referrerpolicy="no-referrer">
+
