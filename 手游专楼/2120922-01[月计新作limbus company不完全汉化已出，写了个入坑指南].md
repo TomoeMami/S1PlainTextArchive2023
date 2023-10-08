@@ -5667,3 +5667,42 @@ Dieci是意大利语的10，看这身打扮像神职人员，不过技能动作�
 
 玛玛是yj亲女儿（确信
 
+*****
+
+####  Jamaisvu  
+##### 360#       发表于 2023-10-2 19:23
+
+<img src="https://img.saraba1st.com/forum/202310/02/192051q6x5cmfm1mpu6mwk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231002_192043.jpg</strong> (317.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-10-2 19:20 上传
+
+辛克莱的新ego。输出需要残血，不过命中以及使用后击杀敌对目标都能吸血...开局用一次当续航被动用应该不错。
+
+
+*****
+
+####  Yuzutea  
+##### 361#       发表于 2023-10-5 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这臼齿奥和新罗佳也太强了
+
+感觉二号线回合还能提
+
+
+*****
+
+####  erratic璃月  
+##### 362#       发表于 2023-10-5 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62622790&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-5 17:18</a>
+
+这臼齿奥和新罗佳也太强了
+
+感觉二号线回合还能提</blockquote>
+我觉的是弃牌词条太强了，有效的减少了罪人的疲软期的同时没有任何负面影响，极大的优化了使用手感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
