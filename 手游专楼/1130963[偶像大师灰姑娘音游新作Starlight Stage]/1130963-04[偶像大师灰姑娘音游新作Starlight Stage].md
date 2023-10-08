@@ -534,3 +534,20 @@ CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
 
 好像不知道从哪看到的貌似预计25年关服。
 
+*****
+
+####  两个路人  
+##### 5404#       发表于 2023-10-5 19:46
+
+ 本帖最后由 两个路人 于 2023-10-5 19:49 编辑 
+
+这么早放魔女服，还以为又要万圣节了（趴
+
+因为卡面里有蚊香，所以出货率特别低吗？都吃到300保底了，其他两张UP都各出2张了（摔
+
+哎，这个沟就是深。同样的unity引擎，暴打米忽悠了
+
+<img src="https://hidamarirhodonite.kirara.ca/spread/301257.png" referrerpolicy="no-referrer">
+<img src="https://hidamarirhodonite.kirara.ca/spread/301258.png" referrerpolicy="no-referrer">
+<img src="https://p.inari.site/guest/23-10/05/651ea1ff27e69.png" referrerpolicy="no-referrer">
+
