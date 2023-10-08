@@ -1387,3 +1387,44 @@ CODExGEASS
 女儿和滑铲被加强了 </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">感谢，容我康康
 
+*****
+
+####  rgauss  
+##### 950#         楼主| 发表于 2023-10-5 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  要嗝屁了  
+##### 951#       发表于 2023-10-5 22:25
+
+去贴吧搜吧 
+
+简单的说现在最强的就是这些
+
+卡林 罗莎 骑马双强 
+
+pve是怨妇 徐云  沈佳
+
+pvp是觉醒地狙 打拳
+
+
+*****
+
+####  rgauss  
+##### 952#         楼主| 发表于 2023-10-5 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62625831&amp;ptid=2028054" target="_blank">要嗝屁了 发表于 2023-10-5 22:25</a>
+去贴吧搜吧 
+
+简单的说现在最强的就是这些
+
+卡林 罗莎 骑马双强 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打拳不好打的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
