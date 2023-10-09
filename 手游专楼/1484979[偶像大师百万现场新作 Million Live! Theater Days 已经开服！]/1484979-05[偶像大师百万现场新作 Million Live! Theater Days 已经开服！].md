@@ -1951,3 +1951,10 @@ mv的还原度真高 这首真是拖了太久了</blockquote>
 
 上月艾米莉shs池200抽爆死没钱补井后，欧气回来了，30抽2fes都飘到了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+*****
+
+####  s7syphus  
+##### 7237#       发表于 2023-10-6 23:23
+
+【【中文字幕】Catch My Feeling【MLTD】】 [https://www.bilibili.com/video/B ... 23f4cc6b9b83b887a5f](https://www.bilibili.com/video/BV1dH4y1m7fV/?share_source=copy_web&amp;vd_source=f6d846502742b23f4cc6b9b83b887a5f)这歌真好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
