@@ -3270,3 +3270,52 @@ Z1芯片版ROG Ally终于到来，游戏性能不如Steam Deck：[https://www.ex
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  泰坦失足  
+##### 846#       发表于 2023-10-7 06:02
+
+ 本帖最后由 泰坦失足 于 2023-10-7 06:03 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/07/060136pz3uppx3hrih6xnh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 06:01 上传
+
+联想这个掌机海外还没发售就开始打9折了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。无法理解宣传片里的那个FPS模式到底有啥意义.
+
+
+*****
+
+####  ultraseven  
+##### 847#       发表于 2023-10-7 06:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62636816&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2023-10-7 06:02</a>
+
+联想这个掌机海外还没发售就开始打9折了。。无法理解宣传片里的那个FPS模式到底有啥意义. ...</blockquote>
+要BB信用卡才有。这不就是持卡人一个打9折的福利，等50% off的时候再说吧
+
+
+*****
+
+####  bypass  
+##### 848#         楼主| 发表于 2023-10-7 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62636816&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2023-10-7 06:02</a>
+
+联想这个掌机海外还没发售就开始打9折了。。无法理解宣传片里的那个FPS模式到底有啥意义. ...</blockquote>
+[https://www.bilibili.com/video/BV1Rp4y1j72R](https://www.bilibili.com/video/BV1Rp4y1j72R)
+
+这里有个实机演示。
+
+
+*****
+
+####  normalli  
+##### 849#       发表于 2023-10-7 21:57
+
+入手了rog ally，先通了个小黄油助兴，折腾了一下，能流畅运行带mod的老滚5，我觉得值了。
+
