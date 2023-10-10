@@ -8897,3 +8897,340 @@ VCB压制的就很好，比之前的压制好太多
 
 —— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  wfhtony  
+##### 785#       发表于 2023-10-3 21:28
+
+不容易，鸽王MAO明（2024）年又要上CG的LIVE了。
+
+...但是是小场。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+ ​​​
+
+<img src="https://img.saraba1st.com/forum/202310/03/212821hhn1lgeufchscz3c.jpg" referrerpolicy="no-referrer">
+
+<strong>F7g39D-bUAAfJmr.jpg</strong> (252.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-3 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202310/03/212821frpqrcnytzbtr6ft.jpg" referrerpolicy="no-referrer">
+
+<strong>F7hAilCbAAAveD3.jpg</strong> (349.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-3 21:28 上传
+
+<img src="https://img.saraba1st.com/forum/202310/03/212822ebw7nwzybwzwwlt6.png" referrerpolicy="no-referrer">
+
+<strong>アイドルマスターチャンネル - 【生配信】THE IDOLM@STER CINDERELLA GIRLS Next LIVE.png</strong> (252.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-3 21:28 上传
+
+
+*****
+
+####  O三O  
+##### 786#       发表于 2023-10-3 21:54
+
+这一股子断头饭的既视感，波多野加油啊，没把灰灰在大帅20周年前弄死我看不起你<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  任天索尼子  
+##### 787#       发表于 2023-10-3 22:07
+
+毛小姐来了 然后弄个小场子
+
+
+*****
+
+####  a1370303  
+##### 788#       发表于 2023-10-3 22:47
+
+傻逼万南不想做可以把灰姑娘卖给cy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Srchy  
+##### 789#       发表于 2023-10-4 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">波公公就这么自信搞死灰就能给你别的几家引流了？搞得人离了你大帅不活了一样
+
+
+*****
+
+####  Vacuolar  
+##### 790#       发表于 2023-10-4 07:44
+
+波公公会有“搞死一个别家引流”这种正常恶人才有的思路？跟搞死男人一样，看不顺眼的统统扼杀罢了，收入？没有收入也没关系。
+
+
+*****
+
+####  ReginaldMorgan  
+##### 791#       发表于 2023-10-4 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62405949&amp;ptid=2130897" target="_blank">acacaclove 发表于 2023-9-14 19:06</a>
+哈哈，闲得无聊去下了个全dlc学习版星曜季节，被偶像祭折磨疯了，万代是不是有毛病啊搞这么恶心人 ...</blockquote>
+偶像祭是决斗模式？
+
+那个早放技能者胜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">习惯一下就好了也不麻烦
+
+
+*****
+
+####  安广多惠子  
+##### 792#       发表于 2023-10-4 08:25
+
+2023年了要在zepp看cg谁能想到，12时的魔法消失了回家睡阁楼了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  acacaclove  
+##### 793#       发表于 2023-10-4 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">又是小场吗，万代无敌了呀
+
+
+*****
+
+####  格雷殿下  
+##### 794#       发表于 2023-10-4 16:09
+
+刚来，是提前播了吗
+
+
+*****
+
+####  yuuuuuuuu  
+##### 795#       发表于 2023-10-4 17:52
+
+从蛋巡到千人小场，谁也没有预想到的未来BN：不，我早就想好了，就等这一天了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+1/13【本多の森 北電ホール(石川県)】
+
+キャパ➤１,７０７人
+
+2/3 【やまぎん県民ホール(山形県)】
+
+キャパ➤２，００１人
+
+3/10【トーサイクラシックホール岩手】
+
+キャパ➤MAX１．９０９人
+
+4/6【Zeep Osaka Bayside(大阪)】
+
+キャパ
+
+➤着席時 1198人 オルスタ時2801人
+
+5/19 【Zeep Fukuoka(福岡)】
+
+キャパ
+
+➤着席時 772人 オルスタ時2001人
+
+6/1【Zeep DiverCity Tokyo(東京)】
+
+キャパ
+
+➤着席時 1102人 オルスタ時2473人
+
+
+*****
+
+####  segecong  
+##### 796#       发表于 2023-10-4 19:44
+
+挺好的，到时候全给你引流到马娘去了。
+
+
+*****
+
+####  アヘ顔  
+##### 797#       发表于 2023-10-4 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62609615&amp;ptid=2130897" target="_blank">ReginaldMorgan 发表于 2023-10-4 08:11</a>
+偶像祭是决斗模式？
+
+那个早放技能者胜习惯一下就好了也不麻烦</blockquote>
+恰恰相反，要赶紧学counter然后后手放burst
+先手放burst肯定会被ai反掉而且ai burst结束还会有burst增益效果生效，恶心得很
+反而反掉ai的burst的话可以防止ai burst后的增益生效，同时还能使我方burst增益生效
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 798#       发表于 2023-10-4 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62616014&amp;ptid=2130897" target="_blank">アヘ顔 发表于 2023-10-4 21:57</a>
+
+恰恰相反，要赶紧学counter然后后手放burst
+
+先手放burst肯定会被ai反掉而且ai burst结束还会有burst增益 ...</blockquote>
+被打断后，如果立刻一直放五人那个合唱，好像是来得及在对面结束之前开吧
+
+*****
+
+####  アヘ顔  
+##### 799#       发表于 2023-10-4 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62616095&amp;ptid=2130897" target="_blank">RhmBWT_Wu 发表于 2023-10-4 22:06</a>
+被打断后，如果立刻一直放五人那个合唱，好像是来得及在对面结束之前开吧 ...</blockquote>
+你是说回忆炸弹么
+倒是可行，立刻扔炸弹回气再爆气
+忘了这个游戏后期炸弹随便放了233
+
+
+*****
+
+####  ReginaldMorgan  
+##### 800#       发表于 2023-10-4 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62616014&amp;ptid=2130897" target="_blank">アヘ顔 发表于 2023-10-4 21:57</a>
+恰恰相反，要赶紧学counter然后后手放burst
+先手放burst肯定会被ai反掉而且ai burst结束还会有burst增益 ...</blockquote>
+我的，记不太清了，太久前玩的了
+
+后期基本都是炸炸炸，策略基本忘了
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 801#       发表于 2023-10-4 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62616152&amp;ptid=2130897" target="_blank">アヘ顔 发表于 2023-10-4 22:11</a>
+
+你是说回忆炸弹么
+
+倒是可行，立刻扔炸弹回气再爆气
+
+忘了这个游戏后期炸弹随便放了233 ...</blockquote>
+好像是？记不清名字了，只记得是xbox键位的A
+
+后面羁绊等级高了确实随便丢，最爽的就是狂按A那一段了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  七草にちか  
+##### 802#       发表于 2023-10-5 19:19
+
+动画还没播呢，再说动画也没shhis啊
+
+<img src="https://img.saraba1st.com/forum/202310/05/191918zyvmtsbvzxvhxvhn.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (207.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-5 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202310/05/191919ibjejafcbxq8kffh.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (95.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-5 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202310/05/191919svnkzmtve9r6kdn6.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (87.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-5 19:19 上传
+
+<img src="https://img.saraba1st.com/forum/202310/05/191919rnnnlinjgqaejber.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (114.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-5 19:19 上传
+
+
+*****
+
+####  七草にちか  
+##### 803#       发表于 2023-10-7 20:47
+
+<img src="https://img.saraba1st.com/forum/202310/07/204734h0os1oixis4ic2ic.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (95.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204734azvdj8b1b8da1zqv.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (121.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204734am2qcqpmclej2ccm.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (133.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204735r65bvr7mru5ru5bb.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (97.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204735me94td4uk4rrrdcz.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (94.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204735wz01jbb666mwv6yb.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (113.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204735wa23quuqez3n211s.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (75.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/204735iripdr9kf8jfdppf.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (96.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 20:47 上传
+
