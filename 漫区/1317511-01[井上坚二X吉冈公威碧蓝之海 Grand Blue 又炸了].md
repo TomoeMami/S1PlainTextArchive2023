@@ -323,3 +323,70 @@
 
 好好收尾吧，别整得跟我推一样
 
+*****
+
+####  collincollin  
+##### 1297#         楼主| 发表于 2023-10-7 01:22
+
+就拿着樱子一个人挤兑太过了吧
+都坐上来自己动了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  icewolf01  
+##### 1298#       发表于 2023-10-7 01:26
+
+新蹦出来这人谁啊，完全没印象了233
+
+
+*****
+
+####  azbhg1  
+##### 1299#       发表于 2023-10-7 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62636445&amp;ptid=1317511" target="_blank">icewolf01 发表于 2023-10-7 01:26</a>
+新蹦出来这人谁啊，完全没印象了233</blockquote>
+老家温泉旅馆那边来旅游的老外
+
+
+*****
+
+####  熊边上  
+##### 1300#       发表于 2023-10-7 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62636419&amp;ptid=1317511" target="_blank">collincollin 发表于 2023-10-6 12:22</a>
+
+就拿着樱子一个人挤兑太过了吧
+
+都坐上来自己动了</blockquote>
+碧池属性的角色就这一个啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 1301#       发表于 2023-10-7 01:49
+
+下一话估计樱子还要被挤兑，应该是樱子感冒，男主去探病，然后气氛正好时又被人打断，虽然我不是毒岛党不过这也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 1302#       发表于 2023-10-7 03:12
+
+不要拖了，赶紧做吧<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  KDConan  
+##### 1303#       发表于 2023-10-7 11:40
+
+这必输桥段<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">我都可怜起毒岛了
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
