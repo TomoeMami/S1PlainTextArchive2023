@@ -910,3 +910,32 @@ PENNY BLOOD
 
 町田 松三
 
+*****
+
+####  kria  
+##### 83#         楼主| 发表于 2023-10-7 09:00
+
+<img src="https://img.saraba1st.com/forum/202310/07/085956oc8zq80m489472fm.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2023-10-07 085910.png</strong> (60.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:59 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/085956cz064901s69a6gfg.png" referrerpolicy="no-referrer">
+
+<strong>スクリーンショット 2023-10-07 085926.png</strong> (55.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:59 上传
+
+<img src="https://img.saraba1st.com/forum/202310/07/090010bqfnwmvb3wggqgwm.jpg" referrerpolicy="no-referrer">
+
+<strong>アームドファンタジア１周年イラスト完成文字あり）-1024x768.jpg</strong> (187.57 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 09:00 上传
+

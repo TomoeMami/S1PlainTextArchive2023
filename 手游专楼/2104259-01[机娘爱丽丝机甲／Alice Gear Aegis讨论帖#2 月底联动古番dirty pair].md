@@ -6164,3 +6164,286 @@ DMM活动又来喽，老规矩登陆一次服袋，十次100白嫖点
 
 追加泳装，新活动FA睦海+爱花。睦海的声优养病养好了？
 
+*****
+
+####  冰风血羽  
+##### 715#       发表于 2023-9-28 02:41
+
+粉丝数带着出去打怪慢慢就能涨，好感度这个真的好难涨哦，除开活动给的专属礼物，通用好感礼物居然只能抽饰品歪出来，对于博爱党的我真不友好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  madcow  
+##### 716#       发表于 2023-9-28 11:27
+
+通行证开活动，是不是买的人比预想的少（
+
+
+*****
+
+####  江戸前ルナ  
+##### 717#         楼主| 发表于 2023-9-28 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62552729&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-9-28 02:41</a>
+
+粉丝数带着出去打怪慢慢就能涨，好感度这个真的好难涨哦，除开活动给的专属礼物，通用好感礼物居然只能抽饰 ...</blockquote>
+调查解决一切<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+调查==》抽卡点数==》抽卡==》饰品券==》饰品池好感物。或者玩得久了后那些2,3星抽到LVMAX就能直接出牛肉了。
+
+一般好感就砸到自己喜欢的妹子出脸红吧。全语音图鉴还是真爱才推荐考虑。
+
+
+*****
+
+####  madcow  
+##### 718#       发表于 2023-9-28 14:35
+
+攒的50票扔进芦大锤fa池一个四星都没有呜呜呜
+
+
+*****
+
+####  江戸前ルナ  
+##### 719#         楼主| 发表于 2023-9-28 14:54
+
+火初音后50连的LV2没东西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看抽卡界面，小芦的新故事是要填和凤的宿敌坑了吗
+
+*****
+
+####  冰风血羽  
+##### 720#       发表于 2023-9-28 14:57
+
+ 本帖最后由 冰风血羽 于 2023-9-28 14:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62556516&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-9-28 12:23</a>
+调查解决一切
+
+调查==》抽卡点数==》抽卡==》饰品券==》饰品池好感物。或者玩得久了后那些2,3星抽 ...</blockquote>
+比较咸鱼，调查刷的少，拉一个怜就够慢的，直美啊奈奈啊深沙希啥的只够个15000<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  不灭的旋律  
+##### 721#       发表于 2023-9-28 22:22
+
+爱花和睦海的FA服装推上没人认领，绫香和怜的FA装是谁设计的？海老川？
+
+FA爱花的奶量是强上加强——手技能能回血，拿锤子砸人能回血（enigma技能），FASP没使用限制理论上无限回血。唯一不能回血的步枪你要知耻！
+
+
+*****
+
+####  LEOKO~  
+##### 722#       发表于 2023-9-28 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62552729&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-9-28 02:41</a>
+
+粉丝数带着出去打怪慢慢就能涨，好感度这个真的好难涨哦，除开活动给的专属礼物，通用好感礼物居然只能抽饰 ...</blockquote>
+说起来初音的初始粉丝数很不科学
+
+
+*****
+
+####  冰风血羽  
+##### 723#       发表于 2023-9-29 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62563118&amp;ptid=2104259" target="_blank">LEOKO~ 发表于 2023-9-28 23:06</a>
+说起来初音的初始粉丝数很不科学</blockquote>
+我基本没用初音，看了下才5631，不知道初始是不是3900？如果是那应该是玩梗了。
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  madcow  
+##### 724#       发表于 2023-9-29 16:34
+
+大流士那三个是不是要卖泳装了（
+
+
+*****
+
+####  不灭的旋律  
+##### 725#       发表于 2023-9-29 17:27
+
+明明是Ti2和伊芙丽的母女泳装合照，可谁看得出来谁是母谁是女啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 726#       发表于 2023-9-29 22:41
+
+Ti2的泳装是早就有了的，今年三月岛田在fantia画过IA的泳装，不过全图和涩图要付费：[https://fantia.jp/posts/1863392](https://fantia.jp/posts/1863392)
+
+没和岛田闹翻的话IA的泳装就是这件了，伊芙丽的泳装倒是第一次出现
+
+
+*****
+
+####  江戸前ルナ  
+##### 727#         楼主| 发表于 2023-9-30 22:59
+
+有人抽了FA小芦看了剧情了吗，求一下剧透。
+
+另外试玩了下，小芦的新战斗语音怎么成这样了？完全被原语音吊打……
+
+
+*****
+
+####  用户名未定义  
+##### 728#       发表于 2023-10-1 10:05
+
+这个眼镜起雾，又在奇怪的地方用心。
+
+
+*****
+
+####  madcow  
+##### 729#       发表于 2023-10-4 00:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">…………每天15钻一抽出了FA爱花可是我比较想要小芦（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">谁来说下FA小芦开盘子出来那个SP是啥，如果不是很酷炫的话我的心会好受点（（
+
+
+*****
+
+####  不灭的旋律  
+##### 730#       发表于 2023-10-4 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62608394&amp;ptid=2104259" target="_blank">madcow 发表于 2023-10-4 00:04</a>
+
+…………每天15钻一抽出了FA爱花可是我比较想要小芦（
+
+谁来说下FA小芦开盘子出来那个SP是啥 ...</blockquote>
+单发一发入魂的实弹攻击。FA睦海的enigma强化攻击，用SP时冷击攻击力+30%都出来了，还有立射第三发追加射击的技能（PC党狂喜），boss出现时冷击攻击力+，HP0时强忍+恢复。本来SP都是格斗型的，现在完全可以转纯射击型花样更多了。
+
+顺便我也没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 731#       发表于 2023-10-4 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62579834&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-9-30 22:59</a>
+
+有人抽了FA小芦看了剧情了吗，求一下剧透。
+
+另外试玩了下，小芦的新战斗语音怎么成这样了？完全被原语音吊 ...</blockquote>
+之前声优身体出事了吧，这次居然能出来配音大概也没完全恢复
+
+
+*****
+
+####  madcow  
+##### 732#       发表于 2023-10-6 16:28
+
+泳装好朴素（而且怎么还比橙子版的贵
+
+
+*****
+
+####  不灭的旋律  
+##### 733#       发表于 2023-10-6 18:52
+
+AN我龙、FA爱花、大流士这三个亲女儿岛田都没转推发推。然后现在官推和岛田没有互关，不知道是不是一开始就这样。
+
+然后你游也不发设定图和设计师的推了，搞不好AN我龙的ANSP都不是岛田设计的。IA和伊芙丽的泳装都悬。
+
+岛田和你游不说是貌合神离那也是同床异梦了。我看可以开始清算岛田了<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+吐槽一句纸片女人的衣服真比宅男的贵，大流士全部买的价钱都可以买两个塑料女人了。
+
+*****
+
+####  アヘ顔  
+##### 734#       发表于 2023-10-6 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看，前面我就说岛田三姓家奴跟万代做30ms了背叛了你们还喷我（
+
+*****
+
+####  希望之花  
+##### 735#       发表于 2023-10-6 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">清算岛田前你游先能运营下去再说吧
+
+能撑到下次小裤裤联动出北欧组就算胜利
+
+
+*****
+
+####  江戸前ルナ  
+##### 736#         楼主| 发表于 2023-10-6 19:04
+
+ 本帖最后由 江戸前ルナ 于 2023-10-6 19:06 编辑 
+
+翻了下推，除了自家货的光辉魔女外基本转的都是30mm，怕不是代哥给太多给包养了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+最快确定到等到周年看礼服的情况就知晓情况了
+
+
+*****
+
+####  不灭的旋律  
+##### 737#       发表于 2023-10-6 19:12
+
+我也是这么想的。最近一直在视奸岛田推，文工团、万代的30ms&amp;frs&amp;高达都是马上转推+发言的。少战也转过就是不转啊葛。
+
+海老川和柳濑都是好同志还在转。
+
+
+*****
+
+####  冰风血羽  
+##### 738#       发表于 2023-10-6 19:24
+
+抽池子黑起来真是没个边了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 739#         楼主| 发表于 2023-10-6 19:43
+
+最近阿嘎100连以上没出货了，有8次10连还是LV2<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+（运气似乎都去了千年战争那边，3次黑没歪了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yygundam  
+##### 740#       发表于 2023-10-7 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62633181&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-10-6 18:52</a>
+
+AN我龙、FA爱花、大流士这三个亲女儿岛田都没转推发推。然后现在官推和岛田没有互关，不知道是不是一开始就 ...</blockquote>
+你这塑料女人，它是哪个年代的（
+
+现在是正经塑料女人动不动卖20000到40000，甚至肥姑妈这种产废都要卖10000+的年代。就算女神装置，粘土人或者pop up parade一般来说8000出头也买不到2个（
+
+
+*****
+
+####  不灭的旋律  
+##### 741#       发表于 2023-10-7 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62637072&amp;ptid=2104259" target="_blank">yygundam 发表于 2023-10-7 08:11</a>
+
+你这塑料女人，它是哪个年代的（
+
+现在是正经塑料女人动不动卖20000到40000，甚至肥姑妈这种产废都要卖100 ...</blockquote>
+AGA楼自然是拼装女人喽。你买万代家的还不止二个呢
+
