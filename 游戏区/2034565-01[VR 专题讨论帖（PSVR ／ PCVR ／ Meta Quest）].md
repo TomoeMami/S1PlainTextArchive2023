@@ -3348,3 +3348,93 @@ quest3芯片是8gen2改,quest2是865改,性能差3年
 
 价格3代4000,2代1000
 
+*****
+
+####  bypass  
+##### 260#         楼主| 发表于 2023-10-9 10:27
+
+[https://www.bilibili.com/video/BV1Z8411r7YW](https://www.bilibili.com/video/BV1Z8411r7YW) 透视感觉不太行，我又想取消订单了，玩 BS 的话 2 也完全足够了 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bartholo4  
+##### 261#       发表于 2023-10-9 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62661847&amp;ptid=2034565" target="_blank">bypass 发表于 2023-10-9 10:27</a>
+https://www.bilibili.com/video/BV1Z8411r7YW 透视感觉不太行，我又想取消订单了，玩 BS 的话 2 也完全足 ...</blockquote>
+等PICO 吧
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  曼陀罗肥  
+##### 262#       发表于 2023-10-9 21:59
+
+所以现在有q2了就没必要换嘛？
+
+
+*****
+
+####  pf67  
+##### 263#       发表于 2023-10-9 22:09
+
+3倍+价格，但是提升可能是0.3倍，没这需求换
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  myep  
+##### 264#       发表于 2023-10-9 22:21
+
+MR应用跟上至少得半年，看看PICO4的彩透能不能沾点光
+
+这一阵子会上一批Q3标准的多平台游戏，PCVR不用再吃灰了
+
+
+*****
+
+####  bypass  
+##### 265#         楼主| 发表于 2023-10-10 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62668838&amp;ptid=2034565" target="_blank">bartholo4 发表于 2023-10-9 21:53</a>
+
+等PICO 吧
+
+—— 来自 Xiaomi 2210132C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+Pico 没光剑的话我应该是不会考虑，Q3 也不打算首发了，继续用我的 Q2 吧。果断时间估计咸鱼会有一堆 Q3。
+
+
+*****
+
+####  bypass  
+##### 266#         楼主| 发表于 2023-10-10 14:04
+
+中亚也上线了，¥3,901.49。
+
+
+*****
+
+####  bartholo4  
+##### 267#       发表于 2023-10-10 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62669077&amp;ptid=2034565" target="_blank">myep 发表于 2023-10-9 22:21</a>
+
+MR应用跟上至少得半年，看看PICO4的彩透能不能沾点光
+
+这一阵子会上一批Q3标准的多平台游戏，PCVR不用再吃灰 ...</blockquote>
+P4的彩透畸变和清晰度都没到能用的程度。。
+
+
+*****
+
+####  nagitoY  
+##### 268#       发表于 2023-10-10 16:19
+
+有什么vr asmr推荐吗？感觉临场感会很强，但是没怎么找到相关资源
+
+目前就知道一个RJ01064876
+
