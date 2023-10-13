@@ -1428,3 +1428,20 @@ pvp是觉醒地狙 打拳
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 953#         楼主| 发表于 2023-10-10 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真闲啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zcx369658780  
+##### 954#       发表于 2023-10-10 11:47
+
+这画风，后续说不定要出NTR剧情了……
+
