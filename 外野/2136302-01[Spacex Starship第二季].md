@@ -1702,3 +1702,12 @@ S25被从B9拆下。
 
 7.一年后可能会开始星链V3版的部署，而且SpaceX已经等不及星舰的完全重复使用了。
 
+*****
+
+####  lactone  
+##### 102#       发表于 2023-10-12 05:31
+
+已经十月中旬了，不会今年都发不了吧
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
