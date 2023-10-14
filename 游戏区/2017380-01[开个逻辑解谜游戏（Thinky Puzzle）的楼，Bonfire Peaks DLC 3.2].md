@@ -2308,3 +2308,43 @@ kampwɔhii sicyɛɛre na beɲjaaga na kɛ na baaricyɛɛre 1639
 
 上面的单词以简化的转写形式给出。ɛ，ɔ为元音。ŋ，ɲ为辅音。 ——阿列克赛·佩古谢夫
 
+*****
+
+####  MrPenguin  
+##### 154#       发表于 2023-10-10 01:12
+
+<blockquote>相关文章和介绍
+
+从入门到入定：你最靠谱的解谜入门指南
+[https://cowlevel.net/article/2144824](https://cowlevel.net/article/2144824)
+
+E20 谜与顿悟 | 落日间 x Artless
+[https://zhuanlan.zhihu.com/p/353205360](https://zhuanlan.zhihu.com/p/353205360)
+
+推箱子的历史，理论研究和衍生游戏介绍
+[https://cowlevel.net/article/1964314](https://cowlevel.net/article/1964314)
+
+解谜的艺术系列文章
+[http://blog.sina.com.cn/s/articlelist_2367347891_1_1.html](http://blog.sina.com.cn/s/articlelist_2367347891_1_1.html)贪吃蛇衍生游戏
+
+Joel写的贪吃蛇解谜汇总
+[https://joelthefox.github.io/2019-08-21-Snake-Puzzle-Games/](https://joelthefox.github.io/2019-08-21-Snake-Puzzle-Games/)
+
+Knexator的时间相关解谜游戏
+[https://knexator.github.io/time-genres/](https://knexator.github.io/time-genres/)
+
+Corey Hardt的专栏Thinky Puzzles Quarterly
+[https://coreyhardt.wordpress.com](https://coreyhardt.wordpress.com) ... -puzzles-quarterly/</blockquote>
+
+[https://blog.sina.com.cn/s/articlelist_2367347891_1_1.html](https://blog.sina.com.cn/s/articlelist_2367347891_1_1.html)
+
+这个专栏现在只能看到两篇文章了。
+
+
+*****
+
+####  BRAVADO  
+##### 155#       发表于 2023-10-11 23:54
+
+小石头人踏上旅程有人玩了吗，质量如何？
+
