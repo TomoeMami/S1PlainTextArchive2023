@@ -1121,3 +1121,20 @@ C级左右的威胁，一般当地魔王就足够镇压了，赫鲁库里属于�
 
 琥珀不可能死，真死了谁还要看啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+*****
+
+####  mobydick2501  
+##### 1149#       发表于 2023-10-11 13:46
+
+然后轮到改写了上周目结局的众人帮助这周目的琥珀改结局是吧，，来自: iPhone客户端
+
+
+*****
+
+####  TR4835  
+##### 1150#       发表于 2023-10-12 10:37
+
+第六卷的单行本出了
+
+<img src="https://p.sda1.dev/13/0c1c7dbcb32623289330101f0a0c6750/CMP_20231012103657025.jpg" referrerpolicy="no-referrer">
+
