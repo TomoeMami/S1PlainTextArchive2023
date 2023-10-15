@@ -9234,3 +9234,45 @@ VCB压制的就很好，比之前的压制好太多
 
 2023-10-7 20:47 上传
 
+*****
+
+####  Unlight  
+##### 804#         楼主| 发表于 2023-10-10 21:13
+
+草
+
+<img src="https://img.saraba1st.com/forum/202310/10/211305bcfsc8c2sd8ed2es.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0766.JPG</strong> (667.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-10 21:13 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  柏崎Sena  
+##### 805#       发表于 2023-10-10 22:15
+
+vα-liv现在上水流人气明显高，但是每月投票三人都差不了多少票
+
+
+*****
+
+####  acacaclove  
+##### 806#       发表于 2023-10-12 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回坑第一个十连就是炸鸡
+
+FCA4F9C630D014D0F8A7086A8F45B250.jpg
+(157.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-12 17:38 上传
+
+<img src="https://img.saraba1st.com/forum/202310/12/173801d4uxoyoe1u1828ye.jpg" referrerpolicy="no-referrer">
+

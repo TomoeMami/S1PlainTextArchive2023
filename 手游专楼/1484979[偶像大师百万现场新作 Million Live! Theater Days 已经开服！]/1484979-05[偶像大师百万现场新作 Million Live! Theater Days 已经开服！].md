@@ -1958,3 +1958,21 @@ mv的还原度真高 这首真是拖了太久了</blockquote>
 
 【【中文字幕】Catch My Feeling【MLTD】】 [https://www.bilibili.com/video/B ... 23f4cc6b9b83b887a5f](https://www.bilibili.com/video/BV1dH4y1m7fV/?share_source=copy_web&amp;vd_source=f6d846502742b23f4cc6b9b83b887a5f)这歌真好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+*****
+
+####  花开安菲路  
+##### 7238#       发表于 2023-10-10 11:46
+
+昨晚活动最后俩小时看了眼排名，感觉要被背刺，赶紧打了一波到26wpt，最终1300名，看了眼排名前列是狠狠的爆杏奈p金币啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/eeaf09c33a74685ef82e58e0ee9268bc/CMP_20231010114211454.jpg" referrerpolicy="no-referrer">
+动画开播这么大的事，10连都不发一个吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这个池子就想要个弥生，结果给我歪三nao<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acacaclove  
+##### 7239#       发表于 2023-10-12 16:19
+
+随便攒一个十连就出炸鸡了，绝了
+

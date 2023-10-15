@@ -1969,3 +1969,635 @@ ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺�
 
 练满30级刷了一周任务就懒得上线了……实在没什么动力
 
+*****
+
+####  boxloli  
+##### 226#       发表于 2023-10-7 15:30
+
+角色天赋全部重做加上打折和dkk皮肤直接给拉到销量榜前几了，现在是进来玩的好时候。早这么做就完事了
+
+
+*****
+
+####  shyso  
+##### 227#       发表于 2023-10-7 15:49
+
+首发玩了一会儿退款了，看了看这次更新后的评价，决定再给他一次机会
+
+
+*****
+
+####  FLZB  
+##### 228#       发表于 2023-10-7 16:02
+
+pc一年付费测试结束，据说新版老兵拉了，好似<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  boxloli  
+##### 229#       发表于 2023-10-7 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62642168&amp;ptid=1951151" target="_blank">FLZB 发表于 2023-10-7 16:02</a>
+
+pc一年付费测试结束，据说新版老兵拉了，好似</blockquote>
+也不算拉吧，等于以前是资源全吃责任拉满的lolADC，现在回归到正常水平，现在加点突出一个自由怎么都行
+
+
+*****
+
+####  Messiah_QY  
+##### 230#       发表于 2023-10-7 16:48
+
+现在版本射手老兵几个核心技能就突出一个，鼓励用暴击光枪
+
+
+*****
+
+####  boxloli  
+##### 231#       发表于 2023-10-7 18:30
+
+dkk皮不愧是40k第一大拉动消费点，满船都是穿dkk的
+
+
+*****
+
+####  tbone  
+##### 232#       发表于 2023-10-7 19:33
+
+现在暗潮能玩了吗，我之前玩过鼠疫，看见暗潮评价不好没买
+
+
+*****
+
+####  Messiah_QY  
+##### 233#       发表于 2023-10-7 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62645216&amp;ptid=1951151" target="_blank">tbone 发表于 2023-10-7 19:33</a>
+
+现在暗潮能玩了吗，我之前玩过鼠疫，看见暗潮评价不好没买</blockquote>
+技能树做的不错，能玩了。
+
+另外要花大量时间的就是打造武器
+
+地图里捡材料，商店里蹲高数值武器，过普通的难45的得金装里拆解IV级词条。最后做出完美的武器。
+
+
+*****
+
+####  boxloli  
+##### 234#       发表于 2023-10-7 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62645216&amp;ptid=1951151" target="_blank">tbone 发表于 2023-10-7 19:33</a>
+
+现在暗潮能玩了吗，我之前玩过鼠疫，看见暗潮评价不好没买</blockquote>
+比刚发售那会多了几张图和武器，然后新的技能树到30级之前能保持不错的新鲜感，满级之后也能通过换套路的方式给自己刷的理由，总之还不错
+
+
+*****
+
+####  stoiorz  
+##### 235#       发表于 2023-10-8 15:15
+
+啥时候进的XGP，没啥印象了。
+
+
+*****
+
+####  jxzeroga0  
+##### 236#       发表于 2023-10-8 15:44
+
+怎么和b4b一样，有料测试一年出完整版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好换显卡，来试试了
+
+
+*****
+
+####  dfbbymice  
+##### 237#       发表于 2023-10-8 16:59
+
+还是不完整，还有瞄准镜配件没做<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在确实比之前要好玩了，老兵被削弱下了神坛，狂信崛起，灵能和欧格林的套路也多了，看得到队友的主要天赋可以及时调整自己的配装不错了
+
+
+*****
+
+####  DLSDFY  
+##### 238#         楼主| 发表于 2023-10-8 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62654419&amp;ptid=1951151" target="_blank">stoiorz 发表于 2023-10-8 15:15</a>
+
+啥时候进的XGP，没啥印象了。</blockquote>
+首发
+
+*****
+
+####  stoiorz  
+##### 239#       发表于 2023-10-8 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62656310&amp;ptid=1951151" target="_blank">DLSDFY 发表于 2023-10-8 17:45</a>
+
+首发</blockquote>
+哦，Xbox吃得剩饭么，看这个楼PC都爽玩一年了吧。
+
+
+*****
+
+####  FLZB  
+##### 240#       发表于 2023-10-8 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62656336&amp;ptid=1951151" target="_blank">stoiorz 发表于 2023-10-8 17:48</a>
+
+哦，Xbox吃得剩饭么，看这个楼PC都爽玩一年了吧。</blockquote>
+爽完？吃屎！
+
+xbox才是爽玩完整版，而且现在花一样的钱得5倍pc玩家的氪金币，还能获得肥鲨的道歉，真是让肥鲨舔完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stoiorz  
+##### 241#       发表于 2023-10-8 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62656429&amp;ptid=1951151" target="_blank">FLZB 发表于 2023-10-8 17:59</a>
+
+爽完？吃屎！
+
+xbox才是爽玩完整版，而且现在花一样的钱得5倍pc玩家的氪金币，还能获得肥鲨的道歉，真是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我看了下pack里面就只有外观，请问有啥值得氪的东西么？不是外观党的话...
+
+
+*****
+
+####  FLZB  
+##### 242#       发表于 2023-10-8 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62656475&amp;ptid=1951151" target="_blank">stoiorz 发表于 2023-10-8 18:04</a>
+
+我看了下pack里面就只有外观，请问有啥值得氪的东西么？不是外观党的话... ...</blockquote>
+氪金的全是外观，不在意的话就没啥好氪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  蒋公卖萌  
+##### 243#       发表于 2023-10-8 18:25
+
+似乎因为有了克里格的皮肤，暗潮的销量冲到了周榜前六<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jy000129  
+##### 244#       发表于 2023-10-8 20:50
+
+克里格死亡军团人气这么高
+
+
+*****
+
+####  shyso  
+##### 245#       发表于 2023-10-8 23:15
+
+玩了两盘，开了加速器还是卡的bsbn，第二次退款
+
+我觉得不是克里格人气高，是这游戏初始身份太低，一群蚁民，毫无牌面，所以但凡出个在设定里有头有脸的势力皮肤，肯定都是疯卖，换成什么卡塔昌，卡迪安也一样卖，真冲销量得靠长子团这种造型华丽的！
+
+
+*****
+
+####  aa465834287  
+##### 246#       发表于 2023-10-9 16:37
+
+更新了有一起开黑的群么？
+
+
+*****
+
+####  FLZB  
+##### 247#       发表于 2023-10-9 16:48
+
+销量冲上来肯定不是因为克里格啊，这玩意除了锤批能有几个人知道，主要还是因为大更新+xbox版发售，肥鲨借机又找油土鳖大up推广了一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾诺琳  
+##### 248#       发表于 2023-10-9 18:37
+
+现在版本完全是爽游
+
+刷的爽，各种职业都牛逼，装备获取难度降低了很多，我一晚上就刷到了想要的侦查6d
+
+如果发售版本这样子那就是神作了
+
+现在很适合入坑没刷起来很爽，画质好，手感舒服
+
+
+*****
+
+####  抠鼻屎男  
+##### 249#       发表于 2023-10-10 23:14
+
+练了个狂信徒刚到30级，现在是先刷难度3刷装备吗？还是可以去挑战野队难度4？感觉好缺金刚砂啊
+
+
+*****
+
+####  2VYBGp94  
+##### 250#       发表于 2023-10-11 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62680374&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-10 23:14</a>
+
+练了个狂信徒刚到30级，现在是先刷难度3刷装备吗？还是可以去挑战野队难度4？感觉好缺金刚砂啊 ...</blockquote>
+野队难度4小心点装备问题不大，难5开始疯狂刷特感，装备不好秒不掉就是团灭发动机
+
+
+*****
+
+####  WGTCorp  
+##### 251#       发表于 2023-10-11 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62680374&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-10 23:14</a>
+练了个狂信徒刚到30级，现在是先刷难度3刷装备吗？还是可以去挑战野队难度4？感觉好缺金刚砂啊 ...</blockquote>
+能应对少量特感，清完一波潮不怎么掉血就能去排难五了，难五老油条还挺多的，路人水平比低难度路人高不少，只要能苟住不随便倒地就能被老玩家带过关。而且难五钱多，素材比难四多了一倍，随便捡点就比难四舔完图多了，更容易洗出能用的装备。实在怕打不过就只排低强度环境的难五，奖励是一样的。
+
+
+*****
+
+####  抠鼻屎男  
+##### 252#       发表于 2023-10-11 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62680832&amp;ptid=1951151" target="_blank">2VYBGp94 发表于 2023-10-11 00:12</a>
+
+野队难度4小心点装备问题不大，难5开始疯狂刷特感，装备不好秒不掉就是团灭发动机 ...</blockquote>
+装备我现在就一把重型链锯剑+喷火器，喷火器还没升到金，另外三个配件不知道要配什么好，主词条全生命吗？
+
+*****
+
+####  抠鼻屎男  
+##### 253#       发表于 2023-10-11 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62681396&amp;ptid=1951151" target="_blank">WGTCorp 发表于 2023-10-11 01:56</a>
+
+能应对少量特感，清完一波潮不怎么掉血就能去排难五了，难五老油条还挺多的，路人水平比低难度路人高不少 ...</blockquote>
+昨晚随机难四，虽然没挂过，但是血量还是很不健康，我再练练吧
+
+
+*****
+
+####  wakener2  
+##### 254#       发表于 2023-10-11 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62682526&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-11 09:27</a>
+
+装备我现在就一把重型链锯剑+喷火器，喷火器还没升到金，另外三个配件不知道要配什么好，主词条全生命吗 ...</blockquote>
+现在是加生命格了，天赋里有加攻速和减伤的~ 恭喜你选了个活圣人~<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  boxloli  
+##### 255#       发表于 2023-10-11 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62680374&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-10 23:14</a>
+练了个狂信徒刚到30级，现在是先刷难度3刷装备吗？还是可以去挑战野队难度4？感觉好缺金刚砂啊 ...</blockquote>
+别急着全套金装，先通过店货/制造找370五维以上的白绿装强上去才有意义，剩下的就是看神皇和周常商店会不会给你出高roll的perk拆
+
+30以后基本上可以随便混n4野队了，也可以找找低强度的难5，一般来说不会翻车
+
+*****
+
+####  boxloli  
+##### 256#       发表于 2023-10-11 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62665920&amp;ptid=1951151" target="_blank">FLZB 发表于 2023-10-9 16:48</a>
+销量冲上来肯定不是因为克里格啊，这玩意除了锤批能有几个人知道，主要还是因为大更新+xbox版发售，肥鲨借 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是买克里格的是真的多
+
+
+*****
+
+####  stoiorz  
+##### 257#       发表于 2023-10-11 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62684072&amp;ptid=1951151" target="_blank">boxloli 发表于 2023-10-11 11:33</a>
+
+别急着全套金装，先通过店货/制造找370五维以上的白绿装强上去才有意义，剩下的就是看神皇和周常商店会不 ...</blockquote>
+请问怎么拆perk啊，拆出的perk可以随机赋到装备上么
+
+*****
+
+####  boxloli  
+##### 258#       发表于 2023-10-11 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62684398&amp;ptid=1951151" target="_blank">stoiorz 发表于 2023-10-11 11:57</a>
+
+请问怎么拆perk啊，拆出的perk可以随机赋到装备上么</blockquote>
+每个小类武器都有自己的perk刷新范围，大概就是X枪X型号的能通用，在海德昂的工坊可以拆装perk和换词条，但是总共只能换两次所以完美武器还得看脸掉落
+
+
+*****
+
+####  抠鼻屎男  
+##### 259#       发表于 2023-10-11 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62684054&amp;ptid=1951151" target="_blank">wakener2 发表于 2023-10-11 11:32</a>
+
+现在是加生命格了，天赋里有加攻速和减伤的~ 恭喜你选了个活圣人~</blockquote>
+生命格是指创口+1吗？
+
+*****
+
+####  抠鼻屎男  
+##### 260#       发表于 2023-10-11 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62684102&amp;ptid=1951151" target="_blank">boxloli 发表于 2023-10-11 11:37</a>
+
+但是买克里格的是真的多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">真实，我之前买过钢铁军团，这次没忍住买了克里格，可惜错过卡塔昌
+
+*****
+
+####  抠鼻屎男  
+##### 261#       发表于 2023-10-11 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62684072&amp;ptid=1951151" target="_blank">boxloli 发表于 2023-10-11 11:33</a>
+
+别急着全套金装，先通过店货/制造找370五维以上的白绿装强上去才有意义，剩下的就是看神皇和周常商店会不 ...</blockquote>
+制造还是得靠刷资源，还是先去难度4和低烈度难5刷资源吧
+
+
+*****
+
+####  抠鼻屎男  
+##### 262#       发表于 2023-10-11 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外真的感觉老兵玩起来比较有代入感，各种cos服装，别的职业玩起来都没这感觉
+
+
+*****
+
+####  boxloli  
+##### 263#       发表于 2023-10-11 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62685194&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-11 13:11</a>
+制造还是得靠刷资源，还是先去难度4和低烈度难5刷资源吧</blockquote>
+是，不用特别执着一步到位刷毕业装，总会有差不多的
+
+
+*****
+
+####  wakener2  
+##### 264#       发表于 2023-10-11 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62685152&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-11 13:06</a>
+
+生命格是指创口+1吗？</blockquote>
+对的
+
+
+*****
+
+####  Yeelolo  
+##### 265#       发表于 2023-10-11 14:10
+
+出克里格了？有点想下回来玩了，现在老兵改版后什么水平？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aa465834287  
+##### 266#       发表于 2023-10-11 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62685826&amp;ptid=1951151" target="_blank">Yeelolo 发表于 2023-10-11 14:10</a>
+
+出克里格了？有点想下回来玩了，现在老兵改版后什么水平？</blockquote>
+4个职业都加强，老兵加强最少，所以是下水道
+
+*****
+
+####  wakener2  
+##### 267#       发表于 2023-10-11 14:17
+
+ 本帖最后由 wakener2 于 2023-10-11 14:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62685826&amp;ptid=1951151" target="_blank">Yeelolo 发表于 2023-10-11 14:10</a>
+
+出克里格了？有点想下回来玩了，现在老兵改版后什么水平？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202310/11/142101quw312a317z11yz7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-11 14:21 上传
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=f676808be6ec08fa260013af69ee3d4d/41db362ad40735fae7b86a8dd8510fb30e2408fa.jpg?tbpicau=2023-10-13-05_55a874c434c09251861ab4b57910437f" id="aimg_kf6s7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  一心敬  
+##### 268#       发表于 2023-10-11 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62685826&amp;ptid=1951151" target="_blank">Yeelolo 发表于 2023-10-11 14:10</a>
+
+出克里格了？有点想下回来玩了，现在老兵改版后什么水平？</blockquote>
+很别扭的水平
+
+火力压制砍了，大招伤害、回韧和重新装弹砍了，动力剑砍废了，韧性砍了，手雷数量砍了，精英回子弹砍了，40%备弹增加砍了，75%韧性减伤也砍了，现在主打一个远程抛光近战秒躺，猴版小狂信
+
+
+*****
+
+####  抠鼻屎男  
+##### 269#       发表于 2023-10-11 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62685826&amp;ptid=1951151" target="_blank">Yeelolo 发表于 2023-10-11 14:10</a>
+
+出克里格了？有点想下回来玩了，现在老兵改版后什么水平？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">砍了一大堆，现在就是走政委流拉人辅助用，能玩还是能玩
+
+现在这游戏四个职业是这样描述的：一个德尔塔级灵能者，一个无甲阿斯塔特，一个活圣人，以及一个凡人辅助军<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  boxloli  
+##### 270#       发表于 2023-10-11 14:37
+
+老兵只要别太执着于枪毙玩起来还是很不错的，以前是团队绝对大腿现在是润滑剂，属于黑队里面有一个很舒服的职业
+
+
+*****
+
+####  Yeelolo  
+##### 271#       发表于 2023-10-11 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  抠鼻屎男  
+##### 272#       发表于 2023-10-11 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62686249&amp;ptid=1951151" target="_blank">Yeelolo 发表于 2023-10-11 14:46</a>
+
+难受啊，我的动力剑，还我动力剑</blockquote>
+一起来当卡塔昌剑圣啦~
+
+
+*****
+
+####  旋转吧，米糕  
+##### 273#       发表于 2023-10-11 19:47
+
+想问一下金级的难度和收益对标标准难度是什么概念？
+
+—— 来自 HONOR ANY-AN00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  dfbbymice  
+##### 274#       发表于 2023-10-11 20:34
+
+金级就是5级难度+高难度特殊情况，针对不同的词条需要队友职业、武器、天赋的搭配有一定的配合，区别就是结算给的钱会多些，改造物资还是得自己另捡，金级大漩涡更是一把将近50分钟累得不行
+
+做做周任务刷快速5级得了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  妹控使徒  
+##### 275#       发表于 2023-10-11 20:48
+
+一直没玩在观望的人问下这游戏下图的动力/需求强吗
+
+或者说下图能获得什么?   玩家变强所需的资源里 下图能提供多少?
+
+早期知道的问题是下图不如蹲商店刷新, 现在改善了吗
+
+
+*****
+
+####  二枚目  
+##### 276#       发表于 2023-10-11 21:05
+
+能加bot了吗
+
+
+*****
+
+####  boxloli  
+##### 277#       发表于 2023-10-11 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62690104&amp;ptid=1951151" target="_blank">妹控使徒 发表于 2023-10-11 20:48</a>
+一直没玩在观望的人问下这游戏下图的动力/需求强吗
+
+或者说下图能获得什么?   玩家变强所需的资源里 下图能 ...</blockquote>
+下图主要是为了打造装备的三种材料，店货在满级之后一般也就进去看看有没有高五维（满级380）作为强化底子
+
+再就是动不动就百万金币消费的金币服装店，总之想花钱是不愁地方的
+
+
+*****
+
+####  Messiah_QY  
+##### 278#       发表于 2023-10-12 08:12
+
+最近普通难5 随便组3个路人，游戏进程过50%之后，翻车几率就必定**增加
+
+翻车多了，我发觉也不全是队友水平问题，全程20多分钟精神紧绷对多数玩家来说实在太累了
+
+
+*****
+
+####  shyso  
+##### 279#       发表于 2023-10-12 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693003&amp;ptid=1951151" target="_blank">Messiah_QY 发表于 2023-10-12 08:12</a>
+
+最近普通难5 随便组3个路人，游戏进程过50%之后，翻车几率就必定**增加
+
+翻车多了，我发觉也不全是队友水平 ...</blockquote>
+话说这类游戏我玩的少，l4d，鼠疫什么的一关也这么长吗？
+
+我看直播gtfo什么的虽然一局很长，但中间有很多没战斗的空隙，暗潮自己打起来感觉从头忙到尾，不过也可能是我太菜，没适应节奏
+
+
+*****
+
+####  Messiah_QY  
+##### 280#       发表于 2023-10-12 10:50
+
+ 本帖最后由 Messiah_QY 于 2023-10-12 10:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693688&amp;ptid=1951151" target="_blank">shyso 发表于 2023-10-12 09:28</a>
+
+话说这类游戏我玩的少，l4d，鼠疫什么的一关也这么长吗？
+
+我看直播gtfo什么的虽然一局很长，但中间有很多 ...</blockquote>
+我是体验过最初原版普通难5的，那个惨烈难度在当时4路人局是绝对打不过去的。
+
+枪兵刷的跟尸潮小鬼一样多
+
+自爆兵之类都是直接刷3~4个列队冲过来
+
+会永远在视野外（就在你背后）刷一个小僵尸跟着你
+
+制作组好像永远热衷于在某个时间点热修下极限刷怪频率来做小白鼠压力测试。
+
+最近4路人局 普通难5我感觉比10.4前的金牌5+还高，这虽然和新玩家涌入有关，也和爆弹被砍有关。
+
+10.4前过道楼梯之类的换场地形是不怎么会触发刷兵的，就刷点站岗和巡逻的，现在也要全力战斗。
+
+新人猛冲不停触发刷怪，还枪打远处引怪仇恨。整场游戏刷怪报警几乎不断绝。
+
+最近的游戏节奏以后估计又要平衡。
+
+给我的感觉好像是制作组里有个人非常自作聪明的以一段时间内的通关率在做难度调整。非常的恶心
+
+
+*****
+
+####  Messiah_QY  
+##### 281#       发表于 2023-10-12 11:07
+
+甚至最尴尬的情况就是，过道类地形都不会被怪包围，4个人都在卖力输出，然后被前后刷怪淹死了。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输了 连骂街的理由都没得。。只能说没有大枪欧格林日子不好过了。。。
+
+
+*****
+
+####  Nihlathak  
+##### 282#       发表于 2023-10-12 11:31
+
+草啊，低难度灵能变成轮椅职业了，跟踪飞刀不要太爽
+不过改版后刷装备还是跟以前一样难过。。
+
+—— 来自 samsung SM-S916U, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  boxloli  
+##### 283#       发表于 2023-10-12 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693688&amp;ptid=1951151" target="_blank">shyso 发表于 2023-10-12 09:28</a>
+
+话说这类游戏我玩的少，l4d，鼠疫什么的一关也这么长吗？
+
+我看直播gtfo什么的虽然一局很长，但中间有很多 ...</blockquote>
+鼠疫也这么长，肥鲨组的特色就是一幅图很大，大部分图相当于l4D一大一小两张图，部分大图相当于l4D两张大图一起。从头忙到尾确实是游戏特色了。
+
+不过还有一点是这游戏处理尸潮和别的游戏不太一样，一是不是每个人都能快速处理最杂兵的僵尸，另外一个就是有重甲兵混潮设计，高难度下压力确实高
+
+
+*****
+
+####  dfbbymice  
+##### 284#       发表于 2023-10-12 16:46
+
+5级难度改天赋系统之后不如说比起以前还简单了许多，但是这要求玩家对游戏本身的操作和自身职业定位有一定的理解了，昨天带着两个鼠疫玩家一个30级狂信没成趁手武器+19级欧格林和一个路人飞镖灵能，我闪电+闪电杖灵能还是磕磕盼盼的带过了五级高强度关卡，而且不知道为啥昨天好多局恶魔boss身边直接刷其他boss，一不小心直接双boss地狱模式。
+
+换到前天我和三个30级新人玩五级，我同样的配置，俩灵能玩飞镖自爆到死，老兵不配和我闪电控制优先秒狙击手，就算我再能也救不回队伍，会玩的和不会玩的游戏体验差距很大的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
