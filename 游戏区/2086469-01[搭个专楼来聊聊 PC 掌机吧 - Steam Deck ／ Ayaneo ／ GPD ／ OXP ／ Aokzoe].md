@@ -3319,3 +3319,281 @@ Z1芯片版ROG Ally终于到来，游戏性能不如Steam Deck：[https://www.ex
 
 入手了rog ally，先通了个小黄油助兴，折腾了一下，能流畅运行带mod的老滚5，我觉得值了。
 
+*****
+
+####  navarra  
+##### 850#       发表于 2023-10-12 07:33
+
+amd在eafc24发售后都快一个月了的时候终于更新了核显驱动，修复了rog掌机卡死在fc24标题界面的问题...
+
+—— 来自 samsung SM-T970, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bypass  
+##### 851#         楼主| 发表于 2023-10-12 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62692842&amp;ptid=2086469" target="_blank">navarra 发表于 2023-10-12 07:33</a>
+
+amd在eafc24发售后都快一个月了的时候终于更新了核显驱动，修复了rog掌机卡死在fc24标题界面的问题...
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 前几天看 Reddit 一群在骂的 233
+
+
+*****
+
+####  Ichihatsu  
+##### 852#       发表于 2023-10-12 09:09
+
+昨天有幸见到GPD宣发在贴吧大战预购者<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这宣发不开真是老板亲儿子
+
+
+*****
+
+####  bypass  
+##### 853#         楼主| 发表于 2023-10-12 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693482&amp;ptid=2086469" target="_blank">Ichihatsu 发表于 2023-10-12 09:09</a>
+
+昨天有幸见到GPD宣发在贴吧大战预购者这宣发不开真是老板亲儿子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer"> 细说，发生什么事了，预购者提意见，GPD 回复爱买不买？
+
+不会是那个陈风破浪吧 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ichihatsu  
+##### 854#       发表于 2023-10-12 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693551&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-12 09:15</a>
+细说，发生什么事了，预购者提意见，GPD 回复爱买不买？
+
+不会是那个陈风破浪吧 
+
+ ...</blockquote>
+帖子自删了，就是总在贴吧发资讯那位，大意是9月mini散热烫手于是发公告c面从金属换成玻纤增强 PC（塑料？）材质，顺便给预购的补偿个价值129的收纳包，然后前天发包的预览，是个PDD价值10块钱的爆款数码包，还把公告文件的价值129给改了，预购的质疑后转入爱买买不买滚的环节<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cfeng123  
+##### 855#       发表于 2023-10-12 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693482&amp;ptid=2086469" target="_blank">Ichihatsu 发表于 2023-10-12 09:09</a>
+
+昨天有幸见到GPD宣发在贴吧大战预购者这宣发不开真是老板亲儿子</blockquote>
+这么有乐子么
+
+*****
+
+####  Ichihatsu  
+##### 856#       发表于 2023-10-12 09:46
+
+ 本帖最后由 Ichihatsu 于 2023-10-12 09:48 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/12/094517ar8zfy5jijbgirab.png" referrerpolicy="no-referrer">
+
+<strong>IMG_7807.png</strong> (574.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-12 09:45 上传
+
+放一下两版公告图免得被说岁月史书，昨天最蚌埠住的就是大骂预购者都是想篡改历史零元购我们保护包的
+
+IMG_7806.jpeg
+(396.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-12 09:45 上传
+
+<img src="https://img.saraba1st.com/forum/202310/12/094517khs4c0ykknv03ozw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  竜騎士07  
+##### 857#       发表于 2023-10-12 10:07
+
+楼上的朋友们第一次了解gpd这牌子？ 从当年win2开始就一直着德行吧
+
+*****
+
+####  Wondering  
+##### 858#       发表于 2023-10-12 10:10
+
+steamdeck最近经常开机卡死啊，是因为插件的原因吗，需要重装看看吗
+
+
+*****
+
+####  泰坦失足  
+##### 859#       发表于 2023-10-12 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62694151&amp;ptid=2086469" target="_blank">Wondering 发表于 2023-10-12 10:10</a>
+
+steamdeck最近经常开机卡死啊，是因为插件的原因吗，需要重装看看吗</blockquote>
+装SD卡了吗，我的是劣质SD卡影响系统运行
+
+
+*****
+
+####  bypass  
+##### 860#         楼主| 发表于 2023-10-12 10:33
+
+ 本帖最后由 bypass 于 2023-10-12 10:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62693701&amp;ptid=2086469" target="_blank">Ichihatsu 发表于 2023-10-12 09:30</a>
+
+帖子自删了，就是总在贴吧发资讯那位，大意是9月mini散热烫手于是发公告c面从金属换成玻纤增强 PC（塑料 ...</blockquote>
+笑死我了，不过 GPD 嘛，不意外，他们的营销一直都是这个尿性 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 之前 GPD 还偷偷把我发在 B 站的游戏测试视频搬到 YouTube 做宣传，殊不知我也逛**而且相同视频在**也发了。他们的大表哥 2 测试视频你甚至还能看到是运行的盗版，可能拿的哪个玩家的。
+
+
+*****
+
+####  Wondering  
+##### 861#       发表于 2023-10-12 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62694349&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2023-10-12 10:25</a>
+
+装SD卡了吗，我的是劣质SD卡影响系统运行</blockquote>
+没用sd卡，甚至也没搞双系统，就是装了一些插件，感觉最近开屏幕卡死概率越来越大了，需要强行重启才能打开，有时候甚至得重启好几次
+
+*****
+
+####  Ichihatsu  
+##### 862#       发表于 2023-10-12 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62694454&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-12 10:33</a>
+笑死我了，不过 GPD 嘛，不意外，他们的营销一直都是这个尿性  之前 GPD 还偷偷把我发在 B 站的游 ...</blockquote>
+他家喜欢碰瓷营销倒是见识过，但作为一直坚持带键盘UMPC的厂还挺有想法的，工作刚需还买过win1，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">但现在对着预购者破防大骂+Q群踢人我是真不知道目标用户是谁了
+
+*****
+
+####  bypass  
+##### 863#         楼主| 发表于 2023-10-12 10:50
+
+<img src="https://img.saraba1st.com/forum/202310/12/105004tcrh0xrisad0b3b0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (356.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-12 10:50 上传
+
+<img src="https://img.saraba1st.com/forum/202310/12/105019mz0i10g52x1g39u8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-12 10:50 上传
+
+还挺好看，这种故意做旧。
+
+
+*****
+
+####  泰坦失足  
+##### 864#       发表于 2023-10-12 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62694705&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-12 10:50</a>
+
+还挺好看，这种故意做旧。</blockquote>
+这种贴纸要揭下来时候好处理吗，怕粘在上面了
+
+
+*****
+
+####  bypass  
+##### 865#         楼主| 发表于 2023-10-12 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62694832&amp;ptid=2086469" target="_blank">泰坦失足 发表于 2023-10-12 11:00</a>
+
+这种贴纸要揭下来时候好处理吗，怕粘在上面了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 我也不清楚，Reddit 上看到有人 DIY 的，这种感觉就算量产，我的手残也贴不好。
+
+
+*****
+
+####  bypass  
+##### 866#         楼主| 发表于 2023-10-12 14:36
+
+话说你们的 ROG Ally 更新最新 BIOS 之后有看到 900p 这个选项了吗，我一直都是只有 1080p 和 720p，甚至在开启 150% 缩放的时候控制面板连分辨率调节的开关都消失了，调到 125% 才出现。
+
+
+*****
+
+####  plumlis  
+##### 867#       发表于 2023-10-12 15:33
+
+GPD一直是这样的，当然仅限于国内用户，海外可是一口一个 sorry 的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  navarra  
+##### 868#       发表于 2023-10-13 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62697396&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-12 14:36</a>
+话说你们的 ROG Ally 更新最新 BIOS 之后有看到 900p 这个选项了吗，我一直都是只有 1080p 和 720p，甚至在 ...</blockquote>
+不是更新bios，是更新奥创se，而且他家也知道有些问题，提供了个注册表文件，导入后重启就有了
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ultraseven  
+##### 869#       发表于 2023-10-13 06:17
+
+ROG Ally 现在 BIOS 能升级了吗？一直没敢动。今天看有人系统更新了大表哥2一下全低30帧了
+
+
+*****
+
+####  bypass  
+##### 870#         楼主| 发表于 2023-10-13 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62704223&amp;ptid=2086469" target="_blank">ultraseven 发表于 2023-10-13 06:17</a>
+
+ROG Ally 现在 BIOS 能升级了吗？一直没敢动。今天看有人系统更新了大表哥2一下全低30帧了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 让他们打一架：
+
+<img src="https://img.saraba1st.com/forum/202310/13/084140fas80iti01lt748a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (149.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-13 08:41 上传
+
+但是我记得之前不就更新 330 了吗，这个 330 又是哪来的。
+
+
+*****
+
+####  bypass  
+##### 871#         楼主| 发表于 2023-10-13 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62704216&amp;ptid=2086469" target="_blank">navarra 发表于 2023-10-13 06:11</a>
+
+不是更新bios，是更新奥创se，而且他家也知道有些问题，提供了个注册表文件，导入后重启就有了
+
+—— 来 ...</blockquote>
+嗯，我也都更新了，还是没有。笑死，提供注册表文件还行。
+
+
+*****
+
+####  ultraseven  
+##### 872#       发表于 2023-10-13 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62704769&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-13 08:42</a>
+
+让他们打一架：</blockquote>
+没事。我PC上有大表哥2但没有生四<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
