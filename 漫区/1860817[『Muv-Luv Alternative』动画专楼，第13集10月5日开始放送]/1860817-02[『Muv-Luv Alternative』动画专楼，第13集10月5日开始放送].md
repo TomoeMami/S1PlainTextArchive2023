@@ -3526,3 +3526,18 @@ CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Toby_dak  
+##### 2286#       发表于 2023-10-14 01:03
+
+<img src="https://img.saraba1st.com/forum/202310/14/020239f5fd1m55se860z5f.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (108.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 01:02 上传
+
+は？？？现在才开始要饭？
+
