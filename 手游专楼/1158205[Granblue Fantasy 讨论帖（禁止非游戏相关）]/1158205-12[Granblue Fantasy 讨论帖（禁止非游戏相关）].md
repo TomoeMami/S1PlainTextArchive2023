@@ -1949,3 +1949,82 @@ akx没蘑菇就诱惑法角色带波曼梅格教官，1+1看配置A2-3t，要么
 
 改3倍维护补偿原来是因为这个，可以光明正大维护一天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  (:影子:)  
+##### 17423#       发表于 2023-10-9 23:39
+
+准备迎接明天的爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+能开服就是赢
+
+
+*****
+
+####  usoda  
+##### 17424#       发表于 2023-10-10 10:41
+
+构了吗？如构！
+
+
+*****
+
+####  Aureth  
+##### 17425#       发表于 2023-10-10 12:32
+
+<img src="https://p.sda1.dev/13/87e4022ea42605de2f7781a6a685f68d/Image_1696912271345.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  leeskies  
+##### 17426#       发表于 2023-10-10 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">群友复制了10个风贤者琴  一回合可以烫自己一万
+
+
+*****
+
+####  Sylpheed  
+##### 17427#       发表于 2023-10-10 22:37
+
+看来还是给木总稳住了，gbf2.0启航咯，更多复合技能的lm准备撕裂环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  はちたや  
+##### 17428#       发表于 2023-10-10 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好的，玩来玩去还是电子瓜子好磕
+
+
+*****
+
+####  平等云雾  
+##### 17429#       发表于 2023-10-12 23:43
+
+21年退坑的有点想回坑，问问这个2.0到底优化了个啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+怎么我看nga说的全是bug
+
+
+*****
+
+####  (:影子:)  
+##### 17430#       发表于 2023-10-13 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62703113&amp;ptid=1158205" target="_blank">平等云雾 发表于 2023-10-12 23:43</a>
+
+21年退坑的有点想回坑，问问这个2.0到底优化了个啥
+
+怎么我看nga说的全是bug
+
+ ...</blockquote>
+没有，只是更新底层代码，重构系统用来方便以后更新而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+硬要说的话就是代码优化了，现在好像要稍微流畅了些，比较重要的应该就是武器技能取消了3个技能的上限（利好龙武）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
