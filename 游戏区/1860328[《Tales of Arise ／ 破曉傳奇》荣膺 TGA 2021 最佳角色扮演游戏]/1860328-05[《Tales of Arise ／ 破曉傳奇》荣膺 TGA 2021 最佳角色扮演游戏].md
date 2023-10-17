@@ -4492,3 +4492,183 @@ TOS RE这事情最最最最最小丑的事情就是发售后改官网的新版�
 那有一说一这游戏被老玩家黑很大一部分是富泽的原因，改系列logo和说toz失败之类的事情现在让富泽随便干 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想一下toz拥趸确实是输出arise的主力
 
+*****
+
+####  Piano-Forest  
+##### 6596#       发表于 2023-10-10 08:42
+
+DLC 任务介绍PV：[https://youtu.be/Rfh_A5d5aEk](https://youtu.be/Rfh_A5d5aEk)
+
+明早6点公开
+<img src="https://p.sda1.dev/13/57d4f152e09f72154a47615017e06cea/20231010_084056.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天才八嘎  
+##### 6597#       发表于 2023-10-10 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道战斗改不改要还是本体那坨shi就不买了
+
+
+*****
+
+####  宛若青空  
+##### 6598#       发表于 2023-10-10 09:15
+
+蓝玫瑰和粉玫瑰<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  exiaexa  
+##### 6599#       发表于 2023-10-10 09:26
+
+其实跟line还是freerun没关系
+
+你不作为一个老玩家，作为一个新人来说狗屎的原因很大程度是反馈太屎了
+
+tog反向好不就是出招短平快，而且击中以后声效反馈和动作反馈都非常明显
+
+tov就是有种莫名其妙的迟滞感，搞的你还得去卡帧
+
+toar这沙雕玩意儿，不破防就是刮玻璃，秘奥义声效也不太行，反馈最好的点只有ba破防的时候
+
+我就怀疑这群人这群人都不玩其他游戏的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 6600#       发表于 2023-10-10 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62671618&amp;ptid=1860328" target="_blank">exiaexa 发表于 2023-10-10 09:26</a>
+
+其实跟line还是freerun没关系
+
+你不作为一个老玩家，作为一个新人来说狗屎的原因很大程度是反馈太屎了</blockquote>
+真的不玩，制作人在toar开发时才看过白金的游戏，想把白金的取消做进游戏里但来不及了。
+
+
+*****
+
+####  司马千晶  
+##### 6601#       发表于 2023-10-10 10:04
+
+这游戏平a翻滚插技能自带简易offset的，做了，有用么？有几个在乎这些东西的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不还是灌伤害么。
+
+*****
+
+####  银月术士329  
+##### 6602#       发表于 2023-10-10 19:15
+
+对于普通玩家，TOAR最大的问题不就是在BOSS除了转阶段全程霸体吗<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空洞骑士  
+##### 6603#       发表于 2023-10-11 08:58
+
+新PV透露出的日常好水（杜欧哈林不愧是票选冠军），新老场景的变化还挺有感觉的。
+
+
+*****
+
+####  司马千晶  
+##### 6604#       发表于 2023-10-11 10:44
+
+ 本帖最后由 司马千晶 于 2023-10-11 10:45 编辑 
+
+几张图就能说明的东西也能单出个预告片，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以这就是DLC主要卖点了
+
+别叫黎明新程了，直接点叫结婚之前吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  法拉  
+##### 6605#       发表于 2023-10-11 10:46
+
+不过说实话这画面，两年后来看依旧还是那么好看
+
+*****
+
+####  Rainwedell  
+##### 6606#       发表于 2023-10-11 10:47
+
+逛小黑盒游戏正好看到了条评论，“没新剧情不买”，前面都是扯，醋就是这视频最后那几秒，精准收割属于是
+
+
+*****
+
+####  抽烟的猴  
+##### 6607#       发表于 2023-10-11 10:57
+
+都两年了，二次元画面还没有竞品怎么回事
+
+
+*****
+
+####  司马千晶  
+##### 6608#       发表于 2023-10-11 14:39
+
+<img src="https://img.saraba1st.com/forum/202310/11/143920p33vub32vc2n3qb4.png" referrerpolicy="no-referrer">
+
+<strong>F8EsNbmaYAADxW8.png</strong> (33.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-11 14:39 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zero12  
+##### 6609#       发表于 2023-10-12 16:07
+
+感觉等着看dlc笑话的人不少
+
+
+*****
+
+####  司马千晶  
+##### 6610#       发表于 2023-10-14 10:53
+
+ 本帖最后由 司马千晶 于 2023-10-14 10:54 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/14/105438g0xxo040nk8yzqo4.jpg" referrerpolicy="no-referrer">
+
+<strong>F8NUDQcb0AAgiwm.jpg</strong> (435.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 10:54 上传
+
+<img src="https://img.saraba1st.com/forum/202310/14/105441jlwwohpeyxolehil.jpg" referrerpolicy="no-referrer">
+
+<strong>F8P2l0eaAAAT7kG.jpg</strong> (627.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 10:54 上传
+
+F8NUDQcb0AAgiwm.jpg
+(435.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 10:53 上传
+
+<img src="https://img.saraba1st.com/forum/202310/14/105303d03xk36x50xh3vmv.jpg" referrerpolicy="no-referrer">
+
+F8P2l0eaAAAT7kG.jpg
+(627.36 KB, 下载次数: 1)
+
+下载附件
+
+2023-10-14 10:53 上传
+
+<img src="https://img.saraba1st.com/forum/202310/14/105305n934k4n475l4eaa4.jpg" referrerpolicy="no-referrer">
+
