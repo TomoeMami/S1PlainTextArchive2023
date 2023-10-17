@@ -1655,3 +1655,506 @@ iOS系统
 
 技能：5级火场+毅力（骚鸟身）。进去被怪顶一下到1血，然后+50%攻击力。物理套配这个很猛。
 
+*****
+
+####  y433wu  
+##### 113#         楼主| 发表于 2023-10-7 08:58
+
+虽然很不想给N社带流量，但奇怪的责任感促使我来专楼更新一下最近的消息
+
+1、【首周营收破千万美元】信息比较混乱，没有找到初始信源。多个新闻提到首周iOS营收破1200万美元，安卓首周破200万美元（不过官网的优惠氪金很难统计到；实际应该会多不少）。日本市场提供了70%的收入。MHNow现在为Niantic第三高的收入游戏，排在《宝可梦Go》和《皮克敏花园》之后。作为对比，《宝可梦Go》 的首月营收2亿700万美元（Google）。哈利波特首周300万美元，首月是1200万美元 (Google)。
+[https://gnn.gamer.com.tw/detail.php?sn=257277](https://gnn.gamer.com.tw/detail.php?sn=257277)，[https://www.pocketgamer.biz/news ... irst-month-revenue/](https://www.pocketgamer.biz/news/82549/monster-hunter-now-set-to-be-niantics-third-biggest-game-with-14-million-in-first-month-revenue/)
+
+评价：不知道后劲如何<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我觉得只有仓库（和大于两个R6龙玉掉落的双倍）值得买。
+
+我只在第一个账号买了仓库和新手包。新号没氪也不打算送钱。N社不配<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+2、【MHNow联名餐厅活动】“CAPCOM 自今日（10 月 6 日）起至 11 月 9 日，在 CAPCOM Cafe 池袋店、梅田店展開與現實世界狩獵遊戲《Monster Hunter Now》的合作咖啡廳活動，推出主題餐點、限定周邊商品等，造福喜愛《魔物獵人》的粉絲。”[https://gnn.gamer.com.tw/detail.php?sn=257381](https://gnn.gamer.com.tw/detail.php?sn=257381)
+
+<img src="https://img.saraba1st.com/forum/202310/06/192439dsrvv3fu7c6akp3k.jpg" referrerpolicy="no-referrer">
+
+<strong>food.jpg</strong> (156.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:24 上传
+
+评价：日本特色吗？游戏本体运营装死，周边倒搞得挺快
+
+3、【10月活动】详情97楼
+
+评价：比第一个活动就上5星起步的角龙/黑角龙算是干了人事（但我两天时间都没看见一只黑角龙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）。新人可以先在【飞雷龙周末】做雷属性武器，然后来对付之后弱雷的雌火龙和【樱火龙】。
+
+4、【创造了一堆新bug和修复了一些bug，但是没有补偿嗒】轻弩在62.0版本被后座力bug彻底搞废了，在两天后的62.1版本被修复了。另外，弓箭有过有利玩家的bug（不知道是哪个版本开始出现的），表现为蓄力刚射后翻滚可以连点两下再接刚射（无限翻滚刚射翻滚刚射…伤害爆表）。我用这bug就爽了一天，然后快乐就被修复了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+评价：轻弩这么大的bug，运营一点补偿没有。湾友表示“補償就是把bug修好”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+5、【capcom的读心芯片 "desire sensor" 属实】卡婊为怪猎系列申请了一个专利（具体链接有机会再补），其专门用来检测玩家升级所缺材料，然后人为降低该材料掉率。
+
+评价：缺德
+
+6、【中文版出招表】湾友整理的很漂亮的出招表，链接已更新到2楼 [https://forum.gamer.com.tw/C.php ... snA=1531&amp;tnum=3](https://forum.gamer.com.tw/C.php?bsn=77414&amp;snA=1531&amp;tnum=3)
+
+7、【MHN吊图大量发生】
+
+<img src="https://img.saraba1st.com/forum/202310/06/195202g7qyx07qpxkx25xz.jpg" referrerpolicy="no-referrer">
+
+<strong>palico.jpg</strong> (68.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:52 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195749s6s3ca6xdbcsc336.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (51.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195749qu1wfvffd7q17tuu.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (56.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195749ps5ela5nr5mcuycs.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (63.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195749y9xx50vtc440pa9c.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (44.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195748c3zla2x8jt9jai85.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (52.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195748jmz5cajj2ffs9adu.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (24.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195748f9wo6lbpp1opezgq.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (44.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195748nu390vp67fufu6za.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (45.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195748dwnrn7g37mp2n1m7.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (47.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195748gc36z133uyctw6pc.jpg" referrerpolicy="no-referrer">
+
+<strong>10.jpg</strong> (35.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195747l9i8mhz0bv3srhro.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (27.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195747fx0uqftete9f9uhb.jpg" referrerpolicy="no-referrer">
+
+<strong>12.jpg</strong> (41.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195747dzcm88olr8cwsor8.jpg" referrerpolicy="no-referrer">
+
+<strong>13.jpg</strong> (30.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195747vkirou2qi712vriu.jpg" referrerpolicy="no-referrer">
+
+<strong>14.jpg</strong> (73.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195747zrwhqk477hfrkarc.jpg" referrerpolicy="no-referrer">
+
+<strong>15.jpg</strong> (145.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195746a5f5n4zzd052fzbp.jpg" referrerpolicy="no-referrer">
+
+<strong>16.jpg</strong> (52.39 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195746t5f4ftb2cw5t2i45.jpg" referrerpolicy="no-referrer">
+
+<strong>17.jpg</strong> (70.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195746d9lsuggs2qssuguj.jpg" referrerpolicy="no-referrer">
+
+<strong>18.jpg</strong> (36.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195745cfipfvnqf7tn6tfc.jpg" referrerpolicy="no-referrer">
+
+<strong>19.jpg</strong> (36.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195745goao9u2y2iu3r9uz.jpg" referrerpolicy="no-referrer">
+
+<strong>20.jpg</strong> (87.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195745y0oogg51upowo6go.jpg" referrerpolicy="no-referrer">
+
+<strong>21.jpg</strong> (327.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202310/06/195745j51tsj3j680zfass.jpg" referrerpolicy="no-referrer">
+
+<strong>22.jpg</strong> (80.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-7 08:57 上传
+
+
+*****
+
+####  dudideng  
+##### 114#       发表于 2023-10-7 09:19
+
+hr53，刚开两个紫星，去碰瓷了下完全在挠痒。该刷各种一紫星升武器和防具了
+
+
+*****
+
+####  y433wu  
+##### 115#         楼主| 发表于 2023-10-8 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62637551&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-6 20:19</a>
+
+hr53，刚开两个紫星，去碰瓷了下完全在挠痒。该刷各种一紫星升武器和防具了 ...</blockquote>
+挺快的。我卡8星喷火霸王龙了。后期dps check是真弱智
+
+6星应该是最快乐的阶段，可以凑防具技能，怪物不太难也不太弱
+
+
+*****
+
+####  y433wu  
+##### 116#         楼主| 发表于 2023-10-9 07:52
+
+樱火龙武器情报
+
+武器：回避1
+
+头：SP1，风压1
+
+身：<strong>龙属性1</strong>，集中1
+
+手：风压2，看破1
+
+腰：看破2
+
+脚：SP2，龙属性1
+
+<img src="https://img.saraba1st.com/forum/202310/08/184351ej3a7jawkw77vflr.jpg" referrerpolicy="no-referrer">
+
+<strong>pink_rathian.jpg</strong> (273.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-9 07:43 上传
+
+樱火龙太刀、片手都是毒属性；樱火龙弓箭（贯通-贯通-扩散-扩散）是目前唯一的龙属性武器
+
+<img src="https://img.saraba1st.com/forum/202310/08/185248lpfkkme9p8e8j88e.png" referrerpolicy="no-referrer">
+
+<strong>Image_20231008175152.png</strong> (37.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-9 07:52 上传
+
+
+*****
+
+####  y433wu  
+##### 117#         楼主| 发表于 2023-10-9 08:06
+
+傻逼Niantic运营，活动公告都能改的。从10.9号凌晨改到了10.9号早9点
+
+
+*****
+
+####  dudideng  
+##### 118#       发表于 2023-10-9 23:34
+
+hr57，刚把搔鸟太刀g7拉到五级，到g8已经要紫三星的龙玉了啊。而且升g8竟然要1w2，看着头大。
+只能边推三周目主线，边升防具和别的属性武器了。
+樱火龙下午出去溜达一圈只看到一只，就当开个装备图鉴了。虽然亚种稀有也算符合设定，不过要刷亚种的装备也太膈应了。以后要有金银火都不敢想。
+
+—— 来自 Google Pixel 7 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 119#         楼主| 发表于 2023-10-10 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62669719&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-9 10:34</a>
+
+hr57，刚把搔鸟太刀g7拉到五级，到g8已经要紫三星的龙玉了啊。而且升g8竟然要1w2，看着头大。
+
+只能边推三周 ...</blockquote>
+可以开做属性武器了。7-5骚鸟太刀打8星有点吃力
+
+
+*****
+
+####  dudideng  
+##### 120#       发表于 2023-10-10 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62669919&amp;ptid=2147636" target="_blank">y433wu 发表于 2023-10-10 00:01</a>
+可以开做属性武器了。7-5骚鸟太刀打8星有点吃力</blockquote>
+联机碰到有人开紫三星的搔鸟，进去摸了下，太特么刮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 7 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 121#         楼主| 发表于 2023-10-10 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62660587&amp;ptid=2147636" target="_blank">y433wu 发表于 2023-10-8 19:06</a>
+
+傻逼Niantic运营，活动公告都能改的。从10.9号凌晨改到了10.9号早9点
+
+有日台猎人蹲点到半夜走了几个小时发 ...</blockquote>
+[https://store.monsterhunternow.com/offer-redemption](https://store.monsterhunternow.com/offer-redemption)
+
+补偿： WTBJDURHUMD9J 粉球*3
+
+
+*****
+
+####  y433wu  
+##### 122#         楼主| 发表于 2023-10-10 21:39
+
+记一下这个8星角龙的冰弓配装 [https://www.youtube.com/watch?v=MAenwphu4qo](https://www.youtube.com/watch?v=MAenwphu4qo)
+
+武器：ファーンライク グレード7 LV5 攻撃力705 属性554
+
+頭：ギエナヘルム 氷属性攻撃強化Lv1
+
+胸：プケプケメイル 集中Lv1 （毒妖胸-集中）
+
+腕：クルルアーム 見切りLv1 （骚鸟手-看破）
+
+腰：ギエナコイル 氷属性攻撃強化Lv2
+
+足：ジュラグリーヴ 集中Lv2
+
+我试了 G7-5冰弓+属功3+集中2+人火2 和 冰弓+属功3+集中2+弱点1 的配装，最好都是差两轮射击左右打死（再优化动作估计可以过，但肯定要试很久）。
+
+据说有人G6-5冰太刀就过了8星角龙。太强了。我上个号就是居合到自闭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+现阶段最强的武器组合是 角龙锤+雷冰太刀+水火弓。年底会出雷狼龙，雷弓配装应该会buff一波。
+
+
+*****
+
+####  y433wu  
+##### 123#         楼主| 发表于 2023-10-11 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62671395&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-9 20:07</a>
+
+联机碰到有人开紫三星的搔鸟，进去摸了下，太特么刮了
+
+—— 来自 Google Pixel 7 Pro, Android 1 ...</blockquote>
+G10-5 骚鸟太刀+新出的樱火龙腰可以直逼4000攻击力，砍爆所有怪物。我又打算玩太刀了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=ugOlC9BqC-M](https://www.youtube.com/watch?v=ugOlC9BqC-M)
+
+
+*****
+
+####  猫空  
+##### 124#       发表于 2023-10-11 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62681397&amp;ptid=2147636" target="_blank">y433wu 发表于 2023-10-11 01:56</a>
+
+G10-5 骚鸟太刀+新出的樱火龙腰可以直逼4000攻击力，砍爆所有怪物。我又打算玩太刀了
+
+https://www ...</blockquote>
+这么爽的？那我这周就出去多转转把樱火腰做出来
+
+
+*****
+
+####  dudideng  
+##### 125#       发表于 2023-10-11 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62681397&amp;ptid=2147636" target="_blank">y433wu 发表于 2023-10-11 01:56</a>
+G10-5 骚鸟太刀+新出的樱火龙腰可以直逼4000攻击力，砍爆所有怪物。我又打算玩太刀了
+
+https://www ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡拉赞毕业打卡拉赞。缺的是g10-5太刀。
+樱火腰凑个见切2还行，主要其他腰也没太好的了
+
+—— 来自 Google Pixel 7 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 126#         楼主| 发表于 2023-10-11 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62682282&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-10 20:05</a>
+
+卡拉赞毕业打卡拉赞。缺的是g10-5太刀。
+
+樱火腰凑个见切2还行，主要其他腰也没太好的了</blockquote>
+G7-5骚鸟太打个8星中分哥应该没问题吧，慢慢攒龙玉咯
+
+*****
+
+####  y433wu  
+##### 127#         楼主| 发表于 2023-10-11 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62681696&amp;ptid=2147636" target="_blank">猫空 发表于 2023-10-10 18:32</a>
+
+这么爽的？那我这周就出去多转转把樱火腰做出来</blockquote>
+祝你好运。我到现在就碰见一只<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+需要至少(49+6+2+5+2)/4=16只
+
+<img src="https://img.saraba1st.com/forum/202310/10/203525q3tjsib2jb1i1lnz.png" referrerpolicy="no-referrer">
+
+<strong>Capture.PNG</strong> (65.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-11 09:35 上传
+
+
+*****
+
+####  dudideng  
+##### 128#       发表于 2023-10-11 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62682606&amp;ptid=2147636" target="_blank">y433wu 发表于 2023-10-11 09:33</a>
+G7-5骚鸟太打个8星中分哥应该没问题吧，慢慢攒龙玉咯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在三周目头几章，开八星估计得过几周了。妈的，这些人都不上班的么
+
+—— 来自 Google Pixel 7 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 129#         楼主| 发表于 2023-10-12 08:55
+
+绝了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">，今天意外和nga上的太刀侠在现实中组了队（杀了一只8星雌火）。看到他id、等级和太刀就认出他了。
+
+网络上遥远的距离变成了生命中的两百米。
+
+
+*****
+
+####  y433wu  
+##### 130#         楼主| 发表于 2023-10-13 22:39
+
+ 本帖最后由 y433wu 于 2023-10-13 09:43 编辑 
+
+Marked Monster Retry: When hunting a monster marked with a paintball, you can now retry the hunt a certain number of times even if you fail.
+
+====
+[backcolor=rgba(255, 255, 255, 0.8)]From [color=var(--newCommunityTheme-linkText)][Twitter](https://twitter.com/MH_Now_EN/status/1712792804508762331?t=azb1Wx0s8OjamFZIg50sEg&amp;s=19):[backcolor=rgba(255, 255, 255, 0.8)]🔔 Announcement 🔔 With today's update, you can now challenge up to 3 times when you hunt a monster marked with a Paintball! #MHNow====
+
+★(star) Rate: The spawn rates of Large monsters from Main Story chapter 10 through 13 and in the 2nd playthrough has been adjusted.( ★(star) rate has been adjusted, but the rates for types of Large monsters remain unchanged.)
+
+Push Notification Changes: The number of push notifications has been reduced. The push notification triggered when your Palico marks a monster has been removed.
+
+Palico Marking Feature Improvements: No more automatic marking while you're actively using the app.
+
+Faster Marking Intervals.
+
+Referral code gifts: To receive the gifts, the invited hunters need to reach Hunter Rank 11 instead of Hunter Rank 6.
+
+&lt;Fixed Issues&gt;
+
+Barroth not appearing in the Swamp habitat
+
+
+*****
+
+####  y433wu  
+##### 131#         楼主| 发表于 2023-10-14 08:37
+
+这次樱火龙出率好高<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">做一两件装备完全有希望
+
