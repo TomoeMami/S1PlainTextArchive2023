@@ -549,3 +549,18 @@ qq群：568981296
 
 虽然这么说但也不是放弃让更多的人知道（starlight），还是会踏实地继续活动。
 
+*****
+
+####  nh_zzz  
+##### 759#       发表于 2023-10-14 15:35
+
+2024.7小飞舞台3，飞行船剧场，演出脚本：江㟢大兄
+
+<img src="https://img.saraba1st.com/forum/202310/14/153521p4amt10tzmhpg09t.png" referrerpolicy="no-referrer">
+
+<strong>}8H16~BP@J2EIUNG)RW~UCB.png</strong> (76.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 15:35 上传
+
