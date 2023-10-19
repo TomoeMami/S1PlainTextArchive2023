@@ -5706,3 +5706,135 @@ Dieci是意大利语的10，看这身打扮像神职人员，不过技能动作�
 感觉二号线回合还能提</blockquote>
 我觉的是弃牌词条太强了，有效的减少了罪人的疲软期的同时没有任何负面影响，极大的优化了使用手感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 363#       发表于 2023-10-13 18:35
+
+<img src="https://img.saraba1st.com/forum/202310/13/183206q9yb6biqikmiqy0y.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231013_183053.jpg</strong> (126.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-13 18:32 上传
+
+10.26开万圣活动，根据打码失败的卡池图透，三星人格是浮士德的，ego悔恨应该是脑叶公司里的遗弃杀人魔，挺适合万圣节氛围的...
+
+<img src="https://img.saraba1st.com/forum/202310/13/183605rutcmfez82mmemmo.png" referrerpolicy="no-referrer">
+
+<strong>1697193354542.png</strong> (109.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-13 18:36 上传
+
+不过有个比较特殊的地方在于，本期的新人格和ego都不能兑换，只能抽取。兑换要等到明年第二次万圣才开放...可能是流水不好开始逼氪了。
+
+
+*****
+
+####  erratic璃月  
+##### 364#       发表于 2023-10-14 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62711750&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-10-13 18:35</a>
+
+10.26开万圣活动，根据打码失败的卡池图透，三星人格是浮士德的，ego悔恨应该是脑叶公司里的遗弃杀人魔， ...</blockquote>
+韩文看不懂，英文公告里这一段是While the periods between these Event may vary, our current goal is to hold at least 1[Walpurgis Night] Event every quarter. 
+
+活动间隔时间不确定，预计每季度复刻一次，给人的感觉比较暧昧。
+
+但鉴于之前6玛和两个单ego池子钓鱼，有理由警惕yj在圣诞节或者春节空降个不能换的真限定池出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 365#       发表于 2023-10-14 00:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按你游现在这强度膨胀一年不能换跟真限定也没啥区别了
+
+
+*****
+
+####  ヒトニナル  
+##### 366#       发表于 2023-10-14 01:31
+
+魔女之夜活动是每季度开一次，每次可以兑换上一次的ego和人格，哪来的一整年不能换
+而且魔女之夜活动的主旨是联动月计世界观下的其他作品，带剧情的，一年出一次这群人不得憋死
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然如果你想怀疑月计的产能的话那可以尽管怀疑
+
+
+*****
+
+####  Yuzutea  
+##### 367#       发表于 2023-10-14 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62715485&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2023-10-14 01:31</a>
+
+魔女之夜活动是每季度开一次，每次可以兑换上一次的ego和人格，哪来的一整年不能换
+
+而且魔女之夜活动的主旨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不是说魔女之夜这个
+
+只是怀疑后面会不会出圣诞新年这种真一年复刻一次的限定池
+
+毕竟这种单赛季限定能不能骗氪我有点怀疑
+
+
+*****
+
+####  Jamaisvu  
+##### 368#       发表于 2023-10-14 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62715485&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2023-10-14 01:31</a>
+
+魔女之夜活动是每季度开一次，每次可以兑换上一次的ego和人格，哪来的一整年不能换
+
+而且魔女之夜活动的主旨 ...</blockquote>
+原来如此，理解错了，以为是万圣节的活动，那没事了。
+
+玩这游戏其实就是等着脑叶和废墟的联动，他不更新主线光出情怀人格我都能接受<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 369#       发表于 2023-10-16 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舍音人格直接就没了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">结果最后一个人格还真是浮浮啊
+
+
+*****
+
+####  Jamaisvu  
+##### 370#       发表于 2023-10-16 20:46
+
+<img src="https://img.saraba1st.com/forum/202310/16/204446xc0usi9bxhoq0oiu.png" referrerpolicy="no-referrer">
+
+<strong>1697460238582.png</strong> (397.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-16 20:44 上传
+
+第三赛季前瞻。终于要加新的日常本了，自从镜牢升级后日常纽本我是越打感觉越亏<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 371#       发表于 2023-10-16 20:55
+
+魔女之夜好像不算在赛季里面，人格只有活动期间抽取兑换...
+
+虽然第三赛季11.16才开，不过貌似不会再出赛季人格，看来手里的第二赛季十连券可以用了...
+
+*****
+
+####  Jamaisvu  
+##### 372#       发表于 2023-10-16 20:57
+
+镜牢的增益不会继承，新镜牢要重新肝星芒...第三赛季前倒是能把镜牢2的增益肝满，希望镜牢3的星芒奖励能多给点吧，迭代太快感觉在做无用功...
+
