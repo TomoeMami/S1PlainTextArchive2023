@@ -13335,3 +13335,350 @@ QQ截图20230930105417.png
 
 什么？苍边红莉栖？！
 
+*****
+
+####  acejoe  
+##### 1255#       发表于 2023-10-13 17:43
+
+本来是盖亚致敬作，盖亚致敬不了不会敌人致敬了吧
+
+
+*****
+
+####  10th_Mystery  
+##### 1256#       发表于 2023-10-13 18:53
+
+夾娃娃
+
+
+*****
+
+####  Aeroblast  
+##### 1257#       发表于 2023-10-14 09:16
+
+这集料够大的，还是这个参谋长在藏
+
+
+*****
+
+####  novyDC  
+##### 1258#       发表于 2023-10-14 10:11
+
+防卫队高层真藏了个大的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  novyDC  
+##### 1259#       发表于 2023-10-14 10:21
+
+参谋长人还可以
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  nonodundun  
+##### 1260#       发表于 2023-10-14 10:32
+
+好<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyDC  
+##### 1261#       发表于 2023-10-14 10:35
+
+空战真不错
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  桥洞底下盖小被  
+##### 1262#       发表于 2023-10-14 10:39
+
+小黑屋使用越来越频繁了
+
+*****
+
+####  游蜓  
+##### 1263#       发表于 2023-10-14 10:39
+
+空战不错，可惜太短了不过瘾
+
+评论都在猜这集怪兽是不是地球用来防御的，结果被野人灭了
+
+目前出现的防卫军好像都是白的啊，土桥这老头感觉也是表面黑内里其实是想利用惠美彻底调查清楚
+
+
+*****
+
+####  柳柳昭陵  
+##### 1264#       发表于 2023-10-14 11:06
+
+怕不是赛文x那样，是顶层是外星人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kal_008  
+##### 1265#       发表于 2023-10-14 11:08
+
+阿斯嘉隆cv石田彰，这不来个2887<img src="https://static.saraba1st.com/image/smiley/carton2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CET-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  scorbian  
+##### 1266#       发表于 2023-10-14 11:15
+
+这集信息量大起来了，新片尾曲也好听，看爽了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性  
+##### 1267#       发表于 2023-10-14 11:19
+
+<img src="https://p.sda1.dev/13/339d53be1cb043aac2d9ef59bcadff0b/IMG_CMP_128709420.jpeg" referrerpolicy="no-referrer">我见犹怜
+
+
+*****
+
+####  水边井  
+##### 1268#       发表于 2023-10-14 11:23
+
+奥棚的演员演技是真的可以啊，几个主演和主要配角都是平均水平以上的演技，比隔壁强太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyDC  
+##### 1269#       发表于 2023-10-14 11:54
+
+该给阿斯加隆装近战武器了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/14/115524h1y1yz7ng3mm7mm3.jpg" referrerpolicy="no-referrer">
+
+<strong>00077BAA9C9C995D11D7288DCE23B4A0.jpg</strong> (189.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 11:55 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kcalb  
+##### 1270#       发表于 2023-10-14 12:20
+
+V转过来就是7，懂了！七爷1999，欧米茄档案是吧，期待下参谋和野人最后赌上尊严与荣耀的♂摔跤
+
+
+*****
+
+####  hulaoda007  
+##### 1271#       发表于 2023-10-14 12:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">"俺が食う。"
+
+
+*****
+
+####  Case  
+##### 1272#       发表于 2023-10-14 12:58
+
+空战好爽。虽然有点短。但让步给这集的文戏也值得了。
+
+演员全员演技在线就是舒服啊。
+
+另外因为提前送审的缘故，咱们比日版还多了点剧情内容差异。怪有意思的。
+
+
+*****
+
+####  pokemon最爱  
+##### 1273#       发表于 2023-10-14 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62718176&amp;ptid=2104492" target="_blank">Case 发表于 2023-10-14 12:58</a>
+
+空战好爽。虽然有点短。但让步给这集的文戏也值得了。
+
+演员全员演技在线就是舒服啊。</blockquote>
+剧情差异？求详细<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  达达葱2  
+##### 1274#       发表于 2023-10-14 13:18
+
+<blockquote>Case 发表于 2023-10-14 12:58
+空战好爽。虽然有点短。但让步给这集的文戏也值得了。
+
+演员全员演技在线就是舒服啊。
+</blockquote>
+同问
+
+*****
+
+####  csolfans  
+##### 1275#       发表于 2023-10-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62718176&amp;ptid=2104492" target="_blank">Case 发表于 2023-10-14 12:58</a>
+
+空战好爽。虽然有点短。但让步给这集的文戏也值得了。
+
+演员全员演技在线就是舒服啊。</blockquote>
+同问，哪里差异？
+
+
+*****
+
+####  novyDC  
+##### 1276#       发表于 2023-10-14 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62718263&amp;ptid=2104492" target="_blank">pokemon最爱 发表于 2023-10-14 13:08:17</a>
+剧情差异？求详细</blockquote>惠美健身房那段
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Cloudslin  
+##### 1277#       发表于 2023-10-14 15:37
+
+牛的牛的，田口监督在武戏文戏上都有新突破。断的地方有点意犹未尽。
+
+
+*****
+
+####  Sokukei  
+##### 1278#       发表于 2023-10-14 18:17
+
+这集真不错，意犹未尽
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 1279#       发表于 2023-10-14 18:54
+
+这集神回了
+
+
+*****
+
+####  kal_008  
+##### 1280#       发表于 2023-10-14 20:25
+
+<img src="https://img.saraba1st.com/forum/202310/14/202448v2mmhh2m7ut7h2ft.png" referrerpolicy="no-referrer">
+
+<strong>H`{TC)BP]XD]M32E$$`0N3B.png</strong> (207.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 20:24 上传
+
+这一段连镜头都不一样啊
+
+
+*****
+
+####  rainsheep  
+##### 1281#       发表于 2023-10-14 20:45
+
+所以为什么会不一样，这段不应该早做好了吗，外版后来选择删了？
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  novyDC  
+##### 1282#       发表于 2023-10-14 20:50
+
+阿斯加隆要装ai呢 还是阿斯兰的声优<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/14/204941f7ce9aib6kc7679x.jpg" referrerpolicy="no-referrer">
+
+<strong>9F748CDF97C0B277FDBD1CEA8CC3BEC1.jpg</strong> (300.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-14 20:49 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 1283#       发表于 2023-10-14 21:32
+
+这集怪兽皮套真的帅啊，有种旧平成的质感了
+
+
+*****
+
+####  喷火飞龙  
+##### 1284#       发表于 2023-10-14 21:38
+
+惠美太好看了……之前喜欢瑞生，惠美也是这一款<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1285#       发表于 2023-10-14 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1286#       发表于 2023-10-14 22:04
+
+这集两个人的交心谈话演得真好啊，我要磕队长和惠美啊，为什么队长设定是已婚啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不可避免  
+##### 1287#       发表于 2023-10-15 10:55
+
+这集感觉是真不错，虹蛇聚起持续稳定风暴，月光栖息其中，明显是地球本土怪兽战队的combo。 
+
+结果虹蛇被提前叫醒，月光只能在各地风暴栖息感觉上了疲于奔命的debuff，人类猪队友了。
+
+
+*****
+
+####  Sleipnirω  
+##### 1288#       发表于 2023-10-16 00:33
+
+<img src="https://img.saraba1st.com/forum/202310/16/003311annlsecee4ss3r97.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231016003257.jpg</strong> (181.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-16 00:33 上传
+
+开头杏梨玩模型那段好好笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1289#       发表于 2023-10-16 09:56
+
+线控高超？什么黑科技啊，惊了
+
