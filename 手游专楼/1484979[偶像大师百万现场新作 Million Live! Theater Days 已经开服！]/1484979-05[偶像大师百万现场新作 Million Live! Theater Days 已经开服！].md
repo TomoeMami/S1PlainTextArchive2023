@@ -1976,3 +1976,121 @@ mv的还原度真高 这首真是拖了太久了</blockquote>
 
 随便攒一个十连就出炸鸡了，绝了
 
+*****
+
+####  wfhtony  
+##### 7240#       发表于 2023-10-17 20:15
+
+ 本帖最后由 wfhtony 于 2023-10-17 20:19 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/17/201659fe7lle3xdalexagn.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 824 - (1) ミリオンライブ！ シアターデイズ【公式】 (@imasml_thea.png</strong> (62.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:16 上传
+
+<img src="https://img.saraba1st.com/forum/202310/17/201405dwwit4k6tk00wanu.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 815 - ミリオンライブ！ シアターデイズ【公式】 (@imasml_theater).png</strong> (19.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+今年MLTD万圣节活动的前戏是小游戏（解谜）啊...
+
+这次的关键字就是「魂」。
+
+一、 
+[官博公开新页面](https://idolmaster-official.jp/news/01_9721)，显示[明天14:45(UTC+9)会公开新视频](https://www.youtube.com/watch?v=lKjCC6V3aso)（大概率是新曲MV）
+
+最后一行涂黑（反白）的内容是「　ず　　っ　　と　　一　　绪　　だ　　よ　」（和youtube页面底下的简介内容一致）
+
+<img src="https://img.saraba1st.com/forum/202310/17/201403s5vi2tipbpylok8p.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (86.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+另外，[youtube的预告片段](https://clr2.wfhtony.space/s/P3ni1)也有零星显示部分内容（需要调高亮度)。
+
+二、 
+
+MLTD公开发了以下两份「资料」：
+
+<img src="https://img.saraba1st.com/forum/202310/17/201403i29912x1q829ea04.png" referrerpolicy="no-referrer">
+
+<strong>02.png</strong> (218.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+<img src="https://img.saraba1st.com/forum/202310/17/201404xdgqizj63ggfjshk.png" referrerpolicy="no-referrer">
+
+<strong>04.png</strong> (143.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+三、 
+
+通过官博页面最后一行反白的链接，可以得到「资料1」：
+
+<img src="https://img.saraba1st.com/forum/202310/17/201403z78uk4pw7gfj4gj0.png" referrerpolicy="no-referrer">
+
+<strong>01H.png</strong> (187.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+四、 
+
+<img src="https://img.saraba1st.com/forum/202310/17/201519r7d7bdh7htmhbmt8.png" referrerpolicy="no-referrer">
+
+<strong>r1.png</strong> (62.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:15 上传
+
+通过头像反白的数字（其实就是推文的ID）访问过去，可以得到「资料3」：
+
+<img src="https://img.saraba1st.com/forum/202310/17/201404irse9mh33afvljsk.png" referrerpolicy="no-referrer">
+
+<strong>03H.png</strong> (163.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+五、 
+
+官推之后又推了新内容：
+
+<img src="https://img.saraba1st.com/forum/202310/17/201404xaxh91suppz2f49t.png" referrerpolicy="no-referrer">
+
+<strong>22.png</strong> (13.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+方法和【四】一样，可以得到「资料5」：
+
+<img src="https://img.saraba1st.com/forum/202310/17/201404ivhktktle6joxae6.png" referrerpolicy="no-referrer">
+
+<strong>05H.png</strong> (187.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 20:14 上传
+
+↑目前的最新进度。
+
