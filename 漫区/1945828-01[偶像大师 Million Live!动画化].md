@@ -4987,3 +4987,25 @@ BD的情报出来了，第三卷有额外+一话
 
 那剧中这么处理倒也没啥问题了，就是这歌到底怎么搭配步的舞蹈
 
+*****
+
+####  Unlight  
+##### 525#       发表于 2023-10-17 20:37
+
+话说美希有管赤羽根P叫Honey吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给新人一点震撼
+
+不过小翅膀这上来就跟源P约会也没差多少就是了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  枫紫  
+##### 526#       发表于 2023-10-17 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62745407&amp;ptid=1945828" target="_blank">Unlight 发表于 2023-10-17 20:37</a>
+
+话说美希有管赤羽根P叫Honey吗给新人一点震撼
+
+不过小翅膀这上来就跟源P约会也没差多少就是了 ...</blockquote>
+只有小鸟和美咲对チーフ有称谓
+
