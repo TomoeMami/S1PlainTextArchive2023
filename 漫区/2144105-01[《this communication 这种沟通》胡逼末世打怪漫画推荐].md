@@ -774,3 +774,194 @@
 
 确实有当年看死亡笔记时的快感，漫画里的邪道主角有点太少了
 
+*****
+
+####  redsouris  
+##### 74#       发表于 2023-10-10 16:10
+
+血糊GG
+又到了德鲁哈秋后算账的时间<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  白金口袋  
+##### 75#       发表于 2023-10-10 23:00
+
+之前男主敢各种玩套路的大前提是所长哪怕各种内疚最终也都坚定的跟他站在同一条战线上，这下有二心了就不好弄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ストック  
+##### 76#       发表于 2023-10-13 20:24
+
+之前断头台的时候就想说了，你们这个研究所怎么那么多魔术用大道具啊，你们这个什么研究所啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  redsouris  
+##### 77#       发表于 2023-10-14 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62712904&amp;ptid=2144105" target="_blank">ストック 发表于 2023-10-13 20:24</a>
+之前断头台的时候就想说了，你们这个研究所怎么那么多魔术用大道具啊，你们这个什么研究所啊
+
+—— 来自 S1 ...</blockquote>
+研究超能力，需要各种奇怪道具啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  klmmmx  
+##### 78#       发表于 2023-10-14 11:25
+
+题材不错但是印象中一般这种邪道都给不出啥好结局
+
+
+*****
+
+####  colamitsuyo  
+##### 79#       发表于 2023-10-14 19:59
+
+男主的杀必死镜头太多了，一口气补完最新话有点恍惚
+
+
+*****
+
+####  第贰个十年  
+##### 80#         楼主| 发表于 2023-10-14 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62721619&amp;ptid=2144105" target="_blank">colamitsuyo 发表于 2023-10-14 19:59</a>
+男主的杀必死镜头太多了，一口气补完最新话有点恍惚</blockquote>
+细嗦杀必死
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  colamitsuyo  
+##### 81#       发表于 2023-10-14 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62722727&amp;ptid=2144105" target="_blank">第贰个十年 发表于 2023-10-14 21:51</a>
+
+细嗦杀必死
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+挑两个剧情初期的例子，男主被四未打伤后嗑止痛药独自用炮弹拖延芥子的入侵，还有用绳索拷问神父那一段一边套绳子一边问对方体重
+
+我觉得都很erotic（当社比），从神父篇那一话的扉页可以看出作者肯定有意识到自己在画什么…<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 82#       发表于 2023-10-15 14:04
+
+我还以为是杀了就必须杀死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来还是那个杀必死
+
+
+*****
+
+####  colamitsuyo  
+##### 83#       发表于 2023-10-15 23:10
+
+总有一天人人都会控90kg+胸大腿长粉毛男主的！
+
+*****
+
+####  第贰个十年  
+##### 84#         楼主| 发表于 2023-10-15 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62725894&amp;ptid=2144105" target="_blank">colamitsuyo 发表于 2023-10-15 23:10</a>
+总有一天人人都会控90kg+胸大腿长粉毛男主的！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+呃，这是否有点……
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  狂马王  
+##### 85#       发表于 2023-10-17 10:53
+
+看到最新一话了，感谢推荐，这剧情铺垫推进一环扣一环，没有一集是水的，智斗全程在线，看着真爽
+
+
+*****
+
+####  lzz  
+##### 86#       发表于 2023-10-17 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62722922&amp;ptid=2144105" target="_blank">colamitsuyo 发表于 2023-10-14 22:11</a>
+
+挑两个剧情初期的例子，男主被四未打伤后嗑止痛药独自用炮弹拖延芥子的入侵，还有用绳索拷问神父那一段一 ...</blockquote>
+还有36话吞录像带，太明显了
+
+
+*****
+
+####  isaaczheng  
+##### 87#       发表于 2023-10-17 15:29
+
+所以你们现在都在哪看的
+
+
+*****
+
+####  colamitsuyo  
+##### 88#       发表于 2023-10-17 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62742516&amp;ptid=2144105" target="_blank">isaaczheng 发表于 2023-10-17 15:29</a>
+
+所以你们现在都在哪看的</blockquote>
+生肉（44话）tachiyomi可以看，
+
+汉化（到36话）在微博搜摸鱼伞菌子
+
+*****
+
+####  狂马王  
+##### 89#       发表于 2023-10-17 17:30
+
+看到36话，为什么新所长培养芥子结果被反杀，芥子全方位占领了研究所以后，没有把女猎人和德鲁哈全杀了啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">正常来说，根据地有内鬼了不都是一波就无了吗
+
+
+*****
+
+####  redsouris  
+##### 90#       发表于 2023-10-17 18:30
+
+ 本帖最后由 redsouris 于 2023-10-17 18:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743741&amp;ptid=2144105" target="_blank">狂马王 发表于 2023-10-17 17:30</a>
+看到36话，为什么新所长培养芥子结果被反杀，芥子全方位占领了研究所以后，没有把女猎人和德鲁哈全杀了啊[f ...</blockquote>
+人工芥子的情绪和思考非常不安定，有些觉得自己还是人类，就像那个神父一样，没有完全变成芥子的思考模式，所以没有做出那么明确的行动
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  KDConan  
+##### 91#       发表于 2023-10-18 08:31
+
+44话这可以啊，居然还有手段<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  寒蝉  
+##### 92#       发表于 2023-10-18 14:33
+
+这漫画可以啊，反社会人格男主和他的六个神经病后宫<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
