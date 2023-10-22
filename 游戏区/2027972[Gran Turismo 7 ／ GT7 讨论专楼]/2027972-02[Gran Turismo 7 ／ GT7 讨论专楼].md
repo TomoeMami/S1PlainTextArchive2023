@@ -481,3 +481,176 @@ https://www.reddit.com/r/granturismo/comments/b6f7xa/you_can_map_kers_overtake_b
 好像是可以  ...</blockquote>
 带超越的车就可以通过按键启动，主要是919 TS010和GR010这几个LMP1，就没得设置动能回收和放电的幅度，不知道是不是LMP的规则只能通过控制油门和刹车来决定
 
+*****
+
+####  byisme001  
+##### 1766#       发表于 2023-10-16 21:38
+
+新的计时赛就剩两天怎么进不去
+
+
+*****
+
+####  iou90  
+##### 1767#       发表于 2023-10-16 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62736085&amp;ptid=2027972" target="_blank">byisme001 发表于 2023-10-16 21:38</a>
+新的计时赛就剩两天怎么进不去</blockquote>
+米其林那个？好神秘呀
+
+
+*****
+
+####  一个陆仁贾  
+##### 1768#       发表于 2023-10-16 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62736085&amp;ptid=2027972" target="_blank">byisme001 发表于 2023-10-16 21:38</a>
+新的计时赛就剩两天怎么进不去</blockquote>
+不是剩两天，是还有两天才开始
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 1769#       发表于 2023-10-16 22:28
+
+米其林涂装的保时捷918，亚特兰大这图几个能拉开差距的弯还是跑得挺痛苦的
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Fuero  
+##### 1770#       发表于 2023-10-18 20:20
+
+The next update of GT7 will be one of the biggest and most important updates of Polyphony Digital(*probably related to New AI)
+
+
+*****
+
+####  iou90  
+##### 1771#       发表于 2023-10-18 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62755920&amp;ptid=2027972" target="_blank">Fuero 发表于 2023-10-18 20:20</a>
+
+The next update of GT7 will be one of the biggest and most important updates of Polyphony Digital(*p ...</blockquote>
+能不能给几个新赛道呢&gt;.&lt;
+
+
+*****
+
+####  Fuero  
+##### 1772#       发表于 2023-10-18 20:55
+
+<blockquote>iou90 发表于 2023-10-18 20:48
+能不能给几个新赛道呢&gt;.</blockquote>
+画面、物理、AI、感觉这3个有足够的分量被称之为发售后最重要更新，不过车子和赛道也多多益善啦
+
+
+*****
+
+####  iou90  
+##### 1773#       发表于 2023-10-19 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62756271&amp;ptid=2027972" target="_blank">Fuero 发表于 2023-10-18 20:55</a>
+
+画面、物理、AI、感觉这3个有足够的分量被称之为发售后最重要更新，不过车子和赛道也多多益善啦 ...</blockquote>
+[https://www.gtplanet.net/forum/t ... -is-cooking.423487/](https://www.gtplanet.net/forum/threads/nenkai-x-twitter-kaz-is-cooking.423487/)
+
+这个串儿逛下来最逗的是这个XD 剩下好多 b-spec 跟 sophy 之泪的讨论...
+
+Looking back at Nenkai's tweet,
+
+1. PD's potentially cooking up something big
+
+2. It's something that could be interpreted as a direct response to Forza
+
+3. PD often makes interesting decisions
+
+Perhaps the next update will come with the announcement of a PC port?
+
+
+*****
+
+####  byisme001  
+##### 1774#       发表于 2023-10-19 15:05
+
+这两周那么多跑鸡腿赛道的活动
+
+
+*****
+
+####  Fuero  
+##### 1775#       发表于 2023-10-19 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62764002&amp;ptid=2027972" target="_blank">iou90 发表于 2023-10-19 14:52</a>
+
+https://www.gtplanet.net/forum/threads/nenkai-x-twitter-kaz-is-cooking.423487/
+
+这个串儿逛下来最逗 ...</blockquote>
+pc port要是有的话 我愿称之为绝活<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KOPKOM  
+##### 1776#       发表于 2023-10-19 19:59
+
+能不能修复一下vr模式里我看不到和别人的距离秒差还有全体排名的bug啊
+
+
+*****
+
+####  WhiteGlint  
+##### 1777#       发表于 2023-10-19 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62767607&amp;ptid=2027972" target="_blank">Fuero 发表于 2023-10-19 19:43</a>
+
+pc port要是有的话 我愿称之为绝活</blockquote>
+请问pc port的话有什么用啊？
+
+
+*****
+
+####  Fuero  
+##### 1778#       发表于 2023-10-19 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62767878&amp;ptid=2027972" target="_blank">WhiteGlint 发表于 2023-10-19 20:13</a>
+
+请问pc port的话有什么用啊？</blockquote>
+按比较实用的角度，可能就是有希望支持三屏+更好取遥测数据去搞多轴赛车模拟器
+
+
+*****
+
+####  Totokei  
+##### 1779#       发表于 2023-10-19 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62768206&amp;ptid=2027972" target="_blank">Fuero 发表于 2023-10-19 20:48</a>
+
+按比较实用的角度，可能就是有希望支持三屏+更好取遥测数据去搞多轴赛车模拟器 ...</blockquote>
+印象中simhub已经支持GT7了，是同一个接口吗
+
+
+*****
+
+####  Fuero  
+##### 1780#       发表于 2023-10-19 21:43
+
+<blockquote>Totokei 发表于 2023-10-19 20:59
+印象中simhub已经支持GT7了，是同一个接口吗</blockquote>
+印象里是通过破解api过一层路由器去连app，有pc理论上能方便些，还得靠大佬研究
+
+*****
+
+####  一个陆仁贾  
+##### 1781#       发表于 2023-10-19 21:50
+
+喷了这是918动力太强还是米其林轮胎胎太弱，转弯非常难受，油门都没几次能踩完。
+
+对比了一下之前gr1那期成绩还算合理吧，但还是感觉这简直是黑米其林的活动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
