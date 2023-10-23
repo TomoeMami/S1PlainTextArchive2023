@@ -2601,3 +2601,79 @@ xbox才是爽玩完整版，而且现在花一样的钱得5倍pc玩家的氪金�
 
 换到前天我和三个30级新人玩五级，我同样的配置，俩灵能玩飞镖自爆到死，老兵不配和我闪电控制优先秒狙击手，就算我再能也救不回队伍，会玩的和不会玩的游戏体验差距很大的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Andrue  
+##### 285#       发表于 2023-10-19 01:44
+
+好久不玩下回来第二局就被爆炸桶炸飞到无底栅栏上挂着，这个sb击飞加坠落的设计遇上狭窄过道太恶心了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  FLZB  
+##### 286#       发表于 2023-10-19 03:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62758759&amp;ptid=1951151" target="_blank">Andrue 发表于 2023-10-19 01:44</a>
+
+好久不玩下回来第二局就被爆炸桶炸飞到无底栅栏上挂着，这个sb击飞加坠落的设计遇上狭窄过道太恶心了
+
+—— ...</blockquote>
+这游戏爆炸桶设计跟一般游戏反着来的，别人是作为一种战术资源给玩家提供优势，他是作为环境危害坑杀玩家，桶子位置都是精心设计过的，怎么恶心怎么放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  boxloli  
+##### 287#       发表于 2023-10-19 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62758759&amp;ptid=1951151" target="_blank">Andrue 发表于 2023-10-19 01:44</a>
+好久不玩下回来第二局就被爆炸桶炸飞到无底栅栏上挂着，这个sb击飞加坠落的设计遇上狭窄过道太恶心了
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是用来炸飞队友的
+
+
+*****
+
+####  WINDDEVIL86  
+##### 288#       发表于 2023-10-19 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">更新完了上去打了几把感觉还是那样 
+
+现在也就没事上去清个周常了 完全没动力
+
+
+*****
+
+####  黄昏的轮回  
+##### 289#       发表于 2023-10-20 06:37
+
+群友推荐之下体验了左路无限电杖的传统灵能，确实有他的牛逼之处。改版之后的电杖伤害大涨不说，充能快了出伤速度也比飞刀强得多。对于混潮伤害跟控制都很优秀。要炸了就传统f还能挂灵魂火。只有牛不太好处理，无脑冲脸也不吃控制。对于日常比较难搞的四五个装甲欧哥林带小精英的混潮都有不错的效果。来自: iPhone客户端
+
+
+*****
+
+####  FLZB  
+##### 290#       发表于 2023-10-20 07:15
+
+试了下欧格林，新版技能设计感觉也就那样，死板的强调特化，天赋被路线锁死没法自由搭配，而且倾向性过于明显，近战线全是重击加成，远程线则是机枪收益更多，有些武器几乎吃不到加成，我要玩个劈刀榴弹的话都不知道怎么点。
+
+
+*****
+
+####  Messiah_QY  
+##### 291#       发表于 2023-10-20 08:08
+
+昨天5局 一个老兵都没见到。。。。
+
+我的祷祷狂信徒为了靠攻击回CD 装备换成和自己的老兵一样的卡塔昌4型+AK一套了
+
+老兵的卡塔昌4型是撕碎+碎颅者，比之前狂信徒的重剑还能在各种人潮里遨游，而且我测试了下开欧格林罐头的效率比动力剑差不多。
+
+砍刀榴弹欧格林，你肯定是走冲锋-重击-走到底，榴弹是副武器，副攻击模式无视质量直接砸人也好用。
+
+又要重击，又要榴弹为主，那就是点出冲锋后走去右路的幸运射击，发射榴弹的时候要养成习惯按2下。 
+
