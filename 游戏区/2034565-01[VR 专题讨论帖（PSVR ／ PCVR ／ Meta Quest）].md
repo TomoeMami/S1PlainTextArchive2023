@@ -3438,3 +3438,436 @@ P4的彩透畸变和清晰度都没到能用的程度。。
 
 目前就知道一个RJ01064876
 
+*****
+
+####  bypass  
+##### 269#         楼主| 发表于 2023-10-16 11:19
+
+<img src="https://img.saraba1st.com/forum/202310/16/111917swqpw9lwq1ss1jld.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-16 11:19 上传
+
+日亚加急还没收到坛友去退运费吧。 
+
+
+*****
+
+####  jedipiggy  
+##### 270#       发表于 2023-10-17 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62729742&amp;ptid=2034565" target="_blank">bypass 发表于 2023-10-16 11:19</a>
+
+日亚加急还没收到坛友去退运费吧。</blockquote>
+还有这种好事？
+
+
+*****
+
+####  rinkzea  
+##### 271#       发表于 2023-10-17 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62742605&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-17 15:38</a>
+
+还有这种好事？</blockquote>
+已经退成功了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+和客服对话时可以强硬一点，要求现在就要退给我
+
+
+*****
+
+####  另一个小智  
+##### 272#       发表于 2023-10-17 17:04
+
+连PC只玩模拟赛车的话，买什么VR好？
+
+之前用过小派artisan，体验并不好。定位定不上，而且太重了。
+
+
+*****
+
+####  jedipiggy  
+##### 273#       发表于 2023-10-17 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62742967&amp;ptid=2034565" target="_blank">rinkzea 发表于 2023-10-17 16:18</a>
+
+已经退成功了。
+
+和客服对话时可以强硬一点，要求现在就要退给我</blockquote>
+什么理由呢？发货延迟吗？
+
+
+*****
+
+####  dumplingpro  
+##### 274#       发表于 2023-10-17 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743430&amp;ptid=2034565" target="_blank">另一个小智 发表于 2023-10-17 17:04</a>
+
+连PC只玩模拟赛车的话，买什么VR好？
+
+之前用过小派artisan，体验并不好。定位定不上，而且太重了。 ...</blockquote>
+低端PICO4（前后平衡相对舒服一些，淘宝咸鱼巨便宜）
+
+中等Quest3
+
+高端等我BigScreen评测（只有150克的超轻VR，Micro OLED屏幕性能也更强，基站定位，有线）
+
+*****
+
+####  jedipiggy  
+##### 275#       发表于 2023-10-17 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743430&amp;ptid=2034565" target="_blank">另一个小智 发表于 2023-10-17 17:04</a>
+
+连PC只玩模拟赛车的话，买什么VR好？
+
+之前用过小派artisan，体验并不好。定位定不上，而且太重了。 ...</blockquote>
+q2或者q3吧，如果你希望大的fov那么还是q3
+
+如果真的要很轻，可以试试现在很多人做视频推流的XR眼睛，开车3dof应该就够了
+
+
+*****
+
+####  jedipiggy  
+##### 276#       发表于 2023-10-17 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743620&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2023-10-17 17:22</a>
+
+低端PICO4（前后平衡相对舒服一些，淘宝咸鱼巨便宜）
+
+中等Quest3
+
+高端等我BigScreen评测（只有150克的超轻 ...</blockquote>
+big screen这么梦幻的吗？只可惜内容不一定能跟上...
+
+
+*****
+
+####  jedipiggy  
+##### 277#       发表于 2023-10-17 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743620&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2023-10-17 17:22</a>
+
+低端PICO4（前后平衡相对舒服一些，淘宝咸鱼巨便宜）
+
+中等Quest3
+
+高端等我BigScreen评测（只有150克的超轻 ...</blockquote>
+woc， 去官网看了一下确实屌炸
+
+这个如果能外置一下算力，支持无线传输和inside out，就是最完美的VR设备了
+
+
+*****
+
+####  魔法酪饼  
+##### 278#       发表于 2023-10-18 07:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">手柄定位很不错，以及生化4这游戏估计是有分辨率自适应，用quest3玩特别清晰
+
+原生体现quest3性能的游戏估计都还在做。。。
+
+
+*****
+
+####  bypass  
+##### 279#         楼主| 发表于 2023-10-18 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62748038&amp;ptid=2034565" target="_blank">魔法酪饼 发表于 2023-10-18 07:59</a>
+
+手柄定位很不错，以及生化4这游戏估计是有分辨率自适应，用quest3玩特别清晰
+
+原生体现quest3性能的 ...</blockquote>
+我昨天刚打完重制版艾达 DLC，又想去把之前打到城堡就没继续下去的生化 4 VR 给补完了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 看到你说 Q3 清晰有些心动，但想到打完生化 4 又不知道玩啥，还是继续用 Q2 吧。 
+
+*****
+
+####  另一个小智  
+##### 280#       发表于 2023-10-18 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743620&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2023-10-17 17:22</a>
+
+低端PICO4（前后平衡相对舒服一些，淘宝咸鱼巨便宜）
+
+中等Quest3
+
+高端等我BigScreen评测（只有150克的超轻 ...</blockquote>
+请大哥加速测评
+
+
+*****
+
+####  rinkzea  
+##### 281#       发表于 2023-10-18 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62743610&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-17 17:21</a>
+
+什么理由呢？发货延迟吗？</blockquote>
+对的。就和客服说配送比下单时候显示的慢，我花钱买了加急配送，却没有享受到应有的加速配送，要求退还运费。
+
+
+*****
+
+####  魔法酪饼  
+##### 282#       发表于 2023-10-18 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62748318&amp;ptid=2034565" target="_blank">bypass 发表于 2023-10-18 08:54</a>
+
+我昨天刚打完重制版艾达 DLC，又想去把之前打到城堡就没继续下去的生化 4 VR 给补完了  看到你说  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">年末圣诞节之前买吧，子弹风暴VR，阿斯加德之怒2都很值得搞搞
+
+现在这个分辨率提了了应该只是原本设计上分辨率就会根据根据帧数自适应，后面没准会有3的专门性能提升
+
+
+*****
+
+####  dumplingpro  
+##### 283#       发表于 2023-10-18 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62746500&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-17 22:46</a>
+
+big screen这么梦幻的吗？只可惜内容不一定能跟上...</blockquote>
+PCVR，不是一体机，内容直接用PC的。
+
+
+*****
+
+####  吴怀在  
+##### 284#       发表于 2023-10-18 11:41
+
+一小撮pcvr玩家表示，只能等一体vr把市场做起来后反哺了。
+首发买的index竟然用到现在了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  月夜凝雪  
+##### 285#       发表于 2023-10-18 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62750161&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2023-10-18 11:26</a>
+PCVR，不是一体机，内容直接用PC的。</blockquote>
+这种好，一直想吐槽怎么VR都是各种一体机，就想要PC用的
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  jedipiggy  
+##### 286#       发表于 2023-10-18 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62750161&amp;ptid=2034565" target="_blank">dumplingpro 发表于 2023-10-18 11:26</a>
+
+PCVR，不是一体机，内容直接用PC的。</blockquote>
+是啊 我看到了，就是担心pcvr后续内容更不上
+
+话说bigscreen后续有没有出inside out的打算？
+
+有线勉强忍了，要基站太麻烦了
+
+当然最想要的，还是无线无基站串流专用机
+
+*****
+
+####  jedipiggy  
+##### 287#       发表于 2023-10-18 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62748533&amp;ptid=2034565" target="_blank">rinkzea 发表于 2023-10-18 09:16</a>
+
+对的。就和客服说配送比下单时候显示的慢，我花钱买了加急配送，却没有享受到应有的加速配送，要求退还运 ...</blockquote>
+感谢 我去试试
+
+
+*****
+
+####  魔法酪饼  
+##### 288#       发表于 2023-10-18 13:56
+
+ 本帖最后由 魔法酪饼 于 2023-10-18 13:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62751052&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-18 12:43</a>
+
+是啊 我看到了，就是担心pcvr后续内容更不上
+
+话说bigscreen后续有没有出inside out的打算？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就一体机啊，串流是需要高速高清解码的，需要头显端有处理能力而且越高清要求越高
+
+无线串流的空间定位也需要依赖一体机部分的算力进行
+
+
+*****
+
+####  jedipiggy  
+##### 289#       发表于 2023-10-18 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62751720&amp;ptid=2034565" target="_blank">魔法酪饼 发表于 2023-10-18 13:56</a>
+
+就一体机啊，串流是需要高速高清解码的，需要头显端有处理能力而且越高清要求越高
+
+无线串流的空间 ...</blockquote>
+bigscreen会出一体机吗？保持现在的头带大小和重量，电源和算力外置，或者至少后置？
+
+
+*****
+
+####  魔法酪饼  
+##### 290#       发表于 2023-10-18 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62752730&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-18 15:36</a>
+
+bigscreen会出一体机吗？保持现在的头带大小和重量，电源和算力外置，或者至少后置？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">我又不是他们家的人。。。咋会知道啊。。。
+
+以及，后置。。。那不就pico4？
+
+bigscreen其实没啥了不起的，就是单纯的省地方了，pancake一体机把摄像头和芯片都去了自然就轻了，加完这些料再电池后置不刚好就是本机295克重的pico4？
+
+
+*****
+
+####  dumplingpro  
+##### 291#       发表于 2023-10-18 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62751052&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-18 12:43</a>
+
+是啊 我看到了，就是担心pcvr后续内容更不上
+
+话说bigscreen后续有没有出inside out的打算？</blockquote>
+其实基站才是最方便的，因为定位绝对稳定，买个带开关的插座就好。
+
+缺点是范围限定。
+
+
+*****
+
+####  jedipiggy  
+##### 292#       发表于 2023-10-18 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62748533&amp;ptid=2034565" target="_blank">rinkzea 发表于 2023-10-18 09:16</a>
+
+对的。就和客服说配送比下单时候显示的慢，我花钱买了加急配送，却没有享受到应有的加速配送，要求退还运 ...</blockquote>
+真的给退了加急运费 牛 感谢坛友
+
+
+*****
+
+####  cnwind042  
+##### 293#       发表于 2023-10-18 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哎，我一路从DK2到VIVE到INDEX现在也落灰好久了，买个Q3感受下VR一体机发展得咋样了吧
+
+
+*****
+
+####  Ton  
+##### 294#       发表于 2023-10-18 23:18
+
+Q3 MR其实还是很不错的, **降低了吃灰率.
+
+具体来说就是有个稳定的浮空屏幕在身边飘着, 锻炼身体, 打扫卫生, 做饭洗碗这种垃圾时间都能开个屏幕看东西了.
+
+躺床上不想动的时候也比用平板爽.
+
+但代价是脸比较疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">, 但反正它续航的时间也**缩短了.
+
+
+*****
+
+####  rinkzea  
+##### 295#       发表于 2023-10-19 11:48
+
+将手头的Q2、P4P、QPro、Q3的FOV都测了一下：
+
+<img src="https://img.saraba1st.com/forum/202310/19/114728r9phh1fje9wjqv1f.png" referrerpolicy="no-referrer">
+
+<strong>FOV 4in1.png</strong> (249 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 11:47 上传
+
+Q3这个屏幕与光学设计和QPro完全一致，FOV和双目重叠表现简直是一个模子里刻出来的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jedipiggy  
+##### 296#       发表于 2023-10-20 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62748318&amp;ptid=2034565" target="_blank">bypass 发表于 2023-10-18 08:54</a>
+
+我昨天刚打完重制版艾达 DLC，又想去把之前打到城堡就没继续下去的生化 4 VR 给补完了  看到你说  ...</blockquote>
+RE引擎的游戏在PC有通用vrmod了，怪猎和街霸6都可以VR，几个生化危机也都行，貌似跟psvr一个水平了，你可以去看看
+
+*****
+
+####  jedipiggy  
+##### 297#       发表于 2023-10-20 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62748533&amp;ptid=2034565" target="_blank">rinkzea 发表于 2023-10-18 09:16</a>
+
+对的。就和客服说配送比下单时候显示的慢，我花钱买了加急配送，却没有享受到应有的加速配送，要求退还运 ...</blockquote>
+朋友你收到货了吗？我ECMS17号之后就没有物流更新了 虽然日亚显示今天派送，但是显然不可能
+
+
+*****
+
+####  rinkzea  
+##### 298#       发表于 2023-10-20 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62773943&amp;ptid=2034565" target="_blank">jedipiggy 发表于 2023-10-20 13:19</a>
+
+朋友你收到货了吗？我ECMS17号之后就没有物流更新了 虽然日亚显示今天派送，但是显然不可能 ...</blockquote>
+收到了。你可以去微信小程序 掌上海关 - 个人服务专区 - 个人快件状态查询 看看是不是到海关了。易客满的更新很慢，出现下一步更新的时候已经是转国内快递了。欢迎加入s1 vr群 677498928
+
+
+*****
+
+####  jedipiggy  
+##### 299#       发表于 2023-10-20 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62774382&amp;ptid=2034565" target="_blank">rinkzea 发表于 2023-10-20 14:04</a>
+
+收到了。你可以去微信小程序 掌上海关 - 个人服务专区 - 个人快件状态查询 看看是不是到海关了。易客满的 ...</blockquote>
+感谢 查到了 下午两点半刚刚放行的 感谢 就是脑后插管群对吧？早就加了。
+
+我是q1用户，悲催的买了没多久就公布q2了。买了之后把所有值得玩的都玩了一遍，包括quest独占的那些都玩了一遍，买游戏的( $ _ $ )都比硬件多了。
+
+一直到现在q3，硬件提升了不少，但是新内容并没有增加很大，榜上老面孔不少，期待一波阿斯加德2和刺客信条
+
+PC VR mod倒是有些很值得玩的，准备好好爽爽
+
+
+*****
+
+####  qianoooo  
+##### 300#       发表于 2023-10-20 20:47
+
+quest3到了 上次用还是rift2 现在清晰度真的高了不是一个档次了。。。
+
+
+*****
+
+####  ohi.02  
+##### 301#       发表于 2023-10-20 22:30
+
+跟psvr2比起来如何？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  魔法酪饼  
+##### 302#       发表于 2023-10-21 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">测试了一下串流，总之就是手柄追踪大进化，解码能力也强了很多（这次串流的硬件环境烂的超乎想象，自如提供的出租屋路由器，笔记本3070ti通过WiFi链接的路由）
+
+我们要去莱恩霍姆学习如何使用撬棍（quest3串流与手柄定位测试）
+[https://www.bilibili.com/video/BV1uu4y1W7WK/](https://www.bilibili.com/video/BV1uu4y1W7WK/)
+
