@@ -926,3 +926,138 @@ ai画的？
 <img src="https://p.sda1.dev/12/d683b576bd205abcb696b7b36deede81/visual6_news.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/12/02a9603d15ba23d113faf55d84c7f139/20230630_171627.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 83#         楼主| 发表于 2023-10-20 17:15
+
+PV1：[https://youtu.be/lAdzSxsCNsA](https://youtu.be/lAdzSxsCNsA)
+
+2024年4月放送開始
+
+スタッフ
+
+キャラクター原案：藤真拓哉
+
+キャスト
+
+輪堂凛：和泉風花
+
+浅河カナタ：日笠陽子
+
+小町永遠：井澤詩織
+
+ソフィア時任：堀江由衣
+
+劉悠然：諏訪彩花
+
+アリス・ サマーウッド：水樹奈々
+
+リチャード・パーカー：松田健一郎
+
+ロレンツォ・M・サルヴァトーレ：鳥海浩輔
+
+プリマステラ 日向光莉：船戸ゆり絵
+
+プリマステラ 九頭竜明莉：内田秀
+
+ナレーション：古谷徹
+
+ami：田村ゆかり
+<img src="https://p.sda1.dev/13/8db8c0a76d8a96b41e567194b2212dbe/20231020_171327.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  deenyao  
+##### 84#       发表于 2023-10-20 19:44
+
+看了PV1, 车画的是什么破玩意? 新能源车吗, 方向盘一个硕大的屏幕, 是不是还要车手比赛时划呀划
+
+
+*****
+
+####  RPG-7  
+##### 85#       发表于 2023-10-20 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62778053&amp;ptid=2081261" target="_blank">deenyao 发表于 2023-10-20 19:44</a>
+
+看了PV1, 车画的是什么破玩意? 新能源车吗, 方向盘一个硕大的屏幕, 是不是还要车手比赛时划呀划 ...</blockquote>
+赛车方向盘有屏幕很奇怪吗
+
+image.png
+(341.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 20:26 上传
+
+<img src="https://img.saraba1st.com/forum/202310/20/202613h164ghvbg4aa6b6w.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  deenyao  
+##### 86#       发表于 2023-10-20 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62778441&amp;ptid=2081261" target="_blank">RPG-7 发表于 2023-10-20 20:26</a>
+
+赛车方向盘有屏幕很奇怪吗</blockquote>
+你看了PV了么? 那简直是个NS, 恨不得用来打游戏
+
+中间还有个老大的Logo的无用信息, 左边一米米的字都看不清. 你再看看F1比赛时候方向盘的屏幕上怎么显示.
+
+
+*****
+
+####  病態極端  
+##### 87#       发表于 2023-10-20 22:29
+
+女人的建模那麼精細，結果比賽的時候看不到，何意啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有骨气的百合  
+##### 88#       发表于 2023-10-20 22:47
+
+<img src="https://p.sda1.dev/13/90967e72636c29ca18e2854006d4bf46/IMG_CMP_159683920.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个手游
+
+
+*****
+
+####  Skyline_R  
+##### 89#       发表于 2023-10-21 11:51
+
+这pv看着有亿点穷啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  winda  
+##### 90#       发表于 2023-10-21 22:44
+
+想想角田的袖珍身高，再想想大牙的大尻搞到座舱都得一起调整，赛车运动应该是萝莉身材上场最合理的运动番了吧
+
+
+*****
+
+####  松下仓鼠  
+##### 91#       发表于 2023-10-22 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62788028&amp;ptid=2081261" target="_blank">winda 发表于 2023-10-21 22:44</a>
+想想角田的袖珍身高，再想想大牙的大尻搞到座舱都得一起调整，赛车运动应该是萝莉身材上场最合理的运动番了 ...</blockquote>
+角田和德芙这两个才是F1车手中的异类，"前＂史上最矮身高组合。
+身高矮的优势被规则抹平了一部分的，其实F1车手的身材都不怎么匀称的 强壮的上半身和相对瘦弱的下半身<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 92#       发表于 2023-10-22 16:04
+
+已经看到有人问是不是性转版over take了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
