@@ -3541,3 +3541,22 @@ CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都
 
 は？？？现在才开始要饭？
 
+*****
+
+####  再买自检星剁手  
+##### 2287#       发表于 2023-10-23 17:21
+
+原作游戏将登录任天堂Switch
+
+<img src="https://p.sda1.dev/13/fd5ac67cf6d5149c4482679477601b7b/CMP_20231023172105687.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  hacisiki  
+##### 2288#       发表于 2023-10-23 17:47
+
+第三季还有机会吗
+
