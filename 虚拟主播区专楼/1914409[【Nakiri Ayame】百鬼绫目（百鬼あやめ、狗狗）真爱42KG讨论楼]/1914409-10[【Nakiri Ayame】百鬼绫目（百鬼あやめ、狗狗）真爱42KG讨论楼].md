@@ -1888,3 +1888,18 @@ sssssssssssssssss
 
 感觉又好久没播了
 
+*****
+
+####  stedckk  
+##### 14691#       发表于 2023-10-21 21:39
+
+GSC的手办到货了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夏小筱ss  
+##### 14692#       发表于 2023-10-23 12:07
+
+唉，我的中奖
+
