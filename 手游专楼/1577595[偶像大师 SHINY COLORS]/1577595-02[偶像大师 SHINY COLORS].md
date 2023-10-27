@@ -3073,3 +3073,144 @@ luca的痛苦让她觉得一切都毫无意义，对过于痛苦的人来说根�
 
 <img src="https://img.saraba1st.com/forum/202310/10/155830dugwwtjt9ffrjwgd.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  caiseni  
+##### 2889#       发表于 2023-10-15 23:38
+
+高山这个梦寐致景真有点东西的，写不好俳句的手游制作人不是好筋肉男
+
+
+*****
+
+####  shadowof  
+##### 2890#         楼主| 发表于 2023-10-16 17:05
+
+ 本帖最后由 shadowof 于 2023-10-16 17:08 编辑 
+
+[https://x.com/imassc_official/status/1713842224318894168](https://x.com/imassc_official/status/1713842224318894168)
+<img src="https://i.imgur.com/8tFTk59.jpg" referrerpolicy="no-referrer">
+
+又在搞解谜了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+直接蓝字连起来就是【アイドル】合言葉能拿个100回复，感觉不止一个答案。
+
+
+*****
+
+####  shadowof  
+##### 2891#         楼主| 发表于 2023-10-18 17:30
+
+[https://x.com/imassc_official/status/1714567001287569458](https://x.com/imassc_official/status/1714567001287569458)
+
+<img src="https://i.imgur.com/UlPLQD8.jpg" referrerpolicy="no-referrer">
+
+头一个字连起来虹の行方
+
+输入的是カタカナ【ニジノユクエ】
+
+
+*****
+
+####  两个路人  
+##### 2892#       发表于 2023-10-18 18:15
+
+ 本帖最后由 两个路人 于 2023-10-18 18:17 编辑 
+
+论坛宕机时，MobiusP发布的自制Fashionable的MV。终于有人传B站了，就搁在专楼里吧（茶
+ 
+
+
+*****
+
+####  shadowof  
+##### 2893#         楼主| 发表于 2023-10-19 18:50
+
+[https://x.com/imassc_official/status/1714953034046849265](https://x.com/imassc_official/status/1714953034046849265)
+
+<img src="https://i.imgur.com/CtT5Irv.png" referrerpolicy="no-referrer">
+
+OCR读字读出来
+
+縺ｰ繝ｼ縺吶〒繝ｼ
+
+直接扔到文字化け的转换里
+[https://tools.m-bsys.com/dev_tools/char_corruption.php](https://tools.m-bsys.com/dev_tools/char_corruption.php)
+
+出来的是平假的生日ばーすでー
+
+【バースデー】
+
+
+*****
+
+####  shadowof  
+##### 2894#         楼主| 发表于 2023-10-20 17:15
+
+之前三个答案首字连起来，周年【アニバ】
+
+
+*****
+
+####  shadowof  
+##### 2895#         楼主| 发表于 2023-10-23 15:57
+
+[https://shinycolors.idolmaster.jp/idol/cometik/](https://shinycolors.idolmaster.jp/idol/cometik/)
+
+コメティックenza的页面更新了。
+
+
+*****
+
+####  caiseni  
+##### 2896#       发表于 2023-10-23 17:35
+
+平行线美学和前两首的作词不同，不清楚是あの花那样的特例还是说cometik后面会没有固定担当作词，或许要等明年这个时候才能知道
+
+
+*****
+
+####  caiseni  
+##### 2897#       发表于 2023-10-24 05:23
+
+CoMETIK的路加印象色变了，比单人的时候rgb分别加了1，向着白色的方向移动了一个单位。 ​
+
+
+*****
+
+####  shadowof  
+##### 2898#         楼主| 发表于 2023-10-24 11:56
+
+ソン追加了PC版
+
+dmm
+[https://dmg-shinycolors-song-for-prism.idolmaster-official.jp/](https://dmg-shinycolors-song-for-prism.idolmaster-official.jp/)
+
+[https://x.com/imassc_prism/status/1716659174535479334](https://x.com/imassc_prism/status/1716659174535479334)
+
+苹果商店写了预定时间1月19
+
+差不多正好剧场三幕全结束的时候。
+
+
+*****
+
+####  wfhtony  
+##### 2899#       发表于 2023-10-24 20:35
+
+ 本帖最后由 wfhtony 于 2023-10-24 20:40 编辑 
+
+高山P对S4P在AppStore上显示的预计上线时间这一点，给出的解释是「因为App Store的上架规定，应用预约页面（在没有设置的情况下）会自动选择预计上架时间，所以商店页面上会显示1/19上架。但这并不代表本游戏的实际上线（运营开始）时间。」
+
+
+*****
+
+####  shadowof  
+##### 2900#         楼主| 发表于 2023-10-24 21:53
+
+合言葉　【かがやきだす】
+
+有张10连券。
+
+ソン打算在enza前上新角色的话11月就该上了。
+
