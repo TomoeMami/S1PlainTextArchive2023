@@ -6640,3 +6640,85 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  iou90  
+##### 15563#       发表于 2023-10-20 23:57
+
+通关后闲逛现在最需要的就是多几个固定传送点…
+一个放拆东西那
+一个放沃托里村
+一个放最后大妖精那
+
+还有很多地方想放呀&gt;.&lt;
+
+
+*****
+
+####  蒂芙尼的早餐  
+##### 15564#       发表于 2023-10-21 01:38
+
+自从栏杆飞行器以后王泪物理学还有什么新的发展吗 以及这方面现在还有up主在钻研吗 之前看的lolo现在好像也不搞了
+
+
+*****
+
+####  liekong  
+##### 15565#       发表于 2023-10-21 05:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62780731&amp;ptid=1997982" target="_blank">蒂芙尼的早餐 发表于 2023-10-21 01:38</a>
+
+自从栏杆飞行器以后王泪物理学还有什么新的发展吗 以及这方面现在还有up主在钻研吗 之前看的lolo现在好像也 ...</blockquote>
+前几天看了一个挤压重叠器件的新工艺，通过重物挤压让多个器件（目前主要是光线头）重叠到一起，来达到增强攻击力和减小体积的效果
+
+*****
+
+####  maomaoying  
+##### 15566#       发表于 2023-10-21 05:56
+
+<blockquote>蒂芙尼的早餐 发表于 2023-10-21 01:38
+自从栏杆飞行器以后王泪物理学还有什么新的发展吗 以及这方面现在还有up主在钻研吗 之前看的lolo现在好像也 ...</blockquote>
+基本没了，本来有个余料纠缠做无线电挺有用的，结果任天堂竟然把这修了 太可惜了
+
+
+*****
+
+####  冷泉夜月  
+##### 15567#       发表于 2023-10-21 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62780194&amp;ptid=1997982" target="_blank">iou90 发表于 2023-10-20 23:57:07</a>
+通关后闲逛现在最需要的就是多几个固定传送点…
+一个放拆东西那
+一个放沃托里村
+一个放最后大妖精那
+
+还有 ...</blockquote>沃托里村不用吧？村口高处就有神庙，飞过去很快呀，不像一始村要飞很久<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  佐倉綾音.  
+##### 15568#       发表于 2023-10-21 23:32
+
+我是首发玩家，但是拖到今天才搞定四个神殿，话说雷神殿boss让我想起来了合金弹头6的异形，叫啥女王了，也是昆虫女王类型的
+
+
+*****
+
+####  kenqqex  
+##### 15569#       发表于 2023-10-24 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国人拿了any%第一了
+
+
+*****
+
+####  牛奶笛  
+##### 15570#       发表于 2023-10-24 09:46
+
+黄昏公主漫画的汉化组翻译完成了，历经7年
+
+[https://tieba.baidu.com/p/4377134684?pn=1](https://tieba.baidu.com/p/4377134684?pn=1) 
+
