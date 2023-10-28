@@ -4672,3 +4672,144 @@ F8P2l0eaAAAT7kG.jpg
 
 <img src="https://img.saraba1st.com/forum/202310/14/105305n934k4n475l4eaa4.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  qiyu1234  
+##### 6611#       发表于 2023-10-25 11:59
+
+追加成就列表，看主线最后一个成就的说明，你这不会还真的有2代吧
+
+<img src="https://img.saraba1st.com/forum/202310/25/115858yteoeqozmvelsqoz.jpg" referrerpolicy="no-referrer">
+
+<strong>1.JPG</strong> (292.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 11:58 上传
+
+<img src="https://img.saraba1st.com/forum/202310/25/115859k33zw3aa7rxfudxw.jpg" referrerpolicy="no-referrer">
+
+<strong>2.JPG</strong> (144.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 11:58 上传
+
+<img src="https://img.saraba1st.com/forum/202310/25/115859p9nne5r5b9qo7rne.jpg" referrerpolicy="no-referrer">
+
+<strong>3.JPG</strong> (196 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 11:58 上传
+
+
+*****
+
+####  qiyu1234  
+##### 6612#       发表于 2023-10-25 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62824112&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-10-25 11:59</a>
+
+追加成就列表，看主线最后一个成就的说明，你这不会还真的有2代吧</blockquote>
+英文成就说明更直接一点
+
+<img src="https://img.saraba1st.com/forum/202310/25/122537g4gxmxgv0elxzbel.jpg" referrerpolicy="no-referrer">
+
+<strong>11.JPG</strong> (31.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 12:25 上传
+
+<img src="https://img.saraba1st.com/forum/202310/25/122539uzk2zkxcc68jh32j.jpg" referrerpolicy="no-referrer">
+
+<strong>98d19d200262510a437b39c2eb0f23678a2e56d3.jpg</strong> (16.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 12:25 上传
+
+
+*****
+
+####  宛若青空  
+##### 6613#       发表于 2023-10-25 12:43
+
+30周年来个ToArise2？富泽不怕被骂死吗
+
+2代还能见到シオン吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  云梦泽岸  
+##### 6614#       发表于 2023-10-25 12:53
+
+这意思是下一代女主是她吧。
+
+*****
+
+####  Rainwedell  
+##### 6615#       发表于 2023-10-25 12:56
+
+倒也不一定吧，这种成就纯瞎猜的
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 6616#       发表于 2023-10-25 12:57
+
+如果说这作相当于TOZ，下作是不是能有TOB预期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天王寺綯  
+##### 6617#       发表于 2023-10-25 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正toar这个级别的美术资源，是绝壁不可能一作扔的
+
+不管下一作是不是续作，估计看上去也都差不多
+
+
+*****
+
+####  qiyu1234  
+##### 6618#       发表于 2023-10-25 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62824909&amp;ptid=1860328" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-10-25 12:57</a>
+
+如果说这作相当于TOZ，下作是不是能有TOB预期</blockquote>
+Z本身系统是完整的（尽管问题不少）
+
+上一个满级不是200级的TALES是TOX
+
+我是觉得新作在AR的一定基础上做加减法比重新规划设计一个系统可能性更高
+
+加上富泽强调30周年会有新东西，完全新作的话还是有点紧
+
+*****
+
+####  医生狼多  
+##### 6619#       发表于 2023-10-25 13:07
+
+三十周年是啥时候？明年？
+
+*****
+
+####  qiyu1234  
+##### 6620#       发表于 2023-10-25 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62825011&amp;ptid=1860328" target="_blank">医生狼多 发表于 2023-10-25 13:07</a>
+
+三十周年是啥时候？明年？</blockquote>
+2025（95年12月15日 幻想传说发售），不过按富泽的说法，当年12月15日到次年的12月15日都算周年范围内
+
+
+*****
+
+####  Hidewhite  
+##### 6621#       发表于 2023-10-25 14:10
+
+跟二代没什么关系吧。青山不改绿水长流 江湖再见 的意思吧。本体最后结婚没这人，DLC预告里看这人最后也走了的，大概剧情最后就是走了有缘再见。
+

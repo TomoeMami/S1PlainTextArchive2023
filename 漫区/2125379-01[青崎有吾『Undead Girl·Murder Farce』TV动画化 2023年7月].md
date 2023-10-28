@@ -9097,3 +9097,20 @@ tomoyo的演技非常出彩，男主的CV没关注过倒也挺契合
 
 这个kpop的op是怎么会是回事，还有就是人狼篇有点拉
 
+*****
+
+####  下架侠  
+##### 820#       发表于 2023-10-24 05:01
+
+感觉人狼好菜，这细胞拿过来，真的能强化jack嘛<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  花礫  
+##### 821#       发表于 2023-10-25 14:08
+
+补完了，看楼上说TV没有人造人那部分，所以导致人狼篇男主和人造人的关系好怪。
+
+最后一集从OP开始就乱得不行，解谜快的一比。人狼篇有说这两个劳合社和夜宴这群人是来干啥的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
