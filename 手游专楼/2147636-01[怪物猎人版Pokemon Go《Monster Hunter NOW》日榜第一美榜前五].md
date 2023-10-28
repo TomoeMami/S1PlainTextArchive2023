@@ -2158,3 +2158,257 @@ Barroth not appearing in the Swamp habitat
 
 这次樱火龙出率好高<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">做一两件装备完全有希望
 
+*****
+
+####  y433wu  
+##### 132#         楼主| 发表于 2023-10-18 03:46
+
+<img src="https://img.saraba1st.com/forum/202310/17/144453fy7d529ptm083ul5.png" referrerpolicy="no-referrer">
+
+<strong>630-datamine.png</strong> (129.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-18 03:44 上传
+
+v63.0 data mine: 猛牛龙 骨锤龙 雷狼龙 霜刃冰牙龙
+
+
+*****
+
+####  y433wu  
+##### 133#         楼主| 发表于 2023-10-18 11:56
+
+懒得自己翻译了，就搬运巴哈的
+
+各位獵人，萬聖節即將到來！
+
+2023年的萬聖節，原野將裝飾南瓜，並推出唯有萬聖節期間才能得到的裝備「傑克南瓜頭」！
+
+除此之外，從10月28日開始，城鎮將會出現攜帶南瓜石的搔鳥！
+
+另外，商店也會推出內含特製採集小刀的限定組合包，請千萬別錯過。
+
+祝大家秋季狩獵生活幸運！萬聖節快樂！
+
+日期（當地時間）
+
+10月25日（三）9:00～10月31日（二）23:59
+
+活動詳細內容
+
+◆開始舉辦限定時間活動任務！
+
+10月25日（三）9:00～10月31日（二）23:59
+
+將推出「萬聖節秋季採南瓜」活動・採集完成特殊道具或完成討伐大型魔物等任務，
+
+可獲得製作、強化裝備「傑克南瓜頭」所需的限
+
+定券「南瓜券」。
+
+10月28日（六）9:00～10月31日（二）23:59
+
+將追加「萬聖節勳章獲取任務」。
+
+完成任務，獵人勳章中便會增添給一枚「萬聖節 秋季採南瓜勳章」。
+
+◆28日開始將出現攜帶南瓜石的搔鳥！
+
+10月28日（六）9:00～10月31日（二）23:59
+
+搔鳥將變成攜帶南瓜石的模樣，出現的頻率比平常更高。
+
+除此之外，可以從攜帶南瓜石的搔鳥身上獲得「南瓜券」。
+
+◆活動限定裝備「傑克南瓜頭」
+
+萬聖節限定的頭部防具「傑克南瓜頭」登場！
+
+裝備技能：團結力【秋季採南瓜】
+
+相同的狩獵中，越多夥伴裝備傑克南瓜頭，攻擊力就上升得越多。萬聖節活動期間內效果可增加至5倍！
+
+◆限定組合包上架！
+
+內含特製採集小刀的限定期間組合包，萬聖節組合包登場！
+
+萬聖節組合包的內容
+
+・回復藥 x10
+
+・染色球 x2
+
+・漫遊寶珠【小】x2
+
+•特製採集小刀x2
+
+注意事項
+
+※已達HR11以上的獵人，活動任務將自動發布至
+
+遊戲裡的特別任務頁籤（Specal）
+
+※即使尚未推進故事任務，若已達到HR11，依舊會出現萬聖節搔鳥。
+
+※任務的有效期間至10/31 23:59為止，請於此期間內領取報酬。
+
+※內容有可能會變更。
+
+※活動期間以染色球標記攜帶南瓜石的搔鳥，在活動結束後也可作為攜帶南瓜石的搔鳥進行狩獵，並且會掉落「南瓜券」。
+
+※若你已使用70張南瓜券強化傑克南瓜頭，其後升級只需使用普通材料即可。
+
+
+*****
+
+####  dudideng  
+##### 134#       发表于 2023-10-18 12:42
+
+只要刷70张就行了
+
+—— 来自 Google Pixel 7 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 135#         楼主| 发表于 2023-10-19 14:03
+
+[https://store.monsterhunternow.com/offer-redemption](https://store.monsterhunternow.com/offer-redemption)
+
+庆祝千万下载：MHNow10M
+
+5,000 Zenny, Wander Droplet x 1, Portion x 2
+
+
+*****
+
+####  y433wu  
+##### 136#         楼主| 发表于 2023-10-20 04:16
+
+[【情報】9星(紫4)魔物，擊殺成功調查串](https://forum.gamer.com.tw/C.php?bsn=77414&amp;snA=2112&amp;tnum=11)
+
+
+*****
+
+####  dudideng  
+##### 137#       发表于 2023-10-22 09:24
+
+刚开八星，g7-5骚鸟太刀打个八星骚鸟什么的都得没失误上窜下跳砍个半天才行，可以躺平好久了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 7 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 138#         楼主| 发表于 2023-10-22 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62789880&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-21 20:24</a>
+
+刚开八星，g7-5骚鸟太刀打个八星骚鸟什么的都得没失误上窜下跳砍个半天才行，可以躺平好久了
+
+——  ...</blockquote>
+欢迎来到龙玉地狱<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  y433wu  
+##### 139#         楼主| 发表于 2023-10-22 19:30
+
+吐了，G8-5水弓终于过了9星骚鸟。唯一的难点是要骚鸟给面子让灌满两次SP（瞄头都不是最难的）。我从G8-2试到G8-5，试了大几十次。
+
+然后9星**痹龙一把过。
+
+今天发现G8-5水弓的输出开始不如G8-5开火的角龙弓了。水武器建议做水太刀水锤。
+
+
+*****
+
+####  y433wu  
+##### 140#         楼主| 发表于 2023-10-22 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62789880&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-21 20:24</a>
+
+刚开八星，g7-5骚鸟太刀打个八星骚鸟什么的都得没失误上窜下跳砍个半天才行，可以躺平好久了
+
+——  ...</blockquote>
+来看这个神仙，g7-5骚鸟太刀打8星雄火<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=v1EsRF6OTaE](https://www.youtube.com/watch?v=v1EsRF6OTaE)
+
+
+*****
+
+####  dudideng  
+##### 141#       发表于 2023-10-22 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62795126&amp;ptid=2147636" target="_blank">y433wu 发表于 2023-10-22 20:23</a>
+
+来看这个神仙，g7-5骚鸟太刀打8星雄火
+
+https://www.youtube.com/watch?v=v1EsRF6OTaE ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">太极限了，凹到这份上还只能最后一秒打死，见切熟练的让人心疼。
+
+装备倒是除了头和腰没升到g6以外，都一样。
+
+
+*****
+
+####  y433wu  
+##### 142#         楼主| 发表于 2023-10-25 19:19
+
+萬聖節活動懶人包
+
+活動時間:10/25(週三) 9:00 - 10/31(週二) 23:59
+
+(A)南瓜帽
+
+1.剛做出來G2就有[團結力]技能LV1 (升級只會提升防禦力)
+
+2.裝備升級無法提升技能等級
+
+3.製作需要 [ 南瓜卷*10 + 騷鳥的喙*1 + 龍骨[中]*1 + 300ZENY ]
+
+(B)裝備技能
+
+1.團結力【秋季採南瓜】
+
+狩獵中，越多夥伴裝備傑克南瓜頭，攻擊力就上升得越多。萬聖節活動期間內效果可增加至5倍！
+
+2.目前推測傷害增幅只加成物傷(屬性應該吃不到)
+
+活動過後
+
+  單人+1% 組隊+4%
+
+活動期間(5倍)
+
+  單人+5% 組隊+20%
+
+(C)萬聖節任務
+
+1.活動期間共有3個*3輪=9個任務 (週任務，並非每日重置)
+
+2.總共要打105隻大型魔物(平均每天打15隻就好)
+
+3.任務共給18張南瓜卷
+
+(D)南瓜騷鳥
+
+1.出現時間:10/28（週六）9:00 - 10/31（週二）23:59
+
+2.騷鳥會拿南瓜出現
+
+3.HR11以上的獵人可以拿到南瓜卷
+
+*****
+
+####  y433wu  
+##### 143#         楼主| 发表于 2023-10-25 19:20
+
+萬聖節帽子顏色分享: [https://forum.gamer.com.tw/C.php ... nA=2279&amp;tnum=54](https://forum.gamer.com.tw/C.php?bsn=77414&amp;snA=2279&amp;tnum=54)
+
+笑死了，这游戏也可以“抽卡”了。每个人帽子颜色还不一样的。看看今天我能抽出啥
+
