@@ -1599,3 +1599,157 @@ Konami居然还专门在TGS展馆里开辟了个MGS区域,还会发售前提供D
 
 2023-9-25 10:13 上传
 
+*****
+
+####  Piano-Forest  
+##### 152#         楼主| 发表于 2023-10-26 01:23
+
+虚幻5重制：[https://youtu.be/wUOsNavOluw](https://youtu.be/wUOsNavOluw)
+
+
+*****
+
+####  Motoko-9  
+##### 153#       发表于 2023-10-26 02:13
+
+snake这个动作设计怎么回事，没用动捕吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  社友者  
+##### 154#       发表于 2023-10-26 02:24
+
+坑钱合集给我的感觉就是有钱宣发没钱开发，扣纳米勾改不了吃shi
+
+这突如其来的pv感觉好像又行了，konami还是想打赢复活赛的
+
+
+*****
+
+####  Junglemgs  
+##### 155#       发表于 2023-10-26 07:26
+
+<blockquote>Motoko-9 发表于 2023-10-26 02:13
+snake这个动作设计怎么回事，没用动捕吗</blockquote>
+估计是想做出原版的感觉
+
+
+*****
+
+####  hkguty  
+##### 156#       发表于 2023-10-26 09:16
+
+看着不咋地，不知能不能还原原版小岛的恶搞味
+
+
+*****
+
+####  760194962  
+##### 157#       发表于 2023-10-26 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62519734&amp;ptid=2135452" target="_blank">泰坦失足 发表于 2023-9-25 10:16</a>
+|Metal Gear Solid: Master Collection Vol. 1 | TGS 2023 Impressions | Switch - YouTube|
+
+Konami居然还专 ...</blockquote>
+23是不是非稳定30fps 2我开储物柜门的时候似乎可以变成60
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  samporter  
+##### 158#       发表于 2023-10-26 10:34
+
+动作管线太敷衍了吧，而且这预告片也极度不走心，展示了个啥
+
+
+*****
+
+####  shimotsuki14  
+##### 159#       发表于 2023-10-26 11:45
+
+ps5版到手了。这店卖的说是日版，发来的是港版…
+
+算了，就这样吧
+
+*****
+
+####  冰比冰水冰  
+##### 160#       发表于 2023-10-26 11:47
+
+这是重制版？放弃
+
+*****
+
+####  byisme001  
+##### 161#       发表于 2023-10-26 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62834865&amp;ptid=2135452" target="_blank">shimotsuki14 发表于 2023-10-26 11:45</a>
+ps5版到手了。这店卖的说是日版，发来的是港版…
+
+算了，就这样吧</blockquote>
+发售日还没定呢你就到手了?
+
+
+*****
+
+####  shimotsuki14  
+##### 162#       发表于 2023-10-26 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62834948&amp;ptid=2135452" target="_blank">byisme001 发表于 2023-10-26 11:50</a>
+
+发售日还没定呢你就到手了?</blockquote>
+
+回错楼了……入手的是大师合集1
+
+
+*****
+
+####  亚瑟摩根  
+##### 163#       发表于 2023-10-26 12:54
+
+UE5这画面
+
+维塔士行不行
+
+咋感觉还不如当年的硅骑士
+
+
+*****
+
+####  石中剑二  
+##### 164#       发表于 2023-10-26 14:59
+
+还可以，玩应该还是会玩的
+
+
+*****
+
+####  zqqwe  
+##### 165#       发表于 2023-10-26 15:39
+
+就凭k社现在的水平，改游戏机制也只能四不像，纯换皮是最稳的。但这写实皮配合原版生草动作估计会很突兀，例如经典的叼烟倒走躲峡谷虎扫射
+
+
+*****
+
+####  gudamwingzero  
+##### 166#       发表于 2023-10-26 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62835707&amp;ptid=2135452" target="_blank">亚瑟摩根 发表于 2023-10-26 12:54</a>
+UE5这画面
+
+维塔士行不行</blockquote>
+硅骑士在凯恩的遗产和永恒黑暗证明过自己，否则老任也不会选他做rare继承人，维塔士怎么和他比……
+
+
+*****
+
+####  依存香炉  
+##### 167#       发表于 2023-10-26 21:09
+
+插个老粉对metal gear master collection（非snake eater）的详评
+[https://www.youtube.com/watch?v=3ujpsTbNk4U](https://www.youtube.com/watch?v=3ujpsTbNk4U)
+
