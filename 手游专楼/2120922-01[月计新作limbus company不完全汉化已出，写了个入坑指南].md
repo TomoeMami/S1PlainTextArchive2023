@@ -5838,3 +5838,396 @@ Dieci是意大利语的10，看这身打扮像神职人员，不过技能动作�
 
 镜牢的增益不会继承，新镜牢要重新肝星芒...第三赛季前倒是能把镜牢2的增益肝满，希望镜牢3的星芒奖励能多给点吧，迭代太快感觉在做无用功...
 
+*****
+
+####  Jamaisvu  
+##### 373#       发表于 2023-10-20 18:29
+
+ 本帖最后由 Jamaisvu 于 2023-10-20 18:31 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/20/182253acc0n72fctrkqx3i.png" referrerpolicy="no-referrer">
+
+<strong>2666316977972892.png</strong> (231.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202310/20/182253ccvqczqsg91vhgcf.png" referrerpolicy="no-referrer">
+
+<strong>3813216977972952.png</strong> (214.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202310/20/182254c27iiybwa2j237j5.png" referrerpolicy="no-referrer">
+
+<strong>4891716977973002.png</strong> (196.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202310/20/182254b49t562njk27wt5i.png" referrerpolicy="no-referrer">
+
+<strong>6885416977972772.png</strong> (212.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202310/20/182255cz9l9qy72dbaz97d.png" referrerpolicy="no-referrer">
+
+<strong>8654916977973112.png</strong> (207.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:22 上传
+
+新人格出预告啦！宝子哥的原型是泰仁：
+
+<img src="https://img.saraba1st.com/forum/202310/20/182531tm9rv0oarvqeakvn.png" referrerpolicy="no-referrer">
+
+<strong>Tairen.png</strong> (36.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:25 上传
+
+浮士德的三星人格我以为会是图书馆的安吉拉那种异想体形态，没想到只是拿着ego的L社员工...：
+
+<img src="https://img.saraba1st.com/forum/202310/20/182713bnttey7gpgi2a7l2.png" referrerpolicy="no-referrer">
+
+<strong>Angela_Regret.png</strong> (60.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-20 18:27 上传
+
+默尔索的ego倒是上面这个造型，不过发型不是平头，都认不出来了...
+
+看来今后的魔女之夜也是一个脑叶联动和一个图书馆联动，希望下个季度能出点图书馆都星级别的大佬...
+
+话说这次好像没活动，只有池子...限定ego有点丧心病狂了，等实装后我赶紧得把没有的ego换了提升概率...
+
+
+*****
+
+####  momodog  
+##### 374#       发表于 2023-10-22 05:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62735378&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-16 20:18</a>
+
+舍音人格直接就没了吗
+
+结果最后一个人格还真是浮浮啊</blockquote>
+好像看考据舍音的原型在韩国是非常负面的角色 为了避免炎上 月计肯定不会出吧
+
+
+*****
+
+####  Jamaisvu  
+##### 375#       发表于 2023-10-22 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62789447&amp;ptid=2120922" target="_blank">momodog 发表于 2023-10-22 05:03</a>
+
+好像看考据舍音的原型在韩国是非常负面的角色 为了避免炎上 月计肯定不会出吧 ...</blockquote>
+柳致真，剧作家。号东朗。庆南忠武人。日本立教大学毕业。
+
+初期和柳致环、朴明国等一起组织同人会，出版了《土声》。
+
+之后，他痛感人生的虚无，专心于艺术，投身到戏剧界中。
+
+1931年发表戏曲《土窝棚》登上了文坛，到1958年为止写了40余篇作品。
+
+创作初期，他把作品的舞台放在农村，真实地描写了在日伪统治下农民的凄惨生活。这个时期的代表作品有《牛》、《柳树村的风景》等。
+
+从日本帝国主义统治和压迫达到了顶点的19世纪30年代末至光复时期，为了躲避日伪的检查，有时把作品的素材从殖民地的现实中转到历史事件中去，也写过以歌颂**合理为内容的《黑龙江》、《北进队》等御用剧。
+
+有亲日倾向的污点文人，不过他创办的戏剧学院是首尔艺术大学的前身，确实有一定影响力。
+
+避免争议也是好事，不出可以理解。
+
+
+*****
+
+####  momodog  
+##### 376#       发表于 2023-10-22 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62795689&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-10-22 21:07</a>
+
+柳致真，剧作家。号东朗。庆南忠武人。日本立教大学毕业。
+
+初期和柳致环、朴明国等一起组织同人会，出版 ...</blockquote>
+确实
+
+
+*****
+
+####  平等云雾  
+##### 377#       发表于 2023-10-23 10:20
+
+有官方中文了吗
+
+
+*****
+
+####  Yuzutea  
+##### 378#       发表于 2023-10-23 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这浮
+
+要是数值正常也太膨胀了吧
+
+
+*****
+
+####  Jamaisvu  
+##### 379#       发表于 2023-10-23 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62807126&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-23 19:56</a>
+
+这浮
+
+要是数值正常也太膨胀了吧</blockquote>
+三技能有个拼点失败降低理智，被动也有低理智加威力，怀疑是负数硬币，该不会成为第二个N辛强度的卡吧...
+
+*****
+
+####  Jamaisvu  
+##### 380#       发表于 2023-10-23 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62799979&amp;ptid=2120922" target="_blank">平等云雾 发表于 2023-10-23 10:20</a>
+
+有官方中文了吗</blockquote>
+没有，不过有个跟官方通过气的汉化组，一直在更新汉化补丁，有需求可以用一下试试：
+
+【都市零协会汉化组的个人空间-哔哩哔哩】 [https://b23.tv/BZ7lLPW](https://b23.tv/BZ7lLPW)
+
+*****
+
+####  Jamaisvu  
+##### 381#       发表于 2023-10-23 20:07
+
+<img src="https://img.saraba1st.com/forum/202310/23/200653yr0orrjn60610p76.jpg" referrerpolicy="no-referrer">
+
+<strong>5c32fc6aa04e5026ed338255a8f9c0b01247764479_raw.jpg</strong> (345.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-23 20:06 上传
+
+<img src="https://img.saraba1st.com/forum/202310/23/200654dyjoioljjeiq2xl9.jpg" referrerpolicy="no-referrer">
+
+<strong>0c88af0dca909b94554febb47c645ffa1247764479_raw.jpg</strong> (367.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-23 20:06 上传
+
+<img src="https://img.saraba1st.com/forum/202310/23/200655j821mz666uzis0np.jpg" referrerpolicy="no-referrer">
+
+<strong>c22d467fb73ce5ce5f6289f7b2e80e291247764479_raw.jpg</strong> (340.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-23 20:06 上传
+
+新卡感觉都挺强的。
+
+幸好没练二协浮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">替代品出的好快。
+
+
+*****
+
+####  紫枫客  
+##### 382#       发表于 2023-10-24 09:24
+
+现在入坑来得及不  要刷初始吗  有攻略不
+
+
+*****
+
+####  erratic璃月  
+##### 383#       发表于 2023-10-24 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62810597&amp;ptid=2120922" target="_blank">紫枫客 发表于 2023-10-24 09:24</a>
+
+现在入坑来得及不  要刷初始吗  有攻略不</blockquote>
+1现在入坑来的及吗：现在入坑是赛季末期，26号有个签到活动送10连，同期一个伪限定池。通行证11月15号截止，能拿多少拿多少。如果最后能拿满建议氪高级，拿不满就算了。
+
+2要刷初始吗：边狱大概是最不需要刷初始的手游了，因为这游戏有高级通行证的情况下能肝出全图鉴。但现在离第2赛季结束还有22天，如果你想尽量拿通行证的东西那我还是建议你刷一个初始。需要注意的是这游戏主线日常高难的人格T度差别很大，不要看错T度榜不然铁坐牢。
+
+3攻略：攻略去b站上找找吧，相关东西太多了一个回复很难讲的清，具体有什么问题再发帖问吧。
+
+
+*****
+
+####  Yuzutea  
+##### 384#       发表于 2023-10-24 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62810597&amp;ptid=2120922" target="_blank">紫枫客 发表于 2023-10-24 09:24</a>
+
+现在入坑来得及不  要刷初始吗  有攻略不</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在入坑的话后面正好是这游戏第一个短期限定池子
+
+初始没啥刷的必要，这游戏卡基本都是靠打本拿资源直接拼，同时一个队要七个人，你靠刷初始那两人格也改善不了多少
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">另外这游戏你去淘宝买个自抽号能直接玩的很爽，不过不一定安全，现在那价格也有点贵了
+
+
+*****
+
+####  紫枫客  
+##### 385#       发表于 2023-10-24 22:23
+
+ 本帖最后由 紫枫客 于 2023-10-24 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62816709&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-24 17:52</a>
+
+现在入坑的话后面正好是这游戏第一个短期限定池子
+
+初始没啥刷的必要，这游戏卡基本都是靠打本拿资 ...</blockquote>
+已经搞了个自抽了  二这几个是只能随便找个池子硬抽么 或者说后几天开的那个里也能出？
+
+
+*****
+
+####  Yuzutea  
+##### 386#       发表于 2023-10-25 03:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62819384&amp;ptid=2120922" target="_blank">紫枫客 发表于 2023-10-24 22:23</a>
+
+已经搞了个自抽了  二这几个是只能随便找个池子硬抽么 或者说后几天开的那个里也能出？ ...</blockquote>
+周四更新新池子，抽那个，可以抽出来三星角色就停，那EGO用处没那么大
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外这游戏基本大家伙都是靠充个季票然后靠体力打镜本开箱子拿角色碎片换的，整个第二赛季我没有抽出来一个角色
+
+你靠新号自回体到赛季结束肝几个这赛季的人格和ego应该没啥问题
+
+先把主线往后打打再说
+
+
+*****
+
+####  钟于123  
+##### 387#       发表于 2023-10-26 11:45
+
+110抽结束这池子，只剩2000狂气了
+
+
+*****
+
+####  Yuzutea  
+##### 388#       发表于 2023-10-26 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五十抽双黄解决
+
+舒服，还好我这ego之前全换完了
+
+
+*****
+
+####  Jamaisvu  
+##### 389#       发表于 2023-10-26 14:05
+
+魔女之夜的设定有点意思，车载的梅菲斯特引擎正常情况能召唤误差前后六年内的可能性人格，但是在魔女之夜会解除限制，可以提取前后二十年内都市里任何存在过的人物，包括色彩收尾人和翼公司高层...
+
+我现在对下一次魔女之夜的兴趣有点超过主线了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  紫枫客  
+##### 390#       发表于 2023-10-26 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62820599&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-25 03:00</a>
+
+周四更新新池子，抽那个，可以抽出来三星角色就停，那EGO用处没那么大
+
+另外这游戏基本大家伙都是 ...</blockquote>
+池子里是3个限定 都抽到了就停手对吧  请问这次强度如何呢   
+
+
+*****
+
+####  Yuzutea  
+##### 391#       发表于 2023-10-26 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62836518&amp;ptid=2120922" target="_blank">紫枫客 发表于 2023-10-26 14:11</a>
+
+池子里是3个限定 都抽到了就停手对吧  请问这次强度如何呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都抽出来吧，你这新号反正要补的多短期内估计也没更好的池子抽了
+
+强度来说这次两三星那人格算中规中矩T1，EGO算T0
+
+
+*****
+
+####  ヒトニナル  
+##### 392#       发表于 2023-10-26 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62836455&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-10-26 14:05</a>
+魔女之夜的设定有点意思，车载的梅菲斯特引擎正常情况能召唤误差前后六年内的可能性人格，但是在魔女之夜会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次悔恨浮浮就能点击即送了啊，为什么不期待下次
+
+
+*****
+
+####  Yuzutea  
+##### 393#       发表于 2023-10-26 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浮这镜牢普通还是困难表现都一般啊
+
+
+*****
+
+####  erratic璃月  
+##### 394#       发表于 2023-10-26 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62837278&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-26 15:11</a>
+
+浮这镜牢普通还是困难表现都一般啊</blockquote>
+至少在经验本表现优良<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 395#       发表于 2023-10-26 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62836904&amp;ptid=2120922" target="_blank">ヒトニナル 发表于 2023-10-26 14:42</a>
+
+下次悔恨浮浮就能点击即送了啊，为什么不期待下次</blockquote>
+这游戏确实能靠肝箱子终有一日凑齐全图鉴，但我有些盲目自信，觉得能早抽早享受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在知道套路了，以后的常驻和赛季新卡全用箱子换，狂气留着抽限定...毕竟抽卡游戏，赌运气和新鲜感也是必要的环节<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  erratic璃月  
+##### 396#       发表于 2023-10-26 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62838154&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-10-26 16:19</a>
+
+这游戏确实能靠肝箱子终有一日凑齐全图鉴，但我有些盲目自信，觉得能早抽早享受
+
+现在知道套路了 ...</blockquote>
+感觉以后要全图鉴更麻烦了。如果追求当期限定的话基本要放普池，但在非up池歪特定2星太难了，用箱子换2星更是血亏。如果要全图鉴我更倾向于每池捞2星，3星靠箱子和歪，限定就只能下次换了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 397#       发表于 2023-10-26 17:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赛季两星以后就赛季末几张三星卷加限定池子抽一下应该也差不多了
+
+*****
+
+####  erratic璃月  
+##### 398#       发表于 2023-10-26 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62839151&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-10-26 17:43</a>
+
+赛季两星以后就赛季末几张三星卷加限定池子抽一下应该也差不多了</blockquote>
+第一赛季的虫奥我最后就没歪出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
