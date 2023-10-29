@@ -3222,3 +3222,30 @@ uasobi:3
 
 最后3局打的真不错，萝芭真正的上分角色。
 
+*****
+
+####  旧时代的扎比  
+##### 9685#       发表于 2023-10-25 23:05
+
+怎么Steam版卖的比ns版还贵
+
+
+*****
+
+####  星の守  
+##### 9686#       发表于 2023-10-26 19:11
+
+怎么突然连麦<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 9687#       发表于 2023-10-26 21:44
+
+打字好快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是不是喊了先辈？
+
+给版本回归提前造势了
+
