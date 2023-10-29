@@ -6719,3 +6719,16 @@ WEB被赏金首也是因为都市干部被骗然后利诱入伙，牵制依那�
 文库版翻译最快都只到三卷吗，搜了下英肉也才三卷</blockquote>
 文库台版好像就只到3卷下赏金首为止
 
+*****
+
+####  kria  
+##### 550#       发表于 2023-10-26 19:06
+
+<img src="https://img.saraba1st.com/forum/202310/26/190629k24k4zmz29oz90mx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231026_190523_Chrome.jpg</strong> (303.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:06 上传
+

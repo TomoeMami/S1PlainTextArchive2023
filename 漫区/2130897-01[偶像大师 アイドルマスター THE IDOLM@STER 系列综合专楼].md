@@ -9276,3 +9276,305 @@ FCA4F9C630D014D0F8A7086A8F45B250.jpg
 
 <img src="https://img.saraba1st.com/forum/202310/12/173801d4uxoyoe1u1828ye.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  两个路人  
+##### 807#       发表于 2023-10-18 18:24
+
+ 本帖最后由 两个路人 于 2023-10-18 18:32 编辑 
+
+论坛宕机时，看到巨巨发了的Fashionable同人MV作。有人传B站了，在这里也贴一下好了。估计惯例也不会传4K版本到有土鳖上（叹
+[https://youtu.be/pXghKCcJ6D0](https://youtu.be/pXghKCcJ6D0)
+
+笨代从各种意义上来看，还是早屎早超生吧（远目）
+ 
+
+
+*****
+
+####  天王寺綯  
+##### 808#       发表于 2023-10-18 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62679823&amp;ptid=2130897" target="_blank">柏崎Sena 发表于 2023-10-10 22:15</a>
+
+vα-liv现在上水流人气明显高，但是每月投票三人都差不了多少票</blockquote>
+这不是挺好的，不丢下任何一个人共同进退才是爱马仕精神
+
+
+*****
+
+####  七草にちか  
+##### 809#       发表于 2023-10-21 14:42
+
+[[汉化]叶月传&amp;#xB7;一](https://www.bilibili.com/read/cv27204169)
+
+是我还没当偶像的时间点
+
+<img src="https://img.saraba1st.com/forum/202310/21/144248llzdadc69d6o7hpl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (960.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-21 14:42 上传
+
+
+*****
+
+####  七草にちか  
+##### 810#       发表于 2023-10-21 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/21/213611n2n2hu2l6l6th125.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231021213121.jpg</strong> (244.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-21 21:36 上传
+
+
+*****
+
+####  wfhtony  
+##### 811#       发表于 2023-10-22 19:02
+
+ 本帖最后由 wfhtony 于 2023-10-22 19:09 编辑 
+
+5.5週年LIVE公佈的新消息：
+
+<img src="https://tc2.wfhtony.space/images/2023/10/21/a96d67f1cb609a337d473ade12eec858.jpg" referrerpolicy="no-referrer">
+
+週年當天應該還有大的...
+
+5.5週年正餐：
+[【生配信】アイドルマスター シャイニーカラーズ 5.5周年生配信 ～ ゲーム＆アニメ合同SP！ ～](https://www.youtube.com/watch?v=qmthI10Hhng)
+
+<img src="https://tc2.wfhtony.space/images/2023/10/21/2d0e2ad35e36f43a38fd4bd657f6fafe.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/21/763964bd8bc5665b3dcd6e35bda816f3.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/21/a20cfb06eb25406e997ffaba388a8a6c.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/21/ee0954a116f1e8d0152f71f1db160d7b.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/21/1f4a99c4f39d398b3c42d6a0876edb8f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/21/120bfa9bf84106a7dbdb67bf2ca62583.jpg" referrerpolicy="no-referrer">
+
+日清速食飯啊... 
+
+等一個新CM/動畫MV（
+
+遊戲方面：
+<img src="https://tc2.wfhtony.space/images/2023/10/22/5d16ec4e2d39a7825cd7b7afc2aaecd2.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/da3249011e72278745da72a5ee1d1162.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/139f054cd821f0ed05c5f288bf9487eb.jpg" referrerpolicy="no-referrer">
+[兩位新角色確定將於頁遊端追加。](https://www.youtube.com/watch?v=4YMYtdQhEys)
+
+<img src="https://tc2.wfhtony.space/images/2023/10/22/73d13a31cdfaf6cb5d711ead83d1fd68.jpg" referrerpolicy="no-referrer">
+
+音遊版的3DMV於LIVE結束後公開。
+
+其他方面：
+<img src="https://tc2.wfhtony.space/images/2023/10/22/d37a79694dcb105d7a3eea4f1d0cf646.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/4944ba754d6acf85f8c3850303a87b7a.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/d96c010477a2e580993e35847f2ef5c8.jpg" referrerpolicy="no-referrer">
+
+每月發行一期的Style Book。第一期的封面公開。
+
+<img src="https://tc2.wfhtony.space/images/2023/10/22/96a4bc26b56f3f9d36d5f5aff528be9f.jpg" referrerpolicy="no-referrer">
+
+黑流星組和ZOZOTOWN的聯動。
+
+30MS的聯動第二彈：
+<img src="https://tc2.wfhtony.space/images/2023/10/22/1848b7a855d21c991b0f5f588f6a2213.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/967b068791d07105ef6f3ee4a2561f12.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/673aaeb9b8dc73663f430dd5c7e262a6.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/8d52b423bc3c3421b473c1289f3ce65f.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/d282355eb469cf135dc5e54501f886ae.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/c36ca4f5a83b6072680952ef15f090ff.jpg" referrerpolicy="no-referrer">
+
+下週三/四會有帶副音軌的同時視聽會(不出意外的話，會有VOD)：
+<img src="https://tc2.wfhtony.space/images/2023/10/22/5706fdf2c5b3fdde7aba97be91a59fbc.jpg" referrerpolicy="no-referrer">
+
+<img src="https://tc2.wfhtony.space/images/2023/10/22/1fd941ed73e664c2b4c7548700c80965.jpg" referrerpolicy="no-referrer">
+
+上次的SOLO LIVE會和這次的5.5週年LIVE的藍光，會在AsobiStore一起打包賣(特典是去年的第二場對邦)。
+
+其他渠道會分開販賣。
+
+LIVE相關：6thLIVE確定將於明（2024）年3~4月開展。
+<img src="https://tc2.wfhtony.space/images/2023/10/22/6c56aa1fc9c0672d2d492603251e4eaf.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/9980e1c8bb385f4c3fa96f0ac752145a.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/76a7b4551b5c5269b0c7fc12495e71b6.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/3017cf7e9690466a7f2dcafcb830b298.jpg" referrerpolicy="no-referrer">：
+<img src="https://tc2.wfhtony.space/images/2023/10/22/3ea98b854ac943b68d29640b302e5898.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/6d63fa30980af0ec49f0bbb512fa78fe.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/552fe811bfab75a2828839508aba5bbd.jpg" referrerpolicy="no-referrer">
+
+明年4/20~21，[橫浜場](https://k-arena.com/)：
+<img src="https://tc2.wfhtony.space/images/2023/10/22/dec4b88787b0de7bc67e5418c089c11d.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/4c80b11691e4989786dcd044e49ed1ee.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/34f6e1bce2a4f6b8d43cac324fa56f65.jpg" referrerpolicy="no-referrer"></blockquote>
+<img src="https://tc2.wfhtony.space/images/2023/10/22/962c68b08cb396da794bb5f2778759b3.jpg" referrerpolicy="no-referrer">
+
+最後：Day2 最後公開了動畫OP的無職員表版本影像
+<img src="https://tc2.wfhtony.space/images/2023/10/22/d0b1b6aee5b120fa8df0437a65f12cab.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/9f4d215a3d262120e145ba504332e945.jpg" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2023/10/22/49b1e06cffebe0d4505cc46b3dcb20e9.jpg" referrerpolicy="no-referrer">
+
+→ [【シャニアニ】アニメ「アイドルマスター シャイニーカラーズ」ノンクレジットオープニング「ツバサグラビティ」](https://www.youtube.com/watch?v=1V0_81XYS8M)
+
+*****
+
+####  Vacuolar  
+##### 812#       发表于 2023-10-22 19:04
+
+sc动画的op真只有这水平吗？我不想太过分的话，总之万代爆炸吧
+
+
+*****
+
+####  wfhtony  
+##### 813#       发表于 2023-10-22 19:18
+
+ 本帖最后由 wfhtony 于 2023-10-22 19:22 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/22/191836gdkiv1n8n1gxkdpo.png" referrerpolicy="no-referrer">
+
+<strong>283PRODUCTION_SOLO_PERFORMANCE_LIVE＆5.5th_Annivers_2023-10-22_19-15-42.png</strong> (60.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-22 19:18 上传
+
+明年再下單吧...＊預購截止時間：2024年3月17日。
+
+AsobiStore的三合一（SOLOLIVE的兩天分盤賣）特裝版，還帶去年的第二場對邦，所以這套實際是四合一（
+
+
+*****
+
+####  天王寺綯  
+##### 814#       发表于 2023-10-22 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">op差不怕，有ed就行
+
+
+*****
+
+####  冰寒之月  
+##### 815#       发表于 2023-10-22 20:02
+
+刚看完無自覚アプリオリ60fps的mv再去看动画op就感觉…… 
+
+除了大动作挥手的时候恢复成24fps其他时候12fps看着人物真是一卡一卡的
+
+*****
+
+####  wfhtony  
+##### 816#       发表于 2023-10-22 20:02
+
+另外，《CANVAS 08》的 Tr.3 平行線の美学 確定會有先行販賣(封面已經被爛鐵臨時工放出來了)，時間大致是專輯發售日的前一週週三(11/1)。
+
+
+*****
+
+####  wfhtony  
+##### 817#       发表于 2023-10-22 20:19
+
+DAY2的影像要大修了。
+
+<img src="https://img.saraba1st.com/forum/202310/22/201922fjwlsx0eze4lhx1h.jpg" referrerpolicy="no-referrer">
+
+<strong>r_17090_1280x720.jpg</strong> (167.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-22 20:19 上传
+
+不過シャニマス的LIVE（基本上）每次都要大修吧...
+
+
+*****
+
+####  wfhtony  
+##### 818#       发表于 2023-10-23 23:26
+
+ 本帖最后由 wfhtony 于 2023-10-23 23:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/23/232547qufzpgq711v7733p.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 842 - THE IDOLM@STER SHINY COLORS ORIGINAL SOUNDTRACK／Bandai N.png</strong> (76.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-23 23:25 上传
+
+シャニマスOST的数字版今天发售+开放串流（Asobinotes发行）。不过没有Hi-Res版。
+
+话说CD版之前就卖了一次吧（  [咱21年的时候有收这套](https://bbs.saraba1st.com/2b/thread-2016939-1-2.html)
+
+看来第二套OST快了？
+
+
+*****
+
+####  安广多惠子  
+##### 819#       发表于 2023-10-23 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这op认真的吗，从歌到动作到内容都敷衍到极点，帧数更是辣眼睛
+
+
+*****
+
+####  陆久舟  
+##### 820#       发表于 2023-10-24 01:37
+
+期待OST2好久了，赶快端上来吧
+
+
+*****
+
+####  陆久舟  
+##### 821#       发表于 2023-10-24 11:41
+
+SC新作会有PC版<img src="https://p.sda1.dev/13/892902d156b3cbad020b97592c026de3/CMP_20231024114127259.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SchwarzX  
+##### 822#       发表于 2023-10-24 11:56
+
+ps版可以安排嘛，感觉这建模和画面上主机也不虚嘛
+
+
+*****
+
+####  馬斯特壺  
+##### 823#       发表于 2023-10-26 17:57
+
+和lovelive联动的宣传图
+<img src="https://p.sda1.dev/13/075631caf4219602368df3c773c08967/CMP_20231026175018206.jpg" referrerpolicy="no-referrer">
+灰灰:凛和爱丽丝合理，毛妺和沼津有什么渊源吗<img src="https://p.sda1.dev/13/cca1acceba7362b8321432561e0aa8ab/CMP_20231026175226900.jpg" referrerpolicy="no-referrer">
+百万:D/Zeal组和追加战士
+<img src="https://p.sda1.dev/13/be2bdf72bbdd86dffb32d338015937cd/CMP_20231026175521912.jpg" referrerpolicy="no-referrer">
+闪闪:这就是新三原色吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/1d8aa9edb3e117035617dd5253fb0181/CMP_20231026175724198.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acacaclove  
+##### 824#       发表于 2023-10-26 19:06
+
+妈的和万代爆了
+
+<img src="https://img.saraba1st.com/forum/202310/26/190551vyqdfr6blfdw68s0.png" referrerpolicy="no-referrer">
+
+<strong>LXDE}[}8`=NDKX0YQ1$BL.png</strong> (29.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-26 19:05 上传
+
+你为什么要印字上去，好丑啊
+
