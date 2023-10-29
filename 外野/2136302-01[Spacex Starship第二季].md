@@ -1711,3 +1711,237 @@ S25被从B9拆下。
 
 —— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  commcody  
+##### 103#       发表于 2023-10-17 09:46
+
+在两次下架检查后，当地时间周一S25再度和B9合体。SpaceX同时官宣本周即将进行湿彩排，发射许可证方面仍在与FAA协作中。
+
+根据海事预警，湿彩排可能于当地时间周二举行。
+
+<img src="https://img.saraba1st.com/forum/202310/17/094426xw4gu2upawn3ua3u.jpg" referrerpolicy="no-referrer">
+
+<strong>F8mIqHHboAASMG8.jpg</strong> (485.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202310/17/094429rx4x4u7ozl949oww.jpg" referrerpolicy="no-referrer">
+
+<strong>F8mIqiyb0AAEGFL.jpg</strong> (593.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202310/17/094434tcvdwbvzqqfoenzd.jpg" referrerpolicy="no-referrer">
+
+<strong>F8mIrmAbQAA_Hav.jpg</strong> (614.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 09:44 上传
+
+<img src="https://img.saraba1st.com/forum/202310/17/094436tpvknd6tk3v5l9p9.jpg" referrerpolicy="no-referrer">
+
+<strong>F8mIsiSbEAABDMm.jpg</strong> (438.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 09:44 上传
+
+
+*****
+
+####  tianruilee  
+##### 104#       发表于 2023-10-17 10:15
+
+转发目前状况：
+
+-今年5月1日，五个环境/文化保护团体联合将FAA告上法庭，要求进行一次深度环境影响评估（EIS，这一工作可能持续数年）
+
+-5月19日，SpaceX提交动议，主动要求自己和FAA成为共同被告，以帮助在法庭答辩。
+
+-目前这个案子还在走法庭程序，在目前的状况下，FAA的决定会更为谨慎。
+
+
+*****
+
+####  Ursa  
+##### 105#       发表于 2023-10-17 11:53
+
+别把，就这么拖得拖到什么时候去，还等着看东西大竞争呢
+
+
+*****
+
+####  commcody  
+##### 106#       发表于 2023-10-19 00:18
+
+SpaceX官宣合体等待湿彩排后不到一天S25旋即又被拆下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，原因未知。
+
+常驻星舰基地的Starship Gazer拍到SpaceX在昨天和今天一直在检查B9顶部的焊缝。
+
+墨西哥湾海事预警发布，箭指发射窗口当地时间11月1日。看来SpaceX目前瞅准FAA会在十月底发布许可。
+
+舰队方面，S26在亚轨道测试台B上等待可能的静点。S28仍在火箭花园旁的发动机安装台上。S29在梅西测试场完成测试后返回了火箭花园。B11前往了梅西测试场开始测试。
+
+<img src="https://img.saraba1st.com/forum/202310/19/001131qgusfe5ueewc5oew.jpg" referrerpolicy="no-referrer">
+
+<strong>F8uqtDXbAAE_xDt.jpg</strong> (566.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 00:11 上传
+
+<img src="https://img.saraba1st.com/forum/202310/19/001238or0qr5gk080saqjs.jpg" referrerpolicy="no-referrer">
+
+<strong>F8ulhRRXYAA273Z.jpg</strong> (261.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202310/19/001243xdnprdwbis2owroi.jpg" referrerpolicy="no-referrer">
+
+<strong>F8u5YAuWAAAdsD8.jpg</strong> (185.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 00:12 上传
+
+<img src="https://img.saraba1st.com/forum/202310/19/001519dpdii66icyp0pyod.jpg" referrerpolicy="no-referrer">
+
+<strong>F8q8KroWgAA6zpo.jpg</strong> (395.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 00:15 上传
+
+<img src="https://img.saraba1st.com/forum/202310/19/001524mo3z3rrrdndq4zcn.jpg" referrerpolicy="no-referrer">
+
+<strong>F8q8KrpWAAA93-M.jpg</strong> (314.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 00:15 上传
+
+
+*****
+
+####  commcody  
+##### 107#       发表于 2023-10-21 09:44
+
+当地时间周四，SpaceX被目击到和US Fish And Wildlife共同视察了发射场周围滩涂，并清理首飞时残留的钢筋混凝土残骸。
+
+周五清晨，S25再度与B9合体。当日下午S26完成了一次静态点火测试。SpaceX官宣S26测试了一次模拟飞行环境下的单发离轨启动。也宣布在与FAA继续推进第二发许可证的同时正在为即将进行的湿彩排完成额外的测试。
+
+当地政府也在周五宣布了周日将有临时封路的测试。这是很罕见的。因为除非有特殊情况，SpaceX只能在工作日进行封路测试，且全年周末封路测试的总次数有限制。这似乎意味着SpaceX正在竭尽全力抓紧时间。
+
+<img src="https://img.saraba1st.com/forum/202310/21/092552o6miunfrui786ium.jpg" referrerpolicy="no-referrer">
+
+<strong>F86VoGaXwAA07B9.jpg</strong> (157.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-21 09:25 上传
+
+<img src="https://img.saraba1st.com/forum/202310/21/092554eqcmf6qsmcwuzmsm.jpg" referrerpolicy="no-referrer">
+
+<strong>F87N-JVa4AAtHi8.jpg</strong> (700.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-21 09:25 上传
+
+*****
+
+####  clmd  
+##### 108#       发表于 2023-10-21 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62782052&amp;ptid=2136302" target="_blank">commcody 发表于 2023-10-21 09:44</a>
+
+当地时间周四，SpaceX被目击到和US Fish And Wildlife共同视察了发射场周围滩涂，并清理首飞时残留的钢筋混 ...</blockquote>
+计划第二次是什么时候发售
+
+
+*****
+
+####  commcody  
+##### 109#       发表于 2023-10-21 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62782087&amp;ptid=2136302" target="_blank">clmd 发表于 2023-10-21 09:47</a>
+
+计划第二次是什么时候发售</blockquote>
+根据海事预警，最早的可能发射日期是11月1日。
+
+但是在FAA颁发许可证前不会有一个准确的日期。
+
+
+*****
+
+####  commcody  
+##### 110#       发表于 2023-10-23 21:52
+
+在周日的封路中，使用了液氮和液氧对S25/B9组合体进行了两次部分加注，也对储罐全部安装完成后的水冷钢板进行了测试。
+
+<img src="https://img.saraba1st.com/forum/202310/23/215116uy0g61sd8vmhs5vc.jpg" referrerpolicy="no-referrer">
+
+<strong>F9ETakfWcAAgelU.jpg</strong> (113.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-23 21:51 上传
+
+
+*****
+
+####  Ichthys  
+##### 111#       发表于 2023-10-24 23:34
+
+今天湿彩排，FAA没消息。
+
+
+*****
+
+####  commcody  
+##### 112#       发表于 2023-10-25 09:23
+
+当地时间周二，SpaceX完成了S25/B9的湿彩排，总共加注了超过1000万磅推进剂。现在只待FAA许可证。
+
+<img src="https://img.saraba1st.com/forum/202310/25/092147ys0s683hj6gyjg0m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0644.jpeg</strong> (466.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 09:21 上传
+
+  
+
+<img src="https://img.saraba1st.com/forum/202310/25/092147s2q5pyeac8qauqyc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0645.jpeg</strong> (618.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-25 09:21 上传
+
+
+*****
+
+####  commcody  
+##### 113#       发表于 2023-10-26 11:52
+
+根据最新海事预警，更改发射时间NET（不早于）11月6日。
+
+
+*****
+
+####  bartholo4  
+##### 114#       发表于 2023-10-26 12:01
+
+终于又**吗
+
