@@ -1445,3 +1445,13 @@ pvp是觉醒地狙 打拳
 
 这画风，后续说不定要出NTR剧情了……
 
+*****
+
+####  rgauss  
+##### 955#         楼主| 发表于 2023-10-26 20:23
+
+傻白的黑丝真的瑟
+不愧是曾经誓约最多的角色
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
