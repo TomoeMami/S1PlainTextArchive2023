@@ -6902,3 +6902,10 @@ subtick据说官匹还是64，只有部分动作是128</blockquote>
 按照我的理解subtick本身更像是v社在原服务器基础上的一次优化，平台本身就能提供更好的服务器，大概率大家以后还是打平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这几天faceit cs2 服务器代码图蓝鸟上有，官方还是64tick，而平台在128tick的基础上使用subtick技术。
 
+*****
+
+####  heseran  
+##### 3908#       发表于 2023-10-26 12:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">有爆料说g2弃赛上海cac了，石油佬真出手了吗
+
