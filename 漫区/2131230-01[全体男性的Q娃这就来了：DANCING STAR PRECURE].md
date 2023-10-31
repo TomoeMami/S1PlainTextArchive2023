@@ -1362,3 +1362,14 @@ https://prehyou2015.hatena ...</blockquote>
 
 杂志扫图出了 中间明摆着放舞台剧男人丑照<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+*****
+
+####  粉儿alice  
+##### 137#       发表于 2023-10-28 23:09
+
+舞台剧五男人今天也上映惹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看了一下勇士剧透 就是普通q娃日常变身打怪的剧情
+男的女的演都一样 上q娃大偶装演也没有问题
+观众都是舞台剧演员粉 大友不会去看 小友直接叫你滚
+真挺好 黑历史预定<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
