@@ -298,3 +298,14 @@ STAFF绘画集『NIGHT CITY MAGAZINE』节选
 
 《赛博朋克 边缘行者》开播1周年！
 
+*****
+
+####  Piano-Forest  
+##### 3206#         楼主| 发表于 2023-10-28 16:09
+
+『サイバーパンク エッジランナーズ』より、山岡晃氏 @AkiraYamaoka の楽曲を中心に構成されたアナログレコードの予約受付が開始。カバーアートは @trigger_inc 吉成曜氏の描き下ろし。
+<img src="https://p.sda1.dev/13/e2be3c5f3f3d8772063bfea90ac2ba28/20231028_160446.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/82e0a39e1451e5b36279a9f8ddb3a065/20231028_160735.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/aea08755d217f84a4997d24b19e9a9b2/71Fn3UMUeYL._SL1500_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/adbe04130b76c6af80a6914adac4336d/20231028_160738.jpg" referrerpolicy="no-referrer">
+
