@@ -1903,3 +1903,15 @@ GSC的手办到货了<img src="https://static.saraba1st.com/image/smiley/face201
 
 唉，我的中奖
 
+*****
+
+####  stmule  
+##### 14693#       发表于 2023-10-30 01:38
+
+<img src="https://p.sda1.dev/13/256a375109fd254c490e16f05b493aa4/CMP_20231030013713278.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/a97d3170963f0da73ab2cd2185d0c2b8/CMP_20231030013713409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/a6de6f36a8c5b68bc38a0dd9b697a150/CMP_20231030013803833.jpg" referrerpolicy="no-referrer">
+今天终于有时间拍了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
