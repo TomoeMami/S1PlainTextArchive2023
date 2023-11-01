@@ -2643,3 +2643,23 @@ steam游戏库里新闻直接有，1月30日更新的1.5版本公告，英文的
 
 内容主要更新了结局和最后一战的剧情buff
 
+*****
+
+####  hgcg-ix  
+##### 219#       发表于 2023-10-29 18:29
+
+要上PS5了。值得买吗？是硬派肉鸽还是可以练级的？
+
+
+*****
+
+####  bwsusaga  
+##### 220#         楼主| 发表于 2023-10-29 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62871591&amp;ptid=2067291" target="_blank">hgcg-ix 发表于 2023-10-29 18:29</a>
+
+要上PS5了。值得买吗？是硬派肉鸽还是可以练级的？</blockquote>
+不是肉鸽，
+
+很老派的日系战棋，没有练级关卡。
+
