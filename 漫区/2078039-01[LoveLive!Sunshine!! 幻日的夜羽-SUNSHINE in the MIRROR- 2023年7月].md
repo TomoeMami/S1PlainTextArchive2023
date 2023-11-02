@@ -3270,3 +3270,57 @@ https://t.co/VnaGhzHR6M
 
 <img src="https://p.sda1.dev/13/3446c1d3cd01a52fe5d06042f3621095/20230925_014216.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  MobileMeowbot  
+##### 296#       发表于 2023-10-10 11:36
+
+<img src="https://img.saraba1st.com/forum/202310/10/111735pheekyh6vvhikx3e.png" referrerpolicy="no-referrer">
+
+<strong>chika.png</strong> (228.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-10 11:17 上传
+
+试玩通了。奖励房位置固定，关卡随机；三张图没什么跳跳乐，撞滚石踩流沙非即死，但有随机掉素材做装备的养成要素；遗迹里要换位置打三次首领甲虫，用必得的千歌空气炮打出硬直，运气好做出狂战斧暴击一百二；只能利用场景建筑自动存档，为避免消耗乐谱返回标题重开也不碍事。
+
+如果说ggdp挑了最好的两张图放进demo，tevi安排了轻松主线打强化boss开极难二周目的特殊流程，入夜羽首发不再会有什么心理落差——试用装也太朴素了！
+
+
+*****
+
+####  cmyk1234  
+##### 297#       发表于 2023-10-10 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62673157&amp;ptid=2078039" target="_blank">MobileMeowbot 发表于 2023-10-10 11:36</a>
+试玩通了。奖励房位置固定，关卡随机；三张图没什么跳跳乐，撞滚石踩流沙非即死，但有随机掉素材做装备的 ...</blockquote>
+关卡设计和同组的洛克人zx以及zxa相比怎么样？
+
+
+*****
+
+####  MobileMeowbot  
+##### 298#       发表于 2023-10-10 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62673672&amp;ptid=2078039" target="_blank">cmyk1234 发表于 2023-10-10 12:13</a>
+
+关卡设计和同组的洛克人zx以及zxa相比怎么样？</blockquote>
+demo内容少不好对比......岔路多但能绕回来，Y键关小地图也不易迷路，只标记了宝箱（含唯一装备素材），遇特殊路障要拿新能力回头探索，进流沙陷阱后不打通不能折返（出通关画面也不能存档或快速旅行，根本搞不清二图有没有遗漏）；
+
+角色基础性能强，有滑铲，能利用充当主武器的支援角色或随时开背包换的副武器实现滞空攻击，但不能蹲走、连击、搓招，除受鮟鱇吹风影响或与怪相杀只能原地打人，用光技能点得切无消耗但后摇长的大狗；
+
+默认键位合理，长按呼出轮盘切人后有二次确认；
+
+道中小怪会举盾跳搓元气弹，但打了三回的甲虫王只会排列组合那四招（大风车、减防雷、自机狙、分身斧），也没有期待中的换区或临死狂暴
+
+
+*****
+
+####  cmyk1234  
+##### 299#       发表于 2023-10-10 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62674177&amp;ptid=2078039" target="_blank">MobileMeowbot 发表于 2023-10-10 12:53</a>
+demo内容少不好对比......岔路多但能绕回来，Y键关小地图也不易迷路，只标记了宝箱（含唯一装备素材）， ...</blockquote>
+支援角色只有黛雅能搓三段。使用露比时，左右移动会让遮挡泡沫产生惯性，可以利用惯性遮挡玩家。
+

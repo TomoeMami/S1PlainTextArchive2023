@@ -958,3 +958,261 @@ PV2：[https://youtu.be/R7n9LJJPwHM](https://youtu.be/R7n9LJJPwHM)
 <img src="https://p.sda1.dev/11/7afdf46e581e23091184b69d31585f63/CMP_20230501083407840.png" referrerpolicy="no-referrer">
 
 
+*****
+
+####  镜hinata  
+##### 102#       发表于 2023-5-15 11:31
+
+这片做日剧感觉会更好看点
+
+
+*****
+
+####  瓦格雷  
+##### 103#       发表于 2023-5-15 16:11
+
+是觉得奇怪 原来是网点都懒得加吗
+
+
+*****
+
+####  moudianzi  
+##### 104#       发表于 2023-5-15 16:20
+
+ 本帖最后由 moudianzi 于 2023-5-15 16:22 编辑 
+
+原来那个是偷懒吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+我第一眼看的时候还在想怎么头上忽然套了个透明塑料袋，过了会才想起男主之前受伤了来着，随之判断那个透明薄膜，应该就是某种类似纱布用途的新材料包扎用品吧
+
+
+*****
+
+####  枕头46  
+##### 105#       发表于 2023-5-15 17:44
+
+一进入正戏就把丝袜脱掉的丝袜控小黄本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  镜hinata  
+##### 106#       发表于 2023-5-29 08:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这老妈是何方神圣
+
+
+*****
+
+####  窵傂  
+##### 107#       发表于 2023-5-30 22:59
+
+这个打码是什么说法，看不明白
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 108#       发表于 2023-5-30 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61057522&amp;ptid=2076151" target="_blank">窵傂 发表于 2023-5-30 22:59</a>
+
+这个打码是什么说法，看不明白</blockquote>
+撬门破锁不行
+
+
+*****
+
+####  窵傂  
+##### 109#       发表于 2023-5-30 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61057750&amp;ptid=2076151" target="_blank">Mc凉月奏酱 发表于 2023-5-30 23:15</a>
+
+撬门破锁不行</blockquote>
+隐隐猜到是这个意思，但还是对这个工具尖端打码感到迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三千珈蓝  
+##### 110#       发表于 2023-5-31 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61033025&amp;ptid=2076151" target="_blank"> 镜hinata 发表于 2023-5-29 08:49</a> 这老妈是何方神圣 </blockquote>
+只看动画的话得风第二季了来自: iPhone客户端
+
+
+*****
+
+####  怀特布莱克  
+##### 111#       发表于 2023-5-31 06:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61033025&amp;ptid=2076151" target="_blank">镜hinata 发表于 2023-5-29 08:49</a>
+
+这老妈是何方神圣</blockquote>
+
+邪教教主在逃女儿
+
+*****
+
+####  镜hinata  
+##### 112#       发表于 2023-6-12 02:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">居然是小学生打架....
+
+
+*****
+
+####  アルメリア  
+##### 113#       发表于 2023-6-12 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为啥血迹没清理 降智了？
+
+
+*****
+
+####  Antidote丶  
+##### 114#       发表于 2023-6-12 23:33
+
+怎么是这么个互殴的展开
+
+*****
+
+####  镜hinata  
+##### 115#       发表于 2023-6-19 00:39
+
+这就结束了?
+
+男主这手上2条人命这不用进去蹲一辈子?
+
+
+*****
+
+####  瓦格雷  
+##### 116#       发表于 2023-6-19 00:53
+
+<blockquote>アルメリア 发表于 2023-6-12 19:02
+为啥血迹没清理 降智了？</blockquote>
+血迹清理了  但是残留能荧光检测到
+
+*****
+
+####  renkan119  
+##### 117#       发表于 2023-6-19 01:02
+
+<blockquote>镜hinata 发表于 2023-6-19 00:39
+这就结束了?
+
+男主这手上2条人命这不用进去蹲一辈子?</blockquote>
+后续请看漫画
+
+
+*****
+
+####  永恒的王牌  
+##### 118#       发表于 2023-6-19 01:12
+
+听歌刷到了这部动画的ED，真好听啊
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 119#       发表于 2023-6-19 06:46
+
+<img src="https://img.saraba1st.com/forum/202306/19/064644h3kapg90990b6t3x.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230619064540.png</strong> (96.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-19 06:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  アルメリア  
+##### 120#       发表于 2023-6-19 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥最后别人紫砂老爹不向JC坦白反而抛尸 这下跳进黄河也洗不清了
+
+
+*****
+
+####  三千珈蓝  
+##### 121#       发表于 2023-6-19 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61348018&amp;ptid=2076151" target="_blank"> アルメリア 发表于 2023-6-19 20:06</a> 为啥最后别人紫砂老爹不向JC坦白反而抛尸 这下跳进黄河也洗不清了 </blockquote>
+因为还要讲第二部的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  大丈夫萌大乃  
+##### 122#       发表于 2023-6-20 23:47
+
+为啥律师拿到全场输出最高的武器却悲从中来自杀了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tilocal  
+##### 123#       发表于 2023-6-21 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61348018&amp;ptid=2076151" target="_blank">アルメリア 发表于 2023-6-19 20:06</a>
+
+为啥最后别人紫砂老爹不向JC坦白反而抛尸 这下跳进黄河也洗不清了</blockquote>
+自首了不就让组织那边知道谁是真凶了吗，就像对方说的那样妻子女儿肯定会遭报复
+
+
+*****
+
+####  moudianzi  
+##### 124#       发表于 2023-6-21 03:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61363374&amp;ptid=2076151" target="_blank">大丈夫萌大乃 发表于 2023-6-20 23:47</a>
+
+为啥律师拿到全场输出最高的武器却悲从中来自杀了(你们不要再打了啦) ...</blockquote>
+漫画这部分在男主问“为什么”后，比动画多了段男主的心理共情分析，感觉上会比动画好理解一些。
+
+儿子救不回来，感觉自己很无力，唯一活下去的动力就只剩报仇。结果报仇还报不顺利（杀了半天男主都没杀掉），进而愈发觉得无力，负面情绪彻底爆发，心态直接崩盘，最终变得只想着如何让男主体验到同样的绝望感，以作为报复男主的手段
+
+至于为什么要在这种时候选择这么蠢的方案，大概只能理解为因为悲伤过度而使得脑子短路了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">（可能作者自己也发现了，他们这样继续下去的确是打不死人的，只能强行结束比赛了）
+
+<img src="https://img.saraba1st.com/forum/202306/21/031105o3zo3m6d4fdyonfe.png" referrerpolicy="no-referrer">
+
+<strong>aaa1.png</strong> (93.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 03:11 上传
+
+<img src="https://img.saraba1st.com/forum/202306/21/031109xsn5isjkggrd0etf.png" referrerpolicy="no-referrer">
+
+<strong>aaa2.png</strong> (107.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-6-21 03:11 上传
+
+
+*****
+
+####  07579394  
+##### 125#       发表于 2023-6-21 15:01
+
+没有第二季了吧，可以看漫画了
+
+
+*****
+
+####   匿名
+##### 126#        匿名   发表于 2023-6-21 16:50
+
+动画播出完了，你对这部作品打几分呢，欢迎到鉴赏区参加投票。
+[https://bbs.saraba1st.com/2b/thread-2141016-1-1.html](https://bbs.saraba1st.com/2b/thread-2141016-1-1.html)
+
+[2023.04][TV.12]我家的英雄/マイホームヒーロー/MY HOME HERO
+

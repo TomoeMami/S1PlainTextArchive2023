@@ -1205,3 +1205,59 @@ Tom Henderson：目前計劃於 2023 年 11 月中下旬發布。
 等一个富哥首发，我来接盘
 
 
+*****
+
+####  陈词与芍药  
+##### 130#         楼主| 发表于 2023-7-22 15:58
+
+<img src="https://img.saraba1st.com/forum/202307/22/035750rt8vbzo8jyjtqokh.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0845.JPG</strong> (244.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-22 15:57 上传
+
+<img src="https://img.saraba1st.com/forum/202307/22/035750yychhpx57aahvh0z.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0846.JPG</strong> (143.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-22 15:57 上传
+
+豆瓣拒绝评价
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  陈词与芍药  
+##### 131#         楼主| 发表于 2023-7-22 16:00
+
+视频
+
+【索尼掌机 实机视频泄露-哔哩哔哩】 https://b23.tv/BnatPaZ
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Fuero  
+##### 132#       发表于 2023-7-22 16:40
+
+还不卖不知道要等到什么时候，等不及啊
+
+
+*****
+
+####  noahhhh  
+##### 133#       发表于 2023-7-23 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61750857&amp;ptid=2127553" target="_blank">Fuero 发表于 2023-7-22 16:40</a>
+还不卖不知道要等到什么时候，等不及啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">提前预订二手
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

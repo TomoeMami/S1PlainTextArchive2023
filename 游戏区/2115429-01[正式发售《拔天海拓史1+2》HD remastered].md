@@ -1,18 +1,17 @@
 
+
 *****
 
 ####  亚瑟摩根  
 ##### 1#       楼主       发表于 2023-1-18 10:12
 
- 本帖最后由 亚瑟摩根 于 2023-9-14 15:24 编辑 
+ 本帖最后由 亚瑟摩根 于 2023-1-18 10:14 编辑 
 
 根据推特来源，据闻任天堂及其工作室 Monolith Soft 与万代南梦宫合作，正在为 Nintendo Switch 开发霸天开拓史 的重制版，并将于 2023 年发布。
 
 来源：推特eXtas1s
 
 PS：前几天还看到泥潭有人提着游戏，没想到今天就看到这么个消息，难道这就是意识决定现实？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-游戏将于9月14日发售
 
 <img src="https://img.saraba1st.com/forum/202301/18/101159pvd90z9tpptqwpip.jpg" referrerpolicy="no-referrer">
 
@@ -41,12 +40,10 @@ PS：前几天还看到泥潭有人提着游戏，没想到今天就看到这么
 
 评分
 
- 参与人数 22战斗力 -26
+ 参与人数 20战斗力 -24
 
 |昵称|战斗力|理由|
 |----|---|---|
-| 启叔|-1||
-| Merdesony|-1||
 | LamdaHT|-1|傻逼玩意|
 | shiko|-1|您还真是锲而不舍|
 | 战狼PTSD|-1|XB3咋了您说说？ 不过楼下这堆熟面孔团建真.|
@@ -65,6 +62,8 @@ PS：前几天还看到泥潭有人提着游戏，没想到今天就看到这么
 | Rainwedell|-1|太急了|
 | MrlOst|-1|欢乐多|
 | Kiyohara_Yasuke|-1|欢乐多|
+| fffsuper|-1||
+| caicaistar|-1|好评加鹅|
 
 查看全部评分
 
@@ -239,14 +238,16 @@ xb3 也不算平庸，就是内容层面上有一种战略抛弃的气息
 ####  时空之旅  
 ##### 25#       发表于 2023-1-18 12:20
 
-提示: 作者被禁止或删除 内容自动屏蔽
+还不如重制灵光守护者，霸天开拓史可玩性并不高
 
 *****
 
 ####  Guildenstern  
 ##### 26#       发表于 2023-1-18 12:27
 
-提示: 作者被禁止或删除 内容自动屏蔽
+重制xenosaga的呼声明显高得多吧？在欧美都没多少人在意霸天开拓史，这重制给谁玩呢？
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 *****
 
@@ -293,6 +294,7 @@ xb3 也不算平庸，就是内容层面上有一种战略抛弃的气息
 ##### 30#       发表于 2023-1-18 13:21
 
 本根业余爱好就是做扑克牌，这就是霸天打牌的原因？
+
 
 
 *****
@@ -396,15 +398,13 @@ MONO的生产线现在装不下这类重制类作品。我连XBX都觉得他们�
 ####  亚瑟摩根  
 ##### 41#         楼主| 发表于 2023-1-18 15:10
 
- 本帖最后由 亚瑟摩根 于 2023-2-9 11:19 编辑 
-
 鬼佬几个门户也发了这个消息了
 
 我看了看稍微总结一下
 
-据闻舅舅的来源是一个明确的发行表，而且肯定霸天开拓史将定于夏天发售，可能会将包含霸天开拓史起源。也就是1+2
+据闻舅舅的来源是一个明确的发行表，而且肯定霸天开拓史将定于夏天发售，可能会将包含霸天开拓史起源。也就是三部曲1+2和起源
 
-而且去年万南注册了商标，让整件事看起来更加合理。
+而且去年万南注册了1+2和起源的商标，让整件事看起来更加合理。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PS：noisypixel的小编写这个新闻的时候，顺便说了一句，霸天开拓史是一款比XB更能给他带来美好回忆和享受的游戏，他很乐意见到这个消息的公布
 
@@ -495,14 +495,24 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 ####  JudgmentEye  
 ##### 51#       发表于 2023-1-18 19:58
 
-提示: 作者被禁止或删除 内容自动屏蔽
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59399852&amp;ptid=2115429" target="_blank">windtrack_qh 发表于 2023-1-18 14:22</a>
+
+到底是哪个大聪明把バテンカイトス翻译成霸天开拓史的....也是牛逼</blockquote>
+天朝电视游戏第一刊
 
 *****
 
 ####  JudgmentEye  
 ##### 52#       发表于 2023-1-18 19:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+ 本帖最后由 JudgmentEye 于 2023-1-18 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59400466&amp;ptid=2115429" target="_blank">亚瑟摩根 发表于 2023-1-18 15:10</a>
+
+鬼佬几个门户也发了这个消息了
+
+我看了看稍微总结一下</blockquote>
+
+假的吧，起源就是2的美版名，日版叫バテン カイトス2 始まりの翼と神々の嗣子，美版叫Baten Kaitos2 Origins，这帮鬼佬连游戏究竟出了几作都不知道就来冒充舅舅？
 
 *****
 
@@ -516,7 +526,7 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 ####  JudgmentEye  
 ##### 54#       发表于 2023-1-18 20:07
 
-提示: 作者被禁止或删除 内容自动屏蔽
+hd无所谓，能有中文就行了，再把那个道具根据时间降级的傻逼系统去掉
 
 *****
 
@@ -569,7 +579,10 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 ####  九味小吃  
 ##### 60#       发表于 2023-1-19 09:26
 
-提示: 作者被禁止或删除 内容自动屏蔽
+当年在某小学生科学杂志上见过这个游戏的介绍，后来想想这么冷门的游戏咋还能在科学杂志上见到，简中网上连视频都没几个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
 
 
 *****
@@ -586,12 +599,16 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 
 这游戏系列在欧美人气不是很高，中古价格一般般
 
+
+
 *****
 
 ####  57042711  
 ##### 62#       发表于 2023-1-19 11:58
 
 这是要粉碎重置吗  那还可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
 
 *****
 
@@ -602,6 +619,8 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 
 到底是哪个大聪明把バテンカイトス翻译成霸天开拓史的....也是牛逼</blockquote>
 是UCG搞出来的，是个纯音译，还挺霸气，就敲定使用了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
 
 *****
 
@@ -617,14 +636,16 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
 *****
 
 ####  封面杀手  
 ##### 65#       发表于 2023-1-19 15:20
 
- 本帖最后由 封面杀手 于 2023-1-19 15:52 编辑 
+垃圾万南连XS都觉得没HD的价值，我是不信的
 
-不信，不然XSHD早就先出来了，不如说这反而占用了MONO的时间和精力又不讨好，不过垃圾万南有在眼红的可能去寒暄过或许才是真的
+
 
 *****
 
@@ -632,6 +653,8 @@ XG你得问SE肯不肯，SE可没万南那么好说话
 ##### 66#       发表于 2023-1-19 15:27
 
 我对这游戏的印象就是战斗BGM超带感
+
+
 
 *****
 
@@ -650,6 +673,8 @@ IP不在自己手上就别重制了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
 *****
 
 ####  医生狼多  
@@ -657,12 +682,16 @@ IP不在自己手上就别重制了
 
 看了下几个源头，传言是remake
 
+
+
 *****
 
 ####  huge_cat  
 ##### 70#       发表于 2023-1-19 17:40
 
 为什么不是重制xs三部😡来自: iPhone客户端
+
+
 
 *****
 
@@ -673,6 +702,8 @@ IP不在自己手上就别重制了
 看了下几个源头，传言是remake</blockquote>
 不是，为啥啊？也不是啥名作，remake图啥啊？
 
+
+
 *****
 
 ####  医生狼多  
@@ -682,12 +713,16 @@ IP不在自己手上就别重制了
 不是，为啥啊？也不是啥名作，remake图啥啊？</blockquote>
 我也觉得很奇怪，还说是e3公布夏季发售，xs的hd都被毙了，这作品有那么大号召力吗
 
+
+
 *****
 
 ####  yao  
 ##### 73#       发表于 2023-1-19 19:52
 
 这游戏NGC版玩过，画面精致，但是玩起来就是不怎么好玩。一些卡牌会随着时间变化成新卡，还有些战斗中会随机发生变化生成新的技能卡。
+
+
 
 *****
 
@@ -720,14 +755,23 @@ IP不在自己手上就别重制了
 ####  JudgmentEye  
 ##### 77#       发表于 2023-2-9 10:46
 
-提示: 作者被禁止或删除 内容自动屏蔽
+<img src="https://img.saraba1st.com/forum/202302/09/104625rbsgtog6qq666s7s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 10:46 上传
 
 *****
 
 ####  JudgmentEye  
 ##### 78#       发表于 2023-2-9 10:46
 
-提示: 作者被禁止或删除 内容自动屏蔽
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59672831&amp;ptid=2115429" target="_blank">犁地人 发表于 2023-2-9 10:45</a>
+
+可是看来只是hd 不是remake</blockquote>
+本来就是hd remaster
 
 *****
 
@@ -759,19 +803,49 @@ IP不在自己手上就别重制了
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
 *****
 
 ####  JudgmentEye  
 ##### 82#       发表于 2023-2-9 10:54
 
-提示: 作者被禁止或删除 内容自动屏蔽
+ 本帖最后由 JudgmentEye 于 2023-2-9 10:57 编辑 
+
+中文商标都注册完了，财团b不傻，你当是手游大厂和法老控那几个智障吗
+
+<img src="https://img.saraba1st.com/forum/202302/09/105615lvobg57azhupp6ek.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (53.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 10:56 上传
 
 *****
 
 ####  JudgmentEye  
 ##### 83#       发表于 2023-2-9 10:58
 
-提示: 作者被禁止或删除 内容自动屏蔽
+ 本帖最后由 JudgmentEye 于 2023-2-9 11:02 编辑 
+
+确认了，有简繁中文
+
+<img src="https://img.saraba1st.com/forum/202302/09/110155zzq22t9qq205ij8w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 11:01 上传
+
+<img src="https://img.saraba1st.com/forum/202302/09/105852bilsooviqqrvfeqv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (95.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-2-9 10:58 上传
+
 
 *****
 
@@ -802,12 +876,16 @@ IP不在自己手上就别重制了
 
 现在鲸腹这种全系列销量加起来都打不过XSEP1的玩意都能出来，SBGI还有借口不
 
+
 *****
 
 ####  JudgmentEye  
 ##### 87#       发表于 2023-2-9 11:13
 
-提示: 作者被禁止或删除 内容自动屏蔽
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59673300&amp;ptid=2115429" target="_blank">培根芝士蛋堡XD 发表于 2023-2-9 11:08</a>
+
+真不太了解这个游戏，有没有人讲讲这游戏为什么会在万南和老任眼里有高清重置的价值 ...</blockquote>
+外包hd remaster一下又不花多少钱
 
 *****
 
@@ -823,7 +901,7 @@ IP不在自己手上就别重制了
 ####  JudgmentEye  
 ##### 89#       发表于 2023-2-9 11:22
 
-提示: 作者被禁止或删除 内容自动屏蔽
+我觉得拔天海拓史更难听
 
 *****
 
@@ -846,6 +924,7 @@ IP不在自己手上就别重制了
 ##### 92#       发表于 2023-2-9 11:23
 
 拔天海拓史也没好到哪里去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
 
 *****
 
@@ -876,6 +955,7 @@ IP不在自己手上就别重制了
 
 wiiu的遗产也就TP和TWW还有XBX了，干脆移植得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
 *****
 
 ####  qiyu1234  
@@ -889,29 +969,6 @@ wiiu的遗产也就TP和TWW还有XBX了，干脆移植得了<img src="https://st
 之前那次原田胖子提到XS都是19年之前的事情了，大概是万南自己做觉得划不来
 
 现在市场情况变了，又能找任氏牵线，也许XS重制已经在路上了
-
-*****
-
-####  亚瑟摩根  
-##### 97#         楼主| 发表于 2023-3-24 13:56
-
-更新一下
-
-国外chithot 说游戏将于6月30日发售，已经可以预定了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-*****
-
-####  孔祈  
-##### 98#       发表于 2023-6-20 13:11
-
-9月14日发售，现已能预购了
-
-*****
-
-####  clstc  
-##### 99#       发表于 2023-6-20 13:42
-
-当年GC上玩，纯日文，攻略还少，累得不行，预约了补个票
 
 *****
 
@@ -1331,3 +1388,466 @@ https://al-gest.com/batenkaitos/baten-change/
 
 片头动画怎么是英文的，简体和繁体都是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  亚瑟摩根  
+##### 97#         楼主| 发表于 2023-3-24 13:56
+
+更新一下
+
+国外chithot 说游戏将于6月30日发售，已经可以预定了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔祈  
+##### 98#       发表于 2023-6-20 13:11
+
+9月14日发售，现已能预购了
+
+*****
+
+####  clstc  
+##### 99#       发表于 2023-6-20 13:42
+
+当年GC上玩，纯日文，攻略还少，累得不行，预约了补个票
+
+*****
+
+####  亚瑟摩根
+##### 97#         楼主| 发表于 2023-3-24 13:56
+
+更新一下
+
+国外chithot 说游戏将于6月30日发售，已经可以预定了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔祈
+##### 98#       发表于 2023-6-20 13:11
+
+9月14日发售，现已能预购了
+
+*****
+
+####  clstc
+##### 99#       发表于 2023-6-20 13:42
+
+当年GC上玩，纯日文，攻略还少，累得不行，预约了补个票
+
+*****
+
+####  alex2092
+##### 100#       发表于 2023-6-20 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">XBX呢
+
+*****
+
+####  lion_or_judas
+##### 101#       发表于 2023-6-20 14:17
+
+按财团B的尿性，大概率港版独占中文，但是港版没有实体，而且我没有港版账号<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wyy123
+##### 102#       发表于 2023-6-20 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61356360&amp;ptid=2115429" target="_blank">lion_or_judas 发表于 2023-6-20 14:17</a>
+
+按财团B的尿性，大概率港版独占中文，但是港版没有实体，而且我没有港版账号 ...</blockquote>
+ns账号全服，网页上随便切换
+
+*****
+
+####  duraa
+##### 103#       发表于 2023-6-20 16:41
+
+再注册一个港服号就行了
+
+*****
+
+####  seize1121
+##### 104#       发表于 2023-6-20 16:44
+
+希望日版带中文，不想买下载版
+
+*****
+
+####  liekong
+##### 105#       发表于 2023-6-20 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59673713&amp;ptid=2115429" target="_blank">亚瑟摩根 发表于 2023-2-9 11:27</a>
+
+不出xeonsaga也还好，不出xbxde我是想不通
+
+wiiu的遗产也就TP和TWW还有XBX了，干脆移植得了 ...</blockquote>
+这个时间节点了，估计是留给新机了
+
+*****
+
+####  vmon
+##### 106#       发表于 2023-6-20 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能用卷吗。。。。
+
+*****
+
+####  医生狼多
+##### 107#       发表于 2023-7-2 14:49
+
+【《拔天海拓史 Ⅰ・Ⅱ HD Remaster》最新宣传片公开 9月14日发售】在今日的万代南梦宫展示会上，公开了《#拔天海拓史# Ⅰ・Ⅱ HD Remaster》的最新宣传片。该作将于9月14日发售，登陆NS平台，支持简体中文。
+
+《拔天海拓史》是《异度神剑》系列团队Monolith Soft 制作、万代南梦宫发行，2003 年12 月在Nintendo GameCube 平台问世的角色扮演游戏，描写不同时代的两名少年在名为「Baten Kaitos（名称来自鲸鱼座恒星天仓四，阿拉伯语“海怪之腹” 的意思）」的浮游大陆舞台所展开的冒险。
+
+本次预定推出的《拔天海拓史I・II HD Remaster》将完整收录《拔天海拓史：永恒之翼与失落之海》以及续作《拔天海拓史2：创始之翼与诸神之子》两款作品的内容，画面配合Nintendo Switch 翻新为高解析度，追加游戏速度变更、取消遇敌、自动战斗、自动存档、协助功能、NEW GAME+/- 等便利游玩的功能。 http://t.cn/A6prQ8Ga
+
+*****
+
+####  sslink
+##### 108#       发表于 2023-8-26 14:13
+
+怨气很大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/26/141249xqofiixzvz56w9fs.png" referrerpolicy="no-referrer">
+
+<strong>20230826141043.png</strong> (19.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-26 14:12 上传
+
+*****
+
+####  spicecoco1109
+##### 109#       发表于 2023-8-28 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62172482&amp;ptid=2115429" target="_blank">sslink 发表于 2023-08-26 14:13:05</a>
+怨气很大啊</blockquote>啥意思？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  山高帽男
+##### 110#       发表于 2023-8-28 08:56
+
+<blockquote>spicecoco1109 发表于 2023-8-28 07:47
+啥意思？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+  感谢现在同意移植的万代南梦宫有关人士。但是当年某些南梦宫领导（现已退隐）不肯批准续作，还把游戏喷成垃圾，自己至今耿耿于怀
+
+*****
+
+####  飞侠小黑
+##### 111#       发表于 2023-8-28 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62191307&amp;ptid=2115429" target="_blank">山高帽男 发表于 2023-8-28 08:56</a>
+
+感谢现在同意移植的万代南梦宫有关人士。但是当年某些南梦宫领导（现已退隐）不肯批准续作，还把游戏喷成 ...</blockquote>
+这话说的也太直白了吧，感觉很不日本人啊
+
+*****
+
+####  oskneo
+##### 112#       发表于 2023-8-28 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62172482&amp;ptid=2115429" target="_blank">sslink 发表于 2023-8-26 14:13</a>
+怨气很大啊</blockquote>
+说得太狠到时候xs怎么办。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mjzs07
+##### 113#       发表于 2023-8-28 09:22
+
+这个能用券吗
+
+*****
+
+####  iewnay
+##### 114#       发表于 2023-8-28 09:33
+
+港服好贵哇399<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+过几个月看看会不会有优惠。
+
+*****
+
+####  葵
+##### 115#       发表于 2023-8-28 09:48
+
+淘宝溜达了一圈，这游戏实体版是只有日版的？不带中文么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lion_or_judas
+##### 116#       发表于 2023-8-28 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62191909&amp;ptid=2115429" target="_blank">葵 发表于 2023-8-28 09:48</a>
+
+淘宝溜达了一圈，这游戏实体版是只有日版的？不带中文么？</blockquote>
+应该不带，我觉得大B对着游戏销量也不上心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eaglu
+##### 117#       发表于 2023-8-28 16:43
+
+中文只有港版吧，港版没卡带
+
+*****
+
+####  Adam0_0
+##### 118#       发表于 2023-9-2 13:31
+
+港版没卡带?
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由
+##### 119#       发表于 2023-9-2 13:36
+
+亚洲版只有英文卡带
+
+*****
+
+####  pf67
+##### 120#       发表于 2023-9-13 14:10
+
+这港服价格比日服的要贵80多.....要中文你还没得选
+
+这就是中文翻译费么？
+
+
+*****
+
+####  葵
+##### 121#       发表于 2023-9-13 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62266667&amp;ptid=2115429" target="_blank">那由 发表于 2023-9-2 13:36</a>
+
+亚洲版只有英文卡带</blockquote>
+也就是说没有任何有带中文的实体卡带喽？也是服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铁甲钢弹
+##### 122#       发表于 2023-9-14 08:45
+
+早上看eshop已经出了，有没有玩上的群友说说本地化水平咋样的？
+
+*****
+
+####  mjzs07
+##### 123#       发表于 2023-9-14 08:48
+
+香港人做翻译我很放心
+
+*****
+
+####  mjzs07
+##### 124#       发表于 2023-9-14 08:48
+
+香港人做翻译我很放心
+
+*****
+
+####  亚瑟摩根
+##### 125#         楼主| 发表于 2023-9-14 15:53
+
+看了看今天发售了
+
+俺也把标题改成官方译名了
+
+霸天开拓史应该退下历史舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  richardkisser
+##### 126#       发表于 2023-9-14 16:02
+
+不知道狗代啥时候会打折，很想玩，399港币有点顶不住
+
+*****
+
+####  wyy123
+##### 127#       发表于 2023-9-14 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62403697&amp;ptid=2115429" target="_blank">richardkisser 发表于 2023-9-14 16:02</a>
+
+不知道狗代啥时候会打折，很想玩，399港币有点顶不住</blockquote>
+ps4版的仙乐传说一直在收藏夹里，上市7个月了，至今还没打过折。
+
+*****
+
+####  八神
+##### 128#       发表于 2023-9-14 21:37
+
+港服打折一向最慢，日服打折后，起码还要半年才跟进，甚至日服8折了，港服还好意思五折
+
+*****
+
+####  Masque
+##### 129#       发表于 2023-9-15 09:53
+
+听说有一击必杀、回避遇怪等便捷功能真的好想入手玩玩，可惜没有中文实体。既然数字版都有中文，加入到实体有这么难么。
+
+—— 來自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  richardkisser
+##### 130#       发表于 2023-9-15 10:22
+
+昨晚还是入了，优化有问题，切场景和有云雾时会掉帧，我都怀疑是不是内置了个ngc模拟器，狗万南是真的拉。不过算了，当给xg投资了。
+
+*****
+
+####  richardkisser
+##### 131#       发表于 2023-9-15 10:23
+
+<blockquote>richardkisser 发表于 2023-9-15 10:22
+昨晚还是入了，优化有问题，切场景和有云雾时会掉帧，我都怀疑是不是内置了个ngc模拟器，狗万南是真的拉。 ...</blockquote>
+更正 xs
+
+*****
+
+####  kinfox
+##### 132#       发表于 2023-9-15 10:25
+
+昨天打了几小时，翻译的水平很满意，有一击必杀和不遇敌等功能方便的一笔，打起来也轻松愉快  而且真的好浓的异度味道，  这个投资的钱我还是花的很值得的  （音乐偶尔会卡顿一下，怀疑真的是内置模拟器……
+
+*****
+
+####  wyy123
+##### 133#       发表于 2023-9-15 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62389708&amp;ptid=2115429" target="_blank">pf67 发表于 2023-9-13 14:10</a>
+
+这港服价格比日服的要贵80多.....要中文你还没得选
+
+这就是中文翻译费么？ ...</blockquote>
+汇率问题，日元贬值，港币升值了。
+
+*****
+
+####  铁甲钢弹
+##### 134#       发表于 2023-9-16 09:27
+
+昨天玩了一会儿，这节奏也太慢了。对个话得切两次画面，时不时还有点掉帧。开篇1小时就出现一个翻译不全的地方（使用R按键切换右方目标）。直接玩到昏睡了。
+
+*****
+
+####  saico
+##### 135#       发表于 2023-9-19 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62413972&amp;ptid=2115429" target="_blank">kinfox 发表于 2023-9-15 10:25</a>
+
+昨天打了几小时，翻译的水平很满意，有一击必杀和不遇敌等功能方便的一笔，打起来也轻松愉快  而且真的好浓 ...</blockquote>
+肯定是内置模拟器了，卡得效果跟我以前用老电脑跑模拟器一模一样，不知原版是不是这样
+
+另外，虽然加了官方老金不遇敌一击杀自动战斗和倍速，但由于游戏机制，战斗默认速度拖沓但开倍速基本没法玩，只能搭配自动战斗用，但这自动战斗弱智啊，俩低hp角色到死都拼命给满血角色加血，我佛了……然后这游戏主要赚钱方式是给敌人拍照片卖，AI就只会自拍……
+
+*****
+
+####  三级怪兽
+##### 136#       发表于 2023-9-19 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62413527&amp;ptid=2115429" target="_blank">Masque 发表于 2023-9-15 09:53</a>
+
+听说有一击必杀、回避遇怪等便捷功能真的好想入手玩玩，可惜没有中文实体。既然数字版都有中文，加入到实体 ...</blockquote>
+bn亚服卖语言不是老手了吗，而且现阶段只要销量预期低港服就大概率没实体
+
+*****
+
+####  新HGCG
+##### 137#       发表于 2023-9-28 21:01
+
+1代一开始问你性别和名字，有啥用？
+
+*****
+
+####  新HGCG
+##### 138#       发表于 2023-10-1 18:12
+
+那啥
+
+用武器防御的前提是必须出一张防具卡在前，否则就算选了武器也不能防御？
+
+另外音乐是XB1代的人么，新手村有股XB的感觉
+
+*****
+
+####  1140494429
+##### 139#       发表于 2023-10-2 00:21
+
+<blockquote>新HGCG 发表于 2023-10-1 18:12
+那啥
+
+用武器防御的前提是必须出一张防具卡在前，否则就算选了武器也不能防御？
+
+另外音乐是XB1代的人么，新 ...</blockquote>
+武器在2连击及之后只有才有防御力
+
+*****
+
+####  1140494429
+##### 140#       发表于 2023-10-2 00:22
+
+<blockquote>新HGCG 发表于 2023-10-1 18:12
+那啥
+
+用武器防御的前提是必须出一张防具卡在前，否则就算选了武器也不能防御？
+
+另外音乐是XB1代的人么，新 ...</blockquote>
+连选两张武器也可以，不过第一张就费掉了
+
+*****
+
+####  慕容断月
+##### 141#       发表于 2023-10-2 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62586375&amp;ptid=2115429" target="_blank">新HGCG 发表于 2023-10-1 18:12</a>
+
+那啥
+
+用武器防御的前提是必须出一张防具卡在前，否则就算选了武器也不能防御？
+
+另外音乐是XB1代的人么，新 ...</blockquote>
+音乐是樱庭统，传说跟星海那边的
+
+*****
+
+####  新HGCG
+##### 142#       发表于 2023-10-2 19:16
+
+谢谢
+
+然后我打着打着怎么附魔的火属性冰属性剑没有了？
+
+*****
+
+####  1140494429
+##### 143#       发表于 2023-10-3 19:02
+
+<blockquote>新HGCG 发表于 2023-10-2 19:16
+谢谢
+
+然后我打着打着怎么附魔的火属性冰属性剑没有了？</blockquote>
+火剑在游戏时间一个小时后会变成最普通的短剑，这是游戏中的时间流逝系统。
+
+这是所有会时间流逝的物品列表
+
+https://al-gest.com/batenkaitos/baten-change/
+
+*****
+
+####  夜_乌鸦
+##### 144#       发表于 2023-10-18 13:34
+
+片头动画怎么是英文的，简体和繁体都是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">

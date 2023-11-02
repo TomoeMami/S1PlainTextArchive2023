@@ -1807,3 +1807,795 @@ steam社区也有全宝箱全收集攻略，白金攻略还有滚球谜题攻略
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  治丧委  
+##### 179#       发表于 2023-9-3 21:41
+
+在玩之前我觉得过载条这个系统蛮有意思的，通过卡资源限制玩家不要复读技能，解决回合制套路化之后无聊的问题。实际玩上之后发现不是这样。
+
+第一，技能选择项还是没有变，过载之后甚至只能平A、防御，反而更无聊了。前期的绿条区间收益也没有那么大，后期还没玩到。
+
+第二，进入过载后，平a、防御两三个回合无法快速绿条区间，遇到两次直接超载后tp用完超载到死的。只能感受到沮丧。
+
+这个过载条对于回合制的节奏调整很难说是特别正面的。尤其我刚刚玩完八方2，八方使用bp是主动透支，是一种快速获取快速增强的得到感。锁链回声的过载条更给我一种处处与我的最优策略逆向的阻滞感。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 180#       发表于 2023-9-3 23:02
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2023-9-3 23:04 编辑 
+
+为了星之海搞了XGP，听说雷了就转向这作。
+
+到了最终BOSS本来想看一眼就回头刷刷刷，结果是三连战，到了第三战不想重新打就硬着头皮继续，还好没那么难让我过了。
+
+回合制的连战真是糟粕，我最多只能接受两连<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+临发售时在B站看见这游戏的视频，但知道没中文后就没把这作挂心上，过了宣发期后再也没在B站刷到这游戏的视频，直接查无此游。
+
+总的来说是不错的RPG，剧情比起近年的JRPG简直神了，没首发中文真的很吃亏。
+
+
+*****
+
+####  治丧委  
+##### 181#       发表于 2023-9-3 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62281873&amp;ptid=2139422" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-9-3 23:02</a>
+ 为了星之海搞了XGP，听说雷了就转向这作。 到了最终BOSS本来想看一眼就回头刷刷刷，结果是三连战，到了第三 ...</blockquote>
+打了大概多少小时
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 182#       发表于 2023-9-3 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62281936&amp;ptid=2139422" target="_blank">治丧委 发表于 2023-9-3 23:08</a>
+
+打了大概多少小时</blockquote>
+40小时。经常挂机，没买提示同伴不齐，支线只做地图有提示的，后期宝箱里都是强度有认真去找。
+
+
+*****
+
+####  evaqyqx  
+##### 183#       发表于 2023-9-4 01:56
+
+现在可以玩了吗   翻译什么的还会更新么？
+
+*****
+
+####  碎月  
+##### 184#       发表于 2023-9-4 02:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">昨天刚打通，心中久久不能平静
+
+
+*****
+
+####  liangbo103  
+##### 185#       发表于 2023-9-4 02:10
+
+现在eshop巴西服打折50多，没买的可以入手了
+
+
+*****
+
+####  tsukicn  
+##### 186#       发表于 2023-9-6 15:33
+
+好离谱啊，主角跟那个大叔，记得开头主角卧床的时候，说什么要改变这个世界，把xx从贵族手中收回，还人民自由blabla。
+
+然后没多久要逃离的时候，发现个杀人越货的贵族，就教训了顿（而且选择分支的时候，这个大叔还说我帮你，你帮我云云，我选的主角开打），然后说没时间管他，就走了？？？我还以为会像开头侍卫审问的时候一样，一刀砍了了事呢
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 187#       发表于 2023-9-6 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62312300&amp;ptid=2139422" target="_blank">tsukicn 发表于 2023-9-6 15:33</a>
+
+好离谱啊，主角跟那个大叔，记得开头主角卧床的时候，说什么要改变这个世界，把xx从贵族手中收回，还人民自 ...</blockquote>
+大叔是商人，在这个世界观不知为何被人看不起，真是贵族当初不把半个街区的人都吊了
+
+*****
+
+####  tsukicn  
+##### 188#       发表于 2023-9-6 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62312338&amp;ptid=2139422" target="_blank">Dai-Dai-Dai-Dai 发表于 2023-9-6 15:35</a>
+
+大叔是商人，在这个世界观不知为何被人看不起，真是贵族当初不把半个街区的人都吊了 ...</blockquote>
+我刚刚开始玩，只打到这边，感觉有点割裂
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 189#       发表于 2023-9-6 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62312378&amp;ptid=2139422" target="_blank">tsukicn 发表于 2023-9-6 15:38</a>
+
+我刚刚开始玩，只打到这边，感觉有点割裂</blockquote>
+不久前雨城屋顶那段大叔简直把“我要跳反“写脸上，动机铺垫给足。
+
+
+*****
+
+####  shinnfin  
+##### 190#       发表于 2023-9-6 17:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">额  翻译真的有点一言难尽
+饰品也没有解释用途
+全部   “一件饰品”
+
+
+*****
+
+####  nervpp  
+##### 191#       发表于 2023-9-6 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62312378&amp;ptid=2139422" target="_blank">tsukicn 发表于 2023-9-6 15:38</a>
+
+我刚刚开始玩，只打到这边，感觉有点割裂</blockquote>
+基里安吗？本身就是佣兵出身拉，谁给的多跟谁干，一直也是唯利是图的逻辑。然后看到重大利好，跳反倒是不意外，前期我一直把他做辅助来用，走了之后一时间没有buff手了
+
+
+*****
+
+####  88is88  
+##### 192#       发表于 2023-9-6 18:59
+
+基里安不是佣兵，是佣兵团的雇主，有点小钱的小贵族，因为xxx，认识到世界并非如他想象般平和和自身的无力后希望改变世界，让弱小也能存活，但为达目的不惜当三姓家奴，甚至xxxx，最后他的结局也让我意外，是一个刻画不错的角色
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+*****
+
+####  shinnfin  
+##### 193#       发表于 2023-9-7 07:39
+
+<img src="https://p.sda1.dev/13/9635de75d6f04a60b7fb87e294c6c5b9/CMP_20230907073857602.jpg" referrerpolicy="no-referrer">
+想上去看看饰品说明  结果<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 194#       发表于 2023-9-7 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62313613&amp;ptid=2139422" target="_blank">shinnfin 发表于 2023-9-6 17:19</a>
+
+额  翻译真的有点一言难尽
+
+饰品也没有解释用途
+
+全部   “一件饰品”</blockquote>
+饰品名字后带*的，按select键可看特殊效果。
+
+
+*****
+
+####  otakun  
+##### 195#       发表于 2023-9-7 08:30
+
+饰品只看*带的特效，有没的只加面板
+
+*****
+
+####  治丧委  
+##### 196#       发表于 2023-9-10 21:53
+
+这游戏人物没有等级，技能解锁靠打 BOSS 掉技能点来点亮，BOSS 出现靠剧情推进。也就是说，这个游戏基本在战斗和玩法上没什么玩家选择的空间，人物养成空间非常小。
+
+
+*****
+
+####  Meltina  
+##### 197#       发表于 2023-9-11 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62281021&amp;ptid=2139422" target="_blank">治丧委 发表于 2023-9-3 21:41</a>
+
+在玩之前我觉得过载条这个系统蛮有意思的，通过卡资源限制玩家不要复读技能，解决回合制套路化之后无聊的问 ...</blockquote>
+是不怎样，中期主角有个技能是直接降过载，基本主角就必上了，而且也没什么可以干的，就不停放这个
+
+比起人类战斗，机器人的过载更无聊
+
+*****
+
+####  Meltina  
+##### 198#       发表于 2023-9-11 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62313613&amp;ptid=2139422" target="_blank">shinnfin 发表于 2023-9-6 17:19</a>
+
+额  翻译真的有点一言难尽
+
+饰品也没有解释用途
+
+全部   “一件饰品”</blockquote>
+按Y键显示功能
+
+按我做过一点汉化的经验……通常这种不是翻译的锅
+
+*****
+
+####  Meltina  
+##### 199#       发表于 2023-9-11 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62358902&amp;ptid=2139422" target="_blank">治丧委 发表于 2023-9-10 21:53</a>
+
+这游戏人物没有等级，技能解锁靠打 BOSS 掉技能点来点亮，BOSS 出现靠剧情推进。也就是说，这个游戏基本在 ...</blockquote>
+人物养成主要靠技能的升级、舔地图宝箱和宝石系统。
+
+技能升级是可以靠刷的（也就是传统的练级），但只为通关关系不大建议不要去刷
+
+舔地图是相对来说比较有意思的也是游戏设计的重点，地图通常能开出比你现在进度要好一点的武器，但后期机器人舔图飞得太快我用deck玩眼睛很难受，也放弃了
+
+宝石系统是养成核心，但因为操作做得太傻逼大家都不想花心思搞，其实随便搞一下就可以明显变强了
+
+
+*****
+
+####  治丧委  
+##### 200#       发表于 2023-9-11 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62360604&amp;ptid=2139422" target="_blank">Meltina 发表于 2023-9-11 00:59</a>
+
+人物养成主要靠技能的升级、舔地图宝箱和宝石系统。
+
+技能升级是可以靠刷的（也就是传统的练级），但只为通 ...</blockquote>
+不太懂他做得这么隐性和分散是为啥，给人一种错觉：打小怪的收益基本等于没有。
+
+
+*****
+
+####  IlldianX  
+##### 201#       发表于 2023-9-11 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62364321&amp;ptid=2139422" target="_blank">治丧委 发表于 2023-9-11 12:04</a>
+
+不太懂他做得这么隐性和分散是为啥，给人一种错觉：打小怪的收益基本等于没有。 ...</blockquote>
+奖励显得分散主要还是因为没有人物等级的概念吧，所以人物各方面强度的提升没有一个集中的展示，这儿变强一点那儿变强一点确实不如人物等级升1级直观。
+
+奖励显得隐性可能是刻意的设计。可以感觉到作者很重要的一个目标就是主线流程的顺滑，推图来回探索的过程中尽量减少干扰，所以特意设计成不换大地图，怪就不会重生，小怪打一遍只就可以顺利通关，经验和素材足够核心技能满级以及换商人装备包。而如果打小怪体感收益特别高，玩家就会有反复刷怪甚至是反复刷某几种特定怪的需求，那么就需要使怪重生的机制变得适合刷，产生了矛盾。
+
+这游戏除了音乐之外全是一个人做的，人物养成特别是数值部分简陋，小怪战斗的收益设计空间本身就比较有限，有这些问题也情有可原。其实技能升级给的伤害倍率提升或者buff回合数提升收益挺高的，也只有这一个途径获取，只要做成战斗结算时中间一个大方框提示技能自动升级，怪物素材换商人装备包也可以战斗结算时给提示，就有存在感了(当然这样和手动分配经验升级技能有点矛盾)。
+
+
+*****
+
+####  cym887  
+##### 202#       发表于 2023-9-11 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个热度设定太**了
+
+
+*****
+
+####  Meltina  
+##### 203#       发表于 2023-9-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62364321&amp;ptid=2139422" target="_blank">治丧委 发表于 2023-9-11 12:04</a>
+
+不太懂他做得这么隐性和分散是为啥，给人一种错觉：打小怪的收益基本等于没有。 ...</blockquote>
+其实没有收益挺好的，就可以不打了。这才是现代的游戏。
+
+
+*****
+
+####  Mephisto  
+##### 204#       发表于 2023-9-12 09:25
+
+宝石很强的，堆暴击爆伤回血人均战撸，和玩暗黑破坏神似的
+
+
+*****
+
+####  linc555  
+##### 205#       发表于 2023-9-12 10:53
+
+不行，我已经老了
+就算知道后面有好东西，这种不符合直觉的战斗系统我也坚持不下去
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  开始睡觉睡觉  
+##### 206#       发表于 2023-9-12 17:55
+
+结局怎么说呢 感觉有一部分人会无法接受
+
+
+*****
+
+####  gold013  
+##### 207#       发表于 2023-9-12 20:36
+
+目前刚打完第一大章，几乎不用买商店里的武器，路上捡到啥用啥，和武器店里的档次几乎持平。战斗还挺折磨的，海底洞穴去修道院最后那个变属性的boss，又要考虑回血，又要考虑打属性攻击。反倒是矿车战挺有意思的，眼前一亮？
+
+第二章一开始，莫名其妙收了个羊头队友，技能全靠吃怪来学，颇有些青魔的既视感。那个奖励板打得很烦躁，又担心哪里错过回不来。剧情上感觉还算流畅，而且很多地方值得细想，但是诗人老头从雨都开始观感一路下降，各种藏着掖着。
+
+
+*****
+
+####  Meltina  
+##### 208#       发表于 2023-9-12 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62381908&amp;ptid=2139422" target="_blank">gold013 发表于 2023-9-12 20:36</a>
+
+目前刚打完第一大章，几乎不用买商店里的武器，路上捡到啥用啥，和武器店里的档次几乎持平。战斗还挺折磨的 ...</blockquote>
+1. <strong>战斗速度</strong>切换：手柄按L2切换，键盘操作按L切换
+
+2. 战斗要搞了一些宝石和大家的全体攻击出来了才比较爽快
+
+3. 矿车战致敬FF6的同时也算做得很有意思了，可惜后面没有这样的了
+
+4. 羊头算是个支线角色
+
+5. 奖励板以后随时回来搞
+
+6. 诗人老头，呃，爵士很后面才会解释藏着掖着的理由，个人觉得还算是讲得通的
+
+
+*****
+
+####  skgaminger1988  
+##### 209#       发表于 2023-9-12 22:04
+
+这游戏地图真的折磨，梯子和背景都糊在一起，搞得根本不想探索<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinnfin  
+##### 210#       发表于 2023-9-13 08:13
+
+大部分时间都在找宝箱<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  厄斯沃穆  
+##### 211#       发表于 2023-9-13 21:31
+
+打了几小时感觉翻译乱七八糟的，是不是民间汉化比官中更好点？
+
+
+*****
+
+####  IlldianX  
+##### 212#       发表于 2023-9-14 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62395053&amp;ptid=2139422" target="_blank">厄斯沃穆 发表于 2023-9-13 21:31</a>
+打了几小时感觉翻译乱七八糟的，是不是民间汉化比官中更好点？</blockquote>
+民间汉化已经停止更新了，新版本应该是用不了了。
+
+
+*****
+
+####  skgaminger1988  
+##### 213#       发表于 2023-9-15 13:30
+
+这个奖励版真是给人玩吐了要，回头去收集怪都找不到，图鉴里也不写具体位置<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shinnfin  
+##### 214#       发表于 2023-9-15 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62416470&amp;ptid=2139422" target="_blank">skgaminger1988 发表于 2023-9-15 13:30</a>
+这个奖励版真是给人玩吐了要，回头去收集怪都找不到，图鉴里也不写具体位置 ...</blockquote>
+独特怪的位置都在npc的提示里
+加入了公会后就有   
+
+
+*****
+
+####  skgaminger1988  
+##### 215#       发表于 2023-9-15 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62416752&amp;ptid=2139422" target="_blank">shinnfin 发表于 2023-9-15 13:59</a>
+独特怪的位置都在npc的提示里
+加入了公会后就有</blockquote>
+不是 普通怪找不到了，美杜莎毒蛇给我找麻了，明明图鉴里有说明我见过它才对
+
+
+*****
+
+####  skgaminger1988  
+##### 216#       发表于 2023-9-15 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62417313&amp;ptid=2139422" target="_blank">skgaminger1988 发表于 2023-9-15 14:46</a>
+不是 普通怪找不到了，美杜莎毒蛇给我找麻了，明明图鉴里有说明我见过它才对 ...</blockquote>
+艹了，reddit看了下要步行才会出来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shangfire  
+##### 217#       发表于 2023-9-15 15:15
+
+玩完了回头看，也就那个之前楼里有人提到的“一世罪孽用几世来偿还到底能不能抵消”的命题让人有点印象
+再一个就是大部分地图可以升空探索这一点在2d游戏上比较少见，其他游戏至多是小部分地图可以升空探索，作者确实花心思了的
+
+
+*****
+
+####  gold013  
+##### 218#       发表于 2023-9-17 08:43
+
+刚刚结束第三章，第三章结尾这段剧情演出非常不错，男主奔溃这段堪比“我的王之力！”给我的震撼。甚至脑补日式3D化预告片一定把这一幕放在最开始。
+
+剧情上来说，二五仔终于迎来了新的转折，基本上算是意料之中。教会的降临派似乎之前没什么铺垫？也可能是我看漏了剧情。
+
+另外机铠突袭是不是有什么诅咒，开篇男主突袭被击落，之后肥将军突袭被击落，现在二五仔突袭被击落，难道是为了把游戏里防空火力这个设定合理化？
+
+战斗方面，个人感觉似乎每一章如果能做到当前最高星武器全收集，然后全强化的话，战斗应该不难，如果有水晶，那更是锦上添花。之前我自己打得折磨可能是因为我没好好强化？
+
+诗人老头谜语人的原因我基本上也能接受，支线的魔女竟然来主线帮忙，不知道如果没做那个支线会如何。
+
+
+*****
+
+####  skgaminger1988  
+##### 219#       发表于 2023-9-17 10:23
+
+这游戏我是真服了，作者明显是想把刷水晶当做后期内容来填充的吧，结果又给水晶整个刷新cd，刷都刷不尽兴，啥意思嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hootao  
+##### 220#       发表于 2023-9-17 13:05
+
+建议水晶直接换钱，看都别看。前期水晶没你需要，后期水晶你不需要。我打隐藏BOSS前才把之前身上攒的水晶拿出来合成，结果想要的专精水晶连一个5星都没凑上
+
+
+*****
+
+####  gold013  
+##### 221#       发表于 2023-9-17 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62434049&amp;ptid=2139422" target="_blank">skgaminger1988 发表于 2023-9-17 10:23</a>
+
+这游戏我是真服了，作者明显是想把刷水晶当做后期内容来填充的吧，结果又给水晶整个刷新cd，刷都刷不尽兴， ...</blockquote>
+第二大章节开始就有个固定刷水晶的岛，上面都是水晶，每30分钟CD来一次。
+
+*****
+
+####  gold013  
+##### 222#       发表于 2023-9-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62435435&amp;ptid=2139422" target="_blank">hootao 发表于 2023-9-17 13:05</a>
+
+建议水晶直接换钱，看都别看。前期水晶没你需要，后期水晶你不需要。我打隐藏BOSS前才把之前身上攒的水晶拿 ...</blockquote>
+结社招募的NPC里，有个能够让水晶只出单一种类的人，这个大概要等到第三大章节结束之后才能招募。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 223#       发表于 2023-9-17 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62433522&amp;ptid=2139422" target="_blank">gold013 发表于 2023-9-17 08:43</a>
+刚刚结束第三章，第三章结尾这段剧情演出非常不错，男主奔溃这段堪比“我的王之力！”给我的震撼。甚至脑补 ...</blockquote>
+那段前会提示你做魔女支线，不做不让推进主线
+
+
+*****
+
+####  gold013  
+##### 224#       发表于 2023-9-17 15:56
+
+<blockquote>Dai-Dai-Dai-Dai 发表于 2023-9-17 15:33
+那段前会提示你做魔女支线，不做不让推进主线</blockquote>
+原来如此，难怪后面还入队了。感觉每个支线都挺重要的，要么和隐藏道具/BOSS有关，要么和主线有强关联。不过有不少内容还是要看剧情才能推进，比如哥布林支线的后续。
+
+
+*****
+
+####  hootao  
+##### 225#       发表于 2023-9-17 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62435692&amp;ptid=2139422" target="_blank">gold013 发表于 2023-9-17 13:46</a>
+结社招募的NPC里，有个能够让水晶只出单一种类的人，这个大概要等到第三大章节结束之后才能招募。 ...</blockquote>
+不自虐的话，隐藏boss也撑不住你两轮各种BUFF猴戏叠满的元素天堂心眼暴击。这游戏系统就不适合磨血消耗战，只要本方全灭前堆够BUFF，输出下来打谁都是秒，水晶的加成可有可无
+
+
+*****
+
+####  skgaminger1988  
+##### 226#       发表于 2023-9-18 12:56
+
+ 本帖最后由 skgaminger1988 于 2023-9-18 13:03 编辑 
+
+坏了，现有的兑换买完了发现成就没解锁，又得一个一个对交易列表，开什么玩笑要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  治丧委  
+##### 227#       发表于 2023-9-18 23:31
+
+32h 通关了。
+
+只说缺点的话：
+
+感觉某个关键角色塑造得实在太差，以至于结局的安排，挺虚无主义的，不是很喜欢 -1 分。
+
+天铠战斗完全靠配装，打起来很无聊。
+
+优点的话，bgm 还不错，有些章节和地图作为单人独立游戏来说，甚至很奢侈了。包括开始几章，给盗贼、作家单独搞的几个小游戏等等。
+
+
+*****
+
+####  治丧委  
+##### 228#       发表于 2023-9-18 23:43
+
+另外，剧透反白但是有疑问，先驱者的故事通关以后，没有了吗？我看是返回到了打最终 BOSS 前，是要搞第二部再揭晓，还是说我漏了什么
+
+
+*****
+
+####  gold013  
+##### 229#       发表于 2023-9-20 17:00
+
+终于打完了，由于挂机时间比较多，再加上补全奖励板的内容，一共60小时。
+
+作者很懂二次元，就我云通关最近的《星之海》而言，锁链回声比星之海高了一个罪恶王冠的二次元浓度。
+
+结尾男主的选择，感觉更多是基于自由，不仅是出人头地的自由，更是能够选择放弃的自由。也因此，我认为女主更多是因为尊重男主的选择，而对于某人释怀。关于“真王”，感觉涅沙支线里女学者提到的书王明显是为了结局故意误导。
+
+说到作者的二次元浓度，女主的哥哥，还有手下的女武神，无论人设还是头像，都像是从皇骑2里面拉出来的。另外我还看到了骑着红色裂空座的骑士等等，无论是玩梗，还是剧情细节都很够味。
+
+音乐耐听的有好几首，不过刷刷刷的过程依旧有些烦躁，万分感谢平原五猪为刷技能点提供的贡献。
+
+过载条感觉就是为了让玩家别拖太久，所以掌握贴正负buff一刀秒的技巧后，才算真正理解作者意图？
+
+我奖励板全154个连锁都做完了为啥不跳成就？
+
+
+*****
+
+####  otakun  
+##### 230#       发表于 2023-9-20 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62471937&amp;ptid=2139422" target="_blank">gold013 发表于 2023-9-20 17:00</a>
+终于打完了，由于挂机时间比较多，再加上补全奖励板的内容，一共60小时。
+
+作者很懂二次元，就我云通关最近 ...</blockquote>
+说到二次元浓度，自己第一次换机甲看到巴巴托斯时直接喷了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，拿大剑还是矛锤造型
+
+
+*****
+
+####  gold013  
+##### 231#       发表于 2023-9-20 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62472565&amp;ptid=2139422" target="_blank">otakun 发表于 2023-9-20 17:47</a>
+
+说到二次元浓度，自己第一次换机甲看到巴巴托斯时直接喷了，拿大剑还是矛锤造型 ...</blockquote>
+我目前版本大概是BUG，大剑的外形和剑盾的造型一样，不过我在看别人的攻略时看到过，确实很铁血
+
+*****
+
+####  三千珈蓝  
+##### 232#       发表于 2023-9-23 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62471937&amp;ptid=2139422" target="_blank"> gold013 发表于 2023-9-20 17:00</a> 终于打完了，由于挂机时间比较多，再加上补全奖励板的内容，一共60小时。 作者很懂二次元，就我云通关最近的《星之海》而言，锁链回声比星之海高了一个罪恶王冠的二次元浓度。 结尾男主的选择，感觉更多是基于自由，不仅是出人头地的自由，更是能够选择放弃的自由。也因此，我认为女主更多是因为尊重男主的选择，而对于某人释怀。关于“真王”，感觉涅沙支线里女学者提到的书王明显是为了结局故意误导。 说到作者的二次元浓度 </blockquote>
+我在xbox 上碰到了，存档关闭游戏再启动读档打开奖励盘就跳了来自: iPhone客户端
+
+*****
+
+####  三千珈蓝  
+##### 233#       发表于 2023-9-23 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62452467&amp;ptid=2139422" target="_blank"> 治丧委 发表于 2023-9-18 23:43</a> 另外，剧透反白但是有疑问，先驱者的故事通关以后，没有了吗？我看是返回到了打最终 BOSS 前，是要搞第二部再揭晓，还是说我漏了什么 </blockquote>
+估计就是留给第二部，马卡斯那一系的人就只出现了那个肉身高达，他自己和黑天铠都遁了，因为当下目的一致他们就没出来挡主角团的路吧来自: iPhone客户端
+
+
+*****
+
+####  gold013  
+##### 234#       发表于 2023-9-23 21:35
+
+<blockquote>三千珈蓝 发表于 2023-9-23 21:05
+我在xbox 上碰到了，存档关闭游戏再启动读档打开奖励盘就跳了</blockquote>
+你这个方法，我在A9那边也看到过类似的方法，说是多绕圈，多聊天能够触发成就。可惜steam不行，我反正已经放弃了
+
+
+*****
+
+####  三千珈蓝  
+##### 235#       发表于 2023-9-24 05:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62506258&amp;ptid=2139422" target="_blank"> gold013 发表于 2023-9-23 21:35</a> 引用:三千珈蓝 发表于 2023-9-23 21:05 我在xbox 上碰到了，存档关闭游戏再启动读档打开奖励盘就跳了 你这个方法，我在A9那边也看到过类似的方法，说是多绕圈，多聊天能够触发成就。可惜steam不行，我反正已经放弃了 </blockquote>
+是有点小毛病，我就遇到了最后一个技能点拿不到的问题来自: iPhone客户端
+
+
+*****
+
+####  nagamasa  
+##### 236#       发表于 2023-9-24 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完隐藏boss不给技能点，就差最后一个全人物学完全技能的成就做不了，吐了，什么狗屎bug
+
+
+*****
+
+####  三千珈蓝  
+##### 237#       发表于 2023-9-24 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513183&amp;ptid=2139422" target="_blank"> nagamasa 发表于 2023-9-24 17:20</a> 打完隐藏boss不给技能点，就差最后一个全人物学完全技能的成就做不了，吐了，什么狗屎bug </blockquote>
+你和一样，和哪个boss 没关系，就是拿不到最后一个来自: iPhone客户端
+
+
+*****
+
+####  nagamasa  
+##### 238#       发表于 2023-9-24 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513349&amp;ptid=2139422" target="_blank">三千珈蓝 发表于 2023-9-24 17:37</a>
+
+你和一样，和哪个boss 没关系，就是拿不到最后一个</blockquote>
+我看了眼steam讨论区，老外也全是这样最后一个点拿不到，估计是前两天更新出的新bug，要等一个修了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  三千珈蓝  
+##### 239#       发表于 2023-9-24 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62513959&amp;ptid=2139422" target="_blank"> nagamasa 发表于 2023-9-24 18:46</a> 引用:三千珈蓝 发表于 2023-9-24 17:37 你和一样，和哪个boss 没关系，就是拿不到最后一个 我看了眼steam讨论区，老外也全是这样最后一个点拿不到，估计是前两天更新出的新bug，要等一个修了 </blockquote>
+草早知道不开自动更新了
+还打算上**看看有没有攻略来自: iPhone客户端
+
+
+*****
+
+####  IlldianX  
+##### 240#       发表于 2023-9-24 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62506258&amp;ptid=2139422" target="_blank">gold013 发表于 2023-9-23 21:35</a>
+你这个方法，我在A9那边也看到过类似的方法，说是多绕圈，多聊天能够触发成就。可惜steam不行，我反正已经 ...</blockquote>
+我也是steam版奖励板全收集没跳成就，存档退出重进就跳了，不需要到处说话。
+
+
+*****
+
+####  gold013  
+##### 241#       发表于 2023-9-24 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62515029&amp;ptid=2139422" target="_blank">IlldianX 发表于 2023-9-24 20:40</a>
+
+我也是steam版奖励板全收集没跳成就，存档退出重进就跳了，不需要到处说话。 ...</blockquote>
+你说的我也试过了，我甚至切语言，然后存档退出再进，也没跳。估计我不会再去动这个游戏了，除非真出续作，那可能回来试试二周目，精看一下剧情，以及一些散落的文档和世界观
+
+
+*****
+
+####  nagamasa  
+##### 242#       发表于 2023-9-25 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62514927&amp;ptid=2139422" target="_blank">三千珈蓝 发表于 2023-9-24 20:29</a>
+
+草早知道不开自动更新了
+
+还打算上**看看有没有攻略</blockquote>
+今天有补丁，已经修复这个bug了
+
+
+*****
+
+####  碎月  
+##### 243#       发表于 2023-9-25 22:15
+
+作者有续集计划么
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  三千珈蓝  
+##### 244#       发表于 2023-9-27 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62526177&amp;ptid=2139422" target="_blank"> nagamasa 发表于 2023-9-25 18:15</a> 引用:三千珈蓝 发表于 2023-9-24 20:29 草早知道不开自动更新了 还打算上**看看有没有攻略 今天有补丁，已经修复这个bug了 </blockquote>
+感谢提醒，回去再打一次最终boss 来自: iPhone客户端
+
+*****
+
+####  三千珈蓝  
+##### 245#       发表于 2023-9-27 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62528330&amp;ptid=2139422" target="_blank"> 碎月 发表于 2023-9-25 22:15</a> 作者有续集计划么    -- 来自 能搜索的 Stage1官方 iOS客户端 </blockquote>
+剧情和设定上很明确了，先驱者和教会降临派，就看赚的钱够不够了来自: iPhone客户端
+
+
+*****
+
+####  Hidewhite  
+##### 246#       发表于 2023-9-27 22:25
+
+感觉主角重拾前世记忆后挺怪，主人公们忽然多了几世记忆，而玩家（我）得到的信息只有几个有限演出来的前世片段。感觉我的体验和游戏中人物的体验错开了，前期玩家是和人物进度一致的，到后面这里人物却陌生了。这导致结局主角那个背负责任累了的理由感受很单薄。
+
+有点奇怪，感觉系统内容还充分的，各种地图收集、敌人、隐藏要素。但剧情收尾却有仓促感，最终战斗没多少动画演出。双方的对峙恩怨情仇也不浓。好像还不如前面公主死那次？
+
+各个队友还是挺有趣的，性格种族经历都不太一样，凑在一起的感觉很好，JRPG混乱大家庭的冒险感。就是审判官和妖精来得太晚了，培养和打都不太想弄了。
+
+弱点数值有点爆炸，不打弱点的普通输出感觉打小怪都磨蹭，附魔打弱点带蓄力技能那伤害又高得出奇，数值公式有点奇怪。坦克还分了法坦和物坦，但这游戏群攻技能不少，真能用吗？感觉想保输出靠不住啊，这两位一直放板凳上
+
+
+*****
+
+####  otakun  
+##### 247#       发表于 2023-9-27 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62551126&amp;ptid=2139422" target="_blank">Hidewhite 发表于 2023-9-27 22:25</a>
+感觉主角重拾前世记忆后挺怪，主人公们忽然多了几世记忆，而玩家（我）得到的信息只有几个有限演出来的前世 ...</blockquote>
+打弱点是强，但后期水晶成型后纯菜刀都能爽砍一切了，个个自备吸血也不需要坦。我是给主角的装备搞了个浸油的，三连击太容易上状态，上了就打一发火焰斩也很爽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Hidewhite  
+##### 248#       发表于 2023-9-28 22:15
+
+ 本帖最后由 Hidewhite 于 2023-9-28 22:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62552007&amp;ptid=2139422" target="_blank">otakun 发表于 2023-9-27 23:57</a>
+
+打弱点是强，但后期水晶成型后纯菜刀都能爽砍一切了，个个自备吸血也不需要坦。我是给主角的装备搞了个浸 ...</blockquote>
+弱点和蓄力组合强度爆炸吧，好像公式上是乘算，导致后期boss不能前几回合给出压力让我这边减员，那就一定会死。甚至大部分boss都不需要极限输出，debuff buff完全没上全boss就倒了。
+
+我靠蕾妮上状态，她的多段攻击有4-7的，上debuff更加稳定。配女贼的风速斩扩散debuff，然后米卡作弱点输出终结。
+
+我想培养个副队的，但其他稳定多段攻击一般就3段，现在敏捷龙牙5刀好像也砍了，至于看脸随机的都不太行。 
+
+
+*****
+
+####  valand  
+##### 249#       发表于 2023-9-29 13:54
+
+这个游戏初期要怎么打啊，boss打不动，也不能打小怪升级，sp点数收集太慢。还有很多地图上的小怪也打不动，比如那个仙人球一样的，一招全员只剩一滴血玩个蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  IlldianX  
+##### 250#       发表于 2023-9-29 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62567517&amp;ptid=2139422" target="_blank">valand 发表于 2023-9-29 13:54</a>
+
+这个游戏初期要怎么打啊，boss打不动，也不能打小怪升级，sp点数收集太慢。还有很多地图上的小怪也打不动， ...</blockquote>
+这游戏不用练级，初期把路上不得不打的怪打了就可以了。默认难度下一般每个地图主要就是两个精英怪比较难，可以回头再来打，要打也至少等满4个人一队，特别是buff机吟游诗人入队再去打。全场打剩1点血那招是机制，满血也是打剩1点血，只剩1点血就血量不变，其他招伤害都一般，所以出了这招稍微回复一下就可以了。
+
+
+*****
+
+####  gold013  
+##### 251#       发表于 2023-9-29 14:27
+
+<blockquote>valand 发表于 2023-9-29 13:54
+这个游戏初期要怎么打啊，boss打不动，也不能打小怪升级，sp点数收集太慢。还有很多地图上的小怪也打不动， ...</blockquote>
+那个植物的技能是所有人降至1血，然后通过召唤的幼苗输出。不过幼苗血很少的。
+
+初期如果要打得稍微舒服一点，建议把手头拿到的最高星数的武器防具升级满。初期用传送点来回刷，主要是攒升级素材，和战利品解锁商店兑换包，SP点一般等到第二大章节，收NPC工具人之后再折腾
+
+
+*****
+
+####  valand  
+##### 252#       发表于 2023-10-1 18:58
+
+降难度后就啥问题都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">感觉这个游戏有那么一丢丢借鉴ff7的地方，比如关于以太的设定，再比如武器镶嵌也有点像劣化版魔石系统，但是没做好，战斗还是太无聊了
+
