@@ -685,3 +685,64 @@ Buuba POV
 
 —— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  shimmy1996  
+##### 1897#       发表于 2023-10-29 08:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/29/084910wlh5jrhit6j5hv41.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-10-28_20-48-52.png</strong> (63.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-29 08:49 上传
+
+
+*****
+
+####  M1NG  
+##### 1898#       发表于 2023-10-29 11:37
+
+<img src="https://img.saraba1st.com/forum/202310/29/113737tdjn111gn1hlglun.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-29 11:37 上传
+
+结婚照万圣节版
+
+
+*****
+
+####  shimmy1996  
+##### 1899#       发表于 2023-10-30 05:06
+
+什么拆对狂kiwawa<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/30/050504x311wmamwiooyd36.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-10-29_17-04-20.png</strong> (598.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 05:05 上传
+
+
+*****
+
+####  wiig  
+##### 1900#       发表于 2023-10-30 18:03
+
+<img src="https://img.saraba1st.com/forum/202310/30/180300mhrrhzgp4hgr8scc.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231030180244.jpg</strong> (297.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 18:03 上传
+
