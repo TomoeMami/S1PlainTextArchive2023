@@ -8245,3 +8245,363 @@ PS：现在STEAM版本是个商业化重制版，原版只有旧篇，新章就�
 
 甚至第八章小鬼也有高光，我感觉阿努利斯在原版结局可能还不如小鬼的塑造强
 
+
+*****
+
+####  pandakun  
+##### 3702#       发表于 2023-7-8 20:40
+
+问一下打小怪的时候防御时机怎么掌握啊？砍的时候一堆特效和数字看看不到小怪前摇
+
+*****
+
+####  pandakun  
+##### 3703#       发表于 2023-7-8 20:40
+
+问一下打小怪的时候防御时机怎么掌握啊？砍的时候一堆特效和数字看看不到小怪前摇
+
+*****
+
+####  pandakun  
+##### 3704#       发表于 2023-7-8 20:46
+
+以及有没什么靠谱的攻略啊
+
+*****
+
+####  alucardcz  
+##### 3705#       发表于 2023-7-8 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61599637&amp;ptid=2098044" target="_blank">pandakun 发表于 2023-7-8 20:46</a>
+
+以及有没什么靠谱的攻略啊</blockquote>
+[https://www.bilibili.com/read/cv19555119?spm_id_from=333.999.0.0](https://www.bilibili.com/read/cv19555119?spm_id_from=333.999.0.0)
+
+中文的话这个差不多了
+
+boss打法之类建议自己打。。这上面写的没多大用
+
+
+*****
+
+####  白軍浪  
+##### 3706#       发表于 2023-7-8 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61416276&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-6-25 01:10</a>
+
+个人感觉第四章最好，第六章最烂，六七八体感最差，除了第八章结局还行，新章其实还凑合，其实填了之前很多 ...</blockquote>
+神应该都开空间躲起来了.依凭技就是把他们的力量传送过来.这点来看神都是有空间能力的.感觉基本上就是天平计划能成最好,不能成就躲起来当缩头乌龟.
+
+
+*****
+
+####  christiny  
+##### 3707#       发表于 2023-7-8 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61416276&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-6-25 01:10</a>
+个人感觉第四章最好，第六章最烂，六七八体感最差，除了第八章结局还行，新章其实还凑合，其实填了之前很多 ...</blockquote>
+你理解错了。
+造物主创造的神，神创造的其他生物。
+ 造物主的运行逻辑，是动态平衡，当某种生物一家独大时就消灭这些生物，重启世界。
+女神不忍心，愿意给人类一次机会，于是下了一盘大棋，牺牲自己提供天平神力，最后让男主灭了造物主。
+
+至于其他神去哪了，就只是单纯的离开了，不用深究。
+
+唯一有个坑没填了等于没填的是外星人，喝咖啡那位和飞天人造人，这两人的来头是一点没提过。从谈话里大致猜测是已经离开了盖亚星球的远古文明。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  christiny  
+##### 3708#       发表于 2023-7-8 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61599574&amp;ptid=2098044" target="_blank">pandakun 发表于 2023-7-8 20:40</a>
+问一下打小怪的时候防御时机怎么掌握啊？砍的时候一堆特效和数字看看不到小怪前摇 ...</blockquote>
+所有敌人攻击之前都会闪烁。看不清的话，把数字关闭了吧。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  christiny  
+##### 3709#       发表于 2023-7-8 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61416310&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-6-25 01:14</a>
+原版叙事上最大的问题我个人感觉是，经过6-8章阿努莉丝一套弱智操作，玩家百分之一千会对这个女主角有很大 ...</blockquote>
+嘉隆牺牲这一幕是非常棒的设计，让习惯了嘉隆的玩家充分体会到同伴的重要性，物理和情感双重意义上的重要性。这也是为了终章嘉隆失而复得带来更大的情感体验。  
+按照原版章节剧情，女主仅仅是个被改造的可怜虫。 新章爱情的内容才把女主人设补充完整，算是扳回一分。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  王一唯不傲娇  
+##### 3710#       发表于 2023-7-8 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600091&amp;ptid=2098044" target="_blank">christiny 发表于 2023-7-8 21:21</a>
+
+你理解错了。
+
+造物主创造的神，神创造的其他生物。
+
+ 造物主的运行逻辑，是动态平衡，当某种生物一家独大 ...</blockquote>
+我没理解错啊，是最后那个造物主的使者说造物主要消灭的不是人而是神。
+
+所以回到未来线，没有新章的话，未来线的意思是未来人类自己把星球玩炸了，移居外星球，众神放弃了人类，只剩下阿斯特赖亚愿意帮助人类。
+
+但是新章揭示了世界真正的毁灭马上就要来了，就是造物主要用誓戒重启，最主要的打击对象是神，不是人。所以众神才是被造物主真正盯上的，人类只是附带的而已。
+
+
+*****
+
+####  王一唯不傲娇  
+##### 3711#       发表于 2023-7-8 22:30
+
+二周目荒谬难度把旧章打通了，新章打完魔王城，有些一周目没感受到的点现在玩懂了。
+
+1.这个加点的数值到了新章才告诉你是这么回事，很影响加点选择，对难度影响巨大，而且我一周目全加的幸运，普通难度比荒谬还难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打到第七章差点没给我打吐血。
+
+2.属性克制一周目更是看不懂，和上面那条一样，完全应该做进游戏教程或者至少有说明的。
+
+3.前期弓弩是真的真神，前两章任何boss都可以靠远程遛狗溜死，刷熟练度也很好用。竞技场的神1号
+
+4.小魔杖也是真神，可以旧章从头用到尾，除了少数几个boss不太好用这玩意打。竞技场的神2号
+
+5.有少数几个攻击的判定我实在没弄懂，比如东京三连小boss的最后一个，他那个飞弹有时候能格挡有时候不能。
+
+6.旧章个人体感有难点的几个boss：火山魔神，前期最恶心的boss，一圈火膈应人，弹幕密度高，很容易破格挡，真正能有效输出的阶段不多，得磨死；大魔女，主要是我是逃课打这玩意的，死了好几十次，打的我快心态爆炸；邪神，主要恶心在黑洞和封印；量产魔王，大量群招怪，带各种控制，很容易一波失误被秒；大脚怪，输出质检，如果跟我一样全加点幸运然后打不动雪球，难度会直线上升，能秒雪球就没一点难度；飞龙，近战输出质检二号，用弩随便风筝，但输出不够的近战打这玩意巨墨迹；遗迹兵，真正的近战噩梦，但是小魔杖很好打；上级恶魔，其实技能挺好抓，但是法杖打这玩意没法打强制你洗点，又没有凭依技，出石化+扭曲会被直接秒（我看网上说是硬吃石化然后格挡扭曲，但是如果你开了狂暴怎么吃呢。。。）如果没有出这个阶段，难度低非常的多，基本没难度；阿斯特赖亚，三连战，前两场都是得靠磨死的boss，第三场初见容易失误暴毙，而且一阶段会禁道具，很恶心，近战一蹭炸弹就死，不敢乱摸。
+
+
+*****
+
+####  王一唯不傲娇  
+##### 3712#       发表于 2023-7-8 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600260&amp;ptid=2098044" target="_blank">christiny 发表于 2023-7-8 21:37</a>
+
+嘉隆牺牲这一幕是非常棒的设计，让习惯了嘉隆的玩家充分体会到同伴的重要性，物理和情感双重意义上的重要 ...</blockquote>
+嘉隆牺牲我没啥意见，但是嘉隆和全城人因为男女主弱智操作全死光了。。。
+
+*****
+
+####  alucardcz  
+##### 3713#       发表于 2023-7-8 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600876&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-7-8 22:30</a>
+
+二周目荒谬难度把旧章打通了，新章打完魔王城，有些一周目没感受到的点现在玩懂了。
+
+1.这个加点的数值到了 ...</blockquote>
+不是有的吗 加隆之书啊
+
+
+*****
+
+####  王一唯不傲娇  
+##### 3714#       发表于 2023-7-8 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61601008&amp;ptid=2098044" target="_blank">alucardcz 发表于 2023-7-8 22:41</a>
+
+不是有的吗 加隆之书啊</blockquote>
+像这种应该放进教程里啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至少给个提示吧，那个加点的更是不了解完全不知道
+
+
+*****
+
+####  christiny  
+##### 3715#       发表于 2023-7-9 09:23
+
+ 本帖最后由 christiny 于 2023-7-9 09:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61600876&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-7-8 22:30</a>
+
+二周目荒谬难度把旧章打通了，新章打完魔王城，有些一周目没感受到的点现在玩懂了。
+
+1.这个加点的数值到了 ...</blockquote>
+加点不是写明了加什么吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+攻击判定，有几个BOSS的某几个招数是不能格挡的，这个全靠死记硬背。比如，龙王的连续火焰弹，嘉隆真身大魔龙的撕咬。
+
+石化+扭曲，这个组合是龙王的啊，你可能写错了。 
+
+石化用无敌后跳躲开，然后格挡3次扭曲即可。石化不能格挡，因为会强制清空格挡条，接下来3次扭曲就很难躲了。石化视线也不能用技能无敌躲，会被石化。
+
+大魔女，基本上无限消消乐就能过，算是除了战神，第二简单的了。 唯一需要注意是分身机制，打错了会触发陷阱。 真身，发射的星星形状大一些，碰一下真身就破解了。  
+
+火山魔神，有机制的，90%的人没搞明白。
+
+大火圈时，火圈有伤害判定。在外面砍火球就行，续集能量。
+
+小火圈时，火圈没有伤害判定，只有发出来的子弹有判定。所以这个时候可以混进中心，贴脸疯狂输出。 我一周这BOSS打了1000HIT成就<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">https://www.bilibili.com/video/BV1Ux4y1M7Se/?vd_source=eb990782970f5f644037e705bcdb46ab
+
+这是我二周目录的视频。
+
+单个遗迹兵还是简单，无限挑空就行。 后面那4个遗迹兵，需要一些运气。
+
+推荐一下，爆发+暗黑，上风精灵+火精灵的暴力组合，暴力破防。
+
+
+*****
+
+####  christiny  
+##### 3716#       发表于 2023-7-9 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61601188&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-7-8 22:57</a>
+
+像这种应该放进教程里啊至少给个提示吧，那个加点的更是不了解完全不知道 ...</blockquote>
+加点，你仔细看的话，会发现收益会降低，所以水桶收益最高。
+
+当然，第一遍确实不容易发现。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王一唯不傲娇  
+##### 3717#       发表于 2023-7-9 20:06
+
+ 本帖最后由 王一唯不傲娇 于 2023-7-9 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61603338&amp;ptid=2098044" target="_blank">christiny 发表于 2023-7-9 09:34</a>
+
+加点，你仔细看的话，会发现收益会降低，所以水桶收益最高。
+
+当然，第一遍确实不容易发现。 ...</blockquote>
+除此之外，大部分属性增长是会随着等级上升的，越来越高，但是幸运和适应是固定的
+
+
+*****
+
+####  lvcha  
+##### 3718#       发表于 2023-7-10 07:40
+
+有啥系统详细教学吗？太复杂了我有点晕。刚刚打过第一个大史莱姆
+
+
+*****
+
+####  christiny  
+##### 3719#       发表于 2023-7-10 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61608867&amp;ptid=2098044" target="_blank">王一唯不傲娇 发表于 2023-7-9 20:06</a>
+
+除此之外，大部分属性增长是会随着等级上升的，越来越高，但是幸运和适应是固定的 ...</blockquote>
+加点，有个软上限，人物等级+5，超过这个数就开始减少收益。
+
+幸运嘛，不用加。
+
+适应性嘛，只有完成跑步成就需要加满，其他也不用加。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  christiny  
+##### 3720#       发表于 2023-7-10 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61612684&amp;ptid=2098044" target="_blank">lvcha 发表于 2023-7-10 07:40</a>
+
+有啥系统详细教学吗？太复杂了我有点晕。刚刚打过第一个大史莱姆</blockquote>
+你这新手村都没出啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这系统都挺直白的……
+
+记得要多买装备，多学技能就行。
+
+
+*****
+
+####  asdfg  
+##### 3721#       发表于 2023-7-10 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61612684&amp;ptid=2098044" target="_blank">lvcha 发表于 2023-7-9 18:40</a>
+
+有啥系统详细教学吗？太复杂了我有点晕。刚刚打过第一个大史莱姆</blockquote>
+除了一开始的木棍之外把你流程中遇到的所有武器防具都尽量都合出来然后练满出技能，基本就够了……
+
+竞技场建议最多拖延一章也去打一下。
+
+*****
+
+####  tansapple  
+##### 3722#       发表于 2023-7-10 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61612684&amp;ptid=2098044" target="_blank">lvcha 发表于 2023-7-10 07:40</a>
+
+有啥系统详细教学吗？太复杂了我有点晕。刚刚打过第一个大史莱姆</blockquote>
+神之天平的系统都很直观，所见即所得，没啥弯弯绕绕和外道里技，别跳过说明文字基本上都能明白是用来干啥的。
+
+
+*****
+
+####  lvcha  
+##### 3723#       发表于 2023-7-17 15:10
+
+对不起，再请教一下。
+
+这游戏前面的武器后面还能买到吗？
+
+我到了第二章发现第一章的武器商店里没有
+
+*****
+
+####  tsubaki  
+##### 3724#       发表于 2023-7-17 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61694397&amp;ptid=2098044" target="_blank">lvcha 发表于 2023-7-17 15:10</a>
+
+对不起，再请教一下。
+
+这游戏前面的武器后面还能买到吗？
+
+我到了第二章发现第一章的武器商店里没有 ...</blockquote>
+旧章节可以水晶传送回去，序章村子的在主城的商店可以买
+
+
+*****
+
+####  lvcha  
+##### 3725#       发表于 2023-7-20 22:06
+
+ 本帖最后由 lvcha 于 2023-7-20 22:09 编辑 
+
+又要请教下.
+
+我看视频里的人用魔法杖能打的很快很远
+
+我用魔法杖按上+攻击 能打的远但是总是要先升龙一下再发波不知道为啥. 是手柄问题吗?
+
+哈,我知道了  这是因为我用了自动连击的嘉隆  手工一下一下按就行了
+
+
+*****
+
+####  間桐櫻  
+##### 3726#       发表于 2023-7-24 10:43
+
+問一下城鎮異變時，主角用遠程技隔牆打死一群大怪後，被怪圍攻的那個人對主角表示感謝送了些東西，那個人是誰?
+
+*****
+
+####  tansapple  
+##### 3727#       发表于 2023-7-24 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61767203&amp;ptid=2098044" target="_blank">間桐櫻 发表于 2023-7-24 10:43</a>
+問一下城鎮異變時，主角用遠程技隔牆打死一群大怪後，被怪圍攻的那個人對主角表示感謝送了些東西，那個人是 ...</blockquote>
+准备要出的dlc外传主角，和狗哥组队代替主角守护城镇的面包房大奶妹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BQlin  
+##### 3728#       发表于 2023-7-24 10:52
+
+外传的主角，面包房扫地僧
+
+
+*****
+
+####  langleizhi  
+##### 3729#       发表于 2023-10-30 09:56
+
+从国庆打到上周末通关了，毫无疑问的是我23年里玩到的游戏里最好的，所以我面包房姑娘DLC呢<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我不造魔物攻城的时候可以在封闭那里嫖死怪结果我就在真正的结局里和她见了一面而已啊喂
+
