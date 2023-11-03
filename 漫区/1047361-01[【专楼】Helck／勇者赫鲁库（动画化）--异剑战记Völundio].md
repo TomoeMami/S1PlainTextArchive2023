@@ -1138,3 +1138,53 @@ C级左右的威胁，一般当地魔王就足够镇压了，赫鲁库里属于�
 
 <img src="https://p.sda1.dev/13/0c1c7dbcb32623289330101f0a0c6750/CMP_20231012103657025.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Ditfran  
+##### 1151#       发表于 2023-10-30 00:17
+
+ 本帖最后由 Ditfran 于 2023-10-30 00:20 编辑 
+
+第一章琥珀篇完结
+
+同时为了新篇章做准备外加调理调理身体情况暂时休刊，下次更新时间未定
+
+
+*****
+
+####  小黑鱼  
+##### 1152#       发表于 2023-10-30 00:22
+
+<img src="https://p.sda1.dev/13/924720e35f5abe28f8a1e8e29e2f0bc4/CMP_20231030001950001.jpg" referrerpolicy="no-referrer">
+
+最后是库雷欧带着琥珀踏上了新的旅途，不过七尾老师看来要休息一段时间了，希望下一章不是有生之年
+
+*****
+
+####  azbhg1  
+##### 1153#       发表于 2023-10-30 00:25
+
+<img src="https://p.sda1.dev/13/210ef628120f8caeccbdb06b3cbd53fb/e79de5e41b010323885cedadc1832e26.png" referrerpolicy="no-referrer">
+
+希望老师能早日康复吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  starring  
+##### 1154#       发表于 2023-10-30 09:13
+
+要休刊了难受<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">希望七尾老师早点康复
+
+—— 来自 Sony XQ-DQ72, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  tg45  
+##### 1155#       发表于 2023-10-31 16:12
+
+琥珀道堂堂完结
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
