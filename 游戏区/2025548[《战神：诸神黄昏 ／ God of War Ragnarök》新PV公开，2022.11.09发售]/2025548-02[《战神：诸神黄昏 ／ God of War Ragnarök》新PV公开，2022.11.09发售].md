@@ -567,3 +567,63 @@ Please note that a save file with the Main Story Quest completed is required ...
 一周目升哪套比较好，打到开诸神黄昏了还是穿的矮人毒套</blockquote>
 狂战士胸手、幽魂胸、维达手腿、光辉手腿
 
+*****
+
+####  医生狼多  
+##### 1989#       发表于 2023-11-1 11:10
+
+God of War Ragnarök DLC will be revealed this year, says one of Spain’s biggest game sites 🔥 #PS5 
+
+See more: areajugones.sport.es/videojuegos/ex…
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1990#       发表于 2023-11-1 13:00
+
+不会是阿特柔斯dlc吧，狗都不玩<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  性兽阿怪  
+##### 1991#       发表于 2023-11-1 13:13
+
+制作组不是说不出dlc了吗，难不成是儿子外传，不是光头谁买单啊
+
+*****
+
+####  popchong  
+##### 1992#       发表于 2023-11-1 13:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个小胖妞驯服锤子的DLC吧，弥补一下不能玩锤子的遗憾，顺便填大蛇穿越时空的坑，给托尔一个好结局，
+
+
+*****
+
+####  ShiKi847  
+##### 1993#       发表于 2023-11-1 16:34
+
+DLC会不会是补全光头是咋从希腊去北欧遇到老婆的
+
+
+*****
+
+####  jxzeroga0  
+##### 1994#       发表于 2023-11-1 16:53
+
+不把村口械斗remake狗都不玩，阿特柔斯dlc更是有多远滚多远<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 1995#       发表于 2023-11-1 17:24
+
+不是光头dlc确实鬼才买，阿特柔斯在结局的时候还是有点太那啥了。
+
+顺便借楼问一下战神4的人物替换mod要去啥地方找。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
