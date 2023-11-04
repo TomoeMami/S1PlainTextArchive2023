@@ -6470,3 +6470,306 @@ AGA楼自然是拼装女人喽。你买万代家的还不止二个呢
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">抽不到绿色的，一滴都不剩了
 
+*****
+
+####  灰色蔓延  
+##### 744#       发表于 2023-10-17 09:18
+
+战略性放弃马鞭草FA果然明智，啥都没。
+
+回头阿德an30抽就出货了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这次的分支长枪有点意思，强化了侧派生setp攻击，开刃攻击时下派生无缝衔接一次性释放瞬发砸地板，相对的几乎没有CD，蓄力需求也少的多。基本就是ANSP下派生攻击的青春版。
+
+目前问题就是虽然ANSP下派生连续攻击很爽，但是基本无防护长时间暴露。
+
+
+*****
+
+####  不灭的旋律  
+##### 745#       发表于 2023-10-18 20:37
+
+海老川给西塔拉发贺图了岛田你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+本月电子月刊更新：[https://www.alicegearmagazine.ne ... amp;cty=1&amp;lpd=1](https://www.alicegearmagazine.net/epub/viewer/viewer.html?cid=alicegearmagazine_202310&amp;cty=1&amp;lpd=1)
+
+你游都穷到买肉（侧乳）+女教师了你楼还是冷清得可以。
+
+顺便吐槽下你游主线真的是煞星。黑毛子+暗戳戳写俄乌结果现实里两个真干起来了。现在主线战场刚转到中东中东就炸了。碰瓷早晚会被反噬，金字塔还是早点切割岩片烈算了。
+
+*****
+
+####  madcow  
+##### 746#       发表于 2023-10-18 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">623扔了五十抽歪了FA爱花，侧乳四十抽啥都没有怪我咯（（
+
+
+*****
+
+####  江戸前ルナ  
+##### 747#         楼主| 发表于 2023-10-18 22:26
+
+忙到飞起呢，抽到阿蒂还没怎么试。
+
+反正这次也就是“普普通通”的巨乳女教师+卖百合，国内队长基本都是老屁股了，这么萌豚的东西一般最多就自HIGH，肯定远不如真把阿洁扔出来真搞个俄乌碰瓷炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 748#       发表于 2023-10-20 19:55
+
+这两天逛恩鸡爱看到有人讲有个手游开服ML运营了六年新活动是把玩家视角变成JK围观女同贴贴
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了开服ML以外看着好像是你游欸（
+
+
+*****
+
+####  LEOKO~  
+##### 749#       发表于 2023-10-20 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62778173&amp;ptid=2104259" target="_blank">madcow 发表于 2023-10-20 19:55</a>
+
+这两天逛恩鸡爱看到有人讲有个手游开服ML运营了六年新活动是把玩家视角变成JK围观女同贴贴
+
+除了开 ...</blockquote>
+大洗是第一次
+
+
+*****
+
+####  江戸前ルナ  
+##### 750#         楼主| 发表于 2023-10-20 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62778173&amp;ptid=2104259" target="_blank">madcow 发表于 2023-10-20 19:55</a>
+
+这两天逛恩鸡爱看到有人讲有个手游开服ML运营了六年新活动是把玩家视角变成JK围观女同贴贴
+
+除了开 ...</blockquote>
+万一吸引到魔怔小朋友然后抽到四谷阿姨一看设定和剧情怕不是会立刻爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+四谷阿姨这种人气还能在前列的你游只适合老屁股或社会大叔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  杂灰  
+##### 751#       发表于 2023-10-20 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62778173&amp;ptid=2104259" target="_blank">madcow 发表于 2023-10-20 19:55</a>
+这两天逛恩鸡爱看到有人讲有个手游开服ML运营了六年新活动是把玩家视角变成JK围观女同贴贴
+
+除了开 ...</blockquote>
+你游开服确实是常规ml配置吧，摄像头主角，所有角色都挺给队长面子，确实是一副要卖ml的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 752#         楼主| 发表于 2023-10-21 00:15
+
+但本身队长势就少啊，和大部分女演员都只是老熟人的关系。
+
+说起来，阿金第一次吃到甜头向百合靠应该是舞。原本角色剧情里还是和队长有共同秘密算是连上线的了，CXX活动三连星开始到王女一套高人气组合拳下来，现在舞跟队长这条线早已经完全断绝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过相对的，绫香大小姐则搭上了队长势的船<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 753#       发表于 2023-10-21 19:56
+
+新妹子不是女演员瞳到底会不会实装啊
+
+看看后天官方直播会不会提
+
+
+*****
+
+####  Picavian  
+##### 754#       发表于 2023-10-23 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62780165&amp;ptid=2104259" target="_blank">杂灰 发表于 2023-10-20 23:52</a>
+
+你游开服确实是常规ml配置吧，摄像头主角，所有角色都挺给队长面子，确实是一副要卖ml的感觉 ...</blockquote>
+应该说是传统全年龄男性向页游配置。全女或绝大多数女性但都只是熟人，ml党（如果有誓约系统的话则是誓约前ml党）较少。
+
+
+*****
+
+####  江戸前ルナ  
+##### 755#         楼主| 发表于 2023-10-23 20:09
+
+这次生放真水，叫大家出来就这.JPG。就水了一堆改UI的和商店卡池<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">游戏内容一点都没<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过也快周年了，大概有大的也要等到周年再来吧
+
+
+*****
+
+####  杂灰  
+##### 756#       发表于 2023-10-23 21:09
+
+周年还远着呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 757#       发表于 2023-10-23 22:22
+
+都出新女演员了还有你游第一次正经万圣节活动，还要什么自行车
+
+
+*****
+
+####  冰风血羽  
+##### 758#       发表于 2023-10-24 07:14
+
+请问下白直美的特典码里都有啥？想买一个但是我去寿屋商店网页里都没说具体有什么
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  thee  
+##### 759#       发表于 2023-10-24 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62809718&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-10-24 07:14</a>
+请问下白直美的特典码里都有啥？想买一个但是我去寿屋商店网页里都没说具体有什么
+
+—— 来自 realme RMX37 ...</blockquote>
+80级原版装备和两饰品，但是没有福袋
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  冰风血羽  
+##### 760#       发表于 2023-10-24 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62811413&amp;ptid=2104259" target="_blank">thee 发表于 2023-10-24 10:25</a>
+80级原版装备和两饰品，但是没有福袋
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+谢谢，原版装备有了那就不买了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  冰风血羽  
+##### 761#       发表于 2023-10-26 17:55
+
+原来玩拍照也有饰品拿，现在才知道是不是亏大发了……
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  LEOKO~  
+##### 762#       发表于 2023-10-26 22:04
+
+战女高的本也砸了，全灭
+
+
+*****
+
+####  冰风血羽  
+##### 763#       发表于 2023-10-26 23:15
+
+ 本帖最后由 冰风血羽 于 2023-10-26 23:19 编辑 
+
+这种双人或者多人池看起来就是毒池。。。大流士双人池我氪了快1000才拿下小姨子。。。
+
+战女高要复刻？
+
+
+*****
+
+####  LEOKO~  
+##### 764#       发表于 2023-10-29 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62780297&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-10-21 00:15</a>
+
+但本身队长势就少啊，和大部分女演员都只是老熟人的关系。
+
+说起来，阿金第一次吃到甜头向百合靠应该是舞。 ...</blockquote>
+啊噶确实ML，但LIKE
+
+
+*****
+
+####  冰风血羽  
+##### 765#       发表于 2023-11-1 10:55
+
+ 本帖最后由 冰风血羽 于 2023-11-1 10:59 编辑 
+
+手残好不容易做到奈奈的分支枪目押按出50%—75%成功率，学姐那杆狙的追踪目押也就下意识乱按按出两次来后面去训练场根本做不到复现，请问有没有什么诀窍吗
+
+后来发现在SP开大状态下目押成功会放出追踪，难不成这个普通状态下不能用？
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  江戸前ルナ  
+##### 766#         楼主| 发表于 2023-11-1 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62901161&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-11-1 10:55</a>
+
+手残好不容易做到奈奈的分支枪目押按出50%—75%成功率，学姐那杆狙的追踪目押也就下意识乱按按出两次来后面 ...</blockquote>
+远程现在目押时机都是一样的，只有判定是否严格的区别。除了真理的外大部分判定都很松。阿嘎目押的一个必须知道的信息就是发出的白色闪光不是提示你按下去，而是跟你说，闪光的时候就已经要同时按了下去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+远程目前其实很简单，就一种时机。近战就复杂得多，大部分人时机都不一样而且是否命中目标两种时机，部分人技能有加速效果的有没加速也是两种时机。
+
+阿蒂的ANSP只改变近战和技能，不改狙击枪。
+
+
+*****
+
+####  thee  
+##### 767#       发表于 2023-11-1 13:14
+
+东京最强那个强化状态结束技才是真难目押，还有丽塔的爆炸锤，训练场十次中四次，实战一次摁不出来
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  江戸前ルナ  
+##### 768#         楼主| 发表于 2023-11-1 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62902859&amp;ptid=2104259" target="_blank">thee 发表于 2023-11-1 13:14</a>
+
+东京最强那个强化状态结束技才是真难目押，还有丽塔的爆炸锤，训练场十次中四次，实战一次摁不出来</blockquote>
+丽塔的锤子，突进是当锤子挥动到正前方中间时正好按了下去；（第一锤命中的情况）爆炸是A出去后“几乎马上“下滑，具体节奏要自己熟悉，看闪光是没用的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 769#         楼主| 发表于 2023-11-1 13:23
+
+主要是闪光的提示是提示按了下去的时机，而不是提示你要按的时机，所以阿嘎的目押基本都只能认着角色动作的特征去把握时机进行肌肉记忆和练习<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 770#       发表于 2023-11-1 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62902768&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-11-1 13:05</a>
+远程现在目押时机都是一样的，只有判定是否严格的区别。除了真理的外大部分判定都很松。阿嘎目押的一个必 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好麻烦啊我屮，还是双枪适合我这个手残，按住不放就行了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
