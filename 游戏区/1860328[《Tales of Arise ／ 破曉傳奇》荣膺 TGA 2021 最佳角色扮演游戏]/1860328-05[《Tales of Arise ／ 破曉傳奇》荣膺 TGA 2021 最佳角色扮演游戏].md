@@ -4813,3 +4813,52 @@ Z本身系统是完整的（尽管问题不少）
 
 跟二代没什么关系吧。青山不改绿水长流 江湖再见 的意思吧。本体最后结婚没这人，DLC预告里看这人最后也走了的，大概剧情最后就是走了有缘再见。
 
+*****
+
+####  Piano-Forest  
+##### 6622#       发表于 2023-10-31 21:12
+
+<img src="https://p.sda1.dev/13/c7e6568e1462ed832275016e791d74a0/1698748858613.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  银月术士329  
+##### 6623#       发表于 2023-11-1 07:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准是TOB和TOZ续作呢
+
+
+*****
+
+####  kurosophie  
+##### 6624#       发表于 2023-11-1 21:43
+
+这dlc居然有主题曲
+
+*****
+
+####  空洞骑士  
+##### 6625#       发表于 2023-11-1 21:52
+
+新主题曲听完感觉比OP1好听多了。
+
+
+*****
+
+####  宛若青空  
+##### 6626#       发表于 2023-11-1 21:55
+
+有OP那应该也有ED吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qiyu1234  
+##### 6627#       发表于 2023-11-1 22:02
+
+[https://www.youtube.com/watch?v=0OL0LjyRqz0](https://www.youtube.com/watch?v=0OL0LjyRqz0)
+
+算是DLC主题曲吧
+
+不算OP，应该是放在DLC STAFF列表里播放的
+
