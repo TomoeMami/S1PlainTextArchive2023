@@ -13682,3 +13682,1111 @@ V转过来就是7，懂了！七爷1999，欧米茄档案是吧，期待下参�
 
 线控高超？什么黑科技啊，惊了
 
+*****
+
+####  athena_1982  
+##### 1290#       发表于 2023-10-19 21:13
+
+主线剧情要出现了，布莱泽能不能封神就看这口气了
+
+细节决定成败，主旨决定地位
+
+
+*****
+
+####  zzf111  
+##### 1291#       发表于 2023-10-19 21:21
+
+一开始的新皮套展示里是不是还有个站c位估计对标巴巴尔的人形外星人没有出场过
+
+*****
+
+####  ナルバレック  
+##### 1292#       发表于 2023-10-19 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62768524&amp;ptid=2104492" target="_blank">zzf111 发表于 2023-10-19 21:21</a>
+
+一开始的新皮套展示里是不是还有个站c位估计对标巴巴尔的人形外星人没有出场过 ...</blockquote>
+斩基尔好像是友军单位
+
+
+*****
+
+####  zzf111  
+##### 1293#       发表于 2023-10-19 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62768631&amp;ptid=2104492" target="_blank">ナルバレック 发表于 2023-10-19 21:32</a>
+
+斩基尔好像是友军单位</blockquote>
+看起来是精英敌人结果居然是友军吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ナルバレック  
+##### 1294#       发表于 2023-10-19 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62768752&amp;ptid=2104492" target="_blank">zzf111 发表于 2023-10-19 21:43</a>
+
+看起来是精英敌人结果居然是友军吗</blockquote>
+长得像麦克斯的斗兽经典角色高师傅吗2333？
+
+
+*****
+
+####  楠城旧篱  
+##### 1295#       发表于 2023-10-20 19:18
+
+<blockquote>zzf111 发表于 2023-10-19 21:43
+看起来是精英敌人结果居然是友军吗</blockquote>
+我也猜错了www
+
+
+*****
+
+####  hulaoda007  
+##### 1296#       发表于 2023-10-21 09:59
+
+这集也很好看，就是解决怪兽的时候各方面都太突兀了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  novyDC  
+##### 1297#       发表于 2023-10-21 10:28
+
+布莱泽这光矛也太万能了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  nonodundun  
+##### 1298#       发表于 2023-10-21 10:48
+
+前半集还好，后半集槽点有点多，在布莱泽满地打滚的时候这三个小孩在原地站着防卫军不管到傍晚也一点事没有真是奇迹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水边井  
+##### 1299#       发表于 2023-10-21 11:20
+
+这集为了做子供向把很多东西模糊掉了，不过挺乐的就是
+
+
+*****
+
+####  acejoejoe  
+##### 1300#       发表于 2023-10-21 11:23
+
+这集有点差，小孩单元剧以前也拍那么多，一对比就明显不太行了。
+
+
+*****
+
+####  HSJ1992  
+##### 1301#       发表于 2023-10-21 11:57
+
+ 本帖最后由 HSJ1992 于 2023-10-21 12:00 编辑 
+
+也不是到傍晚，布莱泽的变身时长虽然没提，但估计也是经典3分钟吧。
+
+就纯纯是致敬回使用了奥系列的经典夕阳场景。
+
+故事流程跟初代15集基本一样，小孩子画出了怪兽，奥特曼最后将怪兽送上宇宙，成了夜空中的星座。
+
+是有让母亲高血压、布莱泽打怪让人想吐槽、叙事节奏有点奇奇怪怪、怪兽解决太突兀等槽点，
+
+但转念一想小时候看初代的这集，童年的我的视角不会太在这些上，
+
+小朋友们看这集，视角也会更多在几个小孩和怪兽上吧。
+
+“看这集感觉到槽点和违和感”——&gt;“意识到是自己长大了，视角跟童年的自己不同了，已经是会觉得三个小孩的好演技让我觉得真的烦的大人了”
+
+跟初代那集有差别的地方应该是田口所想表达的内容吧，
+
+这集里面还是有不少设计的，
+
+1.母亲的台词“我虽然不想他变成一个坏孩子，但也不希望他成为一个总是在读空气的人”
+
+希望小孩子就有小孩子的模样，童年无忧无虑天真无邪；
+
+2.朋友展示秘密基地——&gt;朋友要搬家了，走之前跟你分享秘密基地；
+
+3.初代里小孩希望加巴顿不要只是傻傻的睡着要加油而画出了二阶段，这集里加巴顿是只有一阶段，纯他们让加巴顿快醒醒这里很危险；
+
+虽然昭和致敬回却又没那么昭和；
+
+4.剧里的台词
+
+“对不起 加巴顿”
+
+“加巴顿 你没有做错事”
+
+“怪我们 让你变得太过巨大了”
+
+“我们再也不能一起玩了”
+
+“能和你一起玩 我真的很开心”
+
+这段里的对加巴顿说的，也可以理解成是纯和要搬家的朋友说的。也可以理解成是对屏幕前的你说的，仅仅因为长大了就失去了跟小时候一样的玩耍权力..
+
+“你画的画挂在了夜空中”
+
+“整个世界都像是我们的秘密基地一样啊”
+
+纯和朋友和加巴顿，秘密基地和童年，
+
+这集乍一看觉得有槽点，细想琢磨一下发现设计的地方后，心情倒觉得惆怅了。
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 1302#       发表于 2023-10-21 12:59
+
+这集三个小孩演技都挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  上坂莲华  
+##### 1303#       发表于 2023-10-21 13:40
+
+这集队长儿子的剧情其实没啥大问题，队长自己也说了
+
+原本一直在演听话懂事的好孩子，突然发现了非常非常想干的事情，露出小孩子的天性狠狠胡闹了一顿，完全可以理解
+
+当然现在的观众都是大人了，即使能明白也很难共情，小孩子能不能共情也不好说，只能说是大人的角度写大人眼中的小孩子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sokukei  
+##### 1304#       发表于 2023-10-21 13:51
+
+增加新规怪兽的决策真的是太棒了，这集的怪兽也好喜欢
+
+
+*****
+
+####  笋狐  
+##### 1305#       发表于 2023-10-21 14:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加巴顿的小抱枕什么的有在安排了吗
+
+
+*****
+
+####  KharaLaplace  
+##### 1306#       发表于 2023-10-21 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集看得也太乐了
+
+二次元怪兽：只和固定的几个朋友玩的开、见到人就只想着躲（开始电视上的镜头）、不愿出门以至于从中午叫到了傍晚都叫不动
+
+天哪这根本是我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  毛头子  
+##### 1307#       发表于 2023-10-21 15:28
+
+我一直把加巴顿当鲸鱼，结果居然是饺子精<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">淦顿时饿了
+
+
+*****
+
+####  希望之花  
+##### 1308#       发表于 2023-10-21 15:50
+
+二次元怪兽加巴顿变成了天上的星星（悲）
+
+所以整个下午防卫队和小孩就站那儿看布莱泽玩抱枕吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuki-0014  
+##### 1309#       发表于 2023-10-21 16:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">奥特夹娃娃！
+
+
+*****
+
+####  angelooo  
+##### 1310#       发表于 2023-10-21 17:25
+
+<blockquote>笋狐 发表于 2023-10-21 14:04
+加巴顿的小抱枕什么的有在安排了吗</blockquote>
+上周官网开了一个链接，等我进去了都卖光了……
+
+*****
+
+####  angelooo  
+##### 1311#       发表于 2023-10-21 17:27
+
+<blockquote>毛头子 发表于 2023-10-21 15:28
+我一直把加巴顿当鲸鱼，结果居然是饺子精淦顿时饿了</blockquote>
+友情提示这玩意有四条腿，另外两条后腿我是买了烂胶5000才看到（只能看见脚掌）
+
+吗的，这一定是阴谋，先骗了我5000不够，现在还要出500
+
+
+*****
+
+####  天剑流星  
+##### 1312#       发表于 2023-10-21 18:05
+
+这个大卡哇通竟然是三个小孩自己画出来的，最后感觉收尾不如原版那么自然，原版为卡哇通求情那段还挺喜欢的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  haojie_ma  
+##### 1313#       发表于 2023-10-21 18:49
+
+所以被弹开的导弹炸烂的楼房防卫队打算怎么赔？
+
+
+*****
+
+####  仟音一心  
+##### 1314#       发表于 2023-10-21 21:13
+
+楠健吾
+<img src="https://p.sda1.dev/13/9dd796b9b03b6e5d4e338bd591319dfa/CMP_20231021211315588.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Y.Cassano  
+##### 1315#       发表于 2023-10-21 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62786208&amp;ptid=2104492" target="_blank">haojie_ma 发表于 2023-10-21 18:49</a>
+
+所以被弹开的导弹炸烂的楼房防卫队打算怎么赔？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">缺德一波：发抵扣券？
+
+
+*****
+
+####  龍奕  
+##### 1316#       发表于 2023-10-21 21:39
+
+这周这集，边看边想到自己已经是卑鄙大人的一员，心好痛……
+
+
+*****
+
+####  待宵  
+##### 1317#       发表于 2023-10-21 21:51
+
+故事节奏特别昭和的一集
+
+小时候电视上看昭和奥总觉得一集故事讲很久最后奥出来打怪就是个过场，哪像尤其是新生代基本绕着主角转，一集没多久就结束了
+
+这次是头一回又有这种感觉了
+
+
+*****
+
+####  angelooo  
+##### 1318#       发表于 2023-10-21 21:59
+
+卧槽那个几万日元的加巴顿抱枕是怎么回事，小的抢完了开始强行推销大的了吗OTZ
+
+
+*****
+
+####  kcalb  
+##### 1319#       发表于 2023-10-21 23:28
+
+不但和初代一样是15话，某个采访到的路人就是初代那群小孩之一
+
+タカシ：内野惣次郎
+
+
+*****
+
+####  Sliurus  
+##### 1320#       发表于 2023-10-22 00:21
+
+这集很童趣，不挺好的吗？有种小时候和表哥瞎逛回去被骂的熟悉感
+
+就是小孩子叫有点ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Garterbelt  
+##### 1321#       发表于 2023-10-22 10:48
+
+虽然可以理解致敬的情怀和想表达的点，但是这集后半战斗开始之后的剧情还是有些地方太突兀了，不是光靠情怀的能忽略的
+
+一是从白天到黄昏的转场，这造成战斗时间体感过长以及三个孩子长时间未被救援的bug。如果一开始就定好要致敬夕阳下战斗的画面，那么最好安排开战时直接就是黄昏，这样能顺滑很多
+
+二是这集最大的问题，三个孩子和布莱泽没有交流的表现，这造成了三个孩子从单纯阻止战斗到“是我们把你画得太大了”的转变，以及布莱泽从攻击到把卡巴顿送走之间的转变这两个转变都很突兀。如果战斗中能增加一下至少表现出布莱泽注意到了三个孩子的喊话的镜头，整体都能合理很多
+
+
+*****
+
+####  桥本有菜  
+##### 1322#       发表于 2023-10-22 10:56
+
+初代那集我一直都很喜欢的，虽然人气不是特别高的回数，不过因为这集的监督是实相寺昭雄，所以还是非常值得去重温的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  洛克萨斯  
+##### 1323#       发表于 2023-10-22 20:00
+
+这集饺子精挺可爱的.............<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虽然和主线没关系，但能感受到编剧和导演想要展现的东西，小孩子的童趣啊，我们这些观众已经是可悲的大人了，回不到那个可以胡闹的时期了
+
+
+*****
+
+####  angelooo  
+##### 1324#       发表于 2023-10-22 21:39
+
+初代那集我只喜欢A形态，因为确实可爱过头了，B形态就很烂大街的怪兽（但主打一个外表凶恶本质只想睡觉的反差），但这新的一集只有A形态的话萌度已经爆表了，播出之后就周边的需求度而言圆谷确实抓住了带货的流量密码
+
+
+*****
+
+####  仟音一心  
+##### 1325#       发表于 2023-10-22 22:11
+
+中野贵雄：原剧本的兄妹俩是幻想，和比留间纯分别后会消失。
+
+
+*****
+
+####  仟音一心  
+##### 1326#       发表于 2023-10-22 22:33
+
+斩基尔人间体：唐桥充
+《假面骑士555》海堂直也
+《赛文奥特曼X》 タカオ
+《超级银河—大怪兽乱斗永无止境奥德赛》キール星人グランデ
+《假面骑士G》 シェード队员 
+《侍战队真剑者》腑破十臓
+《假面骑士GHOST》宫本武藏
+《假面骑士Saber》富加宫隼人/假面骑士Calibur役
+<img src="https://p.sda1.dev/13/285593c733c2b7308c1b7b6a58d0136a/CMP_20231022223023416.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 1327#         楼主| 发表于 2023-10-22 23:26
+
+ 本帖最后由 Piano-Forest 于 2023-10-22 23:29 编辑 
+
+月光怪兽 德鲁坦达尔
+
+身长：45m
+
+体重：14,000t
+
+以9马赫的速度在黑夜中飞翔的月光怪兽。有着像三角形的全翼机那样的翅膀，飞行时能产生令人毛骨悚然的音爆。
+
+武器是从胸口发光部射出的月光弹。德鲁坦达尔以世界各地产生的积雨云为巢穴、隐匿自身，每当积雨云消失时便会转移至大气层外，以寻找其他的积雨云
+<img src="https://p.sda1.dev/13/b4871bb5933234388ea1dffdeffdb1f3/20231022_232824.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/e1c44a4241c86738255dce26fe0a6ee2/20231022_232825.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/f114a0b0dcac452230da5420a0f9d9bb/20231022_232816.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/c250081ed8f9c5b993d6d969c3452fb6/7b29f816-da24-464f-8df7-cd15eab4f02d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/5ac6aa74c0c7fa9d6516e469d5962587/b8ee4d00-d8c9-4d76-8a07-fb60f1bc6e82.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/7068811c73dbb2a1b26b44386fc7cbb9/6c3cb1a4-3bb4-47ed-a0d4-172bc3956e11.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/1cab5ed5cb06e2583528c94433ed17e3/a113bbe5-aad7-4806-bd82-794362cc6da4.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/f370655192724f725d6f2095d49077f0/be453ad4-4ede-4746-b2f2-b46ae2b72cc2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/a0bc0e606f734e0b993aca200445c40f/aa749107-005d-427f-b9c4-69bd4747aa55.jpg" referrerpolicy="no-referrer">
+
+设计 楠健吾（原型 比利时不明飞行物）
+[https://twitter.com/erohoshi/status/1713027259567936000](https://twitter.com/erohoshi/status/1713027259567936000)
+
+月光怪獣デルタンダルのデザインを担当いたしました。普段の着ぐるみとは違い、撮影もギニョールだ飛び人形だとなかなか大変なことになっております……デザインだけでなく、当初こちらから出した設定も一部拾ってもらってたのは嬉しかったですね。
+<img src="https://p.sda1.dev/13/a5e14518766f69342e96d407ea680c77/20231022_232409.jpg" referrerpolicy="no-referrer">
+
+「今様の円盤生物」的な怪獣をやりたくてベルギーのデルタ型UFOをモデルにしています。
+
+とはいえ「円盤は生物だった！」と言っても皆さんご存知で今さらそう驚かれないでしょうから、いかにも宇宙怪獣な見た目で実は純然たる地球の原住生物、というサプライズを加えました。
+<img src="https://p.sda1.dev/13/9df106e8634eb816016c373222ab25e7/20231022_232430.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/4034bd35b7d958f819c0b36ede32d622/20231022_232432.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 1328#         楼主| 发表于 2023-10-22 23:44
+
+二次元怪兽 加巴顿 
+
+身长：40cm〜30m
+
+体重：400g〜20,000t
+
+由受降落到地球上的特殊宇宙射线影响的涂鸦实体化成的二次元怪兽。每当太阳落山时又会变回涂鸦的样子
+
+1966年『ウルトラマン』第15話「恐怖の宇宙線」
+<img src="https://p.sda1.dev/13/6e512578814768802accd88fba34f70c/6112f03a-12d7-4f1f-b814-6504a46884ec.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/c529dde80c8ebbb8ed7e9debf85df580/5f448ebd-f054-4fb3-8851-c2eeeded0fe6.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/19ff559409c8cf6894be827c12628d86/f3cdf258-2002-42c6-a28b-0b4c9066f03c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/c26a3a3337ad1b7bdf75624a1848cb52/0071c453-b6a0-4507-bf68-3d77e7bc05f9.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/b1c46a02fa4dc10b201219d9075a77dd/57085cfa-917f-4d70-b22c-050c6b2f205c.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/15206afc0f6220f396c0bc7438d874cb/b1dd072a-5ae1-4562-8c21-0a2521c67bd1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/f6ff11c20eadc2165acaa4e4c8d3e675/1683554b-12b3-4236-9fe6-057cf8931760.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/afa10ebd4a0d16503c71946572ec9a8a/7c98248a-cd10-419a-9a0e-a8e53cc3f868.jpg" referrerpolicy="no-referrer">
+
+楠健吾
+[https://twitter.com/erohoshi/status/1715672431518720114](https://twitter.com/erohoshi/status/1715672431518720114)
+
+先週のデルタンダルとは真逆に柔い眠い動かない！　なガヴァドン。もう「この形」自体が自らの実体化を望んでいて、コレを描くことで妖しの宇宙線を呼び込んでしまうことになる危険な図形なのでは？
+
+玩具は出来れば軟質ソフビ版も出して欲しいなぁ。
+<img src="https://p.sda1.dev/13/cd2f1c9c8eb515f4179ef5c5a26069af/20231022_234412.jpg" referrerpolicy="no-referrer">
+
+中野贵雄
+[https://twitter.com/galshocker/status/1715549731697422847](https://twitter.com/galshocker/status/1715549731697422847)
+
+ウルトラマンブレーザー１５話『朝と夜の間に』脚本担当しました。「アラタくんとツムギちゃんが黄昏にスーッと消えていく」というところで、ガヴァドンどころかこの兄妹の存在自体がファンタジーともとれるように書きました。
+
+我担任了第15集《昼夜之间》的编剧
+
+原来的结局是‘新太和绸希在黄昏下消失’，不仅是加巴顿，就连这对兄妹也只是幻想出来的存在
+
+
+*****
+
+####  山岚夜雨  
+##### 1329#       发表于 2023-10-23 01:44
+
+啊？原来原本结局是，感觉原结局比现在的更有味道
+
+
+*****
+
+####  scorbian  
+##### 1330#       发表于 2023-10-23 02:05
+
+假面骑士heart大战(前)faiz＆咖喱棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HSJ1992  
+##### 1331#       发表于 2023-10-23 13:29
+
+ 本帖最后由 HSJ1992 于 2023-10-23 13:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62797947&amp;ptid=2104492" target="_blank">山岚夜雨 发表于 2023-10-23 01:44</a>
+
+啊？原来原本结局是，感觉原结局比现在的更有味道</blockquote>
+是更有味道。
+
+但对小孩来说也太难过太残酷了。
+[https://www.bilibili.com/video/BV1iB4y1o7HD/?p=1&amp;t=0](https://www.bilibili.com/video/BV1iB4y1o7HD/?p=1&amp;t=0)
+
+你看下这个视频09：05是按照原案剪辑了一下的结局。
+
+
+*****
+
+####  Sliurus  
+##### 1332#       发表于 2023-10-23 14:00
+
+消失了更浪漫，真人则更加真实。中途转学不是什么新鲜事，短暂的友谊却弥足珍贵。加巴顿的眼泪与其说是觉得纯过于成熟掩藏童真的一面，不如更直白地视作对于这一段友谊的不舍。毕竟即使千言万语，也改变不了日后也许不能再见面的事实。接受离别才是最残酷的成长，无论是地理上的还是生理上的
+
+
+*****
+
+####  最强惠酱  
+##### 1333#       发表于 2023-10-23 19:35
+
+现在的结局比较好，假如是幻想有点过于虚无，不过这也解释了明明铺垫里满墙画画的是朋友，而实际照到的是碰巧留下来随手一画的纯
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仟音一心  
+##### 1334#       发表于 2023-10-25 18:37
+
+第17话【流浪的斩基尔】
+脚本：继田淳
+监督：辻本贵则
+过去击退的怪兽徘徊在世间的案件接连发生，而现场必定会有神秘男子出现，让怪兽消失……
+第18话【恐怖耸立】
+脚本：继田淳
+监督：越知靖
+从冲破地面出现的怪兽口中吐出的气体侵蚀着人体。
+认为有第三波冲击可能性的惠美独自进行调查。
+第19话【光与火】
+脚本：继田淳
+监督：越知靖
+应该打倒了的怪兽一个个出现，还有从地下出现的巨大怪兽……
+惠美与父亲的研究伙伴接触，被告知3年前爆炸事故的真相……
+
+
+*****
+
+####  Sokukei  
+##### 1335#       发表于 2023-10-28 03:51
+
+接下来三集好像都是主线 期待
+
+
+*****
+
+####  游蜓  
+##### 1336#       发表于 2023-10-28 08:06
+
+光与火怎么有怪兽酋长的感觉
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Islingr  
+##### 1337#       发表于 2023-10-28 09:11
+
+起猛了 看到惠美暴打布莱泽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">再睡会儿
+
+
+*****
+
+####  游蜓  
+##### 1338#       发表于 2023-10-28 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62790372&amp;ptid=2104492" target="_blank">Garterbelt 发表于 2023-10-22 10:48</a>
+
+虽然可以理解致敬的情怀和想表达的点，但是这集后半战斗开始之后的剧情还是有些地方太突兀了，不是光靠情怀 ...</blockquote>
+新生代经典白天打到黄昏了，可以说圆谷为了拍黄昏很多时候直接忽略逻辑了
+
+
+*****
+
+####  nonodundun  
+##### 1339#       发表于 2023-10-28 10:33
+
+惠美最害怕的居然是自己，有点意思
+
+*****
+
+####  游蜓  
+##### 1340#       发表于 2023-10-28 10:37
+
+这集感觉真有点穷啊，地面塌陷的cg特别廉价，违和感满满，后面闲人开车到怪兽那用的甚至是模型还不是合成cg。。。
+
+巨大惠美暴打布莱泽真的乐，拍摄现场一定很开心吧
+
+这集怪兽莫古乔还挺强的，能力多，智商高，战斗里面对形势判断很准确
+
+剧情上来说塑造了温暖小团体，然后留了个惠美恐惧/讨厌自己的坑，希望后面能好好回收。
+
+下周怎么又是总集篇，麻了
+
+*****
+
+####  新HGCG  
+##### 1341#       发表于 2023-10-28 10:40
+
+我知道了，布莱泽奥特曼最后要打的就是觉醒了自我意识要毁灭人类的阿斯加龙
+
+因为声优一听就是要反水的幕后黑手
+
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1342#       发表于 2023-10-28 10:43
+
+好有趣的一集，巨大化惠美<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新HGCG  
+##### 1343#       发表于 2023-10-28 10:45
+
+<img src="https://img.saraba1st.com/forum/202310/28/104505upxt0ole6ptycyo0.jpg" referrerpolicy="no-referrer">
+
+<strong>342144323421.jpg</strong> (150.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 10:45 上传
+
+
+*****
+
+####  pokemon最爱  
+##### 1344#       发表于 2023-10-28 11:25
+
+惠美看到的幻觉是惠美自己，开个脑洞，其实真正的惠美早就死了，现在的惠美是继承了原本惠美的记忆并忘记了自己真身的拟态怪兽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无端崖之辞  
+##### 1345#       发表于 2023-10-28 11:34
+
+下周又是总集篇<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hulaoda007  
+##### 1346#       发表于 2023-10-28 11:56
+
+ 本帖最后由 hulaoda007 于 2023-10-28 11:57 编辑 
+
+开头不同的人看到不同的怪兽还蛮有趣的。合体图更是泰兰特。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  無個性  
+##### 1347#       发表于 2023-10-28 12:04
+
+阿斯加隆一开口就在狂笑
+
+
+*****
+
+####  水边井  
+##### 1348#       发表于 2023-10-28 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62856453&amp;ptid=2104492" target="_blank">新HGCG 发表于 2023-10-28 10:45</a></blockquote>
+哈哈哈，渚薰是吧
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  待宵  
+##### 1349#       发表于 2023-10-28 12:43
+
+今年这布莱泽是真的很会整活
+
+
+*****
+
+####  acejoe  
+##### 1350#       发表于 2023-10-28 13:23
+
+惠美作为最强异虫外门徒弟，打布莱泽居然用了门派招式，感觉导演有意利用上了这点
+
+
+*****
+
+####  Wildfire  
+##### 1351#       发表于 2023-10-28 14:03
+
+巨大化惠美一下联想到了痞子奥的麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuki-0014  
+##### 1352#       发表于 2023-10-28 15:04
+
+有点好奇如果野人被闪到了会看到什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  haoshion  
+##### 1353#       发表于 2023-10-28 16:13
+
+这集前半太欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+后面惠美怕的居然是自己，大的要来了（
+
+可惜布莱泽有闭眼花活，看不到害怕什么了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  喷火飞龙  
+##### 1354#       发表于 2023-10-28 17:04
+
+布莱泽真的太能整活了……
+
+*****
+
+####  Case  
+##### 1355#       发表于 2023-10-28 17:07
+
+好好玩的一集。居然能塞这么多活。
+
+小队互动、幻象怪兽、阿斯加隆AI、惠美的恐惧……奥特主动闭眼。
+
+看的好舒服。
+
+
+*****
+
+####  新HGCG  
+##### 1356#       发表于 2023-10-28 18:20
+
+对了，这集的怪兽是新的吧
+
+
+*****
+
+####  彬噜  
+##### 1357#       发表于 2023-10-28 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62860739&amp;ptid=2104492" target="_blank">新HGCG 发表于 2023-10-28 18:20</a>
+
+对了，这集的怪兽是新的吧</blockquote>
+是的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 1358#       发表于 2023-10-28 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62860848&amp;ptid=2104492" target="_blank">彬噜 发表于 2023-10-28 18:30</a>
+
+是的</blockquote>
+居然有造型如此昭和的新怪兽
+
+
+*****
+
+####  huruii7  
+##### 1359#       发表于 2023-10-28 19:48
+
+为啥下一集又是总集篇，第一次追奥特曼，这总集篇频率是正常的吗
+
+
+*****
+
+####  pokemon最爱  
+##### 1360#       发表于 2023-10-28 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62861438&amp;ptid=2104492" target="_blank">huruii7 发表于 2023-10-28 19:48</a>
+
+为啥下一集又是总集篇，第一次追奥特曼，这总集篇频率是正常的吗</blockquote>
+新生代一部半年有个2到3集总集篇应该是正常现象（
+
+
+*****
+
+####  山岚夜雨  
+##### 1361#       发表于 2023-10-28 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62856383&amp;ptid=2104492" target="_blank">游蜓 发表于 2023-10-28 10:37</a>
+这集感觉真有点穷啊，地面塌陷的cg特别廉价，违和感满满，后面闲人开车到怪兽那用的甚至是模型还不是合成cg ...</blockquote>
+我看导演开播前访谈，和上面交涉上面不给批更搞的预算，但是可以把其他集数的经费匀出来集中给某一集，所以爽一集是有代价的
+
+
+*****
+
+####  400姨妈  
+##### 1362#       发表于 2023-10-29 01:37
+
+结合之前野人有过想跑路的嫌疑，这集闭眼说不定也是野人主导的，怕看到的东西说不定就是来地球的原因<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  希望之花  
+##### 1363#       发表于 2023-10-29 02:44
+
+想看惠美暴打布莱泽的摄影棚画面
+
+
+*****
+
+####  unsh  
+##### 1364#       发表于 2023-10-29 14:55
+
+下周总集篇是三大特摄统一的吧
+
+
+*****
+
+####  Sliurus  
+##### 1365#       发表于 2023-10-29 21:03
+
+幻觉里癫狂的惠美可能是她眼里的自己？一意孤行去调查当年的真相非常危险，其实她也很害怕，觉得自己疯了，但是为了父亲又不得不去做，所以逐渐自我厌恶
+
+
+*****
+
+####  linchuanwangmou  
+##### 1366#       发表于 2023-10-30 14:24
+
+有没有可能惠美队员是未觉醒的外星人布莱泽幼体，他爹就是布莱泽本体，然后研究所爆炸的时候他爹和队长融合了，但是他爹失忆了，只能靠野兽本能行事，这一集就是暗示惠美队友害怕自己觉醒暴走
+
+
+*****
+
+####  Chiralium  
+##### 1367#       发表于 2023-10-30 21:53
+
+既然幻视光线对惠美有效果那她应该是人类，但布莱泽面对幻视光线也选择了回避，虽然机师是队长但作为机体的布莱泽是没有小脑扁桃体的
+
+
+*****
+
+####  Piano-Forest  
+##### 1368#         楼主| 发表于 2023-10-31 11:29
+
+11剧集剧照
+<img src="https://p.sda1.dev/13/5a259fec782fd732e335219fa4321d1c/20231031065853.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/e2d98c4ae156df1c40945ace91986e50/20231031065853_20231031065905.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/94d156b6c27ef2f61f7003809cdf0aae/20231031065955.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/f0a939ab2320f4b8b1bdeee39c0913a8/20231031065955_20231031070009.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/e484073e36c11cd84bf7545f312eedd4/20231031070139.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/2eedcd2e65b90e26fb5eb102b5f5c5da/20231031070139_20231031070155.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unsh  
+##### 1369#       发表于 2023-10-31 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没想到是直接加右肩甲
+
+
+*****
+
+####  unsh  
+##### 1370#       发表于 2023-10-31 20:40
+
+<img src="https://img.saraba1st.com/forum/202310/31/203937mcynaivavzabdbbb.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231031203841.png</strong> (32.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202310/31/203937n0gzjutubxc550pj.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231031203837.png</strong> (21.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202310/31/203937hhiz1zumxfxxxmbx.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231031203832.png</strong> (25.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202310/31/203937ieyortsejoz4so2c.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231031203844.png</strong> (21.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:39 上传
+
+即兴表演的演出效果也太好了
+
+
+*****
+
+####  yuki-0014  
+##### 1371#       发表于 2023-10-31 20:50
+
+<img src="https://img.saraba1st.com/forum/202310/31/204713deoea428ahp8u5y9.png" referrerpolicy="no-referrer">
+
+<strong>113018369_p2.png</strong> (142.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:47 上传
+
+<img src="https://img.saraba1st.com/forum/202310/31/204730n5hfmjhdlfaybhmn.png" referrerpolicy="no-referrer">
+
+<strong>113018369_p4.png</strong> (137.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 20:47 上传
+
+[https://www.pixiv.net/artworks/113018369](https://www.pixiv.net/artworks/113018369)
+
+转发两个奥特曼脑洞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kal_008  
+##### 1372#       发表于 2023-11-1 10:35
+
+<img src="https://img.saraba1st.com/forum/202311/01/103546lljjyq1jn1jxwwql.png" referrerpolicy="no-referrer">
+
+<strong>de1407d8a73847835b38e2acd400f671.png</strong> (26.52 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-1 10:35 上传
+
+原来剧照里这长头是海星二代目的
+
+
+*****
+
+####  Chiralium  
+##### 1373#       发表于 2023-11-1 11:17
+
+我就说预告里的蛇形怪兽怎么那么小，原来是二代海星的尾巴
+
+
+*****
+
+####  仟音一心  
+##### 1374#       发表于 2023-11-1 21:08
+
+12月剧照
+<img src="https://p.sda1.dev/13/4894613d6c351060b48779849e7ddea0/46991F5B6112212254BFD09748741D41.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/3749f273310b838f81750d5de8f178b2/CMP_20231101210727530.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/5d4b8f52fb3ed26a6c27cbd00b420359/CMP_20231101210727566.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/8d3a617938c019dd83df8043a0b081c3/CMP_20231101210727602.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/06ea68be51f76edc5e70ee37db4e4174/CMP_20231101210727641.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/32a2f4e02b4fba75aa5f8e7b598154ad/CMP_20231101210812203.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 1375#       发表于 2023-11-1 21:09
+
+宇宙侍斩基尔
+身高：54m
+体重：54,000t
+剑术高手，以斩杀流浪怪兽的灵魂令其瞑目为使命
+
+
+*****
+
+####  游蜓  
+##### 1376#       发表于 2023-11-1 21:17
+
+这部真就致敬初代，怪彗星兹乙风那集的俩怪都能上，回头多啦考登场也不是不可能
+
+下面那个头上长jj的怪好怪哦
+
+*****
+
+####  柳柳昭陵  
+##### 1377#       发表于 2023-11-1 21:19
+
+这雪人是第一次见到奥特曼了？
+
+
+*****
+
+####  仟音一心  
+##### 1378#       发表于 2023-11-1 21:47
+
+17话 斩基尔
+18话 伊鲁格
+19话 伊鲁格、强殖盖巴鲁加
+20话 兹古冈
+21话 贡吉尔冈、蕾娜斯
+22话 雷德王、齐卡斯
+23话 塔伽努拉二代
+24话-25话 瓦拉隆
+
+
+*****
+
+####  hulaoda007  
+##### 1379#       发表于 2023-11-1 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">很精致的甚至玉米棒的皮套都是二代的，真细心。
+
+
+*****
+
+####  unsh  
+##### 1380#       发表于 2023-11-2 00:12
+
+强化的武器像是能当弓使啊
+
+
+*****
+
+####  angelooo  
+##### 1381#       发表于 2023-11-2 00:52
+
+海星二代这个软胶上色实在是太拉了……
+
+
+*****
+
+####  徘徊的幻影  
+##### 1382#       发表于 2023-11-2 02:35
+
+25话？最终boss的形象这就透露出来了？
+
+
+*****
+
+####  Chiralium  
+##### 1383#       发表于 2023-11-2 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910598&amp;ptid=2104492" target="_blank">徘徊的幻影 发表于 2023-11-2 02:35</a>
+25话？最终boss的形象这就透露出来了？</blockquote>
+整部剧在开播前就已经杀青了
+
+
+*****
+
+####  徘徊的幻影  
+##### 1384#       发表于 2023-11-2 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912325&amp;ptid=2104492" target="_blank">Chiralium 发表于 2023-11-2 10:04</a>
+整部剧在开播前就已经杀青了</blockquote>
+这个我知道，只是感慨今年最终boss揭露的有点早<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  unsh  
+##### 1385#       发表于 2023-11-2 15:06
+
+这新武器那部分还能变鹰，老猎人了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kcalb  
+##### 1386#       发表于 2023-11-2 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62913868&amp;ptid=2104492" target="_blank">徘徊的幻影 发表于 2023-11-2 12:13</a>
+
+这个我知道，只是感慨今年最终boss揭露的有点早
+
+—— 来自 S1Fun</blockquote>
+罗布刚开播时中后期及最终BOSS玩具图就流出来了
+
