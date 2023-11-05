@@ -2412,3 +2412,193 @@ https://www.youtube.com/watch?v=v1EsRF6OTaE ...</blockquote>
 
 笑死了，这游戏也可以“抽卡”了。每个人帽子颜色还不一样的。看看今天我能抽出啥
 
+*****
+
+####  y433wu  
+##### 144#         楼主| 发表于 2023-10-29 19:51
+
+<img src="https://img.saraba1st.com/forum/202310/29/065046t45pi8riukr8dwil.png" referrerpolicy="no-referrer">
+
+<strong>024a89c6fbc05dc0c0caad1ef8e6a88.png</strong> (139.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-29 19:50 上传
+
+※建議傷害 * 40就能得知大約的魔物血量，正確的建議傷害公式是 「魔物血量 / 40」(向下取整)
+
+※毒傷%分為0.7%、1.2%、1.8%(耐普弱毒)，傷害公式為 「魔物血量 * 毒傷%」(向下取整)
+
+※升6星血量增加約1.8倍、升7星增加約1.7倍、升8星約1.9倍、升9星2.1倍
+
+
+*****
+
+####  好大一只绅士  
+##### 145#       发表于 2023-10-30 08:50
+
+南瓜帽升到R10要多少票啊
+
+
+*****
+
+####  dudideng  
+##### 146#       发表于 2023-10-30 09:26
+
+打骚鸟伤害溢出的话还行，
+越级打的时候抱着个石头半天不砸，
+打不到头部弱点导致伤害不够超时是真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 7 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  y433wu  
+##### 147#         楼主| 发表于 2023-10-30 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62877013&amp;ptid=2147636" target="_blank">好大一只绅士 发表于 2023-10-29 19:50</a>
+
+南瓜帽升到R10要多少票啊</blockquote>
+G10吗？最多70票。
+
+没必要升满呀，技能不够好。会浪费防具精炼素材。
+
+我是升到G5-5就放置了
+
+*****
+
+####  y433wu  
+##### 148#         楼主| 发表于 2023-10-30 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62877416&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-10-29 20:26</a>
+
+打骚鸟伤害溢出的话还行，
+
+越级打的时候抱着个石头半天不砸，
+
+打不到头部弱点导致伤害不够超时是真的恶心[f ...</blockquote>
+砍它尾巴
+
+
+*****
+
+####  y433wu  
+##### 149#         楼主| 发表于 2023-11-1 10:44
+
+各位獵人們，
+
+我們要在此公布11月的活動行程。11月也有非常豐富的各種活動！
+
+<strong>泥魚龍週末活動</strong>
+
+時間（當地時間）
+
+11月3日（五）17:00～20:00
+
+11月4日（六）13:00～16:00
+
+11月5日（日）13:00～16:00
+
+任何達到HR 11以上的人進入沼澤區域時，泥魚龍的出現機率會增加。
+
+活動期間內，所有區域的重新出現時間會縮短。
+
+<strong>來自庫萊莉的特殊任務</strong>
+
+時間（當地時間）
+
+11月10日（五）17:00～11月12日（日）16:00
+
+達到HR 11以上的話，就會出現期間限定的活動任務。完成任務後，能獲得強化裝備所需的黏著黑蟻、上龍骨之類的採集素材以及ZENY。
+
+<strong>風漂龍週末活動</strong>
+
+時間（當地時間）
+
+11月17日（五）17:00～20:00
+
+11月18日（六）13:00～16:00
+
+11月19日（日）13:00～16:00
+
+任何達到HR 11以上的人進入沼澤區域時，風漂龍的出現機率會增加。
+
+活動期間內，所有區域的重新出現時間會縮短。
+
+<strong>沙漠咆哮 角龍</strong>
+
+本週<strong>黑角龍</strong>重新登場。週末除了發布可獲得特別獵人勳章的期間限定特殊任務以外，在一定期間內，角龍、黑角龍會比平時更常出現。
+
+時間（當地時間）
+
+11月20日（一）9:00～11月26日（日）16:00
+
+通關第11章並解鎖狩獵角龍後，黑角龍會以低機率出現在沙漠區域。
+
+另外，在以下期間內，任何達到HR 11以上的人進入沙漠區域時，除了角龍與黑角龍會比平時更常出現以外，所有區域的魔物重新出現時間也會縮短。
+
+11月24日（五）17:00～20:00
+
+11月25日（六）13:00～16:00
+
+11月26日（日）13:00～16:00
+
+※黑角龍在11月26日的活動結束後，會暫時消隱蹤跡。
+
+※內容有可能會變更。
+
+追隨官方的社群媒體，別錯過任何最新資訊。
+
+
+*****
+
+####  y433wu  
+##### 150#         楼主| 发表于 2023-11-1 11:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">wtf 之前只注意了黑角弓的箭种，没注意蓄力等级
+
+贯通 lv1
+
+贯通 lv1
+
+贯通 lv4
+
+贯通 lv4
+
+黑角弓蓄力到第三级就有4级贯通 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  y433wu  
+##### 151#         楼主| 发表于 2023-11-2 13:33
+
+骚鸟太通关9星
+
+Kulu G9/4: [https://www.youtube.com/watch?v=X6D3IUBacVg](https://www.youtube.com/watch?v=X6D3IUBacVg)
+
+Great Girros G9/4: [https://www.youtube.com/watch?v=8n56XP6gLSw](https://www.youtube.com/watch?v=8n56XP6gLSw)
+
+Pukei G9/4: [https://www.youtube.com/watch?v=veFnyvumMSE](https://www.youtube.com/watch?v=veFnyvumMSE)
+
+Tobi G9/5: [https://www.youtube.com/watch?v=ilNTmDgmJcM](https://www.youtube.com/watch?v=ilNTmDgmJcM)
+
+Paolumu G9/5 (no sound): [https://www.youtube.com/watch?v=_wyyMyjIDDI&amp;t=4s](https://www.youtube.com/watch?v=_wyyMyjIDDI&amp;t=4s)
+
+Barroth G9/5: [https://www.youtube.com/watch?v=n7kOJe7vuHo&amp;t=15s](https://www.youtube.com/watch?v=n7kOJe7vuHo&amp;t=15s)
+
+Jyuratodus G9/5: [https://www.youtube.com/watch?v=3h7Nz_asluk&amp;t=19s](https://www.youtube.com/watch?v=3h7Nz_asluk&amp;t=19s)
+
+Anajath G10/2: [https://www.youtube.com/watch?v=9MeOYd2jxTA](https://www.youtube.com/watch?v=9MeOYd2jxTA)
+
+Rathian G10/2: [https://www.youtube.com/watch?v=ZYOHKnaDlaY](https://www.youtube.com/watch?v=ZYOHKnaDlaY)
+
+Rathalos G10/2: [https://www.youtube.com/watch?v=aj_8rpExN24](https://www.youtube.com/watch?v=aj_8rpExN24)
+
+Legiana G10/4: [https://www.youtube.com/watch?v=oLNYIN5l9nw](https://www.youtube.com/watch?v=oLNYIN5l9nw)
+
+Diablos G10/5: [https://www.youtube.com/watch?v=sM7lpxwFulg&amp;t=3s](https://www.youtube.com/watch?v=sM7lpxwFulg&amp;t=3s)
+
+Rathalos (urgent) G10/5[https://www.youtube.com/watch?v=BwhMpVD1T9k](https://www.youtube.com/watch?v=BwhMpVD1T9k)
+
