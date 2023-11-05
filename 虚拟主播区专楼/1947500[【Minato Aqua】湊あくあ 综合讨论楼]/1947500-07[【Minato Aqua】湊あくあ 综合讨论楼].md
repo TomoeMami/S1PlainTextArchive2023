@@ -3249,3 +3249,43 @@ uasobi:3
 
 给版本回归提前造势了
 
+*****
+
+####  旧时代的扎比  
+##### 9688#       发表于 2023-10-31 08:15
+
+apex19赛季更好玩啊，不过估计不会播这个了
+<img src="https://pic.liesys.com/i/2023/10/31/65404671ab070.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  バーチャルS1er  
+##### 9689#       发表于 2023-10-31 11:20
+
+下赛季更有“含金量”了，该播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  面具13  
+##### 9690#       发表于 2023-10-31 14:29
+
+以前几次单排钻石、单排大师企划成功的时候，全部都是吃鸡上去，所以增加不了什么含金量吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  濡鸦之羽_  
+##### 9691#       发表于 2023-10-31 17:27
+
+海贼夸<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水门的祝福  
+##### 9692#       发表于 2023-11-2 15:51
+
+あくありうむ这后期剧情展开和结局，惊了
+
