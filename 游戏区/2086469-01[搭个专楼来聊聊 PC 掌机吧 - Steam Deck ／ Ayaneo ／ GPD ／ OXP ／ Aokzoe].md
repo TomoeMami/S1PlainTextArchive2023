@@ -3597,3 +3597,522 @@ ROG Ally 现在 BIOS 能升级了吗？一直没敢动。今天看有人系统�
 让他们打一架：</blockquote>
 没事。我PC上有大表哥2但没有生四<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 873#         楼主| 发表于 2023-10-16 09:50
+
+ 本帖最后由 bypass 于 2023-10-16 09:52 编辑 
+
+<img src="https://img.saraba1st.com/forum/202310/16/094312p8zjjb8zdj9zq5op.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (826.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-16 09:43 上传
+
+给 Ally 买的三个配件：
+
+<strong>1. 60+ 元的 AR 膜：</strong>相比我之前严重反光和沾指纹的钢化膜，效果显著。同样时间同样位置拍我贴了钢化膜的 Steam Deck 全都是反射的我自己 233。缺点是贴的时候必须对准边框一点误差都不能有，否则会出现白边，我下面没贴好，但不影响使用，就酱紫了。另外真的贵啊，不知道便宜一点的 AR 膜效果如何，我之前买过几硕家的 AR 非高透膜，感觉很影响观感。
+
+<strong>2. 3D 打印的握把：</strong>手感的确有所改善，但是装上去很松，手握上去明显听到握把贴机身的哐当声，很不舒服，自己赛了点卫生纸进去，算是可以正常使用了。另外就是不算特别轻，还是有感知重量有所增加。
+
+<strong>3. 酷态科 15 号：</strong>20000mAh，能开启 ROG Ally 的 30w 性能增强模式，但是耗电非常快，肉眼可见的百分比往下降。重量跟我之前的小米 55w 差不多，但是体积大反倒感觉轻了一些。
+
+
+*****
+
+####  bypass  
+##### 874#         楼主| 发表于 2023-10-17 15:22
+
+<img src="https://img.saraba1st.com/forum/202310/17/152205nfjaoiuuteaeid0z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (137.45 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-17 15:22 上传
+
+联想的掌机月底开售。 
+
+
+*****
+
+####  医生狼多  
+##### 875#       发表于 2023-10-17 16:00
+
+有无rog最新（或者较新）bios和sd的性能对比？
+
+
+*****
+
+####  医生狼多  
+##### 876#       发表于 2023-10-20 14:43
+
+这个芯片核显是不是还是没啥长进
+
+IT之家 10 月 20 日消息，亿道数码（Emdoor）近日在环球资源移动电子展，展示了一款 8 英寸的手持游戏掌机，搭载英特尔尚未发布的 Meteor Lake-H 处理器，内置英特尔 Arc 5 核显。1
+
+这款游戏掌机搭载英特尔第 14 代 Meteor Lake-H 系列处理器，TDP 范围为 20-35W，并且搭载基于锐炫（Arc）的核显。
+
+
+*****
+
+####  bypass  
+##### 877#         楼主| 发表于 2023-10-20 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62774739&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-10-20 14:43</a>
+
+这个芯片核显是不是还是没啥长进
+
+IT之家 10 月 20 日消息，亿道数码（Emdoor）近日在环球资源移动电子展， ...</blockquote>
+感觉就算核显有进步我也不敢买 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 之前的 GPD Win 3 真的就是随便一个游戏都是各种驱动 bug。
+
+
+*****
+
+####  bypass  
+##### 878#         楼主| 发表于 2023-10-21 17:15
+
+<img src="https://img.saraba1st.com/forum/202310/21/171449kjdm6186eb78oq8s.jpg" referrerpolicy="no-referrer">
+
+<strong>1b5e8389567cbff2173db9f70d464dd.jpg</strong> (269.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-21 17:14 上传
+
+ROG 好肥的胆子 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MtnDeW  
+##### 879#       发表于 2023-10-24 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62785548&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-21 03:15</a>
+ROG 好肥的胆子</blockquote>
+能不能说ROG是市面上唯一的能被称为steamdeck上位替代的机器
+
+
+*****
+
+####  INGRAMLI  
+##### 880#       发表于 2023-10-24 10:29
+
+ 本帖最后由 INGRAMLI 于 2023-10-24 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62810633&amp;ptid=2086469" target="_blank">MtnDeW 发表于 2023-10-24 09:27</a>
+
+能不能说ROG是市面上唯一的能被称为steamdeck上位替代的机器</blockquote>
+steamdeck上位?加上trackpad,硬件层面修正SD卡过热的问题再说吧,就算是上千美刀的AYANEO Kun,在YT几位老外大手掌机评测中,都被喷trackpad和背键的摆位不行(明明已经体积比Deck大不小了),老生常谈了,好的掌机不是光靠堆硬件的...
+
+
+*****
+
+####  bypass  
+##### 881#         楼主| 发表于 2023-10-24 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62810633&amp;ptid=2086469" target="_blank">MtnDeW 发表于 2023-10-24 09:27</a>
+
+能不能说ROG是市面上唯一的能被称为steamdeck上位替代的机器</blockquote>
+没有自己的系统，还是很难说上位替代。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 不过我卖掉 SD 保留 ROG 了，不玩太老的游戏或者纯键鼠的游戏其实也还好，续航对我来说是小问题。
+
+
+*****
+
+####  bypass  
+##### 882#         楼主| 发表于 2023-10-24 16:48
+
+[https://www.bilibili.com/video/BV1nh4y1i7pi](https://www.bilibili.com/video/BV1nh4y1i7pi)
+
+Legion Go 国内的评测
+
+*****
+
+####  医生狼多  
+##### 883#       发表于 2023-10-24 16:50
+
+感觉有点受不了sd的屏幕了，之前一直只玩一个没对比，今天同时折腾罗技云和sd发现串流用1080p显示色彩和清晰度好很多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">8000系啥时候出啊
+
+
+*****
+
+####  bypass  
+##### 884#         楼主| 发表于 2023-10-24 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62815946&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-10-24 16:50</a>
+
+感觉有点受不了sd的屏幕了，之前一直只玩一个没对比，今天同时折腾罗技云和sd发现串流用1080p显示色彩和清 ...</blockquote>
+换吧，或者双持吧 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我用了 ROG Ally 再回去看 SD 的屏幕，的确是辣眼睛。虽然 Ally 的屏幕也好不到哪里去。
+
+*****
+
+####  妄想中毒  
+##### 885#       发表于 2023-10-24 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">steamos优势太大了，win掌机完全比不了
+
+*****
+
+####  bypass  
+##### 886#         楼主| 发表于 2023-10-24 17:51
+
+床上打通了生化 5 黄金版，美滋滋。
+
+<img src="https://img.saraba1st.com/forum/202310/24/175116z0z7d16ln6efnex0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (661.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-24 17:51 上传
+
+
+*****
+
+####  bypass  
+##### 887#         楼主| 发表于 2023-10-27 14:25
+
+Flip 新照
+
+<img src="https://img.saraba1st.com/forum/202310/27/142555mcvgwsccne5grrn9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (168.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-27 14:25 上传
+
+
+*****
+
+####  泰坦失足  
+##### 888#       发表于 2023-10-27 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62816704&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-24 17:51</a>
+
+床上打通了生化 5 黄金版，美滋滋。</blockquote>
+我躺着床上只想侧着身子玩手机<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Ichihatsu  
+##### 889#       发表于 2023-10-27 23:41
+
+想不出这Flip键盘得是啥手感，winmini的键盘已经小到难按了，这个居然还要小一圈
+
+
+*****
+
+####  泰坦失足  
+##### 890#       发表于 2023-10-28 06:46
+
+搜了下居然是真的
+
+<img src="https://img.saraba1st.com/forum/202310/28/064546d022n0hxzzcmymu0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (208.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 06:45 上传
+
+<img src="https://img.saraba1st.com/forum/202310/28/064557uzz3eug4g8th4535.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (397.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-28 06:45 上传
+
+
+*****
+
+####  MtnDeW  
+##### 891#       发表于 2023-10-30 01:19
+
+Legion Go 国外的测评陆陆续续上了，个个都像是收了钱的样子啊。
+
+
+*****
+
+####  杉田悠一  
+##### 892#       发表于 2023-10-30 02:27
+
+这玩意怎么得体模拟ds，ds需要双屏显示的游戏大多是等宽定距连接内容，模拟3ds还差不多，但是3ds副屏有没有又都差不多，
+
+—— 来自 Xiaomi 2206122SC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bypass  
+##### 893#         楼主| 发表于 2023-10-30 08:20
+
+为什么还有人拼单的 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/30/081959dqz4f41apoakpoq7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 08:19 上传
+
+
+*****
+
+####  心之光  
+##### 894#       发表于 2023-10-30 09:08
+
+联想这个也是16G内存的？
+
+
+*****
+
+####  bypass  
+##### 895#         楼主| 发表于 2023-10-30 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62877208&amp;ptid=2086469" target="_blank">心之光 发表于 2023-10-30 09:08</a>
+
+联想这个也是16G内存的？</blockquote>
+嗯，16G，不知道为什么这几个大厂内存舍不得加，ROG 还能解释成想卖自己独显扩展坞，联想图啥呢。
+
+
+*****
+
+####  jie2000  
+##### 896#       发表于 2023-10-30 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62877733&amp;ptid=2086469" target="_blank">bypass 发表于 2023-10-30 09:54</a>
+嗯，16G，不知道为什么这几个大厂内存舍不得加，ROG 还能解释成想卖自己独显扩展坞，联想图啥呢。 ...</blockquote>
+看金猪的拆解主板上只有两颗内存颗粒的位置，不知道有没有关系
+
+
+*****
+
+####  bypass  
+##### 897#         楼主| 发表于 2023-10-30 11:49
+
+<img src="https://img.saraba1st.com/forum/202310/30/115013e74n584vjtwjnj7w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (190.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 11:50 上传
+
+image.png
+(199.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 11:49 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/114946eq3xqvavabvbmxkq.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 898#         楼主| 发表于 2023-10-31 22:18
+
+Legion Go 也是 4999
+
+
+*****
+
+####  恋妖壶  
+##### 899#       发表于 2023-10-31 22:46
+
+[https://www.bilibili.com/video/BV1nh4y1i7pi?t=169.6](https://www.bilibili.com/video/BV1nh4y1i7pi?t=169.6)
+
+看了个评测，虽然本身GO的重量和尺寸我就不会买，但是这音质也差Ally太多了，而且还是原生竖屏，再加上这土鳖前端，直接进行一个PASS，双十一想买Win掌机的还是直接建议Ally，起码是迄今最均衡水桶的
+
+
+*****
+
+####  unbalanced  
+##### 900#       发表于 2023-11-1 03:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62897743&amp;ptid=2086469" target="_blank">恋妖壶 发表于 2023-10-31 22:46</a>
+
+https://www.bilibili.com/video/BV1nh4y1i7pi?t=169.6
+
+看了个评测，虽然本身GO的重量和尺寸我就不会买， ...</blockquote>
+虽然但是，ally也是土鳖前端
+
+
+*****
+
+####  ultraseven  
+##### 901#       发表于 2023-11-1 04:00
+
+Legion Go不支持可变刷新率？
+
+
+*****
+
+####  plumlis  
+##### 902#       发表于 2023-11-1 09:33
+
+Legion go 用的就是 y700 那块屏幕，可能用的是 mipi 接口竖屏，那自然就不会支持可变刷新率。
+
+喇叭那个 rog ally 是断层式领先，联想这个只能说也不差了。
+
+
+*****
+
+####  HazukiShion  
+##### 903#       发表于 2023-11-1 09:50
+
+华硕后续会更新基于xg接口的显卡坞吗，或者说推出基于这接口的拓展坞？
+
+
+*****
+
+####  wyy123  
+##### 904#       发表于 2023-11-1 10:27
+
+昨天抢到了联想掌机，今天退了，换了rog。rog比联想这个还便宜300元。联想不错点就是遥杆是霍尔的，送个保护包。但屏幕不是原生横屏，也不支持vrr，然后就是太重了
+
+
+*****
+
+####  ultraseven  
+##### 905#       发表于 2023-11-1 11:07
+
+Legion Go上市对ROG还是有影响？我看美国也打折了，Best Buy会员买Z1E享受100刀折扣
+
+
+*****
+
+####  emcl  
+##### 906#       发表于 2023-11-1 13:11
+
+go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原生竖屏有什么不好么？
+
+
+*****
+
+####  plumlis  
+##### 907#       发表于 2023-11-1 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62902834&amp;ptid=2086469" target="_blank">emcl 发表于 2023-11-1 13:11</a>
+
+go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原生竖屏有什么不好么？ ...</blockquote>
+从素质上来说联想的屏幕完爆ally
+
+原生竖屏的问题就是你玩一些 DX8 年代的游戏，会出现各种各样的问题。那些游戏会认为你显示器是竖着的，预选的分辨率里没有对应可适应的，需要你启动进去各种修改配置，部分游戏甚至会不给你配置的机会，直接无法启动。
+
+如果你不玩 DX8 年代甚至更早的游戏，玩的都是新游戏，这个问题就不存在。
+
+我原来也纠结原生竖屏，认为横屏更好，直到我亲自玩了一些 DX8 时代的 PC 游戏，那些游戏大部分都没有完善的摇杆支持，在 Win11 下启动也是各种痛苦，有的时候还不如找那些游戏的 PS2 版来套模拟器玩来的舒心。
+
+*****
+
+####  wyy123  
+##### 908#       发表于 2023-11-1 15:28
+
+ 本帖最后由 wyy123 于 2023-11-1 15:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62902834&amp;ptid=2086469" target="_blank">emcl 发表于 2023-11-1 13:11</a>
+
+go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原生竖屏有什么不好么？ ...</blockquote>
+2个掌机都没有，只是从网上看视频参数，看了下评测
+
+联想这个就是y700平板的屏幕，所以是个竖屏。rog是专门为了掌机自己做的屏幕，是横屏的。
+
+联想这个横屏显示是靠的win11系统设置里的屏幕方向实现的，对某些游戏支持不好，玩某游戏只显示一半画面。
+
+不支持vrr可变刷新率，这个防止画面撕裂，能提高游戏帧数，还是有点用处。
+
+屏幕8.8寸，分辨率高，3a大作不可能用跟屏幕一样的原生分辨率，这样玩帧数太低，需要降低分辨率。
+
+屏幕尺寸大，分辨率低，画面会比较糊
+
+
+*****
+
+####  emcl  
+##### 909#       发表于 2023-11-1 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62904307&amp;ptid=2086469" target="_blank">plumlis 发表于 2023-11-1 15:24</a>
+从素质上来说联想的屏幕完爆ally
+
+原生竖屏的问题就是你玩一些 DX8 年代的游戏，会出现各种各样的问题。那 ...</blockquote>
+谢谢答疑，那看起来对串流，模拟器来说应该问题不大
+
+
+*****
+
+####  恋妖壶  
+##### 910#       发表于 2023-11-1 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62904307&amp;ptid=2086469" target="_blank">plumlis 发表于 2023-11-1 15:24</a>
+
+从素质上来说联想的屏幕完爆ally
+
+原生竖屏的问题就是你玩一些 DX8 年代的游戏，会出现各种各样的问题。那 ...</blockquote>
+不是的，我亲身体验，玩XGP的脑航员2，进去是横屏，因为分辨率不适配，随便调下分辨率，就会变成90度翻转后的竖屏画面，画面被挤扁的，然后不管你怎么再改分辨率都横不过来，只能重开游戏
+
+*****
+
+####  恋妖壶  
+##### 911#       发表于 2023-11-1 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62899094&amp;ptid=2086469" target="_blank">unbalanced 发表于 2023-11-1 03:45</a>
+
+虽然但是，ally也是土鳖前端</blockquote>
+土鳖和土鳖也有区别的，Ally起码可用，而且能自认大图出来，联想那软件审美，还有各种页游图标，不可直视
+
+
+*****
+
+####  芷雅居  
+##### 912#       发表于 2023-11-1 21:36
+
+借楼问下如果只想玩gal，不考虑其他游戏，最经济的选择应该是什么掌机<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最好是win系统的
+
+
+*****
+
+####  医生狼多  
+##### 913#       发表于 2023-11-1 21:44
+
+ 本帖最后由 医生狼多 于 2023-11-1 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62908749&amp;ptid=2086469" target="_blank">芷雅居 发表于 2023-11-1 21:36</a>
+借楼问下如果只想玩gal，不考虑其他游戏，最经济的选择应该是什么掌机最好是win系统的 ...</blockquote>
+看你对大屏有没有需求了，没有的话最经济就win600和ayaair，有的话可以考虑老款oxp或者奥克或者winmax一代（4800u，5800u这些
+）
+老实说我玩的几个gal根本没适配手柄的，用掌机玩挺碍事的，不差钱就建议联想
+综合下来我觉得winmax1比较推荐，屏幕够大，带键盘便于操作，二手2k72k8 缺点大概是重量
+
+
+*****
+
+####  plumlis  
+##### 914#       发表于 2023-11-1 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62908749&amp;ptid=2086469" target="_blank">芷雅居 发表于 2023-11-1 21:36</a>
+
+借楼问下如果只想玩gal，不考虑其他游戏，最经济的选择应该是什么掌机最好是win系统的 ...</blockquote>
+我给你推荐一个，最经济的，gpd micro pc
+
+锁6w tdp 可以畅玩4小时续航，键盘还有背光，还适合你鼠标手持操作。
+
+咸鱼也就1200左右。
+
+
+*****
+
+####  INGRAMLI  
+##### 915#       发表于 2023-11-2 18:53
+
+ 本帖最后由 INGRAMLI 于 2023-11-2 18:54 编辑 
+
+如果只想玩gal,為甚麼不搞一塊win平板呢(surface老型號就不錯了),非的要看6,7寸的小屏幕,和自己的眼睛過不去?
+
