@@ -2028,3 +2028,112 @@ akx没蘑菇就诱惑法角色带波曼梅格教官，1+1看配置A2-3t，要么
 
 硬要说的话就是代码优化了，现在好像要稍微流畅了些，比较重要的应该就是武器技能取消了3个技能的上限（利好龙武）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Sylpheed  
+##### 17431#       发表于 2023-10-17 08:05
+
+不要水铳也能1t95了，妈吴迪<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Aureth  
+##### 17432#       发表于 2023-11-2 18:04
+
+11.9号起六属高难系列武器觉醒限本属生效。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看天元全是7剑盘破防了是吧，大炎上。
+
+*****
+
+####  强化人小叶子1号  
+##### 17433#       发表于 2023-11-2 18:10
+
+真的傻逼小福，玩不起
+
+反正以后也不会再充钱了
+
+
+*****
+
+####  好奇害死喵  
+##### 17434#       发表于 2023-11-2 18:17
+
+**，水团怎么打
+
+*****
+
+####  nianiania  
+##### 17435#       发表于 2023-11-2 18:18
+
+笑啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 20, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  神手之兔  
+##### 17436#       发表于 2023-11-2 20:30
+
+笑死，真的啥强砍啥
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  klzxs  
+##### 17437#       发表于 2023-11-2 20:42
+
+图个啥呢，农高难的才多少人
+
+
+*****
+
+####  usoda  
+##### 17438#       发表于 2023-11-2 21:21
+
+真就玩家爽什么我砍什么 cy能活到今天不得不承认是奇迹
+
+
+*****
+
+####  Schw  
+##### 17439#       发表于 2023-11-2 21:51
+
+不是为啥这么大反应啊，当年3球六属2.0横行不也砍了吗，现在7剑下天山给爽了几次团已经是四字母的怜悯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Geyorkias  
+##### 17440#       发表于 2023-11-3 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那倒是抬一手其他6属高难武器啊，都是产废，2024年方阵还用树枝和龙虾是吧
+
+
+*****
+
+####  adretyu67  
+##### 17441#       发表于 2023-11-3 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62921937&amp;ptid=1158205" target="_blank">Geyorkias 发表于 2023-11-3 09:26</a>
+
+那倒是抬一手其他6属高难武器啊，都是产废，2024年方阵还用树枝和龙虾是吧 ...</blockquote>
+明年3.0，应该不至于
+
+
+*****
+
+####  Geyorkias  
+##### 17442#       发表于 2023-11-3 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62922181&amp;ptid=1158205" target="_blank">adretyu67 发表于 2023-11-3 09:47</a>
+
+明年3.0，应该不至于</blockquote>
+方阵3.0我觉得还是要吃双面的，现在这个推单面的情况真的不好讲
+
+只能说再看看了
+
