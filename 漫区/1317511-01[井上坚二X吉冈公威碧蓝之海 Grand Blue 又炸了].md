@@ -390,3 +390,37 @@
 
 —— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  星名早苗  
+##### 1304#       发表于 2023-11-3 11:10
+
+毒岛上了，毒岛要输了
+
+*****
+
+####  starcraft3  
+##### 1305#       发表于 2023-11-3 11:18
+
+不可能给主角搞个碧池破鞋正宫的 
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  兔子大战ntr  
+##### 1306#       发表于 2023-11-3 11:26
+
+毒岛塑造的比千纱强多了
+
+
+*****
+
+####  shkj  
+##### 1307#       发表于 2023-11-3 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62028915&amp;ptid=1317511" target="_blank">创始’’’天翔 发表于 2023-8-14 23:16</a>
+女观众占比那么少的吗？卖腐很多了吧</blockquote>
+那能叫卖腐吗？和笨测差远了，笨测可是有真基佬还有男主被男的kiss，碧蓝真的是各方面都收敛了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
