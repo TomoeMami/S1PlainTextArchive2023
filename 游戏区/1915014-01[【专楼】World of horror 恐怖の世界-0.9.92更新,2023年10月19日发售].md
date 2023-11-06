@@ -4535,3 +4535,514 @@ NS版确认交由[PLAYISM](https://space.bilibili.com/476739899)发行，包含�
 
 发售日一周倒计时 by Ysbryd Games
 
+*****
+
+####  Tnsbilws  
+##### 260#         楼主| 发表于 2023-10-18 08:18
+
+<img src="https://img.saraba1st.com/forum/202310/18/081809d55g7a7m75h7j098.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20231018080810.png</strong> (58.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-18 08:18 上传
+
+1.0发售最后一天预热
+
+<img src="https://img.saraba1st.com/forum/202310/18/081831jxn3005lw9pzw9st.png" referrerpolicy="no-referrer">
+
+<strong>F8lk-7LXsAAnpWO.png</strong> (119.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-18 08:18 上传
+
+来自作者的1.0图透，新增两位古神。
+
+
+*****
+
+####  Tnsbilws  
+##### 261#         楼主| 发表于 2023-10-19 20:02
+
+Playsim发行商讨论群里公告了，Steam版本确定延迟原定六点的更新至次日一点，原因是要配合发售折扣优惠。
+
+粉丝群已经有人联合去打差评了。
+
+<img src="https://img.saraba1st.com/forum/202310/19/200119q75n7znbnz7fsjbb.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20231019200103.png</strong> (30.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 20:01 上传
+
+不过也有个好消息，官方全新PV发布了，可以说厨力和作画强度爆炸。
+[https://www.bilibili.com/video/BV1Ay4y1K7iC](https://www.bilibili.com/video/BV1Ay4y1K7iC)
+
+<img src="https://img.saraba1st.com/forum/202310/19/200243i0r0grdlidgd0a6l.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20231019195917.png</strong> (91.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-19 20:02 上传
+
+
+*****
+
+####  flyzzhj  
+##### 262#       发表于 2023-10-19 20:17
+
+已经入了PS4版本，好像没有奖杯？
+
+*****
+
+####  穿越护城河  
+##### 263#       发表于 2023-10-19 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62767778&amp;ptid=1915014" target="_blank">Tnsbilws 发表于 2023-10-19 20:02</a>
+
+Playsim发行商讨论群里公告了，Steam版本确定延迟原定六点的更新至次日一点，原因是要配合发售折扣优惠。
+
+ ...</blockquote>
+不错了，好歹没拖到恐怖游戏周再发售
+
+也就拖到凌晨一点钟，而且还限时设回老价钱
+
+正好我今天退完款半夜再买回来
+
+
+*****
+
+####  Tring  
+##### 264#       发表于 2023-10-19 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62767778&amp;ptid=1915014" target="_blank">Tnsbilws 发表于 2023-10-19 20:02</a>
+
+Playsim发行商讨论群里公告了，Steam版本确定延迟原定六点的更新至次日一点，原因是要配合发售折扣优惠。
+
+ ...</blockquote>
+但凡不是选择在更新当天突然跳票，抑或在公开公告（微博/B站）上写清楚跳票日期，都不至于像现在这样被刷差评。
+
+在STEAM上没有公告，在微博/B站上公告不写日期，只在Q群的公告里写上日期。
+
+这波鬼才操作，是真的没看懂。
+
+
+*****
+
+####  Tnsbilws  
+##### 265#         楼主| 发表于 2023-10-19 23:04
+
+ 本帖最后由 Tnsbilws 于 2023-10-19 23:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62768349&amp;ptid=1915014" target="_blank">Tring 发表于 2023-10-19 21:06</a>
+
+但凡不是选择在更新当天突然跳票，抑或在公开公告（微博/B站）上写清楚跳票日期，都不至于像现在这样被刷 ...</blockquote>
+有啊，微博发了，steam没发公告，不过因为大部分人是欧洲美洲时区所以他们到没急
+
+我只是在群里看到而已
+
+*****
+
+####  mahoraga  
+##### 266#       发表于 2023-10-19 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62769454&amp;ptid=1915014" target="_blank">Tnsbilws 发表于 2023-10-19 23:04</a>
+
+有啊，微博发了，steam没发公告，不过因为大部分人是欧洲美洲时区所以他们到没急
+
+我只是在群里看到而已 ...</blockquote>
+说起来作者有考虑将来开创意工坊之类的吗
+
+
+*****
+
+####  Tring  
+##### 267#       发表于 2023-10-19 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62769454&amp;ptid=1915014" target="_blank">Tnsbilws 发表于 2023-10-19 23:04</a>
+
+有啊，微博发了，steam没发公告，不过因为大部分人是欧洲美洲时区所以他们到没急
+
+我只是在群里看到而已 ...</blockquote>
+看了下，日期是第二个公告补的，也就是差评已经刷起来以后的事。早上的第一个公告是没有的。
+
+*****
+
+####  淳煜王  
+##### 268#       发表于 2023-10-19 23:36
+
+终于出正式版了
+
+
+*****
+
+####  myep  
+##### 269#       发表于 2023-10-20 00:21
+
+正式版的模组用起来方便吗？打算搞搞模组中文化
+
+
+*****
+
+####  Rai.Z  
+##### 270#       发表于 2023-10-20 01:17
+
+对了下收集度感觉没加什么东西啊，这一年到底做了什么
+
+
+*****
+
+####  wbtsy  
+##### 271#       发表于 2023-10-20 09:06
+
+<blockquote>Rai.Z 发表于 2023-10-20 01:17
+对了下收集度感觉没加什么东西啊，这一年到底做了什么</blockquote>
+作者最开始也不是专业做游戏的。
+
+游戏内容也是简单的伊藤润二风格的点图+桌游简化版。估计是最开始有个点子就上了。开发热情到中期可能就消失得差不多了。作者本人中途网上玩消失还坑了很久。
+
+这种类型的游戏，更像是个创意概念展示，游戏里把编辑器都给玩家了。这种佛系态度能做到这个程度可以了。
+
+
+*****
+
+####  loveilwen  
+##### 272#       发表于 2023-10-20 09:34
+
+主机版文本有缺字和显示不全
+
+这是游戏风格还是bug<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有机终端  
+##### 273#       发表于 2023-10-20 10:52
+
+这主角这么强吗？一把小刀杀的鬼怪嗷嗷叫，和pv动画里的感觉完全不一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  李喜睡  
+##### 274#       发表于 2023-10-20 10:58
+
+刚看到正式版pv，很顶
+
+
+*****
+
+####  hytg10  
+##### 275#       发表于 2023-10-20 12:22
+
+1.0的翻译很拉，没有那种味了。
+
+
+*****
+
+####  avayazhg  
+##### 276#       发表于 2023-10-21 12:20
+
+不爬楼了，问下自定义开场的箱子密码是派什么用的？和游戏里的箱子库存有关联吗？
+
+
+*****
+
+####  Tnsbilws  
+##### 277#         楼主| 发表于 2023-10-21 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62783373&amp;ptid=1915014" target="_blank">avayazhg 发表于 2023-10-21 12:20</a>
+不爬楼了，问下自定义开场的箱子密码是派什么用的？和游戏里的箱子库存有关联吗？ ...</blockquote>
+只是用来生成随机内容的代码而已，理论上同一个码跑起来的流程一样
+
+—— 來自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Niyah  
+##### 278#       发表于 2023-10-21 18:22
+
+订的卡带发货了，这两天到处找评价看不过好像讨论度蛮低，看到的几条都在吐槽内容量少，貌似现版本文本有缺陷而且bug不少？不知道后面还会不会出补丁修正
+
+
+*****
+
+####  白昼梦  
+##### 279#       发表于 2023-10-21 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">steam版玩了下，内容是真的少啊，只有预设的不到十种谜团吗
+
+*****
+
+####  曼陀罗肥  
+##### 280#       发表于 2023-10-21 22:10
+
+这种游戏居然不做创意工坊的嘛……
+
+
+*****
+
+####  2568078851  
+##### 281#       发表于 2023-10-21 23:30
+
+感觉这游戏的官方简中不如繁中感觉就像是ChatGPT之类的东西翻的,语句不通和看不懂的地方很多,不知道日后还会不会再优化
+
+
+*****
+
+####  hamartia  
+##### 282#       发表于 2023-10-21 23:39
+
+<blockquote>flyzzhj 发表于 2023-10-19 20:17
+已经入了PS4版本，好像没有奖杯？</blockquote>
+https://psnine.com/psngame/40334
+
+我看有的啊
+
+
+*****
+
+####  飞舞的鱼  
+##### 283#       发表于 2023-10-22 20:25
+
+ps都有奖杯，不给steam上的加一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+云存档，创意工坊也没有，这ea结束了都不给steam加点体验
+
+
+*****
+
+####  zeroblaze44  
+##### 284#       发表于 2023-10-23 20:59
+
+<img src="https://p.sda1.dev/13/2ca1a9fa71b7db9b8df3a266542d5412/2ea71171339328203db596feafe24d9f.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/08bb434ee335c2961562a7f5932d76d9/f7d7f7f19c41ded273c0579ba461879c.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/f7ba799a5c54251ef3a43770a8db2a8e/44d372771974f47d8a4358b006ee3d60.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/7250aee195814da09e526b34e3f8a8b0/1b733fa90fc5ffaebaed2e2f56fccc9e.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/35c9f41cf0d689d789a4d2e9da47da19/a90042c040cec544790f17ece86a86d9.png" referrerpolicy="no-referrer">
+
+模组挺好做的，今天一下午搓了好几个模组，主要花时间美术上了
+
+
+*****
+
+####  myep  
+##### 285#       发表于 2023-10-24 22:49
+
+1.0版内含中文字库，终于可以轻松汉化mod了，有什么贴合原作风格的事件、谜团mod吗？现在内容还是有点少。
+
+
+*****
+
+####  Tnsbilws  
+##### 286#         楼主| 发表于 2023-10-25 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62819613&amp;ptid=1915014" target="_blank">myep 发表于 2023-10-24 22:49</a>
+
+1.0版内含中文字库，终于可以轻松汉化mod了，有什么贴合原作风格的事件、谜团mod吗？现在内容还是有点少。 ...</blockquote>
+我这边已经下载好了不少，需要的话我可以开一个网盘分享，不过官方discord群组也有很多别的mod可以直接下载
+
+*****
+
+####  Tnsbilws  
+##### 287#         楼主| 发表于 2023-10-25 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62786048&amp;ptid=1915014" target="_blank">Niyah 发表于 2023-10-21 18:22</a>
+
+订的卡带发货了，这两天到处找评价看不过好像讨论度蛮低，看到的几条都在吐槽内容量少，貌似现版本文本有缺 ...</blockquote>
+主机板全部延期26号发布，发行那边和制作人没交接好直接把1.0测试版发了，也没搞定首日补丁，导致一大堆人被迫偷跑玩到（据作者自己说法，现在的主机板全部比PC版晚两个版本
+
+
+*****
+
+####  tsubaki  
+##### 288#       发表于 2023-10-25 09:07
+
+事件感觉没加几个，打了2天就有点懒得碰了，等有多点MOD再说
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 289#       发表于 2023-10-27 11:08
+
+小小红的人物MOD也太对味了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苦瓜师傅  
+##### 290#       发表于 2023-10-27 11:38
+
+steam没成就么？
+
+— from Google Pixel 4 XL, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  illuminati  
+##### 291#       发表于 2023-10-27 15:52
+
+字体/字型不太好，不是简体中文的风格，用日文字体/字型来显示简体中文汉字在游戏界也是**病了
+
+
+*****
+
+####  fuochai  
+##### 292#       发表于 2023-10-27 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62848355&amp;ptid=1915014" target="_blank">illuminati 发表于 2023-10-27 15:52</a>
+
+字体/字型不太好，不是简体中文的风格，用日文字体/字型来显示简体中文汉字在游戏界也是**病了 ...</blockquote>**病
+
+老 毛病
+
+
+*****
+
+####  fuochai  
+##### 293#       发表于 2023-10-27 22:54
+
+这游戏不装mod是不是就课外活动能反复玩啊
+
+可以整个走进科学mod 调查到最后都并非灵异事件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zeroblaze44  
+##### 294#       发表于 2023-10-30 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62807665&amp;ptid=1915014" target="_blank">zeroblaze44 发表于 2023-10-23 20:59</a>
+
+模组挺好做的，今天一下午搓了好几个模组，主要花时间美术上了</blockquote>
+草，怎么图片没了再贴一遍图
+
+<img src="https://img.saraba1st.com/forum/202310/30/020225g2fbhhqkqx1qkhph.png" referrerpolicy="no-referrer">
+
+<strong>2ea71171339328203db596feafe24d9f.png</strong> (184.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/020226wk32km3kewnl53mw.png" referrerpolicy="no-referrer">
+
+<strong>f7d7f7f19c41ded273c0579ba461879c.png</strong> (188.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/020228j2tlvsxtrs883lxt.png" referrerpolicy="no-referrer">
+
+<strong>44d372771974f47d8a4358b006ee3d60.png</strong> (188.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/020229abwzxnzrbnyy7nbv.png" referrerpolicy="no-referrer">
+
+<strong>1b733fa90fc5ffaebaed2e2f56fccc9e.png</strong> (107.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 02:02 上传
+
+<img src="https://img.saraba1st.com/forum/202310/30/020231aqzzj7m58l7sml1z.png" referrerpolicy="no-referrer">
+
+<strong>a90042c040cec544790f17ece86a86d9.png</strong> (189.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 02:02 上传
+
+小镇青年东方仗助
+
+
+*****
+
+####  requiem116  
+##### 295#       发表于 2023-10-30 16:55
+
+提高战斗力的途径是啥？
+
+打了好几把感觉输出上不去，不过能拿到武士刀就是刷刷乱砍，伤害又高还能除灵
+
+一般都上哪找武器？
+
+
+*****
+
+####  tsubaki  
+##### 296#       发表于 2023-10-31 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62883029&amp;ptid=1915014" target="_blank">requiem116 发表于 2023-10-30 16:55</a>
+
+提高战斗力的途径是啥？
+
+打了好几把感觉输出上不去，不过能拿到武士刀就是刷刷乱砍，伤害又高还能除灵
+
+一般 ...</blockquote>
+狗子直接买个牛排刀，剩下武器看脸
+
+
+*****
+
+####  Muteki_Link  
+##### 297#       发表于 2023-10-31 09:16
+
+听说这游戏后面支持各种模组，自定义跑团不是梦，那后面要买的话是不是比起ns版还是steam版好些？ 毕竟涉及mod
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 298#       发表于 2023-10-31 16:35
+
+终于出正式版了啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tnsbilws  
+##### 299#         楼主| 发表于 2023-11-1 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62888492&amp;ptid=1915014" target="_blank">Muteki_Link 发表于 2023-10-31 09:16</a>
+
+听说这游戏后面支持各种模组，自定义跑团不是梦，那后面要买的话是不是比起ns版还是steam版好些？ 毕竟涉及 ...</blockquote>
+MOD铁PC端
+
+买NS纯属可以路上拿出来搓两把
+
+
+*****
+
+####  Tnsbilws  
+##### 300#         楼主| 发表于 2023-11-1 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62853034&amp;ptid=1915014" target="_blank">fuochai 发表于 2023-10-27 22:54</a>
+
+这游戏不装mod是不是就课外活动能反复玩啊
+
+可以整个走进科学mod 调查到最后都并非灵异事件 ...</blockquote>
+一般直接开各种难度的快速游戏，然后刷成就
+
+或者开自定义高难度挑战
+
+
+*****
+
+####  wer4f  
+##### 301#       发表于 2023-11-3 21:08
+
+想弄个李火旺玩了
+
