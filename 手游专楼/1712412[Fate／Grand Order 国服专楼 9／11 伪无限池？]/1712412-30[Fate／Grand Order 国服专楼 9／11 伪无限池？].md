@@ -7398,3 +7398,4560 @@ bgo群怎么解散了？新群何在？
 
 为什么最近活动剧情都这么无聊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  MMIno  
+##### 44531#       发表于 2023-7-13 09:47
+
+攒了2k钻，奋战公主，希望能满宝
+
+
+*****
+
+####  6030sylar  
+##### 44532#       发表于 2023-7-13 16:02
+
+公主什么时候来
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  khxooo  
+##### 44533#       发表于 2023-7-13 16:30
+
+看别人的解包信息，公主应该是2号。
+
+
+*****
+
+####  kyonkoism二号机  
+##### 44534#       发表于 2023-7-14 08:38
+
+以活动英灵为主的故事9成都是这种调调吧，围绕英灵胡闹，当摄像头听科普历史和尬吹角色，然后包饺子结束，我铁剧情党也是全skip的
+
+之前的征氏姐妹还有大保罗的活动我也是全skip，死想显现界域每天下班就直接泡进去看剧情，5个工作日看完，爽的一比<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  johnkamsar  
+##### 44535#       发表于 2023-7-14 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服过来人表示，公主要么一宝收藏，副手至少3宝，主手得拉满，否则都不上不下的。
+还是等泳装吧。
+
+
+*****
+
+####  AbigailWilliams  
+##### 44536#       发表于 2023-7-14 12:22
+
+白字还是低atk的是这样的，仇阶白字能稍微降配还是atk够高还给高补正
+
+
+*****
+
+####  AbigailWilliams  
+##### 44537#       发表于 2023-7-14 12:51
+
+c呆时代打这种没强解的真的简单
+
+
+*****
+
+####  日蚀之阳  
+##### 44538#       发表于 2023-7-14 19:51
+
+简中服周年那个纪念金片，七年满签到满级的要求，太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GuDaZi  
+##### 44539#       发表于 2023-7-14 20:07
+
+满签到多少天，我现在2466应该是满签吧？
+
+
+*****
+
+####  苍蓝之枪  
+##### 44540#       发表于 2023-7-14 20:25
+
+本周的周常居然还和活动无关，点数都毕业了礼装还没掉
+
+
+*****
+
+####  khxooo  
+##### 44541#       发表于 2023-7-14 20:38
+
+[https://game.bilibili.com/fgo/7thThanksgiving/](https://game.bilibili.com/fgo/7thThanksgiving/)
+
+满足条件的各位填一下吧
+
+
+*****
+
+####  acg_gyanc  
+##### 44542#       发表于 2023-7-14 21:30
+
+薅叔叔羊毛，开心<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  苍蓝之枪  
+##### 44543#       发表于 2023-7-14 21:50
+
+我是没断签过，可惜不是开服玩家
+
+
+*****
+
+####  khxooo  
+##### 44544#       发表于 2023-7-14 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61663448&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2023-7-14 20:07</a>
+
+满签到多少天，我现在2466应该是满签吧？</blockquote>
+安卓2466，IOS是2480，你是安卓的话满了。
+
+
+*****
+
+####  johnkamsar  
+##### 44545#       发表于 2023-7-14 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像是全勤，但不知道是不是断签，总之看马修是9月29日出来，但签到少了18天，然后还是持续签到的
+
+
+*****
+
+####  6030sylar  
+##### 44546#       发表于 2023-7-15 00:22
+
+弃过一段时间再见
+
+
+*****
+
+####  苍蓝之枪  
+##### 44547#       发表于 2023-7-15 10:11
+
+原来还有个满级的要求，那更没戏了
+
+
+*****
+
+####  日蚀之阳  
+##### 44548#       发表于 2023-7-15 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61668637&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-7-15 10:11</a>
+
+原来还有个满级的要求，那更没戏了</blockquote>
+满级的要求相较于满签到那可太容易了（
+
+
+*****
+
+####  廖化  
+##### 44549#       发表于 2023-7-15 15:28
+
+断过签，没戏了
+
+*****
+
+####  gearbox  
+##### 44550#       发表于 2023-7-15 15:43
+
+看了下要满级，那没戏了，不肝好久了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  苍蓝之枪  
+##### 44551#       发表于 2023-7-16 09:50
+
+群里的开服玩家不是弃坑了就是咸鱼了
+
+我满签但不是开服
+
+真是讽刺
+
+*****
+
+####  Blackson  
+##### 44552#       发表于 2023-7-16 10:19
+
+现在就等公主和泳装从者出来让我好好消耗下狗粮了
+
+
+*****
+
+####  苍蓝之枪  
+##### 44553#       发表于 2023-7-16 17:58
+
+高难爆破完毕，现在全毕业了还没掉礼装.....
+
+
+*****
+
+####  imlyc4  
+##### 44554#       发表于 2023-7-16 19:58
+
+3600000点礼装掉落，本次活动终于结束
+
+
+*****
+
+####  苍蓝之枪  
+##### 44555#       发表于 2023-7-16 21:48
+
+我看这节奏是活动动不复刻的样子，那万一最后没掉那可恶心坏了
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 44556#       发表于 2023-7-17 13:19
+
+我国庆入的bgo才签到了两千四百天
+
+居然断签了这么多次吗
+
+
+*****
+
+####  khxooo  
+##### 44557#       发表于 2023-7-18 01:06
+
+大奥搞掂，算是自回体。每天遛遛狗，可以安心长草了。
+
+
+*****
+
+####  失落之翼  
+##### 44558#       发表于 2023-7-18 09:21
+
+早就半AFK几年，活动也就只求最低限度过，断签过好几次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44559#       发表于 2023-7-19 19:50
+
+大奥才到第五层，然后发现通古斯也没打
+
+
+*****
+
+####  佐塚間桐  
+##### 44560#       发表于 2023-7-19 20:07
+
+大奥和通古斯应该都是长期开放吧？
+
+
+*****
+
+####  苍蓝之枪  
+##### 44561#       发表于 2023-7-20 21:33
+
+大奥第十节居然打不过去了.....
+
+
+*****
+
+####  qixinno2  
+##### 44562#       发表于 2023-7-20 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">弓呆清空石头还氪了一单 
+
+
+*****
+
+####  flyzzhj  
+##### 44563#       发表于 2023-7-21 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61732967&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-7-20 21:46</a>
+
+弓呆清空石头还氪了一单</blockquote>
+跑狗羽毛圈贞德，怒关游戏<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44564#       发表于 2023-7-21 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61735532&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-7-21 08:21</a>
+
+跑狗羽毛圈贞德，怒关游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再氪我是狗 妈的 后悔
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1|最多买买福袋了|
+
+查看全部评分
+
+
+*****
+
+####  johnkamsar  
+##### 44565#       发表于 2023-7-21 09:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">你们居然还敢抽
+
+
+*****
+
+####  kyonkoism二号机  
+##### 44566#       发表于 2023-7-21 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在还在玩BGO的不是人均圣晶石性癖么，开着千里眼看着越来越多的石头能获得比抽卡更持续的多的快感
+
+全 是 无 料
+
+<img src="https://img.saraba1st.com/forum/202307/21/091953pp4dl2i7lrpds4ip.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-07-21-09-17-03-580_com.bilibili.f.jpg</strong> (13.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-21 09:19 上传
+
+<img src="https://img.saraba1st.com/forum/202307/21/091957o595k0agg9sejj4e.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-07-21-09-18-44-345_com.bilibili.f.jpg</strong> (165.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-7-21 09:19 上传
+
+
+*****
+
+####  qixinno2  
+##### 44567#       发表于 2023-7-21 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736108&amp;ptid=1712412" target="_blank">kyonkoism二号机 发表于 2023-7-21 09:20</a>
+
+现在还在玩BGO的不是人均圣晶石性癖么，开着千里眼看着越来越多的石头能获得比抽卡更持续的多的快感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手贱癌 无论什么游戏 只要有抽卡资源就喜欢手贱去抽
+
+
+*****
+
+####  flyzzhj  
+##### 44568#       发表于 2023-7-21 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736195&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-7-21 09:26</a>
+
+手贱癌 无论什么游戏 只要有抽卡资源就喜欢手贱去抽</blockquote>
+我跟你差不多，手上有石头就闲不住<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44569#       发表于 2023-7-21 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736639&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-7-21 10:00</a>
+
+我跟你差不多，手上有石头就闲不住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有石头就是想抽 没办法
+
+*****
+
+####  flyzzhj  
+##### 44570#       发表于 2023-7-21 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736688&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-7-21 10:04</a>
+
+有石头就是想抽 没办法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，不抽玩个鸡脖啊
+
+*****
+
+####  qixinno2  
+##### 44571#       发表于 2023-7-21 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736715&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-7-21 10:06</a>
+
+对啊，不抽玩个鸡脖啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正等周年发石头接着梭哈
+
+*****
+
+####  flyzzhj  
+##### 44572#       发表于 2023-7-21 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736735&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-7-21 10:08</a>
+
+反正等周年发石头接着梭哈</blockquote>
+那我还是要细水长流一下的，毕竟还有女梅林还有泳装那谁和谁谁谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  destroyworlder  
+##### 44573#       发表于 2023-7-21 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61736749&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-7-21 10:09</a>
+
+那我还是要细水长流一下的，毕竟还有女梅林还有泳装那谁和谁谁谁</blockquote>
+是bba<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霄度天  
+##### 44574#       发表于 2023-7-21 12:23
+
+夭寿辣，感觉今年上半年都没啥有意思的卡，怎么还能屯不住石头的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xy1041  
+##### 44575#       发表于 2023-7-21 13:45
+
+马上就是公主和水伊吹rba，你们还真是沉不住气啊.jpg
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  待宵  
+##### 44576#       发表于 2023-7-21 13:51
+
+想要个枪清姬收藏结果弓呆1+骑莫2+裁玛尔达2，什么读心术
+
+
+*****
+
+####  苍蓝之枪  
+##### 44577#       发表于 2023-7-21 20:23
+
+2500石头都感觉虚得不行
+
+狩猎本又是阴间得不行，不过算了，反正基本只打首通
+
+*****
+
+####  苍蓝之枪  
+##### 44578#       发表于 2023-7-21 20:25
+
+说起来至今还没贞德
+
+这水枪王当年也是花了不少代价捞出来的
+
+现在就是感觉很尴尬，有人说她不缺回收，我倒是觉得回收伤害都缺.......
+
+虽然是很高，但是指令卡不补刀根本回不满，自己又没自充那1T就要buff全交的，回不满NP直接断
+
+
+*****
+
+####  sevenight  
+##### 44579#       发表于 2023-7-21 20:34
+
+石不过三党还无畏惧
+
+
+*****
+
+####  武者小路紫苑  
+##### 44580#       发表于 2023-7-22 20:10
+
+攒了300石头想抽水尼托，结果3个水黑呆0个水尼托，不是，这游戏真的会读心吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 44581#       发表于 2023-7-22 20:20
+
+大号150石头1宝弓呆+1宝小莫，还有400多石头，到周年能有1100多，要不氪两单怼5宝？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 44582#       发表于 2023-7-22 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61752825&amp;ptid=1712412" target="_blank">武者小路紫苑 发表于 2023-7-22 20:10</a>
+
+攒了300石头想抽水尼托，结果3个水黑呆0个水尼托，不是，这游戏真的会读心吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+
+*****
+
+####  希望之花  
+##### 44583#       发表于 2023-7-23 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61752825&amp;ptid=1712412" target="_blank">武者小路紫苑 发表于 2023-7-22 20:10</a>
+
+攒了300石头想抽水尼托，结果3个水黑呆0个水尼托，不是，这游戏真的会读心吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年日服几百个石头去想弄个高宝泳装加雷斯，结果歪了好几个其他普池四星剑，加雷斯只有二宝，血压拉满
+
+
+*****
+
+####  待宵  
+##### 44584#       发表于 2023-7-23 21:33
+
+一发十一连出了骑黑呆
+
+
+*****
+
+####  YIIIIIno  
+##### 44585#       发表于 2023-7-23 23:40
+
+福袋好纠结啊，有没有那种100级可以上班90++的泛用副手啊(接受补宝)……摩根？金时？公主是不是一定要拉满才能上班哇？120级也太难了(T＿T)，感觉自己无缘90++了……
+
+
+*****
+
+####  AbigailWilliams  
+##### 44586#       发表于 2023-7-24 09:54
+
+90++没那么夸张，平民解不少的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">而且有时候90++的副产物材料你可能觉得还不如刷90+呢
+
+
+*****
+
+####  Blackson  
+##### 44587#       发表于 2023-7-24 10:51
+
+90++又不是必要打的，打不过就回去90+也行
+
+
+*****
+
+####  xy1041  
+##### 44588#       发表于 2023-7-24 17:07
+
+有限活动里90+还是90++都是随便毕业，无限活动我看也不一定有那么多苹果给你吃到100池捏
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  khxooo  
+##### 44589#       发表于 2023-7-24 17:08
+
+为什么不5加成，是有人逼着你6加成还是5加成无法毕业<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44590#       发表于 2023-7-24 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔怔了吧 我无限池现在能刷25以上就算努力了 根本没啥意义
+
+
+*****
+
+####  GuDaZi  
+##### 44591#       发表于 2023-7-24 18:39
+
+这次狩猎本充分感受到了道满的强<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xy1041  
+##### 44592#       发表于 2023-7-24 19:03
+
+回来晚了既没有奥宝也没有道满，福袋直接冲ex6求二中1<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ousia  
+##### 44593#       发表于 2023-7-24 19:27
+
+目前仨泳装池都是五星几下出四星一个没出……大池当前欧了是最恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+突然反应过来用梅涟当头像是不是有点不太吉利，被姫君疯狂提款拿去供养叔叔那种事情不要啊
+
+
+*****
+
+####  苍蓝之枪  
+##### 44594#       发表于 2023-7-24 20:07
+
+唉，为什么RBA不是第一个，现在都得等RBA之后再作决定......
+
+
+*****
+
+####  J-002  
+##### 44595#       发表于 2023-7-24 22:53
+
+ 本帖最后由 J-002 于 2023-7-24 22:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61764291&amp;ptid=1712412" target="_blank">YIIIIIno 发表于 2023-7-23 23:40</a>
+
+福袋好纠结啊，有没有那种100级可以上班90++的泛用副手啊(接受补宝)……摩根？金时？公主是不是一定要拉满 ...</blockquote>
+没有那么夸张，特攻大过天，5星打手2宝就够，1宝也能应付大部分情况
+
+公主要拉满是因为她是月癌，一年也遇不到几次打红字的机会
+
+你box够深的话金时和摩根也不是必须的，这俩只不过泛用而已
+
+
+*****
+
+####  YIIIIIno  
+##### 44596#       发表于 2023-7-24 23:24
+
+<blockquote>J-002 发表于 2023-7-24 22:53
+没有那么夸张，特攻大过天，5星打手2宝就够，1宝也能应付大部分情况
+
+公主要拉满是因为她是月癌，一年也遇 ...</blockquote>
+我主要是之前常规职阶的50冲红光炮单体基本都有，所以90+环境对狂娜和金时需求都不大就没抽(出来)，然而基本都是1~2的打手看到90++的血量直接抓瞎。不过比起氪金，120级才最烦人的，练了一个厨力后再不想练第二个了(◞‸◟ )……公主的话我算上给的石头说不定能碰碰3宝，请问下3宝百级能上班吗？不行的话我还是留着石头好了_(:з」∠)_
+
+
+*****
+
+####  待宵  
+##### 44597#       发表于 2023-7-25 08:56
+
+这次狩猎本最后都是banana
+
+
+*****
+
+####  J-002  
+##### 44598#       发表于 2023-7-25 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61776184&amp;ptid=1712412" target="_blank">YIIIIIno 发表于 2023-07-24 23:24:57</a>
+我主要是之前常规职阶的50冲红光炮单体基本都有，所以90+环境对狂娜和金时需求都不大就没抽(出来)，然而 ...</blockquote>你这想法就趁早1宝收藏，或者干脆别抽
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  xy1041  
+##### 44599#       发表于 2023-7-25 16:48
+
+比起奥宝，感觉杀狐才是最改变环境的拐，这个减cd的50冲和红卡集星出星的技能真是太牛逼了，banana和呆毛之类对道中单人面的红暴打法就是靠杀狐才能成立的，杀狐太牛逼老
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  J-002  
+##### 44600#       发表于 2023-7-25 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61783962&amp;ptid=1712412" target="_blank">xy1041 发表于 2023-7-25 16:48</a>
+
+比起奥宝，感觉杀狐才是最改变环境的拐，这个减cd的50冲和红卡集星出星的技能真是太牛逼了，banana和呆毛之 ...</blockquote>
+奥伯龙是大幅拉高了输出，以后90++3面的从者血量高的惊人，没奥伯龙低宝就算红字特攻都不见得能秒
+
+
+*****
+
+####  Ousia  
+##### 44601#       发表于 2023-7-26 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61773885&amp;ptid=1712412" target="_blank">Ousia 发表于 2023-7-24 19:27</a>
+
+目前仨泳装池都是五星几下出四星一个没出……大池当前欧了是最恐怖的
+
+突然反应过来用梅涟当头像是不 ...</blockquote>
+20连尺呆带了个孔明，救命…<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 44602#       发表于 2023-7-26 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正呆毛全齐了 虽然普遍是1宝 但非洲穷B的极限也就这样了
+
+
+*****
+
+####  抹茶瓜  
+##### 44603#       发表于 2023-7-27 12:04
+
+运气好起来了 这两天一个弓呆一个尺呆<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44604#       发表于 2023-7-27 19:25
+
+怕是还得满破黑杯，按现在打本习惯用的那些人，奥伯龙buff上齐全了也完全摸不到100W的线
+
+
+*****
+
+####  Urakawa  
+##### 44605#       发表于 2023-7-29 21:39
+
+Chaldea新版本支持查抽卡数了，去掉福袋和自选算上多宝，我五星出率大概1%<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朝仓和美  
+##### 44606#       发表于 2023-7-30 00:40
+
+公主要几宝能用？
+
+
+*****
+
+####  上坂莲华  
+##### 44607#       发表于 2023-7-30 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61837575&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2023-7-30 00:40</a>
+
+公主要几宝能用？</blockquote>
+看你怎么用，只平时打地铺2宝百级或者3宝差不多，上90艹就拉满
+
+
+*****
+
+####  ywshzw  
+##### 44608#       发表于 2023-7-30 09:14
+
+弃坑一年为了4等1的黑杯重新下好客户端了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  清风朗月  
+##### 44609#       发表于 2023-7-30 11:39
+
+A了半年每天登陆签到领东西，现在重新玩还没发生版本质变吧
+
+
+*****
+
+####  待宵  
+##### 44610#       发表于 2023-7-30 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61840372&amp;ptid=1712412" target="_blank">清风朗月 发表于 2023-7-30 11:39</a>
+
+A了半年每天登陆签到领东西，现在重新玩能跟上吗，我看好友挂助战列表都没变的 ...</blockquote>
+毕竟新拐就等这次了
+
+
+*****
+
+####  苍蓝之枪  
+##### 44611#       发表于 2023-7-30 12:02
+
+地铺都要2宝才能用，太吓人了，还是别抽了吧
+
+*****
+
+####  tttabc1  
+##### 44612#       发表于 2023-7-30 12:22
+
+算上周年送的差不多有1000抽，可惜公主和rba不重叠，有点难顶<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  上坂莲华  
+##### 44613#       发表于 2023-7-30 13:43
+
+1宝也不是不能用，0-1才是最大提升，何况你长草期能打几次地铺啊，1宝黑杯W狐足够通杀狗粮本和大部分狩猎了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 44614#       发表于 2023-7-30 18:11
+
+公主90级就1.1w的atk，自然对配置要求比仇阶那堆atk怪物要敏感多了
+
+
+*****
+
+####  苍蓝之枪  
+##### 44615#       发表于 2023-7-30 18:25
+
+0-1提升最大不假，但是到底提升了个啥呢
+
+她最大的作用不是清一面后辅助队友么
+
+一面清不掉不就GG了
+
+
+*****
+
+####  whateveryou  
+##### 44616#       发表于 2023-7-30 18:40
+
+即使是有邪念的，我也建议每日一抽试试水，到最后一天要是出了再追宝具。
+
+
+*****
+
+####  溯夜  
+##### 44617#       发表于 2023-7-30 22:58
+
+想回坑发现box新时代拐一个没有，最快也得等冬天才能抽，麻了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  xy1041  
+##### 44618#       发表于 2023-7-30 23:17
+
+福袋试试摸一个呗，奥宝杀狐c呆选一个摸摸看
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  destroyworlder  
+##### 44619#       发表于 2023-7-31 11:15
+
+福袋
+
+
+*****
+
+####  密特里奈斯  
+##### 44620#       发表于 2023-7-31 16:27
+
+fes这票抢的好吓人……
+
+
+*****
+
+####  苍蓝之枪  
+##### 44621#       发表于 2023-7-31 20:06
+
+我是也觉得狂2福袋是个陷阱
+
+不过反正纯无氪也不会抽福袋......
+
+真要选我大概会选EX6，目前比较想要的卡其实也就暗狐
+
+
+*****
+
+####  khxooo  
+##### 44622#       发表于 2023-8-2 00:57
+
+B战搜索“爱尔奎特”有特效，搞得这么重视，然后反手就给你和谐徐福的名字<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 44623#       发表于 2023-8-2 09:58
+
+现在就180抽的存货。加上周年应该能有个300到400抽。反正现在4连卡池我得选择性放弃了。之前没管住手，丢了得有个200到300抽，只能说一时管不住手，事后火葬场。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佐塚間桐  
+##### 44624#       发表于 2023-8-2 14:28
+
+mooncell又挂了？
+
+
+*****
+
+####  实验性  
+##### 44625#       发表于 2023-8-2 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61880202&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2023-8-2 14:28</a>
+mooncell又挂了？</blockquote>
+<img src="https://p.sda1.dev/12/1b3d81a16fc8c8b39a53b308db066343/CMP_20230802144147896.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9880, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  noobtizi  
+##### 44626#       发表于 2023-8-2 17:03
+
+第二个十连直接二宝了，月姬嘿嘿嘿<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">为了你我要回坑
+
+*****
+
+####  Mchaos  
+##### 44627#       发表于 2023-8-2 17:09
+
+公主池都没人？？bgo约莫是真的寄了
+
+
+*****
+
+####  妖刀  
+##### 44628#       发表于 2023-8-2 17:13
+
+taptap下的新版本一直闪退，真的烦
+
+*****
+
+####  whateveryou  
+##### 44629#       发表于 2023-8-2 17:14
+
+福袋一宝道满收工
+
+*****
+
+####  shimotsuki14  
+##### 44630#       发表于 2023-8-2 17:14
+
+三十连新礼装3，徐福2，公主1
+图鉴大成功。
+
+公主补不补宝再看了…
+
+*****
+
+####  Mchaos  
+##### 44631#       发表于 2023-8-2 17:17
+
+ 本帖最后由 Mchaos 于 2023-8-2 17:22 编辑 
+
+公主千石三宝，麻了
+
+*****
+
+####  Mchaos  
+##### 44632#       发表于 2023-8-2 17:22
+
+不过福袋1/6赌出了大蛾子，还行吧
+
+*****
+
+####  starcraft3  
+##### 44633#       发表于 2023-8-2 17:22
+
+福袋倒满 公主350石2宝收工
+
+—— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  上坂莲华  
+##### 44634#       发表于 2023-8-2 17:24
+
+好，福袋水武藏摩根双黄，200石2宝公主，满足了，梅莉跳过，等强度美和RBA了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MMIno  
+##### 44635#       发表于 2023-8-2 17:27
+
+1400石头五宝跑路
+
+*****
+
+####  Ousia  
+##### 44636#       发表于 2023-8-2 17:27
+
+一边开会一边偷偷摸摸抽。600出头满了，补到800多暂时没出6宝，过几天补一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+其他还歪了c狐太公拉二龙姐，简直旺得离谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  flyzzhj  
+##### 44637#       发表于 2023-8-2 17:29
+
+3发护符公主飘了，后面全还给他了，还是收工算了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Urakawa  
+##### 44638#       发表于 2023-8-2 17:30
+
+100抽才有个徐巿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，连个五星都没
+
+
+*****
+
+####  advancedigger  
+##### 44639#       发表于 2023-8-2 17:35
+
+120石 + 5符
+
+公主和徐福的电子手办各+1，剩下800石等泳装<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+福袋还没决定，慢慢看
+
+*****
+
+####  Akakaka  
+##### 44640#       发表于 2023-8-2 17:38
+
+150石公主+1，福袋狂娜补宝+二宝水灵灵好女人new，第一次3五星
+
+
+*****
+
+####  qixinno2  
+##### 44641#       发表于 2023-8-2 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">420石3宝公主 福袋酒吞 终于算是转运了
+
+*****
+
+####  FrozenA  
+##### 44642#       发表于 2023-8-2 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主满宝收工
+
+*****
+
+####  風見一姬  
+##### 44643#       发表于 2023-8-2 17:50
+
+166石+10符公主1宝，福袋卡莲宝具+1但是new了Faker还行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GuDaZi  
+##### 44644#       发表于 2023-8-2 17:54
+
+500，公主2宝，马马虎虎<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hujingjing  
+##### 44645#       发表于 2023-8-2 17:57
+
+ 本帖最后由 hujingjing 于 2023-8-2 17:59 编辑 
+
+我靠，今天这歪的离谱，恩奇都阿周那二连差点把我送走，按我的经验这种四五星乱出的时候基本上要寄了，我想大不了吃个保底，还好四百左右出了公主，一宝收藏跑路，不敢抽了，留着等抽梅莉和RBA了，倒是福袋真的离奇，选了半天决定抽术袋，卡斯特补宝可以接受，其他三个都是new，鹤小姐是大奖，结果出了卡斯特二宝，你是真的爱我啊，也好也好，明年换泳装能不能十连来我家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，抽了七年的福袋，还是没遇到双黄过
+
+*****
+
+####  Urakawa  
+##### 44646#       发表于 2023-8-2 17:57
+
+保底，还就一个五星<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  溯夜  
+##### 44647#       发表于 2023-8-2 18:01
+
+368石头+10符三宝公主了，杀福袋来了个杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回坑buff恐怖如斯
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  ywshzw  
+##### 44648#       发表于 2023-8-2 18:11
+
+福袋道满+1，150石NEW手伴娘和公主,剩下四百多全部留给强度美<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宵十一狼  
+##### 44649#       发表于 2023-8-2 18:12
+
+100抽才出公主，图鉴跑路算了。福袋倒是得偿所愿出了第4宝的摩根
+
+—— 来自 HUAWEI LYA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  marxel  
+##### 44650#       发表于 2023-8-2 18:21
+
+30发一宝，福袋new泡馍，就这样吧
+
+把各处的都领了，现在手捏1500石，但并不打算抽爆泳装
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  一个陆仁贾  
+##### 44651#       发表于 2023-8-2 18:28
+
+福袋出了个披皮女帝和外星人雅克，这俩根本没出场机会啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  GALLADE  
+##### 44652#       发表于 2023-8-2 18:34
+
+公主和水伊吹的优劣在哪？听说公主90++比较多高光？
+
+*****
+
+####  shimotsuki14  
+##### 44653#       发表于 2023-8-2 18:35
+
+福袋狂2了，new狂娜也是补了个图鉴
+
+*****
+
+####  Mchaos  
+##### 44654#       发表于 2023-8-2 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61883543&amp;ptid=1712412" target="_blank">GALLADE 发表于 2023-8-2 18:34</a>
+公主和水伊吹的优劣在哪？听说公主90++比较多高光？</blockquote>
+据说公主比强度美更吃宝具数
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  natmk  
+##### 44655#       发表于 2023-8-2 18:39
+
+纯爱无敌 50抽两张公主<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 44656#       发表于 2023-8-2 18:47
+
+大号福袋龙马两宝，然后代价就是1400多才满宝公主，小号龙马+罗马，还可以吧。
+
+*****
+
+####  kuarwbwe  
+##### 44657#       发表于 2023-8-2 18:47
+
+我狙杨玉环2宝，结果又被旅行者单防了。（上次是狙一宝被单防）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202308/02/184709fg6qw4ogm67qvvmn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20230802_184514.jpg</strong> (566.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 18:47 上传
+
+缘，妙不可言。
+
+
+*****
+
+####  深渊骑士  
+##### 44658#       发表于 2023-8-2 18:53
+
+为了new一个，故意去抽了狂1福袋，没想到居然是奶光宝具+1哭死。只能安慰自己下一年的奶光就能强化了
+
+
+*****
+
+####  南小鸭  
+##### 44659#       发表于 2023-8-2 19:03
+
+120石3宝，在想要不要拼搏下。
+
+*****
+
+####  J-002  
+##### 44660#       发表于 2023-8-2 19:05
+
+<img src="https://img.saraba1st.com/forum/202308/02/190324vtuukftagxguu0fg.jpg" referrerpolicy="no-referrer">
+
+<strong>C8_CS)8VJXZ7~{P[YC@PDL2.jpg</strong> (314.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 19:03 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">本加勒底没有这个人哦，全中国的加勒底都不会有哦
+
+*****
+
+####  shimotsuki14  
+##### 44661#       发表于 2023-8-2 19:05
+
+累计390石二宝公主，五徐福，罗兰罗伯剑兰阿塔张角赫费斯提翁各一，15石new狂娜，飞嫂+1，不打算再折腾了，还有七百石留一手。
+
+*****
+
+####  sandro  
+##### 44662#       发表于 2023-8-2 19:10
+
+卧槽15抽公主，收工
+
+
+*****
+
+####  上坂莲华  
+##### 44663#       发表于 2023-8-2 19:49
+
+公主跟强度美的区别，就是90艹本在同样单核跟加成的情况下，顶配公主有一丢丢上班的可能，强度美完全没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然你说我5加成换人非要强度美上班也行就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ousia  
+##### 44664#       发表于 2023-8-2 19:50
+
+小充一单第一发出，900石6宝谢谢叔叔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  麻花疼  
+##### 44665#       发表于 2023-8-2 19:54
+
+抽完卡一直喂种火，点技能，别人开服就能做的东西结果你游八年了也没实装，还得手动一个个喂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说下战绩：
+
+抽卡BGM：姫様、お手を
+
+总共动用一共用了1080石 79护符。
+
+公主5个
+
+奥德修斯1 源为源1
+
+长江1 塔喵1 秦良玉1 雪山樱1 卡米拉1 肯娘1 渡边纲1 红A1 尼托1  哪吒1 罗兰1 芝诺比阿1
+
+3.jpg
+(88.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 19:52 上传
+
+<img src="https://img.saraba1st.com/forum/202308/02/195251wmz0jst30jx2t3ms.jpg" referrerpolicy="no-referrer">
+
+4.png
+(656.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-2 19:54 上传
+
+<img src="https://img.saraba1st.com/forum/202308/02/195456dzyijiodnxdnl3i5.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少年游不游  
+##### 44666#       发表于 2023-8-2 19:54
+
+120石头+10护符公主一宝 福袋new了奥宝，还行吧
+
+
+*****
+
+####  朝仓和美  
+##### 44667#       发表于 2023-8-2 20:10
+
+700石一宝，溜了
+
+这游戏十连不能优先呼符的吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blackjeo1  
+##### 44668#       发表于 2023-8-2 20:18
+
+    40呼符加60石3宝公主两宝徐福外加福袋池NEW了旅行者，满足了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44669#       发表于 2023-8-2 20:24
+
+还没抽，但是群里欧皇又双叒叕豹跳了
+
+YLS能不能尊重一下概率论啊......虽说欧皇不是没有沉过，相比之下，他百石内出货的频率实在过于离谱了
+
+
+*****
+
+####  夜颠覆  
+##### 44670#       发表于 2023-8-2 20:34
+
+算上中间换抽的护符差不多900石才出公主，我真的……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  johnkamsar  
+##### 44671#       发表于 2023-8-2 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">看直播遇到神仙，400石满宝。。。。。。。。。。。。。
+
+*****
+
+####  廖化  
+##### 44672#       发表于 2023-8-2 21:05
+
+600石一公主一奥德修斯，溜了溜了，还要啥自行车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  佐塚間桐  
+##### 44673#       发表于 2023-8-2 21:42
+
+不到80呼符
+
+2公主1福利多1茨木
+
+这次还可以
+
+
+*****
+
+####  FrozenA  
+##### 44674#       发表于 2023-8-2 21:50
+
+福袋出了个莫莱，感觉很可爱<img src="https://static.saraba1st.com/image/smiley/carton2017/244.png" referrerpolicy="no-referrer">不知道性能怎么样呢？
+
+
+*****
+
+####  lcychill  
+##### 44675#       发表于 2023-8-2 22:17
+
+600石+12呼符，最后一呼符出公主，一宝收手。
+
+*****
+
+####  h1h234h  
+##### 44676#       发表于 2023-8-2 22:21
+
+一宝30石出的，本来抽到2宝想收手，最后还是想拉到120开个被动就抽到4宝了，630石加50呼符
+
+
+*****
+
+####  Kon-El  
+##### 44677#       发表于 2023-8-2 22:26
+
+福袋顺利给王姐补宝<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">，公主就扔几个呼符意思下吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  苍蓝之枪  
+##### 44678#       发表于 2023-8-2 22:29
+
+想了下，一宝的价值大概是狂本地铺
+
+
+*****
+
+####  両儀  
+##### 44679#       发表于 2023-8-2 22:33
+
+2300石头+60呼符5宝
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  kuarwbwe  
+##### 44680#       发表于 2023-8-2 22:41
+
+想给公主补到满宝了。可惜攒的石头不够，人又穷。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  imlyc4  
+##### 44681#       发表于 2023-8-2 22:56
+
+福袋妄想赌一下术玛丽，结果梅林+2，果然概率太低了
+
+
+*****
+
+####  艾尔特翔  
+##### 44682#       发表于 2023-8-2 23:54
+
+王姐补宝+1，还想要狂阿清，可惜没拉，来了恐龙和补姐，目前还有600+，开始准备打种火，把能升的全部都生满3破，然后把所有强化和幕间都打完，全力挖石头
+
+
+*****
+
+####  苍蓝之枪  
+##### 44683#       发表于 2023-8-3 00:11
+
+目前有一个好友挂出了满宝公主
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44684#       发表于 2023-8-3 01:01
+
+福袋头两抽双黄水武藏和狂娜娜，后面还给了两张水布伦希尔德，bgo这是想挽留我了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 44685#       发表于 2023-8-3 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61885775&amp;ptid=1712412" target="_blank">FrozenA 发表于 2023-8-2 21:50</a>
+福袋出了个莫莱，感觉很可爱不知道性能怎么样呢？</blockquote>
+打狂战士专场的全员恶人暴击队，其他时候查无此人
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  莉莉橙  
+##### 44686#       发表于 2023-8-3 07:13
+
+新年福袋：水院
+周年福袋：水院
+
+目前四宝……
+
+
+*****
+
+####  莉莉橙  
+##### 44687#       发表于 2023-8-3 07:25
+
+公主池试水，彩圈，阿提拉+1，盘子+1
+
+
+*****
+
+####  呀书吾人  
+##### 44688#       发表于 2023-8-3 07:43
+
+1600石1宝具，我都想卸载退坑了，结果剩下200护符来了又来了四个……
+
+
+*****
+
+####  flyzzhj  
+##### 44689#       发表于 2023-8-3 08:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">公主大概过多久有妇科池子？
+
+
+*****
+
+####  kuarwbwe  
+##### 44690#       发表于 2023-8-3 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61888238&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-8-3 08:29</a>
+
+公主大概过多久有妇科池子？</blockquote>
+现在只有新年和8周年福袋能抽。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj| + 1|好的，谢谢！|
+
+查看全部评分
+
+*****
+
+####  失落之翼  
+##### 44691#       发表于 2023-8-3 08:42
+
+90石出公主，手贱想追2宝，结果石头全进去啥也没有<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44692#       发表于 2023-8-3 08:51
+
+共计1500左右石头+30护符，公主五宝，妈的看到B站不少250-500就满破的，简直了，下面还想要道满和RBA，还剩80+的石头<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑魔导始祖  
+##### 44693#       发表于 2023-8-3 09:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">家底全扔进去了，1宝保底，2k满宝，当中其他五星一个没有
+
+
+*****
+
+####  collincollin  
+##### 44694#       发表于 2023-8-3 11:31
+
+原本想着拿1宝供着
+
+500+没出，想着梅利和水吹是不指望了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+结果10连直接两宝
+
+现在又开始纠结要不要直接100级<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimotsuki14  
+##### 44695#       发表于 2023-8-3 11:57
+
+昨晚说400石二宝不抽了，早上醒了七点整没忍住又放了三十石，出了第三宝<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FrozenA  
+##### 44696#       发表于 2023-8-3 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61887213&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-8-3 01:03</a>
+打狂战士专场的全员恶人暴击队，其他时候查无此人
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">好的，好看就行
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 44697#       发表于 2023-8-3 12:30
+
+道满奥伯龙都没有，本来想着福袋出这俩就血赚，外狐new、女团长或巴姐宝具加一也可以接受，结果偏偏是大班杨宝具加一<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+好在公主徐福池成果喜人<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rollingusagi  
+##### 44698#       发表于 2023-8-3 12:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">和公主看来是没缘了，攒的1800石头全丢出去也才3宝，歪了一堆四星
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  恶搞之王  
+##### 44699#       发表于 2023-8-3 12:56
+
+2宝之后说补个3宝收手
+
+结果千石下去连个歪都没出，佛了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  johnkamsar  
+##### 44700#       发表于 2023-8-3 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">卧槽看到一个20宝的…..真有那么厨嘛？！？！
+
+
+*****
+
+####  azccc52  
+##### 44701#       发表于 2023-8-3 13:25
+
+公主一宝跑路了，对打本效率没那么大需求
+
+*****
+
+####  flyzzhj  
+##### 44702#       发表于 2023-8-3 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61891891&amp;ptid=1712412" target="_blank">恶搞之王 发表于 2023-8-3 12:56</a>
+
+2宝之后说补个3宝收手
+
+结果千石下去连个歪都没出，佛了</blockquote>
+900石不是有保底？
+
+
+*****
+
+####  拖鞋脚后跟  
+##### 44703#       发表于 2023-8-3 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61892596&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-8-3 14:00</a>
+
+900石不是有保底？</blockquote>
+保底只保一次，后续补宝只能靠运气
+
+
+*****
+
+####  flyzzhj  
+##### 44704#       发表于 2023-8-3 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61892701&amp;ptid=1712412" target="_blank">拖鞋脚后跟 发表于 2023-8-3 14:09</a>
+
+保底只保一次，后续补宝只能靠运气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我以为每900石就能给一个...
+
+
+*****
+
+####  destroyworlder  
+##### 44705#       发表于 2023-8-3 14:38
+
+ 本帖最后由 destroyworlder 于 2023-8-3 14:40 编辑 
+
+30护符一宝，福袋是狂那
+
+
+*****
+
+####  khxooo  
+##### 44706#       发表于 2023-8-3 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61892077&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2023-8-3 13:11</a>
+卧槽看到一个20宝的…..真有那么厨嘛？！？！</blockquote>
+估计是昨晚找削人棍代抽那个巨老。只能说有钱人是真的多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44707#       发表于 2023-8-3 15:23
+
+梭哈了 还是只有三宝 难受
+
+
+*****
+
+####  溯夜  
+##### 44708#       发表于 2023-8-3 15:34
+
+掏出不可说之后整个fgo都顺眼了不少
+
+*****
+
+####  GuDaZi  
+##### 44709#       发表于 2023-8-3 15:38
+
+今年的泳装离周年这么近啊
+
+
+*****
+
+####  khxooo  
+##### 44710#       发表于 2023-8-3 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61893760&amp;ptid=1712412" target="_blank">GuDaZi 发表于 2023-8-3 15:38</a>
+今年的泳装离周年这么近啊</blockquote>
+否则为什么说是骗氪4连<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  shimotsuki14  
+##### 44711#       发表于 2023-8-3 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61890750&amp;ptid=1712412" target="_blank">collincollin 发表于 2023-8-3 11:31</a>
+
+原本想着拿1宝供着
+
+500+没出，想着梅利和水吹是不指望了
+
+结果10连直接两宝</blockquote>
+毕竟是公主。
+
+昨晚到手先100级拉满了
+
+*****
+
+####  shimotsuki14  
+##### 44712#       发表于 2023-8-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61892768&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-8-3 14:17</a>
+
+我以为每900石就能给一个...</blockquote>
+今天看到召唤界面中间一行黄字“推荐召唤对象的必定召唤已经结束”
+
+想了一会儿才想明白什么意思
+
+
+*****
+
+####  GALLADE  
+##### 44713#       发表于 2023-8-3 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你游也有反和谐了吗
+
+
+*****
+
+####  苍蓝之枪  
+##### 44714#       发表于 2023-8-3 19:30
+
+强度美其实有一定副手能力，就是不知道一宝能不能胜任
+
+泳装三个虽然都想要，但是应该都是一宝就走了
+
+
+*****
+
+####  赤备传承  
+##### 44715#       发表于 2023-8-3 21:04
+
+福袋只有冠位弓枪两个是全new，为了妖兰抽了枪，结果第一张就是罗马<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+然后一共四次金枪卡背，两个凯尼斯和一个珀西瓦尔。。。十分刺激
+
+公主抽了100多石见到第一个四星，然后陆陆续续300石头下去第二个四星，感觉保底在招手的样子
+
+
+*****
+
+####  萌二  
+##### 44716#       发表于 2023-8-4 04:15
+
+半夜重看2.6  没整明白c呆是什么怎么知道开始那个没有名字的妖精叫霍普的
+
+*****
+
+####  FrozenA  
+##### 44717#       发表于 2023-8-4 04:21
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/244.png" referrerpolicy="no-referrer">抽215new了个太公望，倒是不亏
+
+
+*****
+
+####  tttabc1  
+##### 44718#       发表于 2023-8-4 06:58
+
+ 本帖最后由 tttabc1 于 2023-8-4 07:00 编辑 
+
+千石满宝，但是福袋20%的概率硬是踩雷了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+长谷川的球姬果然还是不太对我胃口，老老实实二破了
+
+
+*****
+
+####  荡寇将军张伯岐  
+##### 44719#       发表于 2023-8-4 08:35
+
+900石公主一宝，缘分到头了。。。。
+
+
+*****
+
+####  抹茶瓜  
+##### 44720#       发表于 2023-8-4 09:22
+
+20抽一个公主开图鉴不亏 等RBA了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44721#       发表于 2023-8-4 12:02
+
+CBA15绊了，终于下班了，感谢CBA，接下来看你马甲RBA了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  人生啊  
+##### 44722#       发表于 2023-8-4 14:36
+
+随便点了一下技能，只剩4eqp了，又要刷了……
+
+
+*****
+
+####  darkjack  
+##### 44723#       发表于 2023-8-4 15:38
+
+1500石50护符下去，4歪1，难受，还剩100抽留给rba了。
+
+
+*****
+
+####  FrozenA  
+##### 44724#       发表于 2023-8-4 16:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">公主灵基2的宝具动画刷本真是赏心悦目
+
+
+*****
+
+####  imlyc4  
+##### 44725#       发表于 2023-8-4 18:02
+
+ap满了居然跳提示了，以前不是只能打开游戏才出么
+
+
+*****
+
+####  近卫  
+##### 44726#       发表于 2023-8-4 18:10
+
+福袋党第一次决定抽五宝，1980石622呼符进，476呼符出，其中一个公主花了1400多石比其他四个加起来还多<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">攒了近三年的呼符终于破功了
+
+
+*****
+
+####  marxel  
+##### 44727#       发表于 2023-8-4 19:44
+
+未来视展开
+
+强度美：2宝仇绘范围内摸一下
+
+RBA：150抽
+
+年底池：浅摸一下小教授
+
+新年：麻婆100抽，福袋拿单体杀，必new（如果RBA没摸到就在这里摸EXTRA Q）
+
+提妈：呼符摸一下
+
+兽尼：浅摸一下
+
+
+*****
+
+####  苍蓝之枪  
+##### 44728#       发表于 2023-8-4 20:16
+
+通古斯还是令咒复活了.....
+
+
+*****
+
+####  Ousia  
+##### 44729#       发表于 2023-8-4 22:48
+
+qp重回20亿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+三人三个100自冲实爽，现在突然怀疑自己后面还会不会去6加成弹钢琴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44730#       发表于 2023-8-5 02:25
+
+后面特别戳我的也就兽尼禄了，还有好久<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Urakawa  
+##### 44731#       发表于 2023-8-5 03:01
+
+2000石4宝<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">，也够开120，不头铁追5宝了。顺便问下，有必要搞个水伊吹做公主副手吗？
+
+*****
+
+####  管理员我不敢了  
+##### 44732#       发表于 2023-8-5 09:21
+
+问一下，一宝神祖在未来有啥高光场合吗？枪2福袋本来三个都没有的，不过最终出的是这位……额，想问的是神祖除了帅之外，打本用的上吗？
+
+*****
+
+####  溯夜  
+##### 44733#       发表于 2023-8-5 09:24
+
+单抽出了第四宝<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">要不要氪金补这最后一宝呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  khxooo  
+##### 44734#       发表于 2023-8-5 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61913425&amp;ptid=1712412" target="_blank">管理员我不敢了 发表于 2023-8-5 09:21</a>
+问一下，一宝神祖在未来有啥高光场合吗？枪2福袋本来三个都没有的，不过最终出的是这位……额，想问的是神 ...</blockquote>
+没有，当普通红卡光炮就是了，别想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xy1041  
+##### 44735#       发表于 2023-8-5 10:19
+
+楼里豹的我睁不开眼，我把攒的1200石+40个护符扔进去就三宝，最后补到2000石才五宝<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  管理员我不敢了  
+##### 44736#       发表于 2023-8-5 11:02
+
+<blockquote>khxooo 发表于 2023-8-5 10:16
+没有，当普通红卡光炮就是了，别想太多</blockquote>
+和小太阳比呢
+
+
+*****
+
+####  FrozenA  
+##### 44737#       发表于 2023-8-5 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">通关265和打了一些强化本把215捞出来了
+
+
+*****
+
+####  苍蓝之枪  
+##### 44738#       发表于 2023-8-5 17:36
+
+突然想要暗狐了.....
+
+
+*****
+
+####  khxooo  
+##### 44739#       发表于 2023-8-5 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61914178&amp;ptid=1712412" target="_blank">管理员我不敢了 发表于 2023-8-5 11:02</a>
+
+和小太阳比呢</blockquote>
+不如小太阳，小太阳有宝具本。而且小太阳加强后30自充和加暴击威力，加上双C狐的减CD，第三T有100暴击威力了。
+
+
+*****
+
+####  kuarwbwe  
+##### 44740#       发表于 2023-8-5 19:19
+
+[https://ngabbs.com/read.php?tid=37258358&amp;page=1](https://ngabbs.com/read.php?tid=37258358&amp;page=1)
+
+b站那边整了个fgo杂谈，把泥潭蓝莲安请过去了。结果全程在拷打bgo运营。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xy1041  
+##### 44741#       发表于 2023-8-5 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61918398&amp;ptid=1712412" target="_blank">kuarwbwe 发表于 2023-8-5 19:19</a>
+https://ngabbs.com/read.php?tid=37258358&amp;page=1
+
+b站那边整了个fgo杂谈，把泥潭蓝莲安请过去了。结果全 ...</blockquote>
+人家本来鉴赏pv来的，魔魔这样不厚道<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  taiyangyou  
+##### 44742#       发表于 2023-8-5 21:39
+
+所以帖子里有人换了千代女，哥伦布或者是班杨的周年礼装嘛？想要刷下图鉴，安b 100104725198
+
+
+*****
+
+####  欧系火箭人  
+##### 44743#       发表于 2023-8-5 22:06
+
+这次周年成功333抽大保底公主，谁说fgo大保底没用的（
+
+
+*****
+
+####  khxooo  
+##### 44744#       发表于 2023-8-6 01:05
+
+没有狗粮，然后在淘宝买了1亿友情点，然后升到110，用了600W左右，估计明天再抽一天公主就能120了。
+
+
+*****
+
+####  FrozenA  
+##### 44745#       发表于 2023-8-6 01:55
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">打完265开始补斯古通，进去就是和伊吹一起出行
+
+有种打会被骗氪强度美的预感
+
+
+*****
+
+####  J-002  
+##### 44746#       发表于 2023-8-6 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61919831&amp;ptid=1712412" target="_blank">taiyangyou 发表于 2023-08-05 21:39:39</a>
+所以帖子里有人换了千代女，哥伦布或者是班杨的周年礼装嘛？想要刷下图鉴，安b 100104725198 ...</blockquote>天皓wiw？我有千代女，加你了
+绫音100101630263
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  Mchaos  
+##### 44747#       发表于 2023-8-6 14:01
+
+3202年原始人终于用上高科技，让我自己手刷也太精污了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/12/8db447a92195eb044196cf82a09234b9/CMP_20230806140018218.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  苍蓝之枪  
+##### 44748#       发表于 2023-8-6 14:06
+
+在狂竞技场打地铺了，饼干居然缺这么多
+
+
+*****
+
+####  溯夜  
+##### 44749#       发表于 2023-8-6 15:47
+
+这游戏不用高科技我估计玩不下去了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  麻花疼  
+##### 44750#       发表于 2023-8-6 17:33
+
+<img src="https://img.saraba1st.com/forum/202308/06/173050dt72b22k52px4ubb.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (89.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-6 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202308/06/173051j9u1potjj94otfjw.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (292.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-6 17:30 上传
+
+<img src="https://img.saraba1st.com/forum/202308/06/173051rj32uqwqaue33xbx.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (291.76 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-6 17:30 上传
+
+FGO玩了这么多年第一个五宝120顶配的从者，也是入坑你月的初心。
+
+下一个让我肝120的除非是青子落地了。。。。
+
+
+*****
+
+####  佐塚間桐  
+##### 44751#       发表于 2023-8-6 18:01
+
+地球姬没大用，水伊吹老玩家也不推荐。所以这次泳装梅利变成2号目标了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  johnkamsar  
+##### 44752#       发表于 2023-8-6 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公主说真的也就图个100自充能打巴萨卡的90+，但90++真不适合去考虑，有点烦。
+日服我都是该怎么配怎么陪的，基本上没考虑过公主。
+泳装伊吹没有不评价，等我国服抽出体验一番再说。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44753#       发表于 2023-8-6 19:10
+
+水枪王30NP还是有点用的，但是她还缺个宝具本.....
+
+
+*****
+
+####  天神我才3  
+##### 44754#       发表于 2023-8-6 20:50
+
+送的900多石头全 抽完4宝公主，不准备氪了，看来我与5宝无缘啊。梅莉和rba再氪吧
+
+
+*****
+
+####  xy1041  
+##### 44755#       发表于 2023-8-6 22:17
+
+没有高科技我回来肯定就是石头抽抽下线了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+这几百把的qp狗粮是人刷的啊？
+琢磨怎么让科技更稳定比自己机械的点卡有意思多了
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kuarwbwe  
+##### 44756#       发表于 2023-8-6 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61925075&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-8-6 14:01</a>
+
+3202年原始人终于用上高科技，让我自己手刷也太精污了</blockquote>
+有推荐的吗？最近想刷点qp，但懒得手刷。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mchaos  
+##### 44757#       发表于 2023-8-6 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61931546&amp;ptid=1712412" target="_blank">kuarwbwe 发表于 2023-8-6 22:43</a>
+有推荐的吗？最近想刷点qp，但懒得手刷。</blockquote>
+我用的bbchannel
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kuarwbwe  
+##### 44758#       发表于 2023-8-6 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61931614&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-8-6 22:48</a>
+
+我用的bbchannel
+
+—— 来自 samsung SM-S9180, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+好的，谢了。
+
+
+*****
+
+####  GuDaZi  
+##### 44759#       发表于 2023-8-6 22:54
+
+幕间物语已经好久没有了啊，除非抽旧卡，这幕间数量任务看来是完成不了了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  溯夜  
+##### 44760#       发表于 2023-8-6 23:35
+
+用的fga+mumu12，非常稳
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  苍蓝之枪  
+##### 44761#       发表于 2023-8-6 23:36
+
+水枪王宝具我反正是没记得有直接回满过NP，基本都要补一张指令卡，怎么会有人觉得自充不重要
+
+*****
+
+####  Urakawa  
+##### 44762#       发表于 2023-8-7 00:35
+
+狂吃苹果刷羁绊和狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GALLADE  
+##### 44763#       发表于 2023-8-7 01:07
+
+说起科技，你们谁用过FGO-py这个？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">据说是真·全加成XJBD挂机，根本不用抽3T配置啦！
+
+
+*****
+
+####  xy1041  
+##### 44764#       发表于 2023-8-7 02:06
+
+bbchannel也是可以xjbd的，设定好出卡优先级就行，如果宝具放完了人没打死他也会自动开始xjbd
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  艾尔特翔  
+##### 44765#       发表于 2023-8-7 09:17
+
+这几天疯狂打中火，大小号所有从者都满破了（小号剩个杀红A，卡凶骨了），然后看着30+的强化和幕间，有点烦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44766#       发表于 2023-8-7 10:17
+
+ 本帖最后由 qixinno2 于 2023-8-7 10:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 想起来了
+
+
+*****
+
+####  溯夜  
+##### 44767#       发表于 2023-8-7 11:03
+
+fga拿公主双湖拿来刷强化本好像不错
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  flyzzhj  
+##### 44768#       发表于 2023-8-7 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61934126&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-7 09:17</a>
+
+这几天疯狂打中火，大小号所有从者都满破了（小号剩个杀红A，卡凶骨了），然后看着30+的强化和幕间，有点烦 ...</blockquote>
+强化好刷
+
+幕间有不少阴间本的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Urakawa  
+##### 44769#       发表于 2023-8-7 12:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ios突然就炸服了
+
+
+*****
+
+####  艾尔特翔  
+##### 44770#       发表于 2023-8-7 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61936145&amp;ptid=1712412" target="_blank">flyzzhj 发表于 2023-8-7 11:33</a>
+
+强化好刷
+
+幕间有不少阴间本的</blockquote>
+关键是这么多本，有点不想打了
+
+
+*****
+
+####  实验性  
+##### 44771#       发表于 2023-8-7 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61937145&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-7 12:46</a>
+
+关键是这么多本，有点不想打了</blockquote>
+FGO-py 可以一键挂机强化本，之前堆了一堆，这次一起清了
+
+
+*****
+
+####  khxooo  
+##### 44772#       发表于 2023-8-7 18:38
+
+抽了3天友情池，终于讲公主120了，再也不会这样搞了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44773#       发表于 2023-8-7 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61941544&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-7 18:38</a>
+
+抽了3天友情池，终于讲公主120了，再也不会这样搞了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满宝公主 欧羡慕
+
+*****
+
+####  苍蓝之枪  
+##### 44774#       发表于 2023-8-7 19:42
+
+早就没有矿可挖了.....保罗的那个本好像不给石头的吧....
+
+
+*****
+
+####  qixinno2  
+##### 44775#       发表于 2023-8-7 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61942248&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2023-8-7 19:42</a>
+
+早就没有矿可挖了.....保罗的那个本好像不给石头的吧....</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不给 就给点辣鸡材料 没啥屁用
+
+
+*****
+
+####  khxooo  
+##### 44776#       发表于 2023-8-7 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61942226&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-8-7 19:40</a>
+
+满宝公主 欧羡慕</blockquote>
+欧个屁，1400多才满宝，楼里700多，900多4宝满宝那些才是真欧皇。这次泳装估计要氪个10单了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44777#       发表于 2023-8-7 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61942384&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-7 19:54</a>
+
+欧个屁，1400多才满宝，楼里700多，900多4宝满宝那些才是真欧皇。这次泳装估计要氪个10单了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不错了 刚看个视频3500+石才满宝的 简直终极霉比
+
+*****
+
+####  qixinno2  
+##### 44778#       发表于 2023-8-7 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来420石三宝有点小赚的 结果不死心又扔了150左右连石头带呼符 还没出 有点小亏
+
+
+*****
+
+####  苍蓝之枪  
+##### 44779#       发表于 2023-8-7 20:16
+
+已经完全不想抽高宝了，抽高宝感觉就是被yls骗进去
+
+
+*****
+
+####  khxooo  
+##### 44780#       发表于 2023-8-7 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61942476&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-8-7 20:04</a>
+
+不错了 刚看个视频3500+石才满宝的 简直终极霉比</blockquote>
+来个链接？
+
+*****
+
+####  qixinno2  
+##### 44781#       发表于 2023-8-7 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61943013&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-7 20:48</a>
+
+来个链接？</blockquote>
+【6000石月球公主大沉船】 [https://www.bilibili.com/video/B ... ec0f62ca61a2eb74538](https://www.bilibili.com/video/BV1Th4y1C7vY/?share_source=copy_web&amp;vd_source=666108a9094a0ec0f62ca61a2eb74538)
+
+
+*****
+
+####  khxooo  
+##### 44782#       发表于 2023-8-7 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61943060&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-8-7 20:51</a>
+
+【6000石月球公主大沉船】 https://www.bilibili.com/video/BV1Th4y1C7vY/?share_source=copy_web&amp;vd_sou ...</blockquote>
+的确是惨
+
+
+*****
+
+####  AbigailWilliams  
+##### 44783#       发表于 2023-8-7 21:56
+
+毕竟是第一张之后就还是原汁原味的池子，都7、8年了我是没什么感觉了
+
+
+*****
+
+####  恶搞之王  
+##### 44784#       发表于 2023-8-7 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61942384&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-7 19:54</a>
+
+欧个屁，1400多才满宝，楼里700多，900多4宝满宝那些才是真欧皇。这次泳装估计要氪个10单了 ...</blockquote>
+你1400满宝就知足吧
+
+我1600石两宝<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  khxooo  
+##### 44785#       发表于 2023-8-8 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61944871&amp;ptid=1712412" target="_blank">恶搞之王 发表于 2023-8-7 23:42</a>
+
+你1400满宝就知足吧
+
+我1600石两宝</blockquote>
+肯定有比我惨的，但是欧皇这个称呼我是担不起的，只能说是幸好在平均水平就是了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霄度天  
+##### 44786#       发表于 2023-8-8 07:46
+
+开个图鉴693石29呼符，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再来一百石头保底都要出了，中间没常驻
+
+
+*****
+
+####  qixinno2  
+##### 44787#       发表于 2023-8-8 08:31
+
+<blockquote>khxooo 发表于 2023-8-8 00:30
+肯定有比我惨的，但是欧这个字我是担不起的，只能说是幸好在平均水平就是了 ...</blockquote>
+大佬是安卓的么抱抱大腿
+
+
+*****
+
+####  khxooo  
+##### 44788#       发表于 2023-8-8 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61946367&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-8-8 08:31</a>
+大佬是安卓的么抱抱大腿</blockquote>
+现在正在弄友情点，没有位置了。等弄完了看看到时怎样吧
+
+
+*****
+
+####  艾尔特翔  
+##### 44789#       发表于 2023-8-8 09:26
+
+1400和我差不多，我1500+石头+30护符满宝，我个人是这么算的：1000内满宝都算豹，1200~1500算正常出货率，1500+还没满宝就算沉
+
+其实我一开始的2宝都是单抽的，妈的11连全是礼装，后面3宝才算正常抽出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  溯夜  
+##### 44790#       发表于 2023-8-8 09:31
+
+400石头四宝<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">我要狗叫我要狗叫哈哈哈
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  lily-black  
+##### 44791#       发表于 2023-8-8 09:34
+
+400多石头+20多呼符四宝，我也要叫2333
+
+*****
+
+####  qixinno2  
+##### 44792#       发表于 2023-8-8 09:54
+
+你们就是在勾引我去抽卡
+
+
+*****
+
+####  艾尔特翔  
+##### 44793#       发表于 2023-8-8 10:12
+
+我的规划，后面还有道满和RBA，目前石头还有200+90石头（45个幕墙和强化还打进行中），现在是一点石头不敢浪费了
+
+
+*****
+
+####  艾尔特翔  
+##### 44794#       发表于 2023-8-8 10:13
+
+话说楼楼上2位4宝的，都只花了400+，这么豹赶紧去抽满宝嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  溯夜  
+##### 44795#       发表于 2023-8-8 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61947544&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-8 10:13</a>
+话说楼楼上2位4宝的，都只花了400+，这么豹赶紧去抽满宝嘛</blockquote>
+没必要给八周年福袋加盘子了，我又凑不出来10个
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  艾尔特翔  
+##### 44796#       发表于 2023-8-8 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61947691&amp;ptid=1712412" target="_blank">溯夜 发表于 2023-8-8 10:22</a>
+
+没必要给八周年福袋加盘子了，我又凑不出来10个
+
+论坛助手,iPhone</blockquote>
+千里眼就是好用，哈哈
+
+
+*****
+
+####  溯夜  
+##### 44797#       发表于 2023-8-8 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61947788&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-8 10:30</a>
+
+千里眼就是好用，哈哈</blockquote>
+国服这么好用的千里眼不用白不用
+
+
+*****
+
+####  艾尔特翔  
+##### 44798#       发表于 2023-8-8 12:10
+
+话说120级我放弃了，100-102，我都已经刷不动了，随意了，以后有多少升多少，慢慢攒慢慢升
+
+
+*****
+
+####  flyzzhj  
+##### 44799#       发表于 2023-8-8 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61949157&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-8 12:10</a>
+
+话说120级我放弃了，100-102，我都已经刷不动了，随意了，以后有多少升多少，慢慢攒慢慢升 ...</blockquote>
+去年我可是一口气肝了1个礼拜把布姐120的
+
+这次想120公主，结果103就彻底刷不动了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aliciavc  
+##### 44800#       发表于 2023-8-8 13:37
+
+2000石5宝，梅莉和师匠拿盘子换吧，不想抽了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xy1041  
+##### 44801#       发表于 2023-8-8 16:34
+
+建议狗粮还是从友情点里搞吧，花体力刷狗粮是怪亏的
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  AbigailWilliams  
+##### 44802#       发表于 2023-8-8 18:51
+
+国服特色我也是觉得亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yweili999  
+##### 44803#       发表于 2023-8-8 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61954503&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2023-8-8 18:51</a>
+
+国服特色我也是觉得亏最近抽张良给的副产物狗粮都不少，不过要120确实比刷本精污，但刷本有高科技， ...</blockquote>
+抽友情池要什么高科技，直接用个手机宏录制工具就好了
+
+
+*****
+
+####  溯夜  
+##### 44804#       发表于 2023-8-9 01:18
+
+推完2.4了，前半和后半感觉是两个人写的，2.5.1开头这段北美啥意思
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  xy1041  
+##### 44805#       发表于 2023-8-9 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61957157&amp;ptid=1712412" target="_blank">yweili999 发表于 2023-8-8 22:22</a>
+抽友情池要什么高科技，直接用个手机宏录制工具就好了</blockquote>
+高科技帮你把抽的处理了继续抽吖
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Mchaos  
+##### 44806#       发表于 2023-8-9 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61958687&amp;ptid=1712412" target="_blank">溯夜 发表于 2023-8-9 01:18</a>
+推完2.4了，前半和后半感觉是两个人写的，2.5.1开头这段北美啥意思
+
+论坛助手,iPhone ...</blockquote>
+我自己推只看蘑菇写的部分，别的云一下差不多得了，时间宝贵还没有语音，就不浪费了
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  电波系腑海林  
+##### 44807#       发表于 2023-8-9 11:15
+
+昨天手贱，不过还是抽到水阿比和骑紫式了。泳装抽完RBA以后到明年泳装都没有想抽的了，又是攒石的一年。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qixinno2  
+##### 44808#       发表于 2023-8-9 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我有石头就想手贱 现在只剩200多点石头 但总想去赌公主
+
+
+*****
+
+####  MMIno  
+##### 44809#       发表于 2023-8-9 14:21
+
+今天护符又出了一个公主，至此6宝公主达成，接下来要刷海量的狗粮了
+
+
+*****
+
+####  武者小路紫苑  
+##### 44810#       发表于 2023-8-9 19:01
+
+呼符都用来抽公主，外加每天一个收费石碰运气，算下来零零散散40多抽0公主0金卡0徐福，就当给明天的梅林姐姐攒人品了
+
+
+*****
+
+####  natmk  
+##### 44811#       发表于 2023-8-9 19:05
+
+最后一宝抽了150抽才出加起来千石满宝 都看到召唤对象必定召唤已结束 应该有330抽了
+
+
+*****
+
+####  qixinno2  
+##### 44812#       发表于 2023-8-9 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梭哈了 公主四宝 果然没有那个五宝命
+
+
+*****
+
+####  GuDaZi  
+##### 44813#       发表于 2023-8-9 20:04
+
+抽到了伊莉雅，400石头战泳装<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44814#       发表于 2023-8-9 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61967838&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-8-9 19:41</a>
+
+梭哈了 公主四宝 果然没有那个五宝命</blockquote>
+下一抽可能就出了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qixinno2  
+##### 44815#       发表于 2023-8-9 20:40
+
+<blockquote>艾尔特翔 发表于 2023-8-9 20:18
+下一抽可能就出了</blockquote>
+没石头了
+
+
+*****
+
+####  khxooo  
+##### 44816#       发表于 2023-8-9 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61967838&amp;ptid=1712412" target="_blank">qixinno2 发表于 2023-8-9 19:41</a>
+
+梭哈了 公主四宝 果然没有那个五宝命</blockquote>
+欧羡慕，你估计除了那几个400多石满宝公主外最欧的一个了。
+
+
+*****
+
+####  qixinno2  
+##### 44817#       发表于 2023-8-9 21:50
+
+<blockquote>khxooo 发表于 2023-8-9 21:25
+欧羡慕，你估计除了那几个400多石满宝公主外最欧的一个了。</blockquote>
+然而这上头抽卡其实挺蠢b的 只能相信rba跟我的羁绊了
+
+
+*****
+
+####  苍蓝之枪  
+##### 44818#       发表于 2023-8-9 22:21
+
+感觉抓包太麻烦了，不然还是挺想看看抽卡数据统计的
+
+
+*****
+
+####  清风朗月  
+##### 44819#       发表于 2023-8-9 23:25
+
+梅莉能平替梅林吗
+
+
+*****
+
+####  khxooo  
+##### 44820#       发表于 2023-8-10 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61971012&amp;ptid=1712412" target="_blank">清风朗月 发表于 2023-8-9 23:25</a>
+
+梅莉能平替梅林吗</blockquote>
+差不多，不都说是蓝卡版的梅林吗，就是蓝魔放导致卑呆梅或者摩呆梅的输出低很多就是了。
+
+
+*****
+
+####  marxel  
+##### 44821#       发表于 2023-8-10 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61971012&amp;ptid=1712412" target="_blank">清风朗月 发表于 2023-8-9 23:25</a>
+梅莉能平替梅林吗</blockquote>
+从输出拐的角度上说可以看成蓝卡版的
+从充能拐的角度上说长线还赢一手
+
+但是梅林现在上场基本都是打高难放无敌的，这方面梅莉完全没法替代
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  destroyworlder  
+##### 44822#       发表于 2023-8-10 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61971012&amp;ptid=1712412" target="_blank">清风朗月 发表于 2023-8-9 23:25</a>
+
+梅莉能平替梅林吗</blockquote>
+高宝好过梅林
+
+*****
+
+####  一个陆仁贾  
+##### 44823#       发表于 2023-8-10 17:26
+
+我对蓝拐的认知还停留在蓝狐c呆，没毛病吧？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  艾尔特翔  
+##### 44824#       发表于 2023-8-10 17:51
+
+骗氪来了，第一个目标道满，希望别花太多石头，最好是不氪金的情况下，就现有的所有石头，ALL IN 道满和RBA
+
+*****
+
+####  艾尔特翔  
+##### 44825#       发表于 2023-8-10 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61979791&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-8-10 17:26</a>
+
+我对蓝拐的认知还停留在蓝狐c呆，没毛病吧？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅版 v ...</blockquote>
+没毛病，大拐还是C呆和狐狸，第三是花嫁，梅莉属于蓝爆和生存，并不算蓝拐第一集团范围内。
+
+*****
+
+####  溯夜  
+##### 44826#       发表于 2023-8-10 17:57
+
+道满强度在哪，看了技能组不是很理解
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  destroyworlder  
+##### 44827#       发表于 2023-8-10 17:58
+
+ 本帖最后由 destroyworlder 于 2023-8-10 18:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61979791&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-8-10 17:26</a>
+
+我对蓝拐的认知还停留在蓝狐c呆，没毛病吧？
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 S1Next-鹅版 v ...</blockquote>
+蓝狐现在不如奥贝隆，而且在奥贝隆出来之前已经是被c呆挤到插件了，消耗战的话就比较好，不过我日常还是嫖别人的卑弥呼c呆梅林打高难
+
+*****
+
+####  艾尔特翔  
+##### 44828#       发表于 2023-8-10 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61980159&amp;ptid=1712412" target="_blank">destroyworlder 发表于 2023-8-10 17:58</a>
+
+蓝狐现在不如奥贝隆，而且在奥贝隆出来之前已经是被c呆挤到插件了，消耗战的话就比较好，不过我日常还是嫖 ...</blockquote>
+虫子基本还是属于红卡，狐狸有蓝卡中高贵的宝威，还是有价值的
+
+*****
+
+####  艾尔特翔  
+##### 44829#       发表于 2023-8-10 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61980153&amp;ptid=1712412" target="_blank">溯夜 发表于 2023-8-10 17:57</a>
+
+道满强度在哪，看了技能组不是很理解
+
+论坛助手,iPhone</blockquote>
+80冲能解决第一面+高即死，还能拐一手混沌恶
+
+*****
+
+####  wfantasia  
+##### 44830#       发表于 2023-8-10 18:23
+
+tmd什么玩意600石就一个杰克，公主呢？
+
+*****
+
+####  GuDaZi  
+##### 44831#       发表于 2023-8-10 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61980153&amp;ptid=1712412" target="_blank">溯夜 发表于 2023-8-10 17:57</a>
+道满强度在哪，看了技能组不是很理解
+
+论坛助手,iPhone</blockquote>
+80充，高即死
+
+*****
+
+####  qixinno2  
+##### 44832#       发表于 2023-8-10 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在后面开职介强化本时即死很好用
+
+
+*****
+
+####  电波系腑海林  
+##### 44833#       发表于 2023-8-10 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61980153&amp;ptid=1712412" target="_blank">溯夜 发表于 2023-8-10 17:57</a>
+道满强度在哪，看了技能组不是很理解
+
+论坛助手,iPhone</blockquote>
+对混沌恶提供100爆伤和40加攻，自己有80自充配合追加技能原地起爆，宝具一宝就能发挥90%功能后置高概率即死，等于随便清一面铜卡怪。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  莉莉橙  
+##### 44834#       发表于 2023-8-10 18:59
+
+<img src="https://p.sda1.dev/12/a60f4c3f98f7f61c5a49bc00bc1baf7f/IMG_CMP_264717146.jpeg" referrerpolicy="no-referrer">
+豹一个
+
+*****
+
+####  khxooo  
+##### 44835#       发表于 2023-8-10 19:02
+
+小号道满150Get，就等RBA了。
+
+*****
+
+####  圈量子  
+##### 44836#       发表于 2023-8-10 19:06
+
+开场两个十连二宝，又抽了四百多石头现在四宝了，女梅林爱我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  圈量子  
+##### 44837#       发表于 2023-8-10 19:09
+
+700石五宝，顺便歪一个剑双子，大家都是taiki画的卡面呢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shimotsuki14  
+##### 44838#       发表于 2023-8-10 19:17
+
+ 本帖最后由 shimotsuki14 于 2023-8-10 19:24 编辑 
+
+还债了，公主差不多五百石四宝，刚才放了四百五十石只出了三个加雷斯……
+
+五百一十石出了一个。还剩一百石……
+
+*****
+
+####  GuDaZi  
+##### 44839#       发表于 2023-8-10 19:21
+
+出了好多四星<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h1h234h  
+##### 44840#       发表于 2023-8-10 19:22
+
+33抽道满到手，还出了最后一张黑杯，现在我也是有满破满级黑杯的人了，爽到
+
+*****
+
+####  清风朗月  
+##### 44841#       发表于 2023-8-10 19:30
+
+回坑开吃低保，强度美二宝还是三宝
+
+*****
+
+####  麻花疼  
+##### 44842#       发表于 2023-8-10 19:33
+
+这次非了，390石+70符才抽了一宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上次公主池太欧的报应吧。。。
+
+*****
+
+####  double8  
+##### 44843#       发表于 2023-8-10 19:35
+
+下次狩猎本啥时候啊，上期的没刷术阶的亏大了，本来就缺术饼干，现在樱桃也不够了，还有羽毛和兽毛……
+
+*****
+
+####  qixinno2  
+##### 44844#       发表于 2023-8-10 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石头的我只能看你们豹跳了
+
+*****
+
+####  johnkamsar  
+##### 44845#       发表于 2023-8-10 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在等三期卡池的表示看着你们豹跳了
+
+*****
+
+####  khxooo  
+##### 44846#       发表于 2023-8-10 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61981256&amp;ptid=1712412" target="_blank">清风朗月 发表于 2023-8-10 19:30</a>
+
+回坑开吃低保，强度美二宝还是三宝</blockquote>
+2宝足够了。
+
+*****
+
+####  艾尔特翔  
+##### 44847#       发表于 2023-8-10 19:56
+
+33抽入手倒满，还有100石头，RBA看你了，先打点种火升级，所有种火之前全给公主岭了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mchaos  
+##### 44848#       发表于 2023-8-10 20:06
+
+梅莉，三发呼符到手，卡面跳出来我愣了半天，这就是阿B对我公主千石三宝的补偿吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  佐塚間桐  
+##### 44849#       发表于 2023-8-10 20:07
+
+进门就看到错别字
+
+个提名还行
+
+*****
+
+####  麻花疼  
+##### 44850#       发表于 2023-8-10 20:17
+
+<img src="https://img.saraba1st.com/forum/202308/10/201649tu76lupjz8g0ucku.png" referrerpolicy="no-referrer">
+
+<strong>DL9`@GLK%%)QD{V9KH6V~2I.png</strong> (282.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-10 20:16 上传
+
+这女人太会钓了，满破了还管你叫哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aliciavc  
+##### 44851#       发表于 2023-8-10 20:29
+
+公主2000石5宝，梅莉我想着应该不会太黑，然后就900石一宝了，五星礼装都只出了4张，血压上来了哎，我到底省盘子干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism二号机  
+##### 44852#       发表于 2023-8-10 20:31
+
+<img src="https://img.saraba1st.com/forum/202308/10/203030mpp1f149140i9iyi.jpg" referrerpolicy="no-referrer">
+
+<strong>6S29U{Y5RBQ7OFT%Z)A5Z6I_tmb.jpg</strong> (138.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-10 20:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">两个十连跑路
+
+*****
+
+####  苍蓝之枪  
+##### 44853#       发表于 2023-8-10 20:32
+
+无氪吃保底，危
+
+*****
+
+####  sandro  
+##### 44854#       发表于 2023-8-10 20:51
+
+牛逼啊，180抽只出一个剑刷，fgo还是牛逼
+
+*****
+
+####  艾尔特翔  
+##### 44855#       发表于 2023-8-10 20:57
+
+rba真的，大啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，爱了爱了
+
+*****
+
+####  佐塚間桐  
+##### 44856#       发表于 2023-8-10 21:22
+
+700石加雷斯满宝LA一宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44857#       发表于 2023-8-10 21:23
+
+虽然保底还是够的，但是再来两次，明年估计啥卡都不能想了
+
+*****
+
+####  待宵  
+##### 44858#       发表于 2023-8-10 21:30
+
+一发十连两个大姐姐
+
+但是材料不够升满技能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 44859#       发表于 2023-8-10 21:39
+
+想让群里的欧皇去抓包查一下数据，但人家觉得麻烦，真是的
+
+我是真觉得他能上2%
+
+*****
+
+####  GALLADE  
+##### 44860#       发表于 2023-8-10 21:41
+
+终于补到了上铺兄弟，请问技能怎么点，20NP是不是一定要开
+
+
+*****
+
+####  風駿  
+##### 44861#       发表于 2023-8-10 21:59
+
+四等一礼装已经出来一个了，有点早啊
+
+*****
+
+####  艾尔特翔  
+##### 44862#       发表于 2023-8-10 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983171&amp;ptid=1712412" target="_blank">GALLADE 发表于 2023-8-10 21:41</a>
+
+终于补到了上铺兄弟，请问技能怎么点，20NP是不是一定要开</blockquote>
+开啊，80冲正好+20满
+
+
+*****
+
+####  GALLADE  
+##### 44863#       发表于 2023-8-10 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983575&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-10 21:59</a>
+
+开啊，80冲正好+20满</blockquote>
+只能哼哧哼哧开羁绊了
+
+
+*****
+
+####  Kon-El  
+##### 44864#       发表于 2023-8-10 22:13
+
+还有1200左右的石头，先留着给RBA，好友里已经有120级满宝公主可以嫖了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  khxooo  
+##### 44865#       发表于 2023-8-10 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983880&amp;ptid=1712412" target="_blank">Kon-El 发表于 2023-8-10 22:13</a>
+
+还有1200左右的石头，先留着给RBA，好友里已经有120级满宝公主可以嫖了
+
+论坛助手,iPhone ...</blockquote>
+5宝120的公主国服肯定一大堆，不怕嫖不了。
+
+
+*****
+
+####  kuarwbwe  
+##### 44866#       发表于 2023-8-10 23:06
+
+还有220多抽，想抽卡，但是要忍到14号抽仇绘，很烦。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">希望至少能保证一宝rba和三宝仇绘。要是抽完这俩实在没石头了，就战略性放弃阿瓦隆小姐了。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44867#       发表于 2023-8-10 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61983736&amp;ptid=1712412" target="_blank">GALLADE 发表于 2023-8-10 22:07</a>
+
+只能哼哧哼哧开羁绊了</blockquote>
+一样，等羁绊6<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个陆仁贾  
+##### 44868#       发表于 2023-8-10 23:29
+
+500石三宝加雷斯，一宝魔法少女，还剩400石，rba无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  溯夜  
+##### 44869#       发表于 2023-8-11 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我才300石头就敢做1宝强度美+1宝rba的梦，楼友也太悲观了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44870#       发表于 2023-8-11 00:33
+
+300石头一宝梅莉一宝道满，还剩800想抽个rba再给道满补补宝
+
+
+*****
+
+####  marxel  
+##### 44871#       发表于 2023-8-11 02:56
+
+别急，看看acb会不会爆强度美金币<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44872#       发表于 2023-8-11 03:55
+
+手痒痒又抽了道满池子一发十连，怎么捞到贞德了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  gearbox  
+##### 44873#       发表于 2023-8-11 07:31
+
+三十护肤加9十连一宝梅莉，该等rba和水伊吹了。可惜后面几位蹭不到三倍大成功，好气啊
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  电波系腑海林  
+##### 44874#       发表于 2023-8-11 08:15
+
+昨天看了泳8PV，今年抽完RBA就要攒石到明年allin了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Ousia  
+##### 44875#       发表于 2023-8-11 08:17
+
+330整保底，坏起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Blackson  
+##### 44876#       发表于 2023-8-11 08:22
+
+等RBA抽到后再抽满强度美
+
+
+*****
+
+####  深渊骑士  
+##### 44877#       发表于 2023-8-11 08:33
+
+同等rea跟水伊吹，就自己的霉运，根本不敢乱用石头。现在2100石头，希望可以1宝RBA3宝伊吹
+
+*****
+
+####  一个陆仁贾  
+##### 44878#       发表于 2023-8-11 08:42
+
+加雷斯这个是阳光场地拐啊，笑死
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  艾尔特翔  
+##### 44879#       发表于 2023-8-11 08:52
+
+完了，中火和QP同时告急了，升完道满后，QP还有1亿，种火没了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  霄度天  
+##### 44880#       发表于 2023-8-11 12:53
+
+单发呼符出la，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一扫前脚693石加29呼符公主前耻
+
+
+*****
+
+####  khxooo  
+##### 44881#       发表于 2023-8-11 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61990311&amp;ptid=1712412" target="_blank">GALLADE 发表于 2023-8-11 12:05</a>
+提问一下4宝金时是不是足够打以后的90艹了，需要补宝或者顶100 120吗。</blockquote>
+100可以拉，120就不建议了。
+
+
+*****
+
+####  shimotsuki14  
+##### 44882#       发表于 2023-8-11 20:04
+
+六百石公主满宝了，从未如此顺利过……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44883#       发表于 2023-8-11 21:14
+
+我现在只想快点17号过去结束噩梦，无非就是再砸1800石
+
+然后又是攒石一年吧，大概，后面几个目标放弃一堆
+
+
+*****
+
+####  一个陆仁贾  
+##### 44884#       发表于 2023-8-11 22:38
+
+问个愚蠢的问题，我最新的助战从者放通常那一栏，活动从者放着八百年前的组合，那是不是说每次到活动的时候好友们就看着我惨不忍睹的助战<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  朝仓和美  
+##### 44885#       发表于 2023-8-12 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61998273&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2023-8-11 22:38</a>
+问个愚蠢的问题，我最新的助战从者放通常那一栏，活动从者放着八百年前的组合，那是不是说每次到活动的时候 ...</blockquote>
+我觉得大家会筛选活动礼装，然后直接看不到你
+
+
+*****
+
+####  Urakawa  
+##### 44886#       发表于 2023-8-12 20:06
+
+公主这就排120级第三多的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 44887#       发表于 2023-8-12 20:21
+
+除了真厨力党。国服肯定有一帮人提前看了攻略，憋着抽了5-6宝，然后直接满配。其实不意外。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xy1041  
+##### 44888#       发表于 2023-8-12 21:54
+
+比如我<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  johnkamsar  
+##### 44889#       发表于 2023-8-12 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100石头哪来的消息。。。。。。。。。去年日服我完全没印象有这100石头啊。。。。。怎么那么多人在问
+
+*****
+
+####  Mchaos  
+##### 44890#       发表于 2023-8-12 22:10
+
+30个闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Lenovo TB320FC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  kuarwbwe  
+##### 44891#       发表于 2023-8-12 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008035&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2023-8-12 22:03</a>
+
+100石头哪来的消息。。。。。。。。。去年日服我完全没印象有这100石头啊。。。。。怎么那么多人在 ...</blockquote>
+应该是之前统计少了100吧。所以有人就觉得这次要发剩下这100。实际上那70拆成好几个14石发了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 44892#       发表于 2023-8-12 22:14
+
+ 本帖最后由 khxooo 于 2023-8-12 22:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008035&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2023-8-12 22:03</a>
+
+100石头哪来的消息。。。。。。。。。去年日服我完全没印象有这100石头啊。。。。。怎么那么多人在 ...</blockquote>
+100个当时日服FES给的20*5给的，国服是14*5+30，所以其实并没少给。
+
+之前其实某个UP提前打预防针，只是当时他正在隔壁被人挂，所以没有多少人接受这个推测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 44893#       发表于 2023-8-12 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008171&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-12 22:14</a>
+
+100个当时日服FES给的20*5给的，国服是14*5+30，所以其实并没少给。</blockquote>
+我这边很多人说是第二天给，我这边完全没印象，有就只有今年第二天给了100石头，我严重怀疑是有人弄混了
+
+*****
+
+####  khxooo  
+##### 44894#       发表于 2023-8-12 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008215&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2023-8-12 22:18</a>
+
+我这边很多人说是第二天给，我这边完全没印象，有就只有今年第二天给了100石头，我严重怀疑是有人弄混了 ...</blockquote>
+日服那边的确是周年第二天登录就给了。
+
+*****
+
+####  johnkamsar  
+##### 44895#       发表于 2023-8-12 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008255&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-12 22:21</a>
+
+日服那边的确是周年第二天登录就给了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我是真没印象。。。。。就记得日服去年是直接给了一大批石头，但是再给没给是真没印象
+
+
+*****
+
+####  khxooo  
+##### 44896#       发表于 2023-8-12 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008272&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2023-8-12 22:22</a>
+
+我是真没印象。。。。。就记得日服去年是直接给了一大批石头，但是再给没给是真没印象 ...</blockquote>
+日服那边是7周年满破给的石头+FES给的100，国服这里是将这100分开送的，之前不是有个预热活动吗，CM播放几次几次给14石头，这100就是分在这里送的。
+
+*****
+
+####  电波系腑海林  
+##### 44897#       发表于 2023-8-12 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008171&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-12 22:14</a>
+100个当时日服FES给的20*5给的，国服是14*5+30，所以其实并没少给。
+
+之前其实某个UP提前打预防针，只是当 ...</blockquote>
+哪位啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  khxooo  
+##### 44898#       发表于 2023-8-12 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008308&amp;ptid=1712412" target="_blank">电波系腑海林 发表于 2023-8-12 22:26</a>
+
+哪位啊
+
+—— 来自 S1Fun</blockquote>
+宝贝虎啊，因为烟雾镜的事情被追着骂了20多页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  电波系腑海林  
+##### 44899#       发表于 2023-8-12 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62008326&amp;ptid=1712412" target="_blank">khxooo 发表于 2023-8-12 22:27</a>
+宝贝虎啊，因为烟雾镜的事情被追着骂了20多页</blockquote>
+没看过他的视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  johnkamsar  
+##### 44900#       发表于 2023-8-12 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下，隔壁有人开始洗某主播了，然后被追着骂，乐
+
+*****
+
+####  Urakawa  
+##### 44901#       发表于 2023-8-12 22:39
+
+叔叔居然去fes现场了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 44902#       发表于 2023-8-13 00:18
+
+我发现这宝贝虎家的粉丝都是属复读机的，从头争到尾就知道复读烟雾镜就是丑，凭什么不能骂。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我寻思着隔壁不都是骂他想整节目效果，结果出了大雷输不起破防。说的都不是一个东西。不过一码归一码，30石头这事他确实挺冤的。
+
+
+*****
+
+####  保罗赫伯特  
+##### 44903#       发表于 2023-8-13 00:40
+
+提前换了一堆金蛋，结果梅莉池近700石还是沉了，这下无处可用了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+早知道不该抽公主池和水阿比，反正都没出，存着还能凑够一井，算是吃了个教训吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  J-002  
+##### 44904#       发表于 2023-8-13 03:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来自己埋雷自己踩的是那个做加勒底新闻的主播啊
+
+
+*****
+
+####  恶搞之王  
+##### 44905#       发表于 2023-8-13 12:46
+
+完犊子咯，后续抽卡计划按FES发100算的
+
+爆肝刷一天狗粮算了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44906#       发表于 2023-8-13 17:39
+
+差个70不至于影响计划吧.....
+
+
+*****
+
+####  khxooo  
+##### 44907#       发表于 2023-8-14 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62009482&amp;ptid=1712412" target="_blank">保罗赫伯特 发表于 2023-8-13 00:40</a>
+提前换了一堆金蛋，结果梅莉池近700石还是沉了，这下无处可用了
+
+早知道不该抽公主池和水阿比，反正 ...</blockquote>
+所以没井别下池，下池就准备好井，看什么抽什么只会害了你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  destroyworlder  
+##### 44908#       发表于 2023-8-14 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mchaos  
+##### 44909#       发表于 2023-8-14 12:20
+
+今天下午是强度美还是rba啊？
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Blackson  
+##### 44910#       发表于 2023-8-14 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62022608&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-8-14 12:20</a>
+ 今天下午是强度美还是rba啊？  —— 来自 samsung SM-S9180, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+强度美，RBA估计要本周四下午
+
+
+*****
+
+####  bluna  
+##### 44911#       发表于 2023-8-14 14:24
+
+突然来了灵感，10连梅莉..
+
+
+*****
+
+####  碎月  
+##### 44912#       发表于 2023-8-14 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有保底不是330必中么
+330石头虎符还是蛮容易存下来的吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+*****
+
+####  失落之翼  
+##### 44913#       发表于 2023-8-14 16:20
+
+公主补二宝彻底失败，话说抽出一体后保底还有没有？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑暗剑  
+##### 44914#       发表于 2023-8-14 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62024963&amp;ptid=1712412" target="_blank">失落之翼 发表于 2023-8-14 16:20</a>
+
+公主补二宝彻底失败，话说抽出一体后保底还有没有？</blockquote>
+没有了，卡池上面其实有写
+
+*****
+
+####  qixinno2  
+##### 44915#       发表于 2023-8-14 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62024963&amp;ptid=1712412" target="_blank">失落之翼 发表于 2023-8-14 16:20</a>
+
+公主补二宝彻底失败，话说抽出一体后保底还有没有？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有
+
+*****
+
+####  失落之翼  
+##### 44916#       发表于 2023-8-14 16:31
+
+那我就不该继续抽的啊...<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+我怎么就管不住这只手.jpg
+
+
+*****
+
+####  qixinno2  
+##### 44917#       发表于 2023-8-14 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在就赌一手手里的90石能出RBA
+
+
+*****
+
+####  麻花疼  
+##### 44918#       发表于 2023-8-14 17:15
+
+<img src="https://img.saraba1st.com/forum/202308/14/171421iajj18lnheejzye7.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230814170137.png</strong> (420.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/171423oz6zdqziqajjzd6r.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230814170439.png</strong> (365.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/171426apwph1zem76mf6mh.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230814171313.png</strong> (448.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 17:14 上传
+
+159抽收工，水伊吹前期直接双黄，犹豫了几分钟还是决定继续抽，结果抽2业务绘里濑用了几百石。
+
+抽梅莉时非了， 这次欧回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mchaos  
+##### 44919#       发表于 2023-8-14 17:15
+
+七十发抽个强度美开个图鉴，补不补宝就看周四rba给不给面子了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉莉橙  
+##### 44920#       发表于 2023-8-14 17:16
+
+30抽顺利确保绘理世二宝，撞烂烟雾镜蛋蛋的小船已蓄势待发
+
+*****
+
+####  khxooo  
+##### 44921#       发表于 2023-8-14 17:21
+
+270石头出梅莉+2宝水伊吹+1宝绘里奈<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上坂莲华  
+##### 44922#       发表于 2023-8-14 17:21
+
+150抽就出了一个强度美，其他金从者都没见一个，要不是最后出了我真以为池子里没UP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mchaos  
+##### 44923#       发表于 2023-8-14 17:24
+
+日哦，辉石和饼干不够了
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ousia  
+##### 44924#       发表于 2023-8-14 17:26
+
+还是让强度美溜进迦了，幸好进来没把门焊上绘里世紧接着出了
+
+合着梅丽吃满330只是个跳点，欧还是一直欧的
+
+
+*****
+
+####  深渊骑士  
+##### 44925#       发表于 2023-8-14 17:49
+
+1400多石只有一个伊吹 还歪了一个尼莫，只剩下1200多石不敢抽了，看看抽了rba后还剩下多少来继续<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  清风朗月  
+##### 44926#       发表于 2023-8-14 17:54
+
+ 本帖最后由 清风朗月 于 2023-8-14 17:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情 ...</blockquote>
+78呼符150石两宝伊吹四宝仇绘，体感前面拿呼符垫的多后面拿石头出的越快，就是RBA没有呼符垫了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  qixinno2  
+##### 44927#       发表于 2023-8-14 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+M1(ER1DBJ{2`E2NN2Y[M~~F.jpg
+(8.32 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/180215x6hp17l1hlhzlt16.jpg" referrerpolicy="no-referrer">
+
+BJBLJ3TZ}9_9CO)%Y_NGJ$4.jpg
+(5.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-14 18:02 上传
+
+<img src="https://img.saraba1st.com/forum/202308/14/180233od5z56l135lrajdh.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  GuDaZi  
+##### 44928#       发表于 2023-8-14 18:12
+
+70连2宝伊吹，结束战斗。就看斯卡蒂情况了
+
+
+*****
+
+####  sandro  
+##### 44929#       发表于 2023-8-14 18:14
+
+醉了，又是有五星没四星，太恶心了
+
+
+*****
+
+####  h1h234h  
+##### 44930#       发表于 2023-8-14 18:31
+
+60石两个仇绘先跑路了，等rba抽完再下伊吹池
+
+
+*****
+
+####  gearbox  
+##### 44931#       发表于 2023-8-14 19:00
+
+ 本帖最后由 gearbox 于 2023-8-14 19:02 编辑 
+
+第一发十连就出了一宝，希望第二宝早点到
+
+第六个十连出了，跑路。
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ousia  
+##### 44932#       发表于 2023-8-14 19:29
+
+第一只是20连出，想补2宝充了一单
+
+充完每日单抽点一下，出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  苍蓝之枪  
+##### 44933#       发表于 2023-8-14 19:33
+
+又保底了，为什么?
+
+累了
+
+
+*****
+
+####  艾尔特翔  
+##### 44934#       发表于 2023-8-14 19:48
+
+冲了2单，360石头左右，2宝强度美+4宝绘里奈，剩下的，就看RBA了
+
+
+*****
+
+####  FrozenA  
+##### 44935#       发表于 2023-8-14 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">公主池歪太公望，泳装池歪太公望
+
+直接0变2宝，这歪得还挺高兴的
+
+
+*****
+
+####  史艳文  
+##### 44936#       发表于 2023-8-14 20:36
+
+570石头，2宝水伊吹，1宝四星，2张氪金五星礼装，低于概率一点点但是还好
+
+去年10月1500石头没有五星沉船跑路后直到周年才回来，现在还有几百石头，可以继续存起来等其他了
+
+*****
+
+####  shimotsuki14  
+##### 44937#       发表于 2023-8-14 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62024024&amp;ptid=1712412" target="_blank">碎月 发表于 2023-8-14 14:53</a>
+有保底不是330必中么
+330石头虎符还是蛮容易存下来的吧</blockquote>
+330石头x
+330抽    o
+
+
+*****
+
+####  kyonkoism二号机  
+##### 44938#       发表于 2023-8-14 20:49
+
+我也千石一宝乐，这池是不是故意调低过出率，我后面又追了400石头拉到出五的平均数看一眼 啥都没有
+
+
+*****
+
+####  natmk  
+##### 44939#       发表于 2023-8-14 21:13
+
+10连什么都没有 剩下200石等rba了
+
+*****
+
+####  kyonkoism二号机  
+##### 44940#       发表于 2023-8-14 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">刚刚算了下 200石头出第一只 追了1300石头见不到第二只，甚至没有任何一张五星，感觉是给这两年的欧气还债了，目前没见过比我更惨的
+
+
+*****
+
+####  碎月  
+##### 44941#       发表于 2023-8-14 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62027643&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2023-08-14 20:39:25</a>
+330石头x
+330抽    o</blockquote>那我那张梅丽是保底无疑了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  苍蓝之枪  
+##### 44942#       发表于 2023-8-14 22:11
+
+为什么有人能几乎每个池子都豹的啊
+
+yls不制裁一下他吗?
+
+
+*****
+
+####  johnkamsar  
+##### 44943#       发表于 2023-8-15 01:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">掐指一算，这次共计900石头花费，一宝公主，一宝梅莉，两宝伊吹，3宝绘里奈，1宝加蕾丝，平均下来接近200石头一宝，算是亚洲水平吧。
+留了一井等泳装石匠，这次算是比较稳了
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 44944#       发表于 2023-8-15 02:55
+
+40抽一宝仇绘就溜了，抽完rba继续来捞仇绘
+
+
+*****
+
+####  destroyworlder  
+##### 44945#       发表于 2023-8-15 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62025646&amp;ptid=1712412" target="_blank">麻花疼 发表于 2023-8-14 17:15</a>
+
+159抽收工，水伊吹前期直接双黄，犹豫了几分钟还是决定继续抽，结果抽2宝绘里濑用了几百石。
+
+抽梅莉时非 ...</blockquote>
+我也是两宝强度美
+
+
+*****
+
+####  人生啊  
+##### 44946#       发表于 2023-8-15 09:12
+
+一百三十多抽才出强度美，果断溜了，这池子抽着太痛苦
+
+
+*****
+
+####  lily-black  
+##### 44947#       发表于 2023-8-15 09:22
+
+抽公主剩下的260抽，丢去抽梅丽毛都没有 结果昨晚半夜起来上厕所发现又送了10抽.....出货了orz
+
+
+*****
+
+####  艾尔特翔  
+##### 44948#       发表于 2023-8-15 09:31
+
+现在就在疯狂挖石头，抽完强度美，就剩下90+了，幕间已经打完，还有35个强化，全部打完可以拿100石头，这就是我给RBA的最后家当了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  哔——  
+##### 44949#       发表于 2023-8-15 10:12
+
+10呼符new了一宝强度美，人飘了，又扔了40抽结果无事发生，溜了溜了，石头还得留给rba
+
+
+*****
+
+####  marxel  
+##### 44950#       发表于 2023-8-15 10:16
+
+出了但是仇绘只拿到一宝有点不爽
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Kon-El  
+##### 44951#       发表于 2023-8-15 11:06
+
+怎么助战好友里还有C呆二技能不点满的…<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  近卫  
+##### 44952#       发表于 2023-8-15 11:12
+
+公主池把霉运吸完了，210石3伊吹1大王
+
+
+*****
+
+####  shimotsuki14  
+##### 44953#       发表于 2023-8-15 11:21
+
+三百多石只出了一个仇绘，其他sr都没
+加上前面六百石一宝梅莉
+感觉是公主池难得豹了之后还债了
+
+
+*****
+
+####  xjlarry  
+##### 44954#       发表于 2023-8-15 13:59
+
+请教各位大佬，现在入坑的话，买成品号安全吗，有哪些是必须的或者有会比较轻松的，谢谢了
+
+
+*****
+
+####  khxooo  
+##### 44955#       发表于 2023-8-15 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62034752&amp;ptid=1712412" target="_blank">xjlarry 发表于 2023-8-15 13:59</a>
+请教各位大佬，现在入坑的话，买成品号安全吗，有哪些是必须的或者有会比较轻松的，谢谢了 ...</blockquote>
+成品号不建议，因为你不知道这号究竟是不是盗来的，最建议是初始号。
+
+
+*****
+
+####  麻花疼  
+##### 44956#       发表于 2023-8-15 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62034752&amp;ptid=1712412" target="_blank">xjlarry 发表于 2023-8-15 13:59</a>
+
+请教各位大佬，现在入坑的话，买成品号安全吗，有哪些是必须的或者有会比较轻松的，谢谢了 ...</blockquote>
+奥伯龙，C呆，这两个必须要有，没有的话可以直接PASS，这两个是人权卡，没有的话根本玩不下去。
+
+打手的话就是国服新出的狂伊吹，地铺与周回的王，可以搞个满宝，新手推荐指数为100点，能无脑过百分之95%的本。
+
+再有就是为了以后90艹本（可以理解为最高难度的周回本）做准备，狂阶的坂田金时也推荐整一个，同样推荐宝具5宝。
+
+礼装的话只推荐一个，就是满破的黑之圣杯，其他的全都没用。
+
+高难度本的话，可以要一个1宝的卑弥呼+1宝的梅林即可。
+
+因此，推荐成品号要有如下配置：
+
+C呆（1宝即可，人权），奥伯龙（1宝即可，人权），水伊吹（最好5宝），金时（最好5宝），梅林（1宝），卑弥呼（1宝），黑之圣杯（满破），这是基本配置。
+
+有条件的话，可以再追加一个芦屋道满（1宝即可），杀阶光之斯卡娅（1宝就够用），5宝120级拉满顶配的公主（截至日服最新进度已经绝版了，无复刻，强无敌的100自充30群充，可以玩很多花活，缺点就是伤害低，所以要5宝拉满才好用）。
+
+*****
+
+####  麻花疼  
+##### 44957#       发表于 2023-8-15 14:47
+
+不过2023了还有人入坑国服，也是奇葩了。
+
+个人更推荐去台服或者日服，那边的人也很多，国服各种花式阉割，能受得了的再入坑吧，比如说你喜欢的角色卡面突然被修改了，你能接受么？
+
+
+*****
+
+####  destroyworlder  
+##### 44958#       发表于 2023-8-15 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62034752&amp;ptid=1712412" target="_blank">xjlarry 发表于 2023-8-15 13:59</a>
+
+请教各位大佬，现在入坑的话，买成品号安全吗，有哪些是必须的或者有会比较轻松的，谢谢了 ...</blockquote>
+建议run去日服
+
+*****
+
+####  xjlarry  
+##### 44959#       发表于 2023-8-15 14:59
+
+谢谢各位大佬，台服的话，氪金方便吗，福利方面应该没有克扣吧
+
+
+*****
+
+####  khxooo  
+##### 44960#       发表于 2023-8-15 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62035399&amp;ptid=1712412" target="_blank">xjlarry 发表于 2023-8-15 14:59</a>
+谢谢各位大佬，台服的话，氪金方便吗，福利方面应该没有克扣吧</blockquote>
+台服的确是一个选择，毕竟没有和谐的风险。福利应该没有克扣，毕竟台湾那边又不是没有千里眼。
+
+*****
+
+####  麻花疼  
+##### 44961#       发表于 2023-8-15 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62035399&amp;ptid=1712412" target="_blank">xjlarry 发表于 2023-8-15 14:59</a>
+
+谢谢各位大佬，台服的话，氪金方便吗，福利方面应该没有克扣吧</blockquote>
+台服进度比国服还慢，福利没有克扣的。
+
+台服好友可以去巴哈姆特和推特找找，也有很多。
+
+我反正挺后悔第一次卡面和谐时没润去台服的，那时练度还不算高，现在练度高了不想润了，让我从0开始再打一遍我肯定受不了。。
+
+
+*****
+
+####  xjlarry  
+##### 44962#       发表于 2023-8-15 16:10
+
+去找找台服的成品号，不过好像不多，是不是只要能换绑手机就安全了啊
+
+
+*****
+
+####  wfantasia  
+##### 44963#       发表于 2023-8-15 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62034752&amp;ptid=1712412" target="_blank">xjlarry 发表于 2023-8-15 13:59</a>
+
+请教各位大佬，现在入坑的话，买成品号安全吗，有哪些是必须的或者有会比较轻松的，谢谢了 ...</blockquote>
+TB号带4000多石,狐呆龙3拐+5宝摩根5宝公主
+
+
+*****
+
+####  艾尔特翔  
+##### 44964#       发表于 2023-8-15 16:44
+
+我一直有疑问，没有过章的石头号应该是没有问题，
+
+但是已经过2.6的，好多5星9/9/9，然后2000~4000石头的过章号，这种也没问题的吗？
+
+*****
+
+####  Mchaos  
+##### 44965#       发表于 2023-8-15 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62036732&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-15 16:44</a>
+我一直有疑问，没有过章的石头号应该是没有问题，
+
+但是已经过2.6的，好多5星9/9/9，然后2000~4000石头的过 ...</blockquote>
+反正国服基本没出过事儿，又不碍着叔叔挣钱的东西。你花这么大力气去封，能有挣回来多的么
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ousia  
+##### 44966#       发表于 2023-8-15 17:24
+
+还要明年这个时候才能吸到水兰，人生还有能比这更不幸的事<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GuDaZi  
+##### 44967#       发表于 2023-8-15 17:46
+
+明年泳装都不错 但四星双up好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44968#       发表于 2023-8-15 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62036816&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-8-15 16:50</a>
+
+反正国服基本没出过事儿，又不碍着叔叔挣钱的东西。你花这么大力气去封，能有挣回来多的么
+
+—— 来自 sa ...</blockquote>
+有理有据，确实如此
+
+
+*****
+
+####  佐塚間桐  
+##### 44969#       发表于 2023-8-15 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">120石头下去歪了个月神
+
+
+*****
+
+####  佐塚間桐  
+##### 44970#       发表于 2023-8-15 22:31
+
+笑死，刚才普通圈出了迦尔纳，点了一下还没黑屏
+
+然后出现彩圈！
+
+狂阶！
+
+来了！
+
+南丁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+真典中典
+
+
+*****
+
+####  kuarwbwe  
+##### 44971#       发表于 2023-8-15 23:20
+
+今年一直挺黑的。<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+情人节抽巴姐沉了。水怪补三宝摩根再沉一次。两池子有两百多抽打了水漂。之后狙杨玉环，100多抽出货。
+
+周年想博三宝公主，结果到差不多240抽的时候，正好在240抽出了二宝公主，我觉得这是告诫我别抽了，等泳装。
+
+现在追高宝仇绘又失败了，连歪两个四星。不知道说啥好。
+
+
+*****
+
+####  marko556  
+##### 44972#       发表于 2023-8-16 09:16
+
+60抽3宝公主+700石2宝强度美溜了，要命
+
+
+*****
+
+####  Mchaos  
+##### 44973#       发表于 2023-8-16 10:04
+
+抽完rba就憋到明年泳装池<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  khxooo  
+##### 44974#       发表于 2023-8-16 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62043965&amp;ptid=1712412" target="_blank">Mchaos 发表于 2023-8-16 10:04</a>
+抽完rba就憋到明年泳装池
+
+—— 来自 samsung SM-S9180, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+憋到提妈，大姐姐等复刻再抽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  艾尔特翔  
+##### 44975#       发表于 2023-8-16 11:44
+
+RBA以后，下一个目标是兽尼禄，我永远喜欢尼禄，吼姆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blackjeo1  
+##### 44976#       发表于 2023-8-16 13:25
+
+     最新的池子吃瘪了，花了400石头出了两个金狂阶的卡面结果转过来一个黑塔一个南丁格尔<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，果断放弃
+
+
+*****
+
+####  khxooo  
+##### 44977#       发表于 2023-8-16 18:36
+
+TM的选黑毛的时候闪退，B站上点心好不好<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 44978#       发表于 2023-8-16 19:42
+
+<img src="https://p.sda1.dev/12/b97b4febbeabf593be381f4f66a80a00/CMP_20230816194137972.jpg" referrerpolicy="no-referrer">
+不稳定6回合慢慢打<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kuarwbwe  
+##### 44979#       发表于 2023-8-16 19:45
+
+这期活动剧情还挺有意思的，水伊吹最后cg和个人剧情加了不少分。
+
+就是之后在隔壁看人模仿樱井光文风贷款拿公主给水伊吹垫有点恶心。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  AbigailWilliams  
+##### 44980#       发表于 2023-8-16 21:36
+
+14绊剑北斋，没想到还有90++发挥一下的说法
+
+
+*****
+
+####  Ousia  
+##### 44981#       发表于 2023-8-16 21:57
+
+以后都黑杯5加成算了，懒得想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  h1h234h  
+##### 44982#       发表于 2023-8-16 22:08
+
+打了狂娜6加成换和斋藤一五加成不换，这种活动没什么必要追6加成，不换人更重要
+
+
+*****
+
+####  sandro  
+##### 44983#       发表于 2023-8-16 23:59
+
+想抽完rba再打活动，还来得及拿女武神不
+
+
+*****
+
+####  kuarwbwe  
+##### 44984#       发表于 2023-8-17 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62054467&amp;ptid=1712412" target="_blank">sandro 发表于 2023-8-16 23:59</a>
+
+想抽完rba再打活动，还来得及拿女武神不</blockquote>
+女武神通了主线就能拿，活动到31号，来得及的。升宝具打5ap本就行。
+
+唯一要注意的应该是灵基突破材料要用升级设施用的材料换，要是时间实在吃紧有些设施应该可以考虑不升。
+
+
+*****
+
+####  xy1041  
+##### 44985#       发表于 2023-8-17 00:33
+
+<img src="https://img.saraba1st.com/forum/202308/17/003158pp5unwj0kjib5un3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20230817003145.png</strong> (285.79 KB, 下载次数: 0)
+
+下载附件
+
+2023-8-17 00:31 上传
+
+确实好抄，倍卡用丸子升到满级伤害绰绰有余，道满不用开被动np也不用点满减防，唯一可能翻车的点是我的即死服只有⑨级，不知道什么时候即死就会来个miss<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  tttabc1  
+##### 44986#       发表于 2023-8-17 07:48
+
+rba过了就等r姐和明年泳装了，提妈到时候小摸一下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  flyzzhj  
+##### 44987#       发表于 2023-8-17 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62054467&amp;ptid=1712412" target="_blank">sandro 发表于 2023-8-16 23:59</a>
+
+想抽完rba再打活动，还来得及拿女武神不</blockquote>
+稳的一逼
+
+
+*****
+
+####  lily-black  
+##### 44988#       发表于 2023-8-17 10:35
+
+ 本帖最后由 lily-black 于 2023-8-17 10:37 编辑 
+
+五宝公主好可怕 五宝公主加双杀狐好可怕，根本不用考虑换人or敌方职阶or np率，冲尼玛的浪啊（？）一路轰过去就完事了 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  溯夜  
+##### 44989#       发表于 2023-8-17 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62057444&amp;ptid=1712412" target="_blank">lily-black 发表于 2023-8-17 10:35</a>
+五宝公主好可怕 五宝公主加双杀狐好可怕，根本不用考虑换人or敌方职阶，冲尼玛的浪啊（？）一路轰过去就完 ...</blockquote>
+是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的公主已经快十绊了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  艾尔特翔  
+##### 44990#       发表于 2023-8-17 10:38
+
+话说是我手机有问题还是游戏就是这样，我是用苹果11，玩的安卓服，上一个版本没问题，这个周年版本是重新安装的，所有数据都下载好了，但是无论是主线还是FREE，所有进去都要跑狗跑一会，哪怕是坐在路由器边上也是，WIFI和数据流量都一样，
+
+这到底是游戏问题，还是苹果手机的问题？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Blackson  
+##### 44991#       发表于 2023-8-17 10:43
+
+等下午的RBA再打活动了，现在主线通关才60W点数，打90艹挺吃力
+
+
+*****
+
+####  佐塚間桐  
+##### 44992#       发表于 2023-8-17 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62057500&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2023-8-17 10:38</a>
+
+话说是我手机有问题还是游戏就是这样，我是用苹果11，玩的安卓服，上一个版本没问题，这个周年版本是重新安 ...</blockquote>
+估计是安卓的问题
+
+我进去都要跑一会
+
+
+*****
+
+####  无证madam  
+##### 44993#       发表于 2023-8-17 12:43
+
+我是安卓 从昨天开始 进助战/好友界面都要跑十几秒狗 大伙有这个问题吗
+
+
+*****
+
+####  xy1041  
+##### 44994#       发表于 2023-8-17 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62057444&amp;ptid=1712412" target="_blank">lily-black 发表于 2023-8-17 10:35</a>
+五宝公主好可怕 五宝公主加双杀狐好可怕，根本不用考虑换人or敌方职阶or np率，冲尼玛的浪啊（？）一路轰过 ...</blockquote>
+但是要锁cd服吖
+
+—— 来自 HUAWEI PAL-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  linmoux  
+##### 44995#       发表于 2023-8-17 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62059563&amp;ptid=1712412" target="_blank">无证madam 发表于 2023-8-17 12:43</a>
+我是安卓 从昨天开始 进助战/好友界面都要跑十几秒狗 大伙有这个问题吗</blockquote>
+有，昨天突然出现的。
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  电波系腑海林  
+##### 44996#       发表于 2023-8-17 13:08
+
+刚给金时开了11绊，就发现哈吉咩可以不换人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  一个陆仁贾  
+##### 44997#       发表于 2023-8-17 14:07
+
+这次活动剧情到画同人志漫画那里开始看不下去点跳过，上贴吧一看，原来我正好跳过了“精华”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  collincollin  
+##### 44998#       发表于 2023-8-17 14:46
+
+ 本帖最后由 collincollin 于 2023-8-17 14:48 编辑 
+
+rba有需要高宝吗
+
+水瓦
+
+兰丸
+
+太岁
+
+一与
+
+如果要拉一个的话，哪个好
+
+怎么确认还剩多少币
+
+*****
+
+####  Mchaos  
+##### 44999#       发表于 2023-8-17 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62061400&amp;ptid=1712412" target="_blank">collincollin 发表于 2023-8-17 14:46</a>
+rba有需要高宝吗
+
+水瓦</blockquote>
+当拐一宝完全体，高宝当打手好像也能用<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9180, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  艾尔特翔  
+##### 45000#       发表于 2023-8-17 15:18
+
+rba1宝就够用了，真要当打手，可以期待好友的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
