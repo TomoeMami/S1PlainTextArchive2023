@@ -4029,3 +4029,681 @@ jennie我找了半天都没找到擦边的片段，不会女主都露了她一�
 
 至于意淫什么光明会公子玩物之类的，中营销号的圈套了。
 
+*****
+
+####  小拖  
+##### 412#       发表于 2023-11-1 23:27
+
+杨颖张嘉倪全网账号禁言<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  超人苏坦纳  
+##### 413#       发表于 2023-11-1 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62340946&amp;ptid=2151968" target="_blank">masakaha 发表于 2023-9-8 23:50</a>
+
+推上的脱衣舞一点意思都没有，就是脱光了扭来扭去，求大佬分享点好康的 ...</blockquote>
+JM舞团
+
+
+*****
+
+####  渡辺梨加  
+##### 414#       发表于 2023-11-1 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62909683&amp;ptid=2151968" target="_blank">小拖 发表于 2023-11-1 23:27</a>
+杨颖张嘉倪全网账号禁言</blockquote>
+草，有点魔幻了吧。
+本家屁事没有还时不时买个热搜，看客反而倒了霉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  菲特妹  
+##### 415#       发表于 2023-11-1 23:58
+
+治不了泰国人还治不了你？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Libartas  
+##### 416#       发表于 2023-11-2 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62909865&amp;ptid=2151968" target="_blank">渡辺梨加 发表于 2023-11-1 23:50</a>
+草，有点魔幻了吧。
+本家屁事没有还时不时买个热搜，看客反而倒了霉</blockquote>
+本家在夹国已经赛博蒸发了
+
+*****
+
+####  渡辺梨加  
+##### 417#       发表于 2023-11-2 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62909933&amp;ptid=2151968" target="_blank">Libartas 发表于 2023-11-2 00:00</a>
+本家在夹国已经赛博蒸发了</blockquote>
+那就让我们热烈祝贺织部女士成为简中唯一LiSA吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  テロメア  
+##### 418#       发表于 2023-11-2 00:22
+
+那两还会活的啦。
+
+<img src="https://p.sda1.dev/13/0476705cf1fe9142bca69a120d4c7eb0/1.png" referrerpolicy="no-referrer">
+
+最近的lisa……这韩国化妆真的有东西吧
+
+
+*****
+
+####  magus  
+##### 419#       发表于 2023-11-2 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62909683&amp;ptid=2151968" target="_blank">小拖 发表于 2023-11-1 23:27</a>
+
+杨颖张嘉倪全网账号禁言</blockquote>
+他俩咋了
+
+*****
+
+####  kanago  
+##### 420#       发表于 2023-11-2 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910497&amp;ptid=2151968" target="_blank">magus 发表于 2023-11-2 01:40</a>
+他俩咋了</blockquote>
+去看疯马秀还和粉丝在门口合照
+
+
+*****
+
+####  initium  
+##### 421#       发表于 2023-11-2 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910096&amp;ptid=2151968" target="_blank">テロメア 发表于 2023-11-2 00:22</a>
+
+那两还会活的啦。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202311/02/015249gbqut4u2dq2s4tq4.jpg" referrerpolicy="no-referrer">
+
+<strong>v2-9e5cf2e5a9443e03e540c8aeec1c1577_r.jpg</strong> (300.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-2 01:52 上传
+
+伊藤润二《黑鸟》
+
+*****
+
+####  佳丽三千到  
+##### 422#       发表于 2023-11-2 02:42
+
+快来快来听，Angelababy的粉丝打给工作室的录音，听完了总结一下：
+
+《你到底是不是她工作室的人》《国家管控的我们管不了》《疯马秀是什么》《到底去没去疯马秀》《为什么不出来澄清》《白鹿抖澄清了》《白鹿她又没去》《谁说被封杀了》《只是一时的又不是永久的》《有解决方案》《现在我们只能等只能保持沉默》
+
+[https://m.weibo.cn/status/4963401896559043#&amp;video](https://m.weibo.cn/status/4963401896559043#&amp;video)
+
+
+*****
+
+####  gajangmudohe  
+##### 423#       发表于 2023-11-2 02:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62909683&amp;ptid=2151968" target="_blank">小拖 发表于 2023-11-1 23:27</a>
+
+杨颖张嘉倪全网账号禁言</blockquote>
+所以说为啥之前各种上热搜都没动静，等了俩月大伙都忘了这茬的时候才一网打尽
+
+
+*****
+
+####  轮太  
+##### 424#       发表于 2023-11-2 06:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910620&amp;ptid=2151968" target="_blank">gajangmudohe 发表于 2023-11-2 02:47</a>
+
+所以说为啥之前各种上热搜都没动静，等了俩月大伙都忘了这茬的时候才一网打尽 ...</blockquote>
+利维坦动起来是很慢的
+
+
+*****
+
+####  regalia  
+##### 425#       发表于 2023-11-2 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910609&amp;ptid=2151968" target="_blank">佳丽三千到 发表于 2023-11-2 02:42</a>
+
+快来快来听，Angelababy的粉丝打给工作室的录音，听完了总结一下：
+
+《你到底是不是她工作室的人》《国家管 ...</blockquote>
+听的乐死了，工作人员不想确认负面信息，粉丝疯狂输出负面信息……
+
+
+*****
+
+####  银镜  
+##### 426#       发表于 2023-11-2 08:00
+
+终于看到杨姐凭自己实力得到的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RYURYUTA  
+##### 427#       发表于 2023-11-2 08:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">Angelababy竟然有粉丝，粉她什么？
+
+
+*****
+
+####  抠鼻屎男  
+##### 428#       发表于 2023-11-2 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62911189&amp;ptid=2151968" target="_blank">RYURYUTA 发表于 2023-11-2 08:28</a>
+
+Angelababy竟然有粉丝，粉她什么？</blockquote>
+脸
+
+*****
+
+####  tasuku  
+##### 429#       发表于 2023-11-2 08:53
+
+ab在小学生圈子粉丝很多的
+
+应该是之前那个跑男的原因
+
+
+*****
+
+####  精英级自演乙  
+##### 430#       发表于 2023-11-2 09:03
+
+当年跑男团的未成年粉丝可是非常多，现在成年可以上网发声了
+
+
+*****
+
+####  laotoutou  
+##### 431#       发表于 2023-11-2 09:40
+
+lisa去疯马秀真的是最迷幻的操作。
+不过泰妹本来耳濡目染，觉得这些也没啥
+谁想碰到了东大的高压线。
+
+
+*****
+
+####  airfire  
+##### 432#       发表于 2023-11-2 09:50
+
+笑死，外国明星高调宣传跳脱衣舞内娱跟着起哄蹭流量，最后竟然是黄晓明前妻一等火急火燎赶着去蹭，被利维坦发现一窝端了这一结果，今年内娱魔幻事件。
+
+
+*****
+
+####  渡辺梨加  
+##### 433#       发表于 2023-11-2 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912024&amp;ptid=2151968" target="_blank">laotoutou 发表于 2023-11-2 09:40</a>
+lisa去疯马秀真的是最迷幻的操作。
+不过泰妹本来耳濡目染，觉得这些也没啥
+谁想碰到了东大的高压线。 ...</blockquote>
+更多是被“身体自由”那套说辞给忽悠了吧，忽悠粉丝忽悠到连自己都信了 
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  渡辺梨加  
+##### 434#       发表于 2023-11-2 10:02
+
+财阀太会玩啦！
+据观众repo说，泰妹在疯马秀上还当众跟LV三公子调情，结果转头LV旗下的宝格丽跟她割席了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/13/e0dba98ce4bb8a34c97cb612b9321a55/CMP_20231102100137965.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gajangmudohe  
+##### 435#       发表于 2023-11-2 10:14
+
+<blockquote>airfire 发表于 2023-11-2 09:50
+笑死，外国明星高调宣传跳脱衣舞内娱跟着起哄蹭流量，最后竟然是黄晓明前妻一等火急火燎赶着去蹭，被利维坦 ...</blockquote>
+教主自打跟天宝离婚以后风评大有改观
+
+
+*****
+
+####  kanago  
+##### 436#       发表于 2023-11-2 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62911189&amp;ptid=2151968" target="_blank">RYURYUTA 发表于 2023-11-2 08:28</a>
+
+Angelababy竟然有粉丝，粉她什么？</blockquote>
+脸啊，
+
+当初在HK当靓模的时候跟周秀娜的身材平分秋色的
+
+当然后来她拿了百花奖我也不知道为啥，因为她出了名演技烂的
+
+*****
+
+####  RYURYUTA  
+##### 437#       发表于 2023-11-2 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912579&amp;ptid=2151968" target="_blank">kanago 发表于 2023-11-2 10:24</a>
+
+脸啊，
+
+当初在HK当靓模的时候跟周秀娜的身材平分秋色的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">我怎么记得她是换头人造人……
+
+*****
+
+####  kanago  
+##### 438#       发表于 2023-11-2 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912590&amp;ptid=2151968" target="_blank">RYURYUTA 发表于 2023-11-2 10:26</a>
+
+我怎么记得她是换头人造人……</blockquote>
+是的，但整得好看，港娱是各种嘲讽的，但不碍于年轻人喜欢啊……
+
+再说现在小年轻都不把整容当很严重的一件事了，反而会欣赏她有“美商”呢
+
+
+*****
+
+####  血河之舞  
+##### 439#       发表于 2023-11-2 10:34
+
+杨颖这也是算是求锤得锤了
+
+*****
+
+####  ondin  
+##### 440#       发表于 2023-11-2 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910609&amp;ptid=2151968" target="_blank">佳丽三千到 发表于 2023-11-2 02:42</a>
+
+快来快来听，Angelababy的粉丝打给工作室的录音，听完了总结一下：
+
+《你到底是不是她工作室的人》《国家管 ...</blockquote>
+笑死我了，这老婶子黏糊糊的调调和那边急赤白脸形成的反差效果拉满
+
+*****
+
+####  gajangmudohe  
+##### 441#       发表于 2023-11-2 10:43
+
+<blockquote>kanago 发表于 2023-11-2 10:24
+脸啊，
+
+当初在HK当靓模的时候跟周秀娜的身材平分秋色的
+
+</blockquote>
+黄教主+华谊的资源呗，华谊没倒那会儿内地奖项基本等于自家开年会，然而实在是扶不起来
+
+倒是文咏珊签了陈狗的公司之后在影视圈混的有点风生水起
+
+*****
+
+####  横戌点戍空心戊  
+##### 442#       发表于 2023-11-2 10:43
+
+有点逗逼，搞不清自己市场在哪里，腆着脸去蹭，蹭死了。自媒体时代真是不跟你嘻嘻哈哈。
+
+
+*****
+
+####  ondin  
+##### 443#       发表于 2023-11-2 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912590&amp;ptid=2151968" target="_blank">RYURYUTA 发表于 2023-11-2 10:26</a>
+
+我怎么记得她是换头人造人……</blockquote>
+换头是火了以后的事，在之前是日本出道 ，香港热捧零几年去香港时看过她的杂志图，大概氛围就是东瀛来的明星模特。直到全城热恋的客串才算一步步 走到前台，邮局港剧这部片子和之前客串彭浩翔《破事儿》里确实 惊艳，毕竟没有台词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  野上由加奈  
+##### 444#       发表于 2023-11-2 10:49
+
+大宝贝在香港刚出道的时候那颗头确实挺好看的，可惜后面修修补补再也回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  怀疑论者  
+##### 445#       发表于 2023-11-2 10:54
+
+本来外网说撤光明会仪式的阴谋论我还不信，看ab这么跳，我有点怀疑了
+
+
+*****
+
+####  奇里奥斯  
+##### 446#       发表于 2023-11-2 10:58
+
+笑死，过来个把月一下子封禁就好像那个蚂蚁排成字母吸引人类注意的帖子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千千千千鸟  
+##### 447#       发表于 2023-11-2 11:13
+
+所以还没有韩国妹疯马的视频？
+
+—— 来自 vivo V2227A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  百猪夜行  
+##### 448#       发表于 2023-11-2 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912854&amp;ptid=2151968" target="_blank">野上由加奈 发表于 2023-11-2 10:49</a>
+大宝贝在香港刚出道的时候那颗头确实挺好看的，可惜后面修修补补再也回不去了 ...</blockquote>
+你确定你真喜欢她刚出道时候还没整容的那颗头？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  lvcha  
+##### 449#       发表于 2023-11-2 12:13
+
+搜了下，长得不好看啊
+
+
+*****
+
+####  完全武装希耶尔  
+##### 450#       发表于 2023-11-2 12:47
+
+lisa前几年还行，现在也不好看啊
+
+
+*****
+
+####  翻滚吧熊犊子  
+##### 451#       发表于 2023-11-2 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">宝格丽开始割席？那么所谓为了讨好lv公子哥去疯马秀 岂不是竹篮打水一场空
+
+*****
+
+####  kwin_  
+##### 452#       发表于 2023-11-2 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912579&amp;ptid=2151968" target="_blank">kanago 发表于 2023-11-2 10:24</a>
+
+脸啊，
+
+当初在HK当靓模的时候跟周秀娜的身材平分秋色的</blockquote>
+跟周秀娜的身材平分秋色<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">感觉大宝贝打不过吧
+
+*****
+
+####  kanago  
+##### 453#       发表于 2023-11-2 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62914395&amp;ptid=2151968" target="_blank">kwin_ 发表于 2023-11-2 13:06</a>
+
+跟周秀娜的身材平分秋色感觉大宝贝打不过吧</blockquote>
+大宝贝的脸和周秀娜的身材！
+
+看写真集和小卡就知道两人的定位了
+
+不是两个人拿身材比吖！
+
+*****
+
+####  kwin_  
+##### 454#       发表于 2023-11-2 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62914403&amp;ptid=2151968" target="_blank">kanago 发表于 2023-11-2 13:07</a>
+
+大宝贝的脸和周秀娜的身材！
+
+看写真集和小卡就知道两人的定位了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  这个碧池是谁？  
+##### 455#       发表于 2023-11-2 13:23
+
+又不是永封，把粉丝急的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡辺梨加  
+##### 456#       发表于 2023-11-2 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62914522&amp;ptid=2151968" target="_blank">这个碧池是谁？ 发表于 2023-11-2 13:23</a>
+又不是永封，把粉丝急的</blockquote>
+内娱最怕沾上一点道德污点，会被对家揪着不放。全网禁言基本上可以坐实了她行为的严重性，就算之后解封了，最近几年也很难有代言或者其它资源找上门了。粉丝当然急啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  矿学家  
+##### 457#       发表于 2023-11-2 16:20
+
+白男是不是对泰国猴子血脉压制啊
+
+*****
+
+####  missingedge  
+##### 458#       发表于 2023-11-2 16:22
+
+Lisa才是最神经的，去疯马秀第一掉粉丝，第二富人很在意这个名声，本来你作为个女明星人家家就不一定看得上你，你还去跳脱衣舞，直接掉价掉到没边。二代娶明星还存在理论可能，你让他们娶hooker？
+
+
+*****
+
+####  Sopp  
+##### 459#       发表于 2023-11-2 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62916315&amp;ptid=2151968" target="_blank">missingedge 发表于 2023-11-2 16:22</a>
+
+Lisa才是最神经的，去疯马秀第一掉粉丝，第二富人很在意这个名声，本来你作为个女明星人家家就不一定看得上 ...</blockquote>
+人也许就是想从BP脱身呢
+
+*****
+
+####  polyahu  
+##### 460#       发表于 2023-11-2 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910609&amp;ptid=2151968" target="_blank">佳丽三千到 发表于 2023-11-2 02:42</a>
+
+快来快来听，Angelababy的粉丝打给工作室的录音，听完了总结一下：
+
+《你到底是不是她工作室的人》《国家管 ...</blockquote>
+“白鹿她又没去”
+
+喷了，这是粉丝说的还是工作室说的，这不就是承认了么。
+
+*****
+
+####  t222  
+##### 461#       发表于 2023-11-2 16:33
+
+但是，但是她们得到了自由！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  MadMarion  
+##### 462#       发表于 2023-11-2 16:42
+
+Lisa为了舔 跳脱衣舞
+
+海后为了舔 cosplay天使
+
+只能感叹有钱真好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  晴岚  
+##### 463#       发表于 2023-11-2 17:00
+
+Ab也可以去疯马登台来卖自由吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  missingedge  
+##### 464#       发表于 2023-11-2 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62916331&amp;ptid=2151968" target="_blank">Sopp 发表于 2023-11-2 16:24</a>
+人也许就是想从BP脱身呢</blockquote>
+然后呢，粉丝会永远挂一个饭hooker的名声，其他二代最多玩玩她也不会真有人给她什么。
+
+
+*****
+
+####  呼鲁鲁修  
+##### 465#       发表于 2023-11-2 17:59
+
+想想也是哈，买奢侈品的小富婆，要是出去被人说“哦和那个跳脱衣舞的谁谁同款啊”，额。。。。。
+
+*****
+
+####  恰是戒戒  
+##### 466#       发表于 2023-11-2 18:01
+
+到底有没视频啊
+
+
+*****
+
+####  佳丽三千到  
+##### 467#       发表于 2023-11-2 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62916415&amp;ptid=2151968" target="_blank">polyahu 发表于 2023-11-2 16:32</a>
+“白鹿她又没去”
+
+喷了，这是粉丝说的还是工作室说的，这不就是承认了么。 ...</blockquote>
+女声是脑残粉，男声是工作人员。
+
+这男声其实很无奈的，就是怕录音所以不能明说，然后女声就一个劲的莽。
+
+—— 来自 HONOR LSA-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  qingshuihe  
+##### 468#       发表于 2023-11-2 19:22
+
+ab活该，但是是这个录音，青春草率又**的声音还挺好听的，再加上对面成年人无奈欲言又止又叹气的对比就更乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BetterCall  
+##### 469#       发表于 2023-11-2 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62910760&amp;ptid=2151968" target="_blank">轮太 发表于 2023-11-2 06:19</a>
+利维坦动起来是很慢的</blockquote>
+不能出跳刀吗
+
+
+*****
+
+####  酒精发酵  
+##### 470#       发表于 2023-11-2 19:50
+
+掰毕不是照着江玉燕整的嘛？还是玉燕好看。<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  afer  
+##### 471#       发表于 2023-11-2 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62914263&amp;ptid=2151968" target="_blank">翻滚吧熊犊子 发表于 2023-11-2 12:49</a>
+
+宝格丽开始割席？那么所谓为了讨好lv公子哥去疯马秀 岂不是竹篮打水一场空 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这也说明大公司反应弧慢，大公子琢磨了几个月，突然想起来自家是高端品牌，旗下代言人有人在夜总会跳鸡舞，以后自己受众怎么看。
+
+*****
+
+####  菲特妹  
+##### 472#       发表于 2023-11-2 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不得不说这个女粉丝的声音挺好听的，结合发言有种反差萌
+
+
+*****
+
+####  cashhellsing  
+##### 473#       发表于 2023-11-2 20:13
+
+不得不说，张嘉倪也是某种因果律的存在了，出道就是琼瑶阿姨+马桶台双强合力制作的新一帘幽梦，当时口碑直接被喷到原地蒸发;缓了好久，终于被于妈出于各种目的找来演延禧攻略的顺嫔，结果因为场外投诉，她的戏份被大幅删改和重拍，红了但是一点，反正就只是出没各种剪辑UP的视频的水平；好不容易上浪姐，有点人气了，结果跑去看疯马秀，彻底晾凉了，目前被波及的剧只有英雄志，一旦涉及到了孙狗，那我只有无条件的叫好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  isaih  
+##### 474#       发表于 2023-11-2 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62918526&amp;ptid=2151968" target="_blank">cashhellsing 发表于 2023-11-2 20:13</a>
+不得不说，张嘉倪也是某种因果律的存在了，出道就是琼瑶阿姨+马桶台双强合力制作的新一帘幽梦，当时口碑直 ...</blockquote>
+延禧攻略她的戏份为啥被投诉呀？
+
+
+*****
+
+####  mrock  
+##### 475#       发表于 2023-11-2 22:39
+
+ 本帖最后由 mrock 于 2023-11-2 22:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62919075&amp;ptid=2151968" target="_blank">isaih 发表于 2023-11-2 21:22</a>
+
+延禧攻略她的戏份为啥被投诉呀？</blockquote>
+印象中是她演的角色本来其实是香妃。但是剧情中设定为阴险的反派。你想想历史上乾隆的香妃是怎么来的，这就非常敏感了。
+
+所以最后改成了没有特殊民族出身的“顺嫔”来重拍，很多基于特殊身份而设置的剧情内容也不得不删减。
+
+
+*****
+
+####  婉兮  
+##### 476#       发表于 2023-11-3 00:07
+
+<blockquote>mrock 发表于 2023-11-2 22:39
+印象中是她演的角色本来其实是香妃。剧情中设定为曾经嫁过人却被强行献给皇帝，怀着仇恨之心在宫中报社害 ...</blockquote>
+那个角色被删挺遗憾的, 原著里是年过三十依然魅力全开的美人，粉红切开是黑，比女主带感多了（当然剧情杀没办法）
+
+
+*****
+
+####  narizen  
+##### 477#       发表于 2023-11-3 17:52
+
+这粉丝真的不是反串黑么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
