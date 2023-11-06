@@ -6231,3 +6231,36 @@ Dieci是意大利语的10，看这身打扮像神职人员，不过技能动作�
 赛季两星以后就赛季末几张三星卷加限定池子抽一下应该也差不多了</blockquote>
 第一赛季的虫奥我最后就没歪出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 399#       发表于 2023-11-3 18:43
+
+<img src="https://img.saraba1st.com/forum/202311/03/183914zcbpiisvn2m8f66n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103_183747.jpg</strong> (271.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/183914o7vzvvxcbp9hhx7c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103_183818.jpg</strong> (160.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/183915q7rqebq8g4z14jde.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231103_183806.jpg</strong> (204.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 18:39 上传
+
+11.9的新三星人格，W箱。根据演示，技能硬币可能分别是1、2、3，三技能有充能强化。除了一技能看着都像斩击...
+
+第三赛季11.16开始。第二赛季的主线、战令ego和压箱底的角色都是李箱，算是给足了排面，不愧是自己人...
+
