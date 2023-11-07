@@ -1025,3 +1025,51 @@ asmr第二弹出了
 
 四天搞定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  铁火辉夜  
+##### 100#       发表于 2023-11-4 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62936685&amp;ptid=2078383" target="_blank">wanderday 发表于 2023-11-4 16:40</a>
+
+这游戏有官中了吗？
+
+—— 来自 samsung SM-S9110, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+等吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光是昨天跳版本就够这群菜鸡程序员忙活了
+
+*****
+
+####  leina0602  
+##### 96#       发表于 2023-11-1 22:59
+
+3号维护会强制登出账号，记得提前备份UID
+
+
+*****
+
+####  铁火辉夜  
+##### 97#       发表于 2023-11-4 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然延迟开服喽……
+
+
+*****
+
+####  黑上シグマ  
+##### 98#       发表于 2023-11-4 10:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后这帮铁废物PC版还是没修好，只能登手机版
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  wanderday  
+##### 99#       发表于 2023-11-4 16:40
+
+这游戏有官中了吗？
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
