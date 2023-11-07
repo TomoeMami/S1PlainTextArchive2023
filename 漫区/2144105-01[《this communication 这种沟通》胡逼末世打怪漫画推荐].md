@@ -965,3 +965,71 @@
 
 这漫画可以啊，反社会人格男主和他的六个神经病后宫<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Unlight  
+##### 93#       发表于 2023-11-1 00:25
+
+37话男主是怎么翻车的啊，看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">78为何翻脸
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  半分宅  
+##### 94#       发表于 2023-11-1 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62898538&amp;ptid=2144105" target="_blank">Unlight 发表于 2023-10-31 12:25</a>
+
+37话男主是怎么翻车的啊，看不懂了78为何翻脸
+
+—— 来自 S1Fun</blockquote>
+德鲁哈威胁替馆用的是摩尔斯电码，但是78也懂摩尔斯电码，看得出男主在搞鬼。
+
+
+*****
+
+####  Unlight  
+##### 95#       发表于 2023-11-1 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62898939&amp;ptid=2144105" target="_blank">半分宅 发表于 2023-11-1 01:53</a>
+德鲁哈威胁替馆用的是摩尔斯电码，但是78也懂摩尔斯电码，看得出男主在搞鬼。 ...</blockquote>
+啊，原来是“在搞鬼”这件事本身啊。
+我还想着说商量的内容应该没暴露一些别的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  半分宅  
+##### 96#       发表于 2023-11-1 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62899023&amp;ptid=2144105" target="_blank">Unlight 发表于 2023-10-31 14:37</a>
+
+啊，原来是“在搞鬼”这件事本身啊。
+
+我还想着说商量的内容应该没暴露一些别的。</blockquote>
+最坏的情况就是威胁替馆的过程也全部暴露给78了，导致78完全失去对男主的信任。
+
+
+*****
+
+####  colamitsuyo  
+##### 97#       发表于 2023-11-3 23:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官方宣布12月初POP UP SHOP开店的同时，
+
+男主的男主陷入大危机
+
+
+*****
+
+####  kusanagi9999  
+##### 98#       发表于 2023-11-4 10:10
+
+忍不住看到凌晨四十分，太好看了。好久没看过这么劲霸强，酣畅淋漓没有废话的作品了
+
+—— 来自 realme RMX3300, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
