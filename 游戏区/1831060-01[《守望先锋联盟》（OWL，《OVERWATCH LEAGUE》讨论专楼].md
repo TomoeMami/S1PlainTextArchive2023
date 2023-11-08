@@ -565,3 +565,36 @@ mvp的投票好像没放出来？要是真是临时换mvp那真的是要乐死�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">尽力就好!
 
+*****
+
+####  蓝色的眷念  
+##### 543#       发表于 2023-11-5 09:40
+
+为什么每次每次每次都是差那么一点
+
+—— 来自 meizu MEIZU 20 Pro, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Midnight.Coup  
+##### 544#       发表于 2023-11-5 11:02
+
+最接近的一次
+
+
+*****
+
+####  循此苦旅  
+##### 545#       发表于 2023-11-5 11:44
+
+遗憾
+
+
+*****
+
+####  飞升之后  
+##### 546#       发表于 2023-11-5 12:47
+
+公子献头吗
+
