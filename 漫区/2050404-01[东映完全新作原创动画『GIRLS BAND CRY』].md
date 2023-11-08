@@ -1492,3 +1492,19 @@ mv3，有没有可能吉他才是落单的</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  虚无缥缈的光阴  
+##### 164#       发表于 2023-11-5 19:37
+
+看别人说这企划买播放很严重？嘛，虽然这种音乐企划不买播放炒热度的少之又少，神椿也买过……但是注水量太多的话观感会很不好的吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  a85982313  
+##### 165#       发表于 2023-11-5 19:42
+
+永远不要相信东映
+
