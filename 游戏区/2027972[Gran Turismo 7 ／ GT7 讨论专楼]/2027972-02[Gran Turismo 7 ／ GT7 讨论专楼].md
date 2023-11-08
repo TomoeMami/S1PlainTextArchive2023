@@ -654,3 +654,261 @@ pc port要是有的话 我愿称之为绝活</blockquote>
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  江宁老实人  
+##### 1782#       发表于 2023-10-29 23:38
+
+炸裂更新来了
+
+Lexus LFA 2010
+
+Porsche 992 GT3 RS
+
+GR-R R33 NISMO 400R
+
+Mercedes Benz 190E EVO2
+
+Tesla Model 3
+
+Dodge Challenger SRT Demon 2018
+
+Dodge Charger 1969
+
+<img src="https://img.saraba1st.com/forum/202310/29/233839noilnryee88z3g78.png" referrerpolicy="no-referrer">
+
+<strong>123.png</strong> (64.62 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-29 23:38 上传
+
+*****
+
+####  WhiteGlint  
+##### 1783#       发表于 2023-10-29 23:42
+
+卧槽 凌志LFA 卧槽 毛豆3
+
+
+*****
+
+####  byisme001  
+##### 1784#       发表于 2023-10-29 23:50
+
+什么时候能有柯尼塞格和宾利
+
+
+*****
+
+####  iou90  
+##### 1785#       发表于 2023-10-30 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62768809&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2023-10-19 21:50</a>
+喷了这是918动力太强还是米其林轮胎胎太弱，转弯非常难受，油门都没几次能踩完。
+
+对比了一下之前gr1那期成 ...</blockquote>
+开出了 vgt 的感觉 也是种乐趣不是XD
+
+
+*****
+
+####  iou90  
+##### 1786#       发表于 2023-10-30 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62874491&amp;ptid=2027972" target="_blank">江宁老实人 发表于 2023-10-29 23:38</a>
+炸裂更新来了
+
+Lexus LFA 2010
+
+Porsche 992 GT3 RS</blockquote>
+** ** **大
+kaz这次的流量有点大哦 应该得有新赛道吧 然后再来点新鲜的？
+
+*****
+
+####  iou90  
+##### 1787#       发表于 2023-10-30 00:23
+
+忘了屏蔽词白hype了
+** ** **da
+
+*****
+
+####  iou90  
+##### 1788#       发表于 2023-10-30 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62874857&amp;ptid=2027972" target="_blank">iou90 发表于 2023-10-30 00:23</a>
+忘了屏蔽词白hype了
+** ** **da</blockquote>
+d a d a
+d a d a
+d a d a d a
+
+
+*****
+
+####  Fuero  
+##### 1789#       发表于 2023-10-30 09:08
+
+上一次叫big update的更新了赛道和psvr2支持，这次多来点赛道吧
+
+
+*****
+
+####  iou90  
+##### 1790#       发表于 2023-11-1 22:42
+
+[https://youtu.be/zKs2JK6iNJg?si=qa5SONTMo18ZKyBb](https://youtu.be/zKs2JK6iNJg?si=qa5SONTMo18ZKyBb)
+
+来啦
+但是赛道是泥地？
+
+
+*****
+
+####  Fuero  
+##### 1791#       发表于 2023-11-1 22:51
+
+这赛道看起来是跑拉力的。。。
+
+
+*****
+
+####  泉美  
+##### 1792#       发表于 2023-11-1 22:54
+
+还说再不来日本人明天就放假了，还“下周”个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iou90  
+##### 1793#       发表于 2023-11-2 09:26
+
+[https://blog.playstation.com/202 ... track-and-features/](https://blog.playstation.com/2023/11/01/gran-turismo-7-update-with-spec-ii-1-40-arrives-today-new-cars-track-and-features/)
+
+内容确实很多
+
+
+*****
+
+####  Porsche  
+##### 1794#       发表于 2023-11-2 09:39
+
+已经快成完全体了
+但为什么至今没有山路呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 1795#       发表于 2023-11-2 09:46
+
+ 本帖最后由 byisme001 于 2023-11-2 09:49 编辑 
+
+50多个挑战是什么，咖啡馆里那种吗  加拉力赛道那每日竞赛还不搞拉力吗，当时就说不管op多好，第二年就要改电竞人开会了吧
+
+
+*****
+
+####  iou90  
+##### 1796#       发表于 2023-11-2 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62912092&amp;ptid=2027972" target="_blank">byisme001 发表于 2023-11-2 09:46</a>
+
+50多个挑战是什么，咖啡馆里那种吗  加拉力赛道那每日竞赛还不搞拉力吗，当时就说不管op多好，第二年就要改 ...</blockquote>
+50个应该是在 master license
+
+menu 也是有新的
+
+记得之前每日有搞过拉力的
+
+
+*****
+
+####  Totokei  
+##### 1797#       发表于 2023-11-2 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">master license看着截图也有很基础的内容，不会是原来的那套然后大幅提升时间目标的难度而已吧
+
+
+*****
+
+####  clover293  
+##### 1798#       发表于 2023-11-2 11:09
+
+好家伙还有m3p啊
+
+*****
+
+####  iou90  
+##### 1799#       发表于 2023-11-2 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62913003&amp;ptid=2027972" target="_blank">Totokei 发表于 2023-11-2 11:00</a>
+
+master license看着截图也有很基础的内容，不会是原来的那套然后大幅提升时间目标的难度而已吧
+
+ ...</blockquote>
+多换换车来弄也行
+
+看人总结这次多了25+ races 
+
+50个挑战在 license 里面
+
+
+*****
+
+####  Totokei  
+##### 1800#       发表于 2023-11-2 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62913097&amp;ptid=2027972" target="_blank">clover293 发表于 2023-11-2 11:09</a>
+好家伙还有m3p啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说海外版这个涡轮圈真的太难看了，还是国行的零重力好看
+
+
+*****
+
+####  Totokei  
+##### 1801#       发表于 2023-11-3 00:14
+
+更新感想
+
+增加了类似隔壁的上班机制，但是给的太少玩去提不起劲上班
+
+时间有限试了下大师驾照的初始关和b8，感觉还行？重试三四次左右就过了
+
+
+*****
+
+####  byisme001  
+##### 1802#       发表于 2023-11-3 01:31
+
+大师驾照斯帕改成什么样了，改成划船吗
+
+
+*****
+
+####  iou90  
+##### 1803#       发表于 2023-11-5 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62920348&amp;ptid=2027972" target="_blank">Totokei 发表于 2023-11-3 00:14</a>
+更新感想
+
+增加了类似隔壁的上班机制，但是给的太少玩去提不起劲上班</blockquote>
+我有点受不住
+感觉国家b太难了 记得b4还是b5 比我金牌巴西tt的重试次数还高了 这还是最简单的 
+
+对油门刹车的精细度要求实在太高了吧T T
+不过用的车好多都是新车这点不错
+
+
+*****
+
+####  一个陆仁贾  
+##### 1804#       发表于 2023-11-5 10:52
+
+以前都是手柄摇杆玩，趁这次大师驾照出来用体感玩。太酸爽了，好多摇杆留下的坏习惯要一点点改掉才行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
