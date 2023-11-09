@@ -4116,3 +4116,18 @@ go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原�
 
 如果只想玩gal,為甚麼不搞一塊win平板呢(surface老型號就不錯了),非的要看6,7寸的小屏幕,和自己的眼睛過不去?
 
+*****
+
+####  bypass  
+##### 916#         楼主| 发表于 2023-11-6 11:05
+
+笑死
+
+<img src="https://img.saraba1st.com/forum/202311/06/110541l2vy1po4dbvjjwpv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (115.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-6 11:05 上传
+
