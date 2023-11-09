@@ -6264,3 +6264,29 @@ Dieci是意大利语的10，看这身打扮像神职人员，不过技能动作�
 
 第三赛季11.16开始。第二赛季的主线、战令ego和压箱底的角色都是李箱，算是给足了排面，不愧是自己人...
 
+*****
+
+####  Jamaisvu  
+##### 400#       发表于 2023-11-6 19:19
+
+<img src="https://img.saraba1st.com/forum/202311/06/191722i12s1z2dlq0or4a0.jpg" referrerpolicy="no-referrer">
+
+<strong>1699269396771.jpg</strong> (377.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-11-6 19:17 上传
+
+W箱技能，竟然是充能突刺系。三技能消耗充能会增加威力，充能数低于一定层数时额外增加威力。
+
+如此苛刻的条件，强度应该不低吧，菜刀队又一员猛将？
+
+
+*****
+
+####  Yuzutea  
+##### 401#       发表于 2023-11-6 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电狼唐的强度再次上升
+
