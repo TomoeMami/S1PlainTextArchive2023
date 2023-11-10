@@ -424,3 +424,89 @@
 女观众占比那么少的吗？卖腐很多了吧</blockquote>
 那能叫卖腐吗？和笨测差远了，笨测可是有真基佬还有男主被男的kiss，碧蓝真的是各方面都收敛了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+*****
+
+####  diectt  
+##### 1308#       发表于 2023-11-7 10:45
+
+毒岛终于下线了，希望井上别再为了拖剧情消遣她了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sevenzerofive  
+##### 1309#       发表于 2023-11-7 11:03
+
+心疼樱子<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  飞雨啸寒  
+##### 1310#       发表于 2023-11-7 11:15
+
+毒岛a上去了，毒岛打出了gg
+
+这种明明塑造更好却注定失败的感觉真糟糕啊
+
+
+*****
+
+####  kyo96127  
+##### 1311#       发表于 2023-11-7 16:59
+
+这种来晚了的错过感可太痛了 。
+
+
+*****
+
+####  zoomegg  
+##### 1312#       发表于 2023-11-7 17:24
+
+原来前女友1号是这个意思，还以为又有新角色
+
+
+*****
+
+####  qixinno2  
+##### 1313#       发表于 2023-11-7 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">艹 为什么不选毒岛
+
+9af204d431be9b3fdb0ecf0c7cba866e_1a757a5c103853433ab0c314d513b07eca80886c_tbpica.jpg
+(73.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/182257v19cd1c29v22o2cc.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 1314#       发表于 2023-11-7 19:37
+
+唉早晚的事<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  最强惠酱  
+##### 1315#       发表于 2023-11-7 21:15
+
+先打一炮再走啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  khxooo  
+##### 1316#       发表于 2023-11-8 00:11
+
+终于还是下线了，希望作者以后给个幸福的结局吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+

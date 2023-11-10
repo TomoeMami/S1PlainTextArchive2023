@@ -691,3 +691,181 @@ Yamaha vino 50的话，咸鱼偶尔能淘到不错的水车，当地管理不严
 
 丑
 
+*****
+
+####  沧兰殇  
+##### 65#       发表于 2023-11-6 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60282342&amp;ptid=2026524" target="_blank">骆宾王 发表于 2023-3-31 09:26</a>
+出了</blockquote>
+老哥，我买到了，
+七月份才考的驾照，上半年事情太多花了很多钱，十月份攒够钱，想着要等好几个月，本来都计划买个嘉兰德125的，可是群里群友说，十月份开始保交车，之前不管多久去订的，十月份都交车，我这个小县城从honda wing搜不到，群友告诉我本田官网搜索本地代理商的方式，找到了店，下定决心去问
+十月18去问了下能不能订，说11月份能到但是不确定什么时候，十月20号周五下午放假，我去交了定金
+然后11月3号周五放假就告诉我车到了，周六我去试驾了，交了尾款，今天上午慢悠悠骑着去办理保险，周三去选号就彻底到手了<img src="https://p.sda1.dev/13/b29cefd10c8b76973987418382483209/CMP_20231106132032596.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  偶滴小乔  
+##### 66#       发表于 2023-11-6 13:33
+
+<blockquote>引用第64楼沧兰殇于2023-11-06 13:29发表的  :
+
+引用:骆宾王 发表于 2023-3-31 09:26出了老哥，我买到了，七月份才考的驾照，上半年事情......</blockquote>
+@沧兰殇
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">车身贴纸撕了车贴搞起来
+
+----发送自 [Sony H8296,Android 10](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  沧兰殇  
+##### 67#       发表于 2023-11-6 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62954133&amp;ptid=2026524" target="_blank">偶滴小乔 发表于 2023-11-6 13:33</a>
+@沧兰殇
+
+车身贴纸撕了车贴搞起来</blockquote>
+不知道我这小县城可不可以这样改，准备买这个壳子换上去，前白后绿，就有点小熊的车子的样子
+铃木力量.jpg
+<img src="https://p.sda1.dev/13/fe2fec6ec3837b1706aab668d8452531/CMP_20231106154215661.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  骆宾王  
+##### 68#       发表于 2023-11-7 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62954082&amp;ptid=2026524" target="_blank">沧兰殇 发表于 2023-11-6 13:29</a>
+
+老哥，我买到了，
+
+七月份才考的驾照，上半年事情太多花了很多钱，十月份攒够钱，想着要等好几个月，本来 ...</blockquote>
+真棒，恭喜！有空拍一下保养手册分享给大家，这玩意到底用什么机油齿轮油？
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 69#       发表于 2023-11-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972132&amp;ptid=2026524" target="_blank">骆宾王 发表于 2023-11-7 20:22</a>
+
+真棒，恭喜！有空拍一下保养手册分享给大家，这玩意到底用什么机油齿轮油？ ...</blockquote>
+虽然但是这些内容不在保养手册，在使用说明书上
+
+<img src="https://img.saraba1st.com/forum/202311/07/203305r7suzj3xzv1s3rns.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3771DF6E-6DC1-4119-BB3E-E4520FB5C776.jpeg</strong> (346.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 20:33 上传
+
+
+*****
+
+####  骆宾王  
+##### 70#       发表于 2023-11-7 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972268&amp;ptid=2026524" target="_blank">袄_偶滴小乔 发表于 2023-11-7 20:33</a>
+
+虽然但是这些内容不在保养手册，在使用说明书上</blockquote>
+非常感谢！很有意思，居然带人和不带人胎压是不同的。。。
+
+不能用节能字样的机油，那就是汽车机油不能用了？
+
+
+*****
+
+####  袄_偶滴小乔  
+##### 71#       发表于 2023-11-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972558&amp;ptid=2026524" target="_blank">骆宾王 发表于 2023-11-7 21:02</a>
+
+非常感谢！很有意思，居然带人和不带人胎压是不同的。。。
+
+不能用节能字样的机油，那就是汽车机油不能用 ...</blockquote>
+湿式离合的档车是这样的
+
+*****
+
+####  hello0607  
+##### 72#       发表于 2023-11-7 21:17
+
+看本田小狼时候都吹这车让人人都骑得起车,结果一看价格…
+
+*****
+
+####  野上由加奈  
+##### 73#         楼主| 发表于 2023-11-7 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972738&amp;ptid=2026524" target="_blank">hello0607 发表于 2023-11-7 21:17</a>
+看本田小狼时候都吹这车让人人都骑得起车,结果一看价格…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">cc110国内定价已经比日本便宜了，然后按现在行情明年还能降价
+
+
+*****
+
+####  骆宾王  
+##### 74#       发表于 2023-11-7 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972738&amp;ptid=2026524" target="_blank">hello0607 发表于 2023-11-7 21:17</a>
+
+看本田小狼时候都吹这车让人人都骑得起车,结果一看价格…</blockquote>
+买个Wave也是一样的嘛，复刻款肯定要贵些<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  野上由加奈  
+##### 75#         楼主| 发表于 2023-11-7 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972855&amp;ptid=2026524" target="_blank">骆宾王 发表于 2023-11-7 21:29</a>
+买个Wave也是一样的嘛，复刻款肯定要贵些</blockquote>
+按楼上的玩法，买威武换幼兽壳也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  骆宾王  
+##### 76#       发表于 2023-11-7 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972928&amp;ptid=2026524" target="_blank">野上由加奈 发表于 2023-11-7 21:38</a>
+
+按楼上的玩法，买威武换幼兽壳也不是不行</blockquote>
+理论上威武和幼兽架子都是一样的吧，把那个整个塑料壳子换了应该就可以？
+
+
+*****
+
+####  leander_z  
+##### 77#       发表于 2023-11-7 22:05
+
+省下的钱加油修车<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/13/a0c5e24749bfd9290660c71f3e14417d/CMP_20231107220519381.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ork  
+##### 78#       发表于 2023-11-7 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62972707&amp;ptid=2026524" target="_blank">袄_偶滴小乔 发表于 2023-11-7 21:14</a>
+
+湿式离合的档车是这样的</blockquote>
+不过弯梁是离心离合吧，踏板同款
+
+
+*****
+
+####  没什么bu好  
+##### 79#       发表于 2023-11-7 23:47
+
+<blockquote>引用第77楼ork于2023-11-07 23:22发表的  :
+
+引用:袄_偶滴小乔 发表于 2023-11-7 21:14湿式离合的档车是这样的不过弯梁是离心离合吧......</blockquote>
+踏板是cvt  和离心式离合还是有差别的吧
+
+----发送自 [Xiaomi 22021211RC,Android 12](http://stage1.5j4m.com/?1.37)
+
