@@ -3560,3 +3560,20 @@ CV不是静御前早就预想到，但这角色图连宫田苍原案的感觉都
 
 第三季还有机会吗
 
+*****
+
+####  再买自检星剁手  
+##### 2289#       发表于 2023-11-7 13:44
+
+面向未来的咆哮将登录中二节奏<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/13/c6126aff8992583abbb8f27611f8fb31/CMP_20231107134433240.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚尔古水手  
+##### 2290#       发表于 2023-11-7 13:59
+
+死了，埋了，这楼已经没有存在意义了（无慈悲）
+
