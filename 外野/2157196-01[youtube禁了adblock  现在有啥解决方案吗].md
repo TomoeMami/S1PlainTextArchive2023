@@ -524,3 +524,20 @@ ublock origin 04/10/23没问题。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">暴力猴上装了两个跳广告插件，放视频前能看到广告标题，大概黑一秒就能正常看视频，不知道是哪个起的效果
 
+*****
+
+####  AeonsTorn  
+##### 65#       发表于 2023-11-7 14:28
+
+在油猴上装了个跳广告插件，一开始还好好的，看了几个视频后竟然会tmd被ytb自动删除，太离谱了吧？有什么解决办法吗？
+
+
+*****
+
+####  bartholo4  
+##### 66#       发表于 2023-11-7 21:15
+
+Ctrl+F5
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
