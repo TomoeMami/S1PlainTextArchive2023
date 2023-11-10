@@ -4707,3 +4707,12 @@ ab活该，但是是这个录音，青春草率又**的声音还挺好听的，�
 
 这粉丝真的不是反串黑么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+*****
+
+####  UnhappyTails  
+##### 478#       发表于 2023-11-7 14:37
+
+感觉好好笑啊，偶像去跳脱衣舞这件事被一群矫枉过正+自作聪明实则啥也不懂的粉丝各种护，似乎主子要大胆一跃化龙了
+
+结果发现别说什么国际观瞻演艺生涯，连摇尾巴讨好的富哥都没把她当回事，完全就是笑话一个了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说大胆和无谋在结果显现前确实是很有舆论发挥的空间
+
