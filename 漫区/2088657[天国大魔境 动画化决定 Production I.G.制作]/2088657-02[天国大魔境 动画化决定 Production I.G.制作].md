@@ -2493,3 +2493,13 @@ ost真棒啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png
 
 会有第二季吧，看了动画之后漫画都不想看了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 1715#       发表于 2023-11-8 16:54
+
+动画OP 分镜·演出·作监·原画：Weilin Zhang/张魏林
+[https://twitter.com/Xenophoss/status/1721993543982710993](https://twitter.com/Xenophoss/status/1721993543982710993)
+<img src="https://p.sda1.dev/14/84273bbee1f1f9cc2e87b843ada036fc/SaveTwitter.Net_1721993472264318976_720p_.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/b8e61b35e2785e510dbbe0b4f980dba3/SaveTwitter.Net_1721993582419345408_720p_.gif" referrerpolicy="no-referrer">
+
