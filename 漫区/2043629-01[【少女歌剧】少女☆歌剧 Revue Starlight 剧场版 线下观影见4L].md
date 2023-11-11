@@ -579,3 +579,169 @@ Starlight band live "Starry Session” revival
 门票购买🔻
 https://ponycanyon.zaiko.io/e/starlight-bandlive
 
+*****
+
+####  nh_zzz  
+##### 761#       发表于 2023-11-4 16:30
+
+少女☆歌剧 Revue Starlight 舞台奏像剧 遥远的黄金乡KV&amp;官网公开
+
+在圣翔音乐学园最后的夏天——
+
+举行了第１０１回圣翔祭「Starlight」的99期生，将挑战大海洋罗曼史《遥远的黄金乡》
+
+亡命提督之子 萨尔瓦多
+
+大贵族的嫡子 亚历杭德罗
+
+《２个主人公》……下一个舞台中『我们』会选择谁呢
+
+向大海发起挑战的９９期生的……『下一个舞台』幕布正在缓缓拉开
+
+<img src="https://img.saraba1st.com/forum/202311/04/162948uosvsjwf3xwecovw.jpg" referrerpolicy="no-referrer">
+
+<strong>W7V8FKQ2]AHOWY%K10F1D8K.jpg</strong> (433.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-4 16:29 上传
+
+[https://revuestarlight.bushiroadgames.com/](https://revuestarlight.bushiroadgames.com/)
+
+*****
+
+####  ardito  
+##### 762#       发表于 2023-11-4 16:36
+
+帽子姐本体难道真是帽子
+
+
+*****
+
+####  wly  
+##### 763#       发表于 2023-11-4 18:05
+
+不觉得十个人平均戏份是好选择，提到的两人是哪两个演的看得出来吗？应该重点就是这两人了。
+
+
+*****
+
+####  0aleph37  
+##### 764#       发表于 2023-11-4 19:14
+
+亡命提督之子感觉香子和蕉那身比较合适？有种落魄的感觉
+
+
+*****
+
+####  Case  
+##### 765#       发表于 2023-11-5 01:25
+
+希望这次的主机作的剧本质量好一些。
+
+手游那边一些活动的剧情太水了。
+
+基本就是受邀参加演出→因为一些心结无法好好饰演角色→打一场 or 嘴遁→解开心结好好演出。
+
+
+*****
+
+####  wly  
+##### 766#       发表于 2023-11-7 10:56
+
+新视觉图基本每两个人演一个角色，朱迪单独，三女役不知道是不是也是同一个角色。看了眼朗读剧出演，照图例来说华恋和maya是同一个角色，不知道怎么安排了
+
+<img src="https://img.saraba1st.com/forum/202311/07/105443avgnmg2kmummmw9v.jpg" referrerpolicy="no-referrer">
+
+<strong>007pH4D1ly1hhqg7ivvpbj31hc0u0n2q.jpg</strong> (51.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 10:54 上传
+
+
+*****
+
+####  0aleph37  
+##### 767#       发表于 2023-11-7 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62965288&amp;ptid=2043629" target="_blank">wly 发表于 2023-11-7 10:56</a>
+
+新视觉图基本每两个人演一个角色，朱迪单独，三女役不知道是不是也是同一个角色。看了眼朗读剧出演，照图例 ...</blockquote>
+光和纯那，蕉和香子是同一角色，但是也没有出现在朗读剧里，搞不好朗读剧和游戏本体没有那么强的关联性？
+
+
+*****
+
+####  bakabaka999  
+##### 768#       发表于 2023-11-7 17:51
+
+设定集到了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/07/175110nfz0f0n0k06qakk3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 17:51 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/175118cmrjqmlmjwh9w1ez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (214.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 17:51 上传
+
+
+*****
+
+####  nh_zzz  
+##### 769#       发表于 2023-11-7 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62968212&amp;ptid=2043629" target="_blank">0aleph37 发表于 2023-11-7 14:55</a>
+光和纯那，蕉和香子是同一角色，但是也没有出现在朗读剧里，搞不好朗读剧和游戏本体没有那么强的关联性？ ...</blockquote>
+按照群友推论大概率是参加剧fes的剧目，不排除是走驼定了去新国立参观以后指定的剧目
+
+—— 来自 OnePlus PJA110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nh_zzz  
+##### 770#       发表于 2023-11-7 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62941240&amp;ptid=2043629" target="_blank">Case 发表于 2023-11-5 01:25</a>
+希望这次的主机作的剧本质量好一些。
+
+手游那边一些活动的剧情太水了。</blockquote>
+手游今年也就涉及进路的剧情写的好点，起码真的填坑了
+今年加起来才几个新活动啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PJA110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  0aleph37  
+##### 771#       发表于 2023-11-7 22:24
+
+今年还是很满意栞文剧情的，太清爽的恩怨清算了
+
+
+*****
+
+####  wly  
+##### 772#       发表于 2023-11-8 04:15
+
+对哦，看5ch才发现光恋发卡怎么又带上了，剧场版打着玩的是吧
+
+
+*****
+
+####  愛城華恋  
+##### 773#       发表于 2023-11-8 11:13
+
+我也…不想输给小光
+<img src="https://p.sda1.dev/14/18a0abc2955478da1aaa13f6830237e9/IMG_CMP_181561023.jpeg" referrerpolicy="no-referrer">
+
