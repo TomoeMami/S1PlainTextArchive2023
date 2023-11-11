@@ -1160,3 +1160,533 @@ https://s.famitsu.com/news/202310/20319421.html
 2周目的話，光明和地獄是否都能入到TE，會否影響TE的完成度...</blockquote>
 我现在TE和地狱100%，但是光明82%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  onemoment  
+##### 1605#       发表于 2023-11-4 21:30
+
+终于通关，白金奖杯就不着急打了，这二周目结局是真顶，有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  亚历山大帝  
+##### 1606#       发表于 2023-11-5 12:28
+
+这个真结局对男主太不友好了吧，
+
+把男主的善良否定了（地右卫门：我说对了吧？！），再告诉大家这样死路一条。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且三结局全通还是有两个问题：
+
+1. 男主小时候看到的 “月光一样的剑法” 不是武藏、不是小次郎，那是谁？ 柳生宗矩吗？
+
+2. 女武藏反复提到了 “这个时代不应该有的东西”，到底是什么？
+
+第一次是问男主洗脸了吗。我还以为是指 犹太人  肥皂，第五章又说了一次，还是不明该指什么。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  原神高手  
+##### 1607#       发表于 2023-11-5 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62943445&amp;ptid=2112855" target="_blank">亚历山大帝 发表于 2023-11-5 12:28</a>
+
+这个真结局对男主太不友好了吧，
+
+把男主的善良否定了（地右卫门：我说对了吧？！），再告诉大家这样死路一 ...</blockquote>
+男主小时候看到的月光剑法<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/05/123847xuueo4kujfhe4oje.gif" referrerpolicy="no-referrer">
+
+<strong>ezgif-1-b9ab5ca7d4.gif</strong> (42.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-5 12:38 上传
+
+
+*****
+
+####  bill910  
+##### 1608#       发表于 2023-11-6 09:27
+
+ 本帖最后由 bill910 于 2023-11-6 09:31 编辑 
+
+疑问1，游戏最开始的老爷说的一个小故事，说一个坏人团伙杀光了一个村，村一个小孩子活下来，结果坏人团伙全死，小孩子但影，这个小孩子是伊织？团人全被他杀光？还是说宫本武藏救了他，全杀团伙？
+
+疑问2，妹妹是伊织很早就被宫本武藏同时收养，但只有妹妹被收养为小粒原家的养女？
+
+疑问3，二周目结局，SABER最后说的愿望，或者最后一句话，伊织是他的…………，这里是指伊织是他的愿望？实现伊织的愿望就是他的愿望？
+
+
+*****
+
+####  新世界的派蒙  
+##### 1609#       发表于 2023-11-6 09:38
+
+好久没开了，买过所有店铺料理的成就还有bug么，懒得为这个开一个全新档
+
+
+*****
+
+####  不垃圾屌丝  
+##### 1610#       发表于 2023-11-6 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62943524&amp;ptid=2112855" target="_blank">原神高手 发表于 2023-11-5 12:39</a>
+男主小时候看到的月光剑法</blockquote>
+差了有两百年了
+这游戏时代背景比侍魂都要早一点
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  原神高手  
+##### 1611#       发表于 2023-11-6 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62951423&amp;ptid=2112855" target="_blank">不垃圾屌丝 发表于 2023-11-6 09:52</a>
+
+差了有两百年了
+
+这游戏时代背景比侍魂都要早一点</blockquote>
+侍魂大概是这个100年后吧
+
+*****
+
+####  原神高手  
+##### 1612#       发表于 2023-11-6 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62951124&amp;ptid=2112855" target="_blank">bill910 发表于 2023-11-6 09:27</a>
+
+疑问1，游戏最开始的老爷说的一个小故事，说一个坏人团伙杀光了一个村，村一个小孩子活下来，结果坏人团伙 ...</blockquote>
+SABER“伊织是我的剑鞘”<img src="https://static.saraba1st.com/image/smiley/carton2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死宅真恶心  
+##### 1613#       发表于 2023-11-6 10:54
+
+一只萌小时候被抓是路过的武藏宰了全部山贼，然后伊织就癫了一生只为剑招。另外历史上伊织就是小笠原家老，而且人家是武藏义子总不能抢儿子吧。
+
+
+*****
+
+####  khxooo  
+##### 1614#       发表于 2023-11-6 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62943445&amp;ptid=2112855" target="_blank">亚历山大帝 发表于 2023-11-5 12:28</a>
+这个真结局对男主太不友好了吧，
+
+把男主的善良否定了（地右卫门：我说对了吧？！），再告诉大家这样死路一 ...</blockquote>
+1，就是男武藏的剑法，第二，是一心只追求剑道最高峰这个想法，因为最求最高峰只能不断的战斗杀戮，在乱世还好，不断有人命给你磨刀，但是和平年代不可能这样做，所以为什么最后不破坏盈月，就是要用从者给他磨刀。
+
+
+*****
+
+####  eilot  
+##### 1615#       发表于 2023-11-6 11:48
+
+ 本帖最后由 eilot 于 2023-11-6 11:49 编辑 
+
+總算打完3個ED，暫時沒興趣再開4周目打最後的回憶戰，之後就是等明年才來的DLC，這樣設計的話，應該給更多下周目獎勵吧，如工坊LV4和LV5再有獎勵，但空型也只是需要LV3就解決
+
+TE 總感覺是劇本被腰斬，突然就完了
+
+不過在地獄和光明的第4章分支最後，主角都不停吐槽自己這樣就滿足，盈月完了之後我又會如何
+
+算是埋了TE的伏筆
+
+但TE線只是打了一場後，明明打贏了但被SABER反坑劇情殺，直接完場，就感覺太快，沒有逐步墜落成劍鬼的感覺，
+
+又或者說，他本心一直都是劍鬼，只是由平和之世被壓抑，所以瘋得更快，死得更快...
+
+
+*****
+
+####  jiandandongman  
+##### 1616#       发表于 2023-11-6 12:37
+
+这游戏出之前一直无视，出了看到些评价说不错才入手的，本来也没太高期待，结果剧情还是不满意。
+
+英灵战斗完全没有那种从蛛丝马迹推测对手英灵真名实力从而布局击杀的，全部是稀里糊涂走剧情，一会AB联手打C，一会BC联手打D，乱起八糟无逻辑，剧情杀不到反正怎么打最后都是互道拜拜下次见，后几章大多数英灵直接被控更是B格碎一地。男主一介凡人能正面杠赢战斗系英灵是不是表示英灵这个设定也已经碎一地了，虽然fate系列一直就是在不断吃设定，但到这种程度已经让人无语了。
+
+
+*****
+
+####  毛利提督  
+##### 1617#       发表于 2023-11-6 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62952954&amp;ptid=2112855" target="_blank">eilot 发表于 2023-11-6 11:48</a>
+
+總算打完3個ED，暫時沒興趣再開4周目打最後的回憶戰，之後就是等明年才來的DLC，這樣設計的話，應該給更多 ...</blockquote>
+TE的局面和其他两个解决不一样，气氛已经到了只有就地开打才是最好的
+
+其他人再跳出来搞事然后像另外两个结局再去专门打一章的战线等打完再对决就太离谱了
+
+
+*****
+
+####  eilot  
+##### 1618#       发表于 2023-11-6 17:36
+
+ 本帖最后由 eilot 于 2023-11-6 17:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62953687&amp;ptid=2112855" target="_blank">毛利提督 发表于 2023-11-6 12:49</a>
+
+TE的局面和其他两个解决不一样，气氛已经到了只有就地开打才是最好的
+
+其他人再跳出来搞事然后像另外两个 ...</blockquote>
+應該說伊織在TE突然瘋了的時候，已經是箭在弦狀態，劇情難寫下去，只是明明已經打贏但即刻劇情殺，就有點F社那種《軌跡》的感覺
+
+其實不用寫其他人搞事，某程度寫成伊織打贏後大叫我要戰鬥下去，再轉身緩步行去盈月之杯舉起，在準備搞事前已經戰敗的saber再次起身，之後就是原本劇情殺，觀感可能好一點，也只是再多1分鐘內容
+
+不過4周目才能收集完全部回憶戰，之後才開最後的真劍鬼，但沒有更多更強的獎勵，就感到難吸引下去，原本光明/地獄第5章才有獨家的無主徒者劇情，解放徒者的被動、寶具，甚至伊織能學新招(旭將軍那招)，要逼2個周目來收集也算合理，但再來的TE沒有進一步獨有的強化，就有點不足
+
+
+*****
+
+####  聚二甲基硅氧烷  
+##### 1619#       发表于 2023-11-6 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62953559&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-6 12:37</a>
+这游戏出之前一直无视，出了看到些评价说不错才入手的，本来也没太高期待，结果剧情还是不满意。
+
+英灵战斗 ...</blockquote>
+虽然但是，从FSN时代开始，月球主角要砍个把从者他就是个保留剧目
+
+
+*****
+
+####  原神高手  
+##### 1620#       发表于 2023-11-6 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62953559&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-6 12:37</a>
+
+这游戏出之前一直无视，出了看到些评价说不错才入手的，本来也没太高期待，结果剧情还是不满意。
+
+英灵战斗 ...</blockquote>
+从蛛丝马迹推测对手英灵真名实力从而布局击杀指的是EXTRA？那个正在制作复刻吧
+
+男主不是普通凡人，是英灵的生前状态，历史上真正的剑豪比普通高中生砍死AUO王还是合理点吧<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jiandandongman  
+##### 1621#       发表于 2023-11-6 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62958342&amp;ptid=2112855" target="_blank">原神高手 发表于 2023-11-6 18:02</a>
+
+从蛛丝马迹推测对手英灵真名实力从而布局击杀指的是EXTRA？那个正在制作复刻吧
+
+男主不是普通凡人，是英 ...</blockquote>
+23年了还有人没搞懂士郎是怎么赢了闪闪的？FSN是相对比较严谨的，原作里说的很详细，首先闪闪不是把一项武艺精研到极致的战斗型英灵，两人比拼的是武器制造/召唤速度。其次闪闪连正经装甲都没穿，到想用乖离剑时已经来不及了。士郎依靠红A的加成和凛帮他扩展的魔术回路才在固有结界里武器速度快过闪闪一线，斩断闪闪一臂，即便如此如果最后没有红A补刀他也还是会被闪闪反杀的。
+
+而新作主角凭什么能赢英灵？
+
+*****
+
+####  ranapocket  
+##### 1622#       发表于 2023-11-6 23:01
+
+凭蘑菇打的补丁呗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这么多年月厨还没习惯吗
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  DARKGRAY  
+##### 1623#       发表于 2023-11-6 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62961851&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-6 22:58</a>
+
+23年了还有人没搞懂士郎是怎么赢了闪闪的？FSN是相对比较严谨的，原作里说的很详细，首先闪闪不是把一项 ...</blockquote>
+凭人家本来就是能当英灵的人呗，不是那种靠当守护者苦力得来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  原神高手  
+##### 1624#       发表于 2023-11-6 23:54
+
+人家在历史上正儿八经有名有姓的人，凭什么比你虚构一个的高中生差？<img src="https://static.saraba1st.com/image/smiley/carton2017/083.png" referrerpolicy="no-referrer">
+
+不然你也写个高中生，比吕布能打，比诸葛亮聪明，看看一般人是什么反应<img src="https://static.saraba1st.com/image/smiley/carton2017/084.png" referrerpolicy="no-referrer">
+
+这个是态度问题好吧<img src="https://static.saraba1st.com/image/smiley/carton2017/085.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 1625#       发表于 2023-11-7 00:12
+
+當見到FGO那些腕力D/E的英靈可將數十公斤物件互掉/爆石，和這腕力不停互拼也沒提到手部虎口有沒痛，痛的只是燒腦的負作用，甚至就全身都撕裂一樣的痛，隨便吧...
+
+不如說伊織那兩把普通劍可以和各大英靈手上神兵戰個痛，日常補養就只是小心抹油
+
+士郎投影的武器也會拼了多刀或真名化後也會碎吧
+
+
+*****
+
+####  hagiwara  
+##### 1626#       发表于 2023-11-7 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62951124&amp;ptid=2112855" target="_blank">bill910 发表于 2023-11-6 09:27</a>
+疑问1，游戏最开始的老爷说的一个小故事，说一个坏人团伙杀光了一个村，村一个小孩子活下来，结果坏人团伙 ...</blockquote>
+武尊的愿望就是伊织所生活的太平盛世，武尊生前一直在杀人，被召唤参加盈月仪式的武尊在和伊织的相处中了解到了和平的时代是怎样的，并且喜欢上了这样的时代，因此武尊要破坏盈月维护和平
+
+
+*****
+
+####  无名的刀锋  
+##### 1627#       发表于 2023-11-7 08:09
+
+<blockquote>jiandandongman 发表于 2023-11-6 22:58
+23年了还有人没搞懂士郎是怎么赢了闪闪的？FSN是相对比较严谨的，原作里说的很详细，首先闪闪不是把一项 ...</blockquote>
+他的女师傅在153还是活人…当徒弟的走一遍师傅老路罢了
+
+
+*****
+
+####  jiandandongman  
+##### 1628#       发表于 2023-11-7 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62963467&amp;ptid=2112855" target="_blank">无名的刀锋 发表于 2023-11-7 08:09</a>
+
+他的女师傅在153还是活人…当徒弟的走一遍师傅老路罢了</blockquote>
+FGO的1.53就是编剧强开挂，武藏被剑豪英灵逼急了，武藏拿到村正锻造的宝刀/觉醒奥义，反杀了，像不像7.80年代的日本热血漫？当年出的时候也一样被喷战力混乱，但它也只是手游某一单独章节，甚至剧情还是可以免费体验的。
+
+而新作是独立拿出来销售的完整系列作品，体量上就不是一个单位。花了几百大元就体验到这种水平的剧情，我是不满意的。
+
+另外，18年公布extra重制时就很期待，但现在5年过去了半点新消息没有，又一个月姬吗？十多年就做出来个表篇重制。
+
+
+*****
+
+####  原神高手  
+##### 1629#       发表于 2023-11-7 12:44
+
+说得好<img src="https://static.saraba1st.com/image/smiley/carton2017/079.png" referrerpolicy="no-referrer">
+
+喜欢的就是严谨<img src="https://static.saraba1st.com/image/smiley/carton2017/085.png" referrerpolicy="no-referrer">
+
+不过那个女武藏也差不多是个原创人物了，她没体验男武藏的后半生，倒是很多时代很多地方去穿越了一圈，好像过去到未来什么历史事件都知道了，奈须的坏毛病就是爱给人开上帝视角看穿一切<img src="https://static.saraba1st.com/image/smiley/carton2017/083.png" referrerpolicy="no-referrer">
+
+给诸葛亮开挂把王朗骂死和给原创高中生开挂把王朗骂死哪个态度端正点？我觉得前面一个好点，虽然其实可能半斤八两<img src="https://static.saraba1st.com/image/smiley/carton2017/077.gif" referrerpolicy="no-referrer">
+
+你觉得后一个好点，我觉得……也行吧！<img src="https://static.saraba1st.com/image/smiley/carton2017/084.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yangun22  
+##### 1630#       发表于 2023-11-7 13:31
+
+主线里主角打赢的也就武藏吧，其他都是靠saber宝具打的，对武藏就是靠藏奥义阴了她一手也是靠了解他师傅脾气才能这么来的。同样阴saber准备破对方奥义的时候结果因为理解度不够反而被对方阴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jiandandongman  
+##### 1631#       发表于 2023-11-7 14:40
+
+根本问题是他没资格和英灵55开，甚至整个剧情中都没有对主角这种实力有任何解释，通篇对主角战力的描述也就是凡人中顶尖的那批，是你们都太高看了凡人的力量还是都忽视了英灵的设定？
+
+主角如果召唤的是C妈通过反向加强像人民教师那样我都算你编剧努力了，实际是主角身上没任何挂就是编剧在硬写。
+
+
+*****
+
+####  kaion111  
+##### 1632#       发表于 2023-11-7 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主不是融会贯通了燕返和二天一流吗
+那么打得过武藏也不奇怪
+那武藏打得过其他英灵，他打得过也很正常吧
+
+
+*****
+
+####  yangun22  
+##### 1633#       发表于 2023-11-7 15:32
+
+英灵主要就是没神秘不能破防而已，只要能破防大多数没什么特殊防御能力英灵还是很容易打死的，所以这部里面最难杀的其实是参孙，需要靠割他头发
+
+
+*****
+
+####  wthall  
+##### 1634#       发表于 2023-11-7 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62966433&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-7 12:12</a>
+
+FGO的1.53就是编剧强开挂，武藏被剑豪英灵逼急了，武藏拿到村正锻造的宝刀/觉醒奥义，反杀了，像不像7.80 ...</blockquote>
+说起1.53 我对FGO的不满就是从这个间章开始的，1.54更是直接把我弄退坑了。
+
+1.53属于开始前我期待满满，真正打完什么JB玩意儿 典型剧情。直接把对剧情的期待消磨干净了
+
+
+*****
+
+####  exiaexa  
+##### 1635#       发表于 2023-11-7 15:48
+
+ 本帖最后由 exiaexa 于 2023-11-7 15:50 编辑 
+
+你们真是想太多，什么英灵打不过的，版本都更新多少次了
+
+你要说真正的、拿着盖亚支援的、星球最终防卫机关的“英灵”，那确实是打不过
+
+这种劣化圣杯和劣化英灵，也就是文本中说的从者，有什么打不过的，你觉得打不过单纯是因为现在“从者”无限跟“英灵”划等号了，不过这跟官方自己辟谣不积极也有关系
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+死人升华英灵以后带来的直接副作用就是开大要解放真名，俗称靠吼，然后153和255都告诉你了，你近战够强就是可以按着从者锤让他没机会解放真名，逼着他跟你肉搏，甚至从者可以被你抓真名解放的直前
+
+那最后的问题就变成怎么破防了，你打过不正版“英灵”的核心原因是你破不了防，虽然版本更新了这么多次，但是低级神秘干不过高级神秘还是没动过
+
+正版英灵拿着盖亚支援你干不过完全可以理解，从者这种无限劣化版你只要给自己附个魔就是能砍啊，伊织首先自己就会魔术，其次燕返都接近魔法领域了，大家拼神秘等级还不一定谁赢呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无名的刀锋  
+##### 1636#       发表于 2023-11-7 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都玩FGO了你就不看看自己仓库里有多少是依靠干大事上座当英灵的一般通过凡人，伊织这个手捏双燕返的新进剑圣通过女师傅亲自当垫脚石，个体战斗力已经已经可以认证为小次郎柳生级别了，和从者拼个刀算啥事啊
+
+
+*****
+
+####  間宮卓司  
+##### 1637#       发表于 2023-11-7 16:48
+
+伊织好歹红玉老爷子教过。红玉老爷子可是和宝石翁都有一定关联的。
+
+
+*****
+
+####  广西桂系兵  
+##### 1638#       发表于 2023-11-7 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62968018&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-7 14:40</a>
+
+根本问题是他没资格和英灵55开，甚至整个剧情中都没有对主角这种实力有任何解释，通篇对主角战力的描述也就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+有没有可能，大部分的从者生前都是所谓的凡人，郑成功提到伊织和甘辉不知道谁强，甘辉就是明末历史上数一数二的猛将。
+
+以宫本武藏的知名度的话，主角伊织差不多相当于关平之于关羽，那么关平能和关羽级猛将过过招根本不需要开挂吧。
+
+
+*****
+
+####  零壹贰叁  
+##### 1639#       发表于 2023-11-7 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大哥，双刀燕返级别的剑术哎，空之型都能瞬移了
+在fsn津田小次郎和武藏的实力之上了
+怎么就不能跟英灵刚正面了
+
+
+*****
+
+####  jiandandongman  
+##### 1640#       发表于 2023-11-7 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62968906&amp;ptid=2112855" target="_blank">exiaexa 发表于 2023-11-7 15:48</a>
+
+你们真是想太多，什么英灵打不过的，版本都更新多少次了
+
+你要说真正的、拿着盖亚支援的、星球最终防卫机关 ...</blockquote>
+反驳的这些言论里就你说得还算明白，多数人大概都是把从者/英灵理解成把古人召唤到现代了，武藏和他徒弟怎么就不能55开对打了？诸不知从者/英灵相对人类已经是质变了。
+
+新作剧情里好像没提过召唤的是劣质从者，当然你说仪式都是劣质的，召唤的从者自然劣质也说得通。
+
+
+*****
+
+####  DARKGRAY  
+##### 1641#       发表于 2023-11-7 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62971671&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-7 19:28</a>
+
+反驳的这些言论里就你说得还算明白，多数人大概都是把从者/英灵理解成把古人召唤到现代了，武藏和他徒弟 ...</blockquote>
+虽然但是，怎么感觉不是这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  乙猫  
+##### 1642#       发表于 2023-11-8 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62951982&amp;ptid=2112855" target="_blank">原神高手 发表于 2023-11-6 10:40</a>
+侍魂大概是这个100年后吧</blockquote>
+这不月华吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不过这就更晚，幕末了
+
+
+*****
+
+####  kyonkoism  
+##### 1643#       发表于 2023-11-8 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62943445&amp;ptid=2112855" target="_blank">亚历山大帝 发表于 2023-11-5 12:28</a>
+这个真结局对男主太不友好了吧，
+
+把男主的善良否定了（地右卫门：我说对了吧？！），再告诉大家这样死路一 ...</blockquote>
+1，没说，就是因为不认识是谁，所以才会成为伊织永远达不到的目标，然后这个目标被武尊更新，他才入魔了
+
+2，生错世代就是字面意思，伊织是天才，是剑鬼，但在这个世界线，生早了有岛原，生晚了有幕末，伊织这个时代太和平了，他每天勤奋练习屠龙术在武藏看来真的很可怜，这也是真结局能成立的原因
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  kyonkoism  
+##### 1644#       发表于 2023-11-8 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62951124&amp;ptid=2112855" target="_blank">bill910 发表于 2023-11-6 09:27</a>
+疑问1，游戏最开始的老爷说的一个小故事，说一个坏人团伙杀光了一个村，村一个小孩子活下来，结果坏人团伙 ...</blockquote>
+1 楼上说了
+
+2 没明说，可能藏在游戏的文本里，也可能单纯是因为伊织他不想
+
+3 武尊的愿望很简单，前面就有一幕他在门外看着伊织和妹妹流眼泪的桥段，这个世界太和平太美好，他的愿望就是和自己爱的人过和平的日子，这个梦想确实实现了，虽然只有短短一个月
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  exiaexa  
+##### 1645#       发表于 2023-11-8 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62971671&amp;ptid=2112855" target="_blank">jiandandongman 发表于 2023-11-7 19:28</a>
+反驳的这些言论里就你说得还算明白，多数人大概都是把从者/英灵理解成把古人召唤到现代了，武藏和他徒弟 ...</blockquote>
+你在说什么鬼东西，语言能力不行建议把上论坛的时间拿去重修
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  森兰丸  
+##### 1646#       发表于 2023-11-8 13:17
+
+ 本帖最后由 森兰丸 于 2023-11-8 13:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看这贴又被顶上来了还以为剧情DLC的消息出了.....结果都在讨论些什么啊
+
+都什么年代了还在乎什么设定严谨不严谨的
+
+伊织就是凡人之身的天花板能和英灵从者打的有来有回....蒸馍你不扶器吗
+

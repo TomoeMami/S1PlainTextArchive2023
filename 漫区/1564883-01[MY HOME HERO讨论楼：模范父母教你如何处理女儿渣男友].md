@@ -195,3 +195,60 @@
 
 后面这日式字谜推理是真的好无聊，为什么日本人的推理这么喜欢各种文字变来变去
 
+*****
+
+####  Yeaha123  
+##### 756#       发表于 2023-11-6 15:25
+
+窪哥就这样了?男主用电据也够狠的
+
+
+*****
+
+####  smdzh2  
+##### 757#       发表于 2023-11-6 16:02
+
+大猩猩终于凉了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿刚  
+##### 758#       发表于 2023-11-6 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62956379&amp;ptid=1564883" target="_blank">smdzh2 发表于 2023-11-6 16:02</a>
+
+大猩猩终于凉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这还是回忆杀吧？那就说第三部一开始其实就已经搞死了战神啊……
+
+
+*****
+
+####  X(iaolw)S  
+##### 759#       发表于 2023-11-6 22:27
+
+<blockquote>引用第757楼阿刚于2023-11-06 21:13发表的  :
+
+引用:smdzh2 发表于 2023-11-6 16:02大猩猩终于凉了这还是回忆杀吧？那就说第三部......</blockquote>
+@阿刚
+其实挺明显的，大猩猩和爹地玩智斗，这开什么玩笑啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+现在就剩看黑道组长怎么给干掉了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  保科智子  
+##### 760#       发表于 2023-11-8 12:52
+
+战力天花板就这？是不是要腰斩了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火红之眼  
+##### 761#       发表于 2023-11-8 13:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">窪三光被电锯收拾不是很合理吗？
+
