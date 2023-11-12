@@ -4159,3 +4159,11 @@ FES卡池角色及礼装（礼装也是LIVE2D！）
 
 我超，我有点感动，这年头还有手游之间和和气气搞联动，仿佛回到了少前联动崩坏2的时候
 
+*****
+
+####  kulanyee  
+##### 401#       发表于 2023-11-6 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年庆也没人回帖！凉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新旧fes同一个卡池，真有你的
+
