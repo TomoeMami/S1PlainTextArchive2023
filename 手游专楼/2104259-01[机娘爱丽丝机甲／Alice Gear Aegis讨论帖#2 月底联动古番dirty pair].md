@@ -6773,3 +6773,133 @@ AGA楼自然是拼装女人喽。你买万代家的还不止二个呢
 
 —— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+*****
+
+####  希望之花  
+##### 771#       发表于 2023-11-7 20:06
+
+填今天的问卷的时候在想你游啥都可以玩得也很开心，不想玩的原因大概是想要的演员都抽到了，就一种单机游戏通关的感觉
+
+氪金也氪过，胶也买了几盒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 772#         楼主| 发表于 2023-11-7 20:14
+
+怒喷真正的游戏游玩内容不更新<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madcow  
+##### 773#       发表于 2023-11-7 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要的角色没有出/想抽的角色没抽到
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是说FA角色相关问卷里我看还有个FA装备，饼画这么大的吗
+
+*****
+
+####  江戸前ルナ  
+##### 774#         楼主| 发表于 2023-11-7 20:32
+
+FA我喷了起名和服装没诚意，设定敷衍。而且FA通用SP，对一些ANSP是着装的角色倒没啥，ANSP没着装的就简直被坑一辈子没着装SP了
+
+
+*****
+
+####  冰风血羽  
+##### 775#       发表于 2023-11-8 07:40
+
+问卷填完了最后那个邮件地址忘记填直接退出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  yygundam  
+##### 776#       发表于 2023-11-8 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62975522&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-11-8 07:40</a>
+
+问卷填完了最后那个邮件地址忘记填直接退出了
+
+—— 来自 realme RMX3706, Android 13上的 S1Next- ...</blockquote>
+没事，那个和这个问卷没关系。是这个问卷网站问你要不要创建一个账号来搞自己的问卷（
+
+
+*****
+
+####  alialex  
+##### 777#       发表于 2023-11-8 11:56
+
+说起FASP，这次副会长的也太搞笑了，一个铁拳达人在玩枪斗术。给风纪做的SP直接套用了
+
+
+*****
+
+####  madcow  
+##### 778#       发表于 2023-11-8 12:15
+
+主要我看AN装不就是换个色再改改数值吗，为啥出这么慢（好吧我一直没打高难，数值这块不熟
+
+
+*****
+
+####  天王寺綯  
+##### 779#       发表于 2023-11-8 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">an装还是有部分动作和招式变化的吧，kiss以后
+不过也确实出太慢了，等到退坑了也没等来姐姐的an装，唉
+
+
+*****
+
+####  冰风血羽  
+##### 780#       发表于 2023-11-8 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62976645&amp;ptid=2104259" target="_blank">yygundam 发表于 2023-11-8 09:48</a>
+
+没事，那个和这个问卷没关系。是这个问卷网站问你要不要创建一个账号来搞自己的问卷（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还行，我看没问题就手快返回了，就看到一个邮箱地址啥的
+
+
+*****
+
+####  不灭的旋律  
+##### 781#       发表于 2023-11-8 22:29
+
+可以看出楼上有几位没好好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次活动沙雕程度和蘑菇人有一拼，明明是诺艾尔亮相的活动结果风头都被烤串公抢了
+
+
+*****
+
+####  madcow  
+##### 782#       发表于 2023-11-9 00:58
+
+<blockquote>不灭的旋律 发表于 2023-11-8 22:29
+可以看出楼上有几位没好好玩
+
+这次活动沙雕程度和蘑菇人有一拼，明明是诺艾尔亮相的活动结果风头都被 ...</blockquote>
+我吃烧烤也是只吃肉的（
+
+
+*****
+
+####  Picavian  
+##### 783#       发表于 2023-11-9 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62985778&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-11-8 22:29</a>
+
+可以看出楼上有几位没好好玩
+
+这次活动沙雕程度和蘑菇人有一拼，明明是诺艾尔亮相的活动结果风头都被 ...</blockquote>
+是炸串！给我向炸串六千年的历史道歉口牙！
+
+（这炸串公发癫的原因就还挺现实，农民因为减产举债，丧失生活信心然后饮酒赌博什么的……
+
