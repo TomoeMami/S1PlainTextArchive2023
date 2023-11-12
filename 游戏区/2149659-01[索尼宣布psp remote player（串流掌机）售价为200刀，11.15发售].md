@@ -2001,3 +2001,79 @@ bps就是宽带运营商提供的单位，百兆宽带就是100mbps
 
 等个国行，不然只能吃现了
 
+*****
+
+####  Fuero  
+##### 203#       发表于 2023-11-9 21:12
+
+已经有开箱视频了
+
+<img src="https://img.saraba1st.com/forum/202311/09/211211fjsmel3weksms90z.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (97.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 21:12 上传
+
+*****
+
+####  Fuero  
+##### 204#       发表于 2023-11-9 21:16
+
+姐夫晒的
+
+<img src="https://img.saraba1st.com/forum/202311/09/211611ic887hlyylly991w.jpg" referrerpolicy="no-referrer">
+
+<strong>2t.jpg</strong> (334.19 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 21:16 上传
+
+*****
+
+####  医生狼多  
+##### 205#         楼主| 发表于 2023-11-9 21:19
+
+tb有全款2k3的
+之前天猫国际有2k1的
+再等一波，12月没国行消息就买港日的了
+
+*****
+
+####  何处分可  
+##### 206#       发表于 2023-11-9 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前段时间看有人说“卖爆”了，我还以为早就发售了呢
+
+
+*****
+
+####  ナルバレック  
+##### 207#       发表于 2023-11-9 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62997208&amp;ptid=2149659" target="_blank">何处分可 发表于 2023-11-9 21:23</a>
+
+前段时间看有人说“卖爆”了，我还以为早就发售了呢</blockquote>
+只是之前一批的各地预购全部卖光了而已，理论上索尼也知道用户面，不过供货特别多的，配件嘛
+
+
+*****
+
+####  shimotsuki14  
+##### 208#       发表于 2023-11-9 22:24
+
+突然觉得有点适合现在在家里没有正常时间电视使用权的我…
+
+
+*****
+
+####  Fuero  
+##### 209#       发表于 2023-11-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62997877&amp;ptid=2149659" target="_blank">shimotsuki14 发表于 2023-11-9 22:24</a>
+
+突然觉得有点适合现在在家里没有正常时间电视使用权的我…</blockquote>
+天冷了，就等着在被窝里打星海跟如龙了
+
