@@ -6722,3 +6722,161 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 [https://tieba.baidu.com/p/4377134684?pn=1](https://tieba.baidu.com/p/4377134684?pn=1) 
 
+*****
+
+####  Waldeinsamkeit  
+##### 15571#       发表于 2023-11-3 16:27
+
+ 本帖最后由 Waldeinsamkeit 于 2023-11-3 16:29 编辑 
+
+刚刚看到电商给我发邮件才惊觉小公主&amp;农叔amiibo就是今天发售了呢……时间过好快，我抢在高铁进隧道没信号前预定感觉还是昨天的事情
+
+不过后来我在官网也订到了，本地电商那俩自取就留着造福别的小伙伴吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 15572#       发表于 2023-11-3 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">amiibo的做工已经差到有搞笑效果了，弯的大师剑很像零食
+
+*****
+
+####  牛奶笛  
+##### 15573#       发表于 2023-11-3 16:42
+
+<img src="https://img.saraba1st.com/forum/202311/03/164219kfma1h0rv3sz0brz.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231103164122.jpg</strong> (304.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 16:42 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/164219ar7mka5rrdrxmt7r.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231103164130.jpg</strong> (254.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 16:42 上传
+
+
+*****
+
+####  牛奶笛  
+##### 15574#       发表于 2023-11-3 16:45
+
+<img src="https://img.saraba1st.com/forum/202311/03/164519pvdvr4vcvre1tah6.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231103164439.jpg</strong> (322.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/164519eab337ettsttr7ei.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231103164444.jpg</strong> (612.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/164520h9lyvid9vom1m7yz.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231103164447.jpg</strong> (336.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 16:45 上传
+
+<img src="https://img.saraba1st.com/forum/202311/03/164520ga4355f9g5fkxf5k.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231103164451.jpg</strong> (550.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 16:45 上传
+
+
+*****
+
+####  冷泉夜月  
+##### 15575#       发表于 2023-11-3 16:55
+
+这弯的也太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉不如之前出的软糖食玩带的大师剑（好吧那个没上色<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黄泉川此方  
+##### 15576#       发表于 2023-11-3 16:57
+
+这热水有救吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15577#       发表于 2023-11-3 17:03
+
+不过话又说回来，反正所有amiibo的剑到最后都会弯的，晚弯不如早弯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+记得网上好像看到过修复的办法，但我这个手残不打算去尝试了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 15578#       发表于 2023-11-3 23:07
+
+<img src="https://img.saraba1st.com/forum/202311/03/230558jd60ocksossk68rc.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20231103230542847.jpg</strong> (147.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-3 23:05 上传
+
+今天发售的瓦里奥制造新作，与塞尔达的联动是时之笛林克捉咕咕鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 15579#       发表于 2023-11-5 22:18
+
+我也收到amiibo了，这大师剑也太离谱了，还不如做成半截<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  牛奶笛  
+##### 15580#       发表于 2023-11-7 15:11
+
+今天发现了野炊和王泪的一个小不同，在选项里把画面调成“专业”可以去除UI，野炊保留了左上角的血量，而王泪则是全隐藏了，做到画面里只剩风景和人。
+
+推荐同学们在游戏后期可以开启专业模式玩，挺不错的体验
+
+
+*****
+
+####  马桶3  
+##### 15581#       发表于 2023-11-10 15:03
+
+问一下各位大佬，之前收了一张官方壁纸做手机屏保，想问一下有没有两人最终手牵到手的版本呢？
+
+<img src="https://img.saraba1st.com/forum/202311/10/150248h55ba9eu9bkbbv9r.jpg" referrerpolicy="no-referrer">
+
+<strong>006OLR7Hgy1hdz37wugznj30yi22ob29.jpg</strong> (492.09 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 15:02 上传
+
