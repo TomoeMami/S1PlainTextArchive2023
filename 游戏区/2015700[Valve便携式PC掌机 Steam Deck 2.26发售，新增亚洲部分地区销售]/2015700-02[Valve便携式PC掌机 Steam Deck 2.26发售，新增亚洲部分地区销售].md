@@ -2320,3 +2320,85 @@ tf卡一定不够，我也是这么想的，最后还是换了2t的sn740<img src
 
 —— 来自 samsung SM-F9260, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Piano-Forest  
+##### 2191#         楼主| 发表于 2023-11-10 01:57
+
+Steam Deck OLED版
+[https://store.steampowered.com/sale/steamdeck_2023](https://store.steampowered.com/sale/steamdeck_2023)
+<img src="https://p.sda1.dev/14/f658d38ae0cad8e89c66e0c65315cde3/006Hm8pLgy1hjpdshmwcqj31dv0rt7kx.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/a74c8887a5687fb0dd62dc1009ba82ba/006Hm8pLgy1hjpdt7vvyvj31900lk4bp.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 2192#         楼主| 发表于 2023-11-10 02:08
+
+详情：
+[https://www.steamdeck.com/zh-cn/oled](https://www.steamdeck.com/zh-cn/oled)
+
+<img src="https://p.sda1.dev/14/1a676016e7af3b6394b0ae7f86d45bc2/006Hm8pLgy1hjpdzy4qf3j31az0oywsn.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/47fd807d2b7b5ddb3dc3b43812fbcdbc/006Hm8pLgy1hjpe0ej7mlj31dk0paqf8.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/273bf36d5b7151edb53f776dfde4457d/006Hm8pLgy1hjpe290ozwj310t0sn7be.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/554b70337e6295bb1011239d413ca0b1/006Hm8pLgy1hjpe0paefqj319p0ubkeb.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/32457578a32595f0318885daf5326fa6/006Hm8pLgy1hjpe1isl22j31ei3k3kjl.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 2193#         楼主| 发表于 2023-11-10 02:25
+
+OLED版的各媒体前瞻也出了
+
+至于二代，正在开发中但至少需要2～3年才能推出
+[https://www.bloomberg.com/news/a ... e-coming-from-valve](https://www.bloomberg.com/news/articles/2023-11-09/new-steam-deck-with-oled-screen-more-storage-coming-from-valve)
+[https://www.eurogamer.net/valve- ... -full-steam-deck-20](https://www.eurogamer.net/valve-says-technology-doesnt-exist-yet-for-full-steam-deck-20)
+
+
+*****
+
+####  泰坦失足  
+##### 2194#       发表于 2023-11-10 02:33
+
+考虑到不少人都是9/10月产能大爆发时候才拿到或者能订购，相当于出一年就出改版了啊。算上原始发售日也就才一年九个月。
+
+
+*****
+
+####  lvcha  
+##### 2195#       发表于 2023-11-10 11:32
+
+这个国内咋买？等pdd铺货？
+
+
+*****
+
+####  Ceraldur  
+##### 2196#       发表于 2023-11-10 11:44
+
+好事。续航+oled  「刘备还是个忠厚人呐」
+
+虽然我没买它这个可携带机，但是我还挺满意新的大屏幕界面的。
+
+惩前毖后 期待据置机PC配置优化难。
+
+私心想V社垄断地位对玩家是好的。
+
+Xbox部门混日子而已 Windows也是狗屎。「袁绍色厉胆薄，好谋无断；干大事而惜身，见小利而忘命，非英雄也。」
+
+拥抱订阅制 战未来云游戏 没被砍就算成功嗷。
+
+
+*****
+
+####  mcq_2  
+##### 2197#       发表于 2023-11-10 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63002146&amp;ptid=2015700" target="_blank">lvcha 发表于 2023-11-10 11:32</a>
+
+这个国内咋买？等pdd铺货？</blockquote>
+s1咸鱼？
+
