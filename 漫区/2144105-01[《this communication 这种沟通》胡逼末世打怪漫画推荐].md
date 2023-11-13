@@ -1033,3 +1033,86 @@
 
 —— 来自 realme RMX3300, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  古利格利  
+##### 100#       发表于 2023-11-8 07:12
+
+修正男主性格也就完结了。末世也不可能被男主一行修复，打算去修复和有修复法子都破坏主题。
+
+
+*****
+
+####  Booorunestud  
+##### 101#       发表于 2023-11-8 10:13
+
+上推看了看原来剩5话就完结了，可以看看结局能整出什么活
+
+
+*****
+
+####  KDConan  
+##### 102#       发表于 2023-11-8 10:29
+
+完结？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">这世界观才冰山一角啊
+
+看来真是没活了
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  第贰个十年  
+##### 103#         楼主| 发表于 2023-11-8 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62977140&amp;ptid=2144105" target="_blank">KDConan 发表于 2023-11-8 10:29</a>
+完结？这世界观才冰山一角啊
+
+看来真是没活了</blockquote>
+感觉也差不多了，能写的点子都写了，后期都是随意加设定在搞了，看看结局怎样把。
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  redsouris  
+##### 104#       发表于 2023-11-9 10:25
+
+太草了，德鲁哈确定对面不会下死手，但是这危机感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/d1558f00715b3b3946a66bccb4b1f1e5/CMP_20231109102546818.jpg" referrerpolicy="no-referrer">
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ストック  
+##### 105#       发表于 2023-11-9 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62989415&amp;ptid=2144105" target="_blank">redsouris 发表于 2023-11-9 10:25</a>
+太草了，德鲁哈确定对面不会下死手，但是这危机感
+
+—— 来自 HUAWEI CDY-AN90, Android 10 ...</blockquote>
+真是一眼就能看懂的危机感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 106#       发表于 2023-11-10 22:20
+
+刚看到这漫画就要完结了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+好想欺负老四，19话的忠犬真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Booorunestud  
+##### 99#       发表于 2023-11-8 06:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥们活得也太累了 后宫们什么时候能修正这男主
+
+
