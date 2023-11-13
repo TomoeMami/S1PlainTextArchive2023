@@ -6290,3 +6290,164 @@ W箱技能，竟然是充能突刺系。三技能消耗充能会增加威力，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">电狼唐的强度再次上升
 
+*****
+
+####  Jamaisvu  
+##### 402#       发表于 2023-11-10 17:31
+
+第三赛季来了！
+
+PV里展示了战令的六个ego，看着都挺帅：
+
+<img src="https://img.saraba1st.com/forum/202311/10/172757fb16dfbj3ssb4j7d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110_172604.jpg</strong> (216.48 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:27 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/172800y449n2m6b16110mb.png" referrerpolicy="no-referrer">
+
+<strong>3763416996082952.png</strong> (278.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/172801by1bx8z8p381pf8b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110_172626.jpg</strong> (211.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:28 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/172804jllxju7bx7xuncxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231110_172615.jpg</strong> (245.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:28 上传
+
+良秀和玛丽是单独展示的，可能都是waw级？
+
+*****
+
+####  Jamaisvu  
+##### 403#       发表于 2023-11-10 17:33
+
+敌人看上去是海盗、海怪和幽灵船，类似于大卫琼斯的飞翔荷兰人号？：
+
+<img src="https://img.saraba1st.com/forum/202311/10/173252y11ak48q11x4841x.png" referrerpolicy="no-referrer">
+
+<strong>1942516996085992.png</strong> (121.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173253ntz0rhuzd2wlhour.png" referrerpolicy="no-referrer">
+
+<strong>2089716996086132.png</strong> (182.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173253p199hd6p6biz7low.png" referrerpolicy="no-referrer">
+
+<strong>2147216996086322.png</strong> (91.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173254lsf1stpfnpf5pt9c.png" referrerpolicy="no-referrer">
+
+<strong>2275116996086412.png</strong> (66.1 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173254bplafplljyf5hpbl.png" referrerpolicy="no-referrer">
+
+<strong>2433516996086492.png</strong> (204.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173255qpmpwp2rppwpeq5t.png" referrerpolicy="no-referrer">
+
+<strong>2614716996086562.png</strong> (160.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173256eek3qkk1vq0fgo92.png" referrerpolicy="no-referrer">
+
+<strong>2741816996086612.png</strong> (199.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:32 上传
+
+*****
+
+####  Jamaisvu  
+##### 404#       发表于 2023-11-10 17:35
+
+赛季人格有枪手良秀和船长格里高利：
+
+<img src="https://img.saraba1st.com/forum/202311/10/173521v0ukmbf0k03fyu6o.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20231110_173506.png</strong> (28.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202311/10/173522oarhxh3w3mx92zer.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20231110_173514.png</strong> (109.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:35 上传
+
+*****
+
+####  Jamaisvu  
+##### 405#       发表于 2023-11-10 17:38
+
+好期待啊，其实大湖的设定就足够出个类似渔帆暗涌、无光之海、潜水员戴夫之类的游戏，同怪异的海洋搏斗...
+
+话说玛丽的几个三星都挺强的，不知道个人章节能不能再创新高。
+
+*****
+
+####  Jamaisvu  
+##### 406#       发表于 2023-11-10 17:42
+
+<img src="https://img.saraba1st.com/forum/202311/10/174153c6vu560lqblkujsd.png" referrerpolicy="no-referrer">
+
+<strong>IMG_20231110_174138.png</strong> (121.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-10 17:41 上传
+
+都市特有的死人再利用技术，不得不品。
+
+
+*****
+
+####  erratic璃月  
+##### 407#       发表于 2023-11-10 18:42
+
+饼太多，要撑死哩<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
