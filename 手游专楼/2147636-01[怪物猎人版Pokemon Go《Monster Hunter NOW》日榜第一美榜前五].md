@@ -2602,3 +2602,65 @@ Diablos G10/5: [https://www.youtube.com/watch?v=sM7lpxwFulg&amp;t=3s](https://ww
 
 Rathalos (urgent) G10/5[https://www.youtube.com/watch?v=BwhMpVD1T9k](https://www.youtube.com/watch?v=BwhMpVD1T9k)
 
+*****
+
+####  y433wu  
+##### 152#         楼主| 发表于 2023-11-5 14:56
+
+10月收入3100万刀 [https://augrea.net/2023/11/05/mh ... -million-downloads/](https://augrea.net/2023/11/05/mh-now-revenue-in-october-at-31-million-and-over-10-million-downloads/)
+
+仅次于pogo的4320万刀
+
+
+*****
+
+####  y433wu  
+##### 153#         楼主| 发表于 2023-11-8 14:06
+
+对防性片手的一些研究
+
+[【情報】整理防性3片手能盾住不後退(無傷)的攻擊,新增防性2對比](https://forum.gamer.com.tw/C.php?bsn=77414&amp;snA=1582)
+[G7-5防性片手对8星麻痹龙（击晕1次）](https://www.youtube.com/watch?v=vhtavXhOcoE)
+
+[https://forum.gamer.com.tw/C.php ... snA=1196&amp;tnum=7](https://forum.gamer.com.tw/C.php?bsn=77414&amp;snA=1196&amp;tnum=7) <blockquote>看來很多人並不知道只要防禦性能堆上去（目前最高只有3）
+
+只要怪的動作值不高，防守都是不用扣血的，防禦會變成小後退，反擊直接變盾擊三連
+
+所以要玩守勢（經常防禦）防性我認為是必需技能，除非你有無限金錢
+
+另一種出法是配怨恨，但前提是黑角裝非常難儲</blockquote>
+
+
+*****
+
+####  y433wu  
+##### 154#         楼主| 发表于 2023-11-8 14:17
+
+当前版本对物理弓箭的最新理解
+
+黑角龙弓 &gt; 毒妖鸟弓 &gt;= 角龙弓 &gt;= 骚鸟弓
+
+- 新人入坑只需要造 毒妖鸟弓+雷弓 到G9-5即可通关9星
+
+- 雌火龙弓物理值不如毒妖鸟弓，并且也不能比毒妖鸟弓多毒一次，所以不考虑
+
+- 黑角龙弓理论上超越现有的雷水火冰属性弓，不过要等11月底的实际测试来确认
+
+
+*****
+
+####  y433wu  
+##### 155#         楼主| 发表于 2023-11-11 02:49
+
+任務時間:11/10(五)17:00~11/12(日)16:00
+
+參加條件:HR11以上
+
+<img src="https://img.saraba1st.com/forum/202311/10/134931d977myscvcm17147.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (118.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-11 02:49 上传
+
