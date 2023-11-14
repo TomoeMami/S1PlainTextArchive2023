@@ -2854,3 +2854,51 @@ saku这下在ka动画分到直播组，难道频率要up
 
 鱼一这边也解禁了啊
 
+*****
+
+####  ladiesman802  
+##### 3310#       发表于 2023-11-10 21:35
+
+叶子直播间差点被炸，汗流下来了家人们
+
+之前kino好像也有一次唱了国歌，玩high了确实要刹车
+
+
+*****
+
+####  喜闻乐见  
+##### 3311#         楼主| 发表于 2023-11-11 12:07
+
+管理员爷爷
+
+2023年11月11日 12:00
+真黎葡们中午好，叶子今天（11月11日）下午17:00受邀去抖音参加一场3D直播活动，所以今天原定在b站的棉花糖回直播会推迟到后面，具体安排可以关注叶子的动态，也欢迎大家来抖音观看叶子的直播，谢谢大家的理解
+
+顺便祝玉藻生日快乐
+
+
+*****
+
+####  ladiesman802  
+##### 3312#       发表于 2023-11-11 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63011918&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2023-11-11 12:07</a>
+
+管理员爷爷
+
+2023年11月11日 12:00</blockquote>
+有没有痘印指路，我去围观一下
+
+
+*****
+
+####  喜闻乐见  
+##### 3313#         楼主| 发表于 2023-11-11 18:08
+
+ 本帖最后由 喜闻乐见 于 2023-11-11 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63012337&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2023-11-11 12:55</a>
+有没有痘印指路，我去围观一下</blockquote>
+ https://v.douyin.com/iRkd6F83/
+
+还就是本名<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
