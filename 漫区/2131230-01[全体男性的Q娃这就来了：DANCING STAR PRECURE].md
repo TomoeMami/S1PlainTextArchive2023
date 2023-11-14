@@ -1373,3 +1373,71 @@ https://prehyou2015.hatena ...</blockquote>
 观众都是舞台剧演员粉 大友不会去看 小友直接叫你滚
 真挺好 黑历史预定<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+*****
+
+####  王留美  
+##### 138#       发表于 2023-11-11 09:42
+
+【『Dancing☆Starプリキュア』The Stage 11/5(日) 12:00公演【全景映像】-哔哩哔哩】 https://b23.tv/Y2hQ0P2
+
+【『Dancing☆Starプリキュア』The Stage 11/5(日) 17:00公演【スイッチング映像】-哔哩哔哩】 https://b23.tv/k3562b4
+
+*****
+
+####  落羽飘尽  
+##### 139#       发表于 2023-11-11 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62863250&amp;ptid=2131230" target="_blank">粉儿alice 发表于 2023-10-28 23:09</a>
+
+舞台剧五男人今天也上映惹
+
+看了一下勇士剧透 就是普通q娃日常变身打怪的剧情
+
+男的女的演都一样 上q ...</blockquote>
+目前看过这个的非演员粉的大友的普遍评价是：剧本比天Q强
+
+我觉得还是把天Q黑历史化好了
+
+说出去丢人
+
+
+*****
+
+####  Cloudslin  
+##### 140#       发表于 2023-11-11 10:24
+
+ 本帖最后由 Cloudslin 于 2023-11-11 10:32 编辑 
+
+稍微写点观后感吧。
+舞台剧整体还是能看出有用心的，能夸的地方其实不少，演员的妆造台风，舞美都不错，配乐非常棒，故事观感类似女孩×战士吧，也是有好好利用舞台剧这种表现形式的，比如「日常被打破」的形式更尖锐些，前所未有的两个多小时的篇幅让叙事也更流畅些。
+故事具体来说大概是一季的量，到打倒第一个干部暂时收尾（反派塑造可以说吊打这几年的正篇了），还是未完待续的状态，看反响大概继续出不是问题，毕竟不管看之前的访谈还是成品我的感觉是鹫尾是来真的。
+最后的评价是……没法给什么评价，虽然没法像有些大友那样盛赞“这就是プリキュア”但质量也是服气的，我姑且也是有不管从什么角度来说都从来不是q娃的目标受众的自觉的，看这比这几年感谢祭含女量都高的观众席要说什么“这背叛了女性主义”什么的也多少有点自讨没趣，真要论私心的话大概就是你哪怕有男有女呢，说实话单就故事本身没全男的必要……
+<img src="https://pic.imgdb.cn/item/654edf1dc458853aef442ea4.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 141#       发表于 2023-11-11 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63010822&amp;ptid=2131230" target="_blank">落羽飘尽 发表于 2023-11-11 09:50</a>
+目前看过这个的非演员粉的大友的普遍评价是：剧本比天Q强
+
+我觉得还是把天Q黑历史化好了
+
+说出去丢人 ...</blockquote>
+这又双叒是新的乐子笑话呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这晦气玩意本身就是为了爆舞台剧演员特定粉丝金币搞出来的
+结果剧情比正片天空还好看 不是挺乐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+当然天空从一开始我就没有看好过 比快充好没有爆典就行 不过现在嘛<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  聖あげは  
+##### 142#       发表于 2023-11-11 23:14
+
+毕竟这东西体量就是一般Q娃的1-12话
+
+硬要对比只能说一般这时期的Q娃也不会有差评的
+

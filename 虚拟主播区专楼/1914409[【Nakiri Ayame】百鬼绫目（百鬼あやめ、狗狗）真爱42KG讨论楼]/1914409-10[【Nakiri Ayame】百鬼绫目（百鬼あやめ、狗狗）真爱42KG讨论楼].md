@@ -1915,3 +1915,42 @@ GSC的手办到货了<img src="https://static.saraba1st.com/image/smiley/face201
 
 —— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  夏小筱ss  
+##### 14694#       发表于 2023-11-6 21:38
+
+good👍🏻
+
+
+*****
+
+####  stedckk  
+##### 14695#       发表于 2023-11-8 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这次瓦大赛绫总又没了呀，一个赛一个地藏，绫总突击位一点不会还得从零学起，教练都无语了。
+
+
+*****
+
+####  因为你不会  
+##### 14696#       发表于 2023-11-10 19:28
+
+很喜欢绫总的一句话：你们不想赢吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stedckk  
+##### 14697#       发表于 2023-11-11 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">卧槽绫总这周播了一个月的量
+
+
+*****
+
+####  Fami水  
+##### 14698#       发表于 2023-11-11 23:06
+
+大胆点，是一季度的量！
+
