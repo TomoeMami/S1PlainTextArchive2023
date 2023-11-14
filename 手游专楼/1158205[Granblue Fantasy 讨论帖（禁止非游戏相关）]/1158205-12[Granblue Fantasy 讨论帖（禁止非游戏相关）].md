@@ -2137,3 +2137,155 @@ akx没蘑菇就诱惑法角色带波曼梅格教官，1+1看配置A2-3t，要么
 
 只能说再看看了
 
+*****
+
+####  好奇害死喵  
+##### 17443#       发表于 2023-11-9 06:08
+
+皆大欢喜了，全属性同款插件
+
+
+*****
+
+####  Geyorkias  
+##### 17444#       发表于 2023-11-9 07:35
+
+绑定双面，效果量低只有10上限还和法武上限冲突
+到底怎么设计出这么意义不明的东西的，这玩意的唯一作用是不是就是在你刷七剑的时候污染你的掉落池
+
+
+*****
+
+####  玛基  
+##### 17445#       发表于 2023-11-9 08:29
+
+不吃加护但生效靠加护判定，幽默小福
+
+
+*****
+
+####  kenqqex  
+##### 17446#       发表于 2023-11-9 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62919327&amp;ptid=1158205" target="_blank">Schw 发表于 2023-11-2 21:51</a>
+
+不是为啥这么大反应啊，当年3球六属2.0横行不也砍了吗，现在7剑下天山给爽了几次团已经是四字母的怜悯了[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么狼弓麒麟之类下来都pua到不会反抗了吗
+
+
+*****
+
+####  Aureth  
+##### 17447#       发表于 2023-11-9 11:57
+
+又烂又逼肝，真化造型还丑的要死
+
+—— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Schw  
+##### 17448#       发表于 2023-11-9 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62989599&amp;ptid=1158205" target="_blank">kenqqex 发表于 2023-11-9 10:38</a>
+
+什么狼弓麒麟之类下来都pua到不会反抗了吗</blockquote>
+日本暴雪还是欠卡车创，我建议下次fes把卡车开到幕张。
+
+
+*****
+
+####  江戸前ルナ  
+##### 17449#       发表于 2023-11-9 12:46
+
+NGA已经有号召召唤卡车了，但是行动力我看悬（奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外編成の多様性已经上推特趋势了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Geyorkias  
+##### 17450#       发表于 2023-11-9 12:53
+
+麒麟对游戏机制影响太大，虽然不爽但多少还能理解
+
+七剑真就是弱智
+
+新武器更弱智
+
+*****
+
+####  Schw  
+##### 17451#       发表于 2023-11-9 12:57
+
+福畜某年的fes不还展示过测试组吗，之后那么多数值崩坏的玩意这测了个够吧
+
+
+*****
+
+####  はちたや  
+##### 17452#       发表于 2023-11-9 14:19
+
+<blockquote>kenqqex 发表于 2023-11-9 10:38
+什么狼弓麒麟之类下来都pua到不会反抗了吗</blockquote>
+狼弓都多少年前的事了，不如说彩票提纯后的结果才是现在gbf高活跃社群的模样
+
+
+*****
+
+####  windlikeman  
+##### 17453#       发表于 2023-11-9 17:44
+
+麒麟是挑了个最坏的时间修正 前面有很多机会让他改他都没改 最后boom
+
+后面这些无条件增伤 三星武器什么的最后不得不到处找补就属于自找了 
+
+
+*****
+
+####  syndrome2032  
+##### 17454#       发表于 2023-11-9 17:59
+
+这堆武器全是一个模板，小福这么搞笑吗
+
+
+*****
+
+####  Sylpheed  
+##### 17455#       发表于 2023-11-10 00:07
+
+主要还是垃圾，吃的还多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说是适合方阵用的下位40257，也不看看现在7剑没了6属有几个本方阵是配高速周回的，芙劳阵容换回树枝盘解个7777都费劲真闹麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  好奇害死喵  
+##### 17456#       发表于 2023-11-10 18:38
+
+速报！机神系列真化材料改为80个
+
+等于没改
+
+
+*****
+
+####  DDWarrior  
+##### 17457#       发表于 2023-11-10 19:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">司马福原哲也抱着他那个宝贝六人本去死吧，这垃圾游戏真是玩不了一点
+
+
+*****
+
+####  Geyorkias  
+##### 17458#       发表于 2023-11-11 14:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">想跪，但膝盖还不够弯的四字母是这样的
+
+估计要等更新的高难或者3.0内容出了，也不打算用沙漏卡人之后才会改18人降蓝箱线了
+
