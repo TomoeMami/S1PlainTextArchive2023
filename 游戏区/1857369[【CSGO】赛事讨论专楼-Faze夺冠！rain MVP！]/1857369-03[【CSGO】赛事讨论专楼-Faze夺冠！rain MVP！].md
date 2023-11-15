@@ -6909,3 +6909,271 @@ subtick据说官匹还是64，只有部分动作是128</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">有爆料说g2弃赛上海cac了，石油佬真出手了吗
 
+*****
+
+####  doublehit  
+##### 3909#       发表于 2023-11-3 17:28
+
+🦐哥基本确定走了，但是电子竞技里银河战舰真的能出成绩
+
+
+*****
+
+####  heseran  
+##### 3910#       发表于 2023-11-3 17:43
+
+不知道指挥和主狙是不是传说中的snappi和小孩，听说波罗斯在major之后数据一直不好看？
+
+
+*****
+
+####  曼陀罗肥  
+##### 3911#       发表于 2023-11-3 18:46
+
+小孩沙特佬估计觉得花百万买断不值，话说载物是不是还没跟小蜜蜂续约？有没有一种可能？
+
+
+*****
+
+####  csolfans  
+##### 3912#       发表于 2023-11-4 23:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">请教一下问题。。。为啥CS2不能在16比9运行1980×1080分辨率。。。
+
+
+*****
+
+####  Rainwedell  
+##### 3913#       发表于 2023-11-4 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62940604&amp;ptid=1857369" target="_blank">csolfans 发表于 2023-11-4 23:31</a>
+请教一下问题。。。为啥CS2不能在16比9运行1980×1080分辨率。。。</blockquote>
+可以啊，你发个图，应该是1920✖️1080吧
+
+
+*****
+
+####  csolfans  
+##### 3914#       发表于 2023-11-5 00:34
+
+<blockquote>Rainwedell 发表于 2023-11-4 23:49
+可以啊，你发个图，应该是1920✖️1080吧</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202311/05/003436qxxb516vm1sm6xhm.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1699115665342.jpg</strong> (19.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-11-5 00:34 上传
+
+蚌埠住
+
+
+*****
+
+####  Rainwedell  
+##### 3915#       发表于 2023-11-5 00:57
+
+ 本帖最后由 Rainwedell 于 2023-11-5 01:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62940983&amp;ptid=1857369" target="_blank">csolfans 发表于 2023-11-5 00:34</a>
+蚌埠住</blockquote>
+你查一下是不是HDMI线导致的，换dp试试，换不了的话启动项输入 -w 1920 -h 1080强制锁定，还不行再加-vulkan（不推荐，高配电脑帧数表现会降低）,还不行进cfg文件夹的cs2_video里面找到setting.defaultres和setting.defaultresheight这两个参数改。
+
+
+*****
+
+####  csolfans  
+##### 3916#       发表于 2023-11-5 08:30
+
+<blockquote>Rainwedell 发表于 2023-11-5 00:57
+你查一下是不是HDMI线导致的，换dp试试，换不了的话启动项输入 -w 1920 -h 1080强制锁定，还不行再加-vul ...</blockquote>
+好的 ，谢谢坛友
+
+*****
+
+####  csolfans  
+##### 3917#       发表于 2023-11-5 08:31
+
+ 本帖最后由 csolfans 于 2023-11-5 08:32 编辑 
+<blockquote>Rainwedell 发表于 2023-11-5 00:57
+你查一下是不是HDMI线导致的，换dp试试，换不了的话启动项输入 -w 1920 -h 1080强制锁定，还不行再加-vul ...</blockquote>
+我昨天为了复现1080P，在笔记本屏幕输出时设置1080P再热插拔HDMI线输出到显示器，服了……
+
+
+*****
+
+####  heseran  
+##### 3918#       发表于 2023-11-6 23:31
+
+我超，niko留在G2了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 3919#       发表于 2023-11-6 23:37
+
+奥拉夫评论：fake A rush B<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ispep  
+##### 3920#       发表于 2023-11-7 10:08
+
+感觉去猎鹰机会还更大一点，如果谈了把好狙来的话
+
+*****
+
+####  doublehit  
+##### 3921#       发表于 2023-11-7 10:09
+
+我🦐伟大，无需多言。就看哥几个能不能恢复状态卫冕blast世决了。
+
+
+*****
+
+####  曼陀罗肥  
+##### 3922#       发表于 2023-11-7 10:40
+
+猎鹰有zonic还是有说法的，现在的g2想拿major总感觉还是差那么口气
+
+
+*****
+
+####  Rainwedell  
+##### 3923#       发表于 2023-11-7 12:35
+
+我是觉得两套阵容都差不多，主要看信不信Zonic魔法，🦐哥看上去不是特别信。最稳的拿冠方法除了去猎鹰也就是明年回faze替twistzz，不过也就想想。
+
+
+*****
+
+####  Katsukeimei  
+##### 3924#       发表于 2023-11-8 10:02
+
+上海cac马上开打了，有人看嘛，或者有人去嘛
+
+
+*****
+
+####  heseran  
+##### 3925#       发表于 2023-11-9 15:45
+
+完美行不行啊，faze和nip正加时加得焦灼呢，刚开局还在丢道具，直接全部传送回出生点重置加暂停？搞毛啊，选手都呆了。突然不精彩了。
+
+
+*****
+
+####  zpl123  
+##### 3926#       发表于 2023-11-10 00:52
+
+ 本帖最后由 zpl123 于 2023-11-10 00:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌了G2 jks板凳了
+
+
+*****
+
+####  wiig  
+##### 3927#       发表于 2023-11-10 08:36
+
+有人说是为了留下尼 从其他人工资开刀
+
+
+*****
+
+####  曼彻斯特联  
+##### 3928#       发表于 2023-11-10 09:09
+
+听说呼神也有可能离队，G2准备找回nexa，但不确定他的定位是rifle还是IGL。
+
+
+*****
+
+####  heseran  
+##### 3929#       发表于 2023-11-10 09:40
+
+下方jks找nexa是怎么想的？？？真把jks和呼吸踢了我直接期待niko和小孩去石油队。
+
+
+*****
+
+####  doublehit  
+##### 3930#       发表于 2023-11-10 10:24
+
+板凳jks找个有实力值得培养得小年轻还能理解，再把赌神找回来这不扯淡吗？再要是把呼吸踢了，只能说小孩再沉淀两年好好陪NIKO坐牢吧<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3931#       发表于 2023-11-10 15:04
+
+ 本帖最后由 Rainwedell 于 2023-11-10 15:05 编辑 
+
+还是g2活多，小道消息是把呼神踢了把Maden叫过来，转会期第二效果。尊重，祝福<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3932#       发表于 2023-11-10 15:04
+
+卡页
+
+
+*****
+
+####  heseran  
+##### 3933#       发表于 2023-11-11 15:10
+
+<img src="https://img.saraba1st.com/forum/202311/11/151016jaa82wnvzesspqcc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>456F353B-4A84-478B-8D38-DD5A6FE57C2F.jpeg</strong> (348.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-11 15:10 上传
+
+很难绷得住<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpl123  
+##### 3934#       发表于 2023-11-12 20:03
+
+上海major!
+
+*****
+
+####  雨中曲  
+##### 3935#       发表于 2023-11-12 20:05
+
+加仓！加仓！加仓！加仓！加仓！
+
+
+*****
+
+####  heseran  
+##### 3936#       发表于 2023-11-12 23:07
+
+S区的照片给我看笑了，看一场比赛高低得整个颈椎病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zpl123  
+##### 3937#       发表于 2023-11-12 23:52
+
+FAZE!
+
+*****
+
+####  Rainwedell  
+##### 3938#       发表于 2023-11-13 00:01
+
+太BT了，这种赛程顶住压力翻盘夺冠的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
