@@ -912,3 +912,31 @@ master license看着截图也有很基础的内容，不会是原来的那套然
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  allenz3  
+##### 1805#       发表于 2023-11-12 13:22
+
+买了普通版，有没有新手攻略？
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Fuero  
+##### 1806#       发表于 2023-11-12 13:30
+
+<blockquote>allenz3 发表于 2023-11-12 13:22
+买了普通版，有没有新手攻略？
+
+—— 来自 nubia NX712J, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+1、跟着咖啡馆（主线）一路玩下去
+
+2、驾校打基础，推荐手动挡
+
+3、展厅里可以浏览其他人上传的痛车贴，收藏后在GT Auto里换
+
+4、拍照系统可玩性很高
+
+5、坐上喜欢的车子去喜欢的赛道跑比赛或者随便什么模式都可以，享受纯粹的驾驶快乐，享受GT独特的韵味
+
