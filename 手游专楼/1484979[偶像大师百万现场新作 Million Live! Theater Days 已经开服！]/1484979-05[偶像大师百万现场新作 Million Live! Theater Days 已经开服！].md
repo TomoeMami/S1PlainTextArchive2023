@@ -2109,3 +2109,11 @@ MLTD公开发了以下两份「资料」：
 美希的发型卡一直到我270抽才出……真的是日了🐶，我是再补30换个啥好了还是罢休，尴尬。
 事件矿都挖完了！
 
+*****
+
+####  花开安菲路  
+##### 7243#       发表于 2023-11-12 14:08
+
+志保新ssr卡面这个胸，这就是14岁b83的实力吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/22851838709cf75c73b2cc575c91fd87/CMP_20231112140810337.jpg" referrerpolicy="no-referrer">
+
