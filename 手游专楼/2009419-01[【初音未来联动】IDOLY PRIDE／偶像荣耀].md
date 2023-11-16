@@ -460,3 +460,33 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">生日池又吃井了
 
+*****
+
+####  伊布桑  
+##### 797#         楼主| 发表于 2023-11-13 19:11
+
+卧槽，第二个是渚。
+还是青梅竹马系，夺舍琴乃是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  最强惠酱  
+##### 798#       发表于 2023-11-13 20:36
+
+明天开始好快，已经在期待第三弹了
+
+—— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  liyropen  
+##### 799#       发表于 2023-11-13 20:48
+
+卡图很劲<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">，3d衣装就一般了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
