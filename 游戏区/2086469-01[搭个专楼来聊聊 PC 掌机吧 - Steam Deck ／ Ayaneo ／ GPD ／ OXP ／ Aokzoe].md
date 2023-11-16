@@ -4131,3 +4131,41 @@ go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原�
 
 2023-11-6 11:05 上传
 
+*****
+
+####  张叔夜  
+##### 917#       发表于 2023-11-12 12:16
+
+二手区有个1700的ayaneo air plus，有点心动
+
+想问下现在win掌机对mmorpg支持度怎么样，比如说冒险岛和ff14，还有就是神之天平宿命残响这种不吃配置的游戏
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  bypass  
+##### 918#         楼主| 发表于 2023-11-13 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63020356&amp;ptid=2086469" target="_blank">张叔夜 发表于 2023-11-12 12:16</a>
+
+二手区有个1700的ayaneo air plus，有点心动</blockquote>
+6800u 那款？我感觉应该问题不大。
+
+
+*****
+
+####  bypass  
+##### 919#         楼主| 发表于 2023-11-13 18:02
+
+<img src="https://img.saraba1st.com/forum/202311/13/180222khmjln9l15jjcj5l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (249.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 18:02 上传
+
+之前一直在我机器上缺失的 900p 突然就出现了，我也没升级固件什么的。
+
