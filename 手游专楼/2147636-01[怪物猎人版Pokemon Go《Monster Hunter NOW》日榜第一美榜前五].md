@@ -2664,3 +2664,116 @@ Rathalos (urgent) G10/5[https://www.youtube.com/watch?v=BwhMpVD1T9k](https://www
 
 2023-11-11 02:49 上传
 
+*****
+
+####  y433wu  
+##### 156#         楼主| 发表于 2023-11-14 17:24
+
+mhnow提名TGA最佳手游。诸君，我想看乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/14/042247eququh3beuqdeu3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 17:22 上传
+
+投票地址：[https://thegameawards.com/nominees/best-mobile-game](https://thegameawards.com/nominees/best-mobile-game)
+
+
+*****
+
+####  dudideng  
+##### 157#       发表于 2023-11-14 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没一个想选的。
+几把几个星期一点提升没有，闲的开始随便做做属性武器来玩了。活动也基本都是现有的怪up，快顶不住了。
+
+— from Google Pixel 7 Pro, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  dudideng  
+##### 158#       发表于 2023-11-14 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怀疑被读心了，突然被提示无法登录账号了，是时候了
+
+
+*****
+
+####  y433wu  
+##### 159#         楼主| 发表于 2023-11-14 19:18
+
+ 本帖最后由 y433wu 于 2023-11-14 06:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63041281&amp;ptid=2147636" target="_blank">dudideng 发表于 2023-11-14 05:46</a>
+
+怀疑被读心了，突然被提示无法登录账号了，是时候了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">别走
+
+现在做每日养老挺好。12月份有大的
+
+
+*****
+
+####  y433wu  
+##### 160#         楼主| 发表于 2023-11-15 03:11
+
+來源:[https://reurl.cc/3eARDL](https://reurl.cc/3eARDL)
+
+感謝您遊玩《Monster Hunter Now》！
+
+本文收錄了於2023年11月14日發佈的版本的主要更新資訊。請注意，這份清單並未囊括所有更新項目。
+
+更新日期：2023年11月14日
+
+&lt;主要調整與變更&gt;
+
+新增了武器的排序和過濾功能。在裝備的武器列表中，點擊右下角的圖標即可顯示排序和過濾選項。
+
+排序：您可以按照武器的等級或攻擊力進行排序。
+
+過濾：您可以按照武器類型、屬性或收藏進行篩選。
+
+在裝備升級界面中，現在可以使用收藏功能。
+
+現在可以透過橫向滑動在任務的 Story 和 Special 之間切換。
+
+&lt;修復的問題&gt;
+
+大劍獨特的強力橫斬傷害數值不正確。
+
+大劍真·蓄力斬擊的第三階段傷害不正確。
+
+大劍蓄力斬擊時，在特定動作中受到怪物攻擊會導致摔倒或受擊倒地。
+
+防具「風飄龍腰甲」背面的繪製不正確。
+
+在Web Store購買物品的通知中，特製剝皮刀的信息缺失。
+
+在地圖上離開道路的位置，怪物和採集點只應該在訪問圈內出現，但由於畫面轉換，它們也會出現在訪問圈外。
+
+在狩獵蠻顎龍時，破壞部位後，蠻顎龍可能會在一段時間內保持站立而不動。
+
+&lt;改善的問題&gt;
+
+對於以下問題，我們已進行了改進，但若在更新至最新版本後仍發現問題，請通知我們。
+
+有時無法使用SP技能。
+
+應用程式可能會強制關閉。
+
+在隊伍狩獵中，有時怪物的顯示會意外消失。
+
+&lt;個人補充&gt;
+[https://reurl.cc/A0Wp5K](https://reurl.cc/A0Wp5K)
+
+大劍強力橫斬在充能等級1和2時造成的傷害高於預期。
+
+[https://reurl.cc/7MAna5](https://reurl.cc/7MAna5)
+
+大劍真・蓄力斬擊的第一次攻擊在充能等級3時造成的傷害低於預期。
+
+真蓄3從 22+278→34+278，強橫1 79→60 強橫2 90→79 強橫3 90→90
+
