@@ -14790,3 +14790,186 @@ V转过来就是7，懂了！七爷1999，欧米茄档案是吧，期待下参�
 —— 来自 S1Fun</blockquote>
 罗布刚开播时中后期及最终BOSS玩具图就流出来了
 
+*****
+
+####  hulaoda007  
+##### 1387#       发表于 2023-11-11 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">扎姆夏？！
+
+
+*****
+
+####  游蜓  
+##### 1388#       发表于 2023-11-11 10:33
+
+这集真不错，结尾反转那里我一开始也没想到，情绪还挺到位的
+
+不过战斗部分能加两句台词解说下可能会更好懂，全靠肢体语言和画面表达稍微还是有点滑稽
+
+*****
+
+####  novyDC  
+##### 1389#       发表于 2023-11-11 10:40
+
+怨念型可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  水边井  
+##### 1390#       发表于 2023-11-11 11:12
+
+这集真浪漫啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sokukei  
+##### 1391#       发表于 2023-11-11 11:47
+
+阿斯加隆——
+
+
+*****
+
+####  锐鬼niki  
+##### 1392#       发表于 2023-11-11 13:50
+
+今年分尸怪兽的次数意外的多啊
+
+
+*****
+
+####  haoshion  
+##### 1393#       发表于 2023-11-11 14:27
+
+这集一如既往的欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+阿斯加隆别划水了，再划水裙子队要解散了<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  acejoe  
+##### 1394#       发表于 2023-11-11 14:38
+
+有点平成老奥的风格了，传统的武士回。
+
+
+*****
+
+####  athena_1982  
+##### 1395#       发表于 2023-11-11 14:46
+
+扎姆夏返场真是意外的惊喜啊
+
+这集就是特摄时代剧了，特别精髓的就是那若隐若现的服务生爱情
+
+真好看<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 1396#       发表于 2023-11-11 19:36
+
+怨灵附身是这集唯一的败笔，为了演一出经典武士打戏强行跳反
+
+虹蛇神不会这次被彻底消灭了吧，看来所谓的神也只是个怨念更强的恶灵
+
+
+*****
+
+####  待宵  
+##### 1397#       发表于 2023-11-11 19:55
+
+讲道理这集看的我DNA打结了
+
+
+*****
+
+####  Case  
+##### 1398#       发表于 2023-11-11 21:03
+
+不错的一集单元回。
+
+搞笑的部分也有、浪漫的部分也有、打戏壁纸也喜加一了。
+
+
+*****
+
+####  Sleipnirω  
+##### 1399#       发表于 2023-11-11 22:36
+
+这集可以啊，扎姆夏露脸，而且再次利用了制作精良的彩虹神皮套，玩了之前没怎么用的尾巴
+
+
+*****
+
+####  喷火飞龙  
+##### 1400#       发表于 2023-11-12 17:04
+
+布莱泽质量太稳定了！
+
+期待下集的惠美<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 1401#       发表于 2023-11-13 09:04
+
+斩鸡儿右手拿咖啡杯可是他右手其实是剑啊……
+
+推特上说咖啡店老太太是出演过归曼的，时隔近五十年再次出演也太情怀了吧
+
+
+*****
+
+####  RainbowSealife  
+##### 1402#       发表于 2023-11-14 18:48
+
+<img src="https://img.saraba1st.com/forum/202311/14/184036wi55etzet35el5e9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.54 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 18:40 上传
+
+补了梦比优斯第16集，我寻思扎姆夏这一刀也没插中啊？怎么巴尔吉星人就无念了？一定是星斩丸太劲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+斩基尔这集说是致敬回也差点意思，毕竟扎姆夏连个正脸也没露，也没交代清楚为什么让斩基尔去超度怪兽亡灵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 1403#       发表于 2023-11-14 22:28
+
+108头怪兽出自佛教的百八烦恼
+
+<img src="https://p.sda1.dev/14/7b5e81455bb32e4acac3c8f7f5341732/CMP_20231114222805324.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 1404#       发表于 2023-11-14 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63041305&amp;ptid=2104492" target="_blank">RainbowSealife 发表于 2023-11-14 18:48</a>
+
+补了梦比优斯第16集，我寻思扎姆夏这一刀也没插中啊？怎么巴尔吉星人就无念了？一定是星斩丸太劲了 ...</blockquote>
+大概是扎姆夏杀死斩基尔后发现变成了不死的怨灵，于是给他个任务修身养性，理由可以是修炼或者什么之类的借口，后来在净化各种亡灵的过程中逐渐对战败的不甘释怀，石头能量也耗尽了顺利成佛
+
+
+*****
+
+####  阿刚  
+##### 1405#       发表于 2023-11-15 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">斩不死虹蛇神我觉得挺合理的，人家本身其实算是守护灵被你强行拉起来肯定得生气吧
+
