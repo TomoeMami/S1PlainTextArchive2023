@@ -745,3 +745,56 @@ https://ponycanyon.zaiko.io/e/starlight-bandlive
 我也…不想输给小光
 <img src="https://p.sda1.dev/14/18a0abc2955478da1aaa13f6830237e9/IMG_CMP_181561023.jpeg" referrerpolicy="no-referrer">
 
+*****
+
+####  爱丁堡official  
+##### 774#       发表于 2023-11-13 12:30
+
+不知道发哪里，先发这里吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这是把两年的推删完了吗？12.2看看有没有新东西
+<img src="https://p.sda1.dev/14/f5de70beee7e3d5833ad551441420458/IMG_CMP_172424758.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NAM-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  NZ-333  
+##### 775#       发表于 2023-11-13 12:34
+
+斜线堂的那个企划？
+
+
+*****
+
+####  爱丁堡official  
+##### 776#       发表于 2023-11-13 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63029370&amp;ptid=2043629" target="_blank">NZ-333 发表于 2023-11-13 12:34:37</a>
+斜线堂的那个企划？</blockquote>是，古川现在在做的估计只有这个了，2021.12.2放的pv
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bakabaka999  
+##### 777#       发表于 2023-11-15 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63029334&amp;ptid=2043629" target="_blank">爱丁堡official 发表于 2023-11-13 12:30</a>
+不知道发哪里，先发这里吧
+这是把两年的推删完了吗？12.2看看有没有新东西</blockquote>
+有种被盗号的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+发了条 NTT Fiber 的类似于广告的东西秒删，然后现在在发元宇宙数字生命
+
+
+*****
+
+####  爱丁堡official  
+##### 778#       发表于 2023-11-15 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63049478&amp;ptid=2043629" target="_blank">bakabaka999 发表于 2023-11-15 17:40:21</a>
+有种被盗号的感觉
+发了条 NTT Fiber 的类似于广告的东西秒删，然后现在在发元宇宙数字生命 ...</blockquote>还好吧，剧场版开播前转发马斯克搞火箭，最后剧场版也弄火箭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
