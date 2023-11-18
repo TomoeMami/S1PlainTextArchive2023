@@ -506,3 +506,216 @@ DLC比本体要直白的多，跟着幻灯片一步一步收集线索自然而�
 
 可惜出xgp了，不然就有乐子看了，好在无人深空还在
 
+*****
+
+####  fdodo  
+##### 1131#         楼主| 发表于 2023-11-15 04:42
+
+《星际拓荒：Archaeologist Edition》将于12月7日登陆NS平台，现已开放预购。该版本游戏除了包含本体外，还囊括了“Echoes of the Eye”扩展包 #星际拓荒登陆switch# http://t.cn/A6W8XG4U ​​​
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  体质的错  
+##### 1132#       发表于 2023-11-15 04:57
+
+真神即将降临switch
+
+
+*****
+
+####  BREEEEZE  
+##### 1133#       发表于 2023-11-15 06:43
+
+再买一份，掌机模式应该不会晕眼之回响了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chaos7  
+##### 1134#       发表于 2023-11-15 06:55
+
+等一个评测，之前玩过xgp的本篇，如果移植效果好，买回来补完DLC。
+
+
+*****
+
+####  mjzs07  
+##### 1135#       发表于 2023-11-15 09:45
+
+跟星空一个类型吗 星空我觉得已经非常浪漫了耶
+
+
+*****
+
+####  astrayveller  
+##### 1136#       发表于 2023-11-15 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045052&amp;ptid=1992654" target="_blank">mjzs07 发表于 2023-11-15 09:45</a>
+跟星空一个类型吗 星空我觉得已经非常浪漫了耶</blockquote>
+星空。。在星际拓荒面前不值一提
+
+*****
+
+####  嘉术2015  
+##### 1137#       发表于 2023-11-15 10:10
+
+这种游戏上ns帧数不高的话感觉就是3d催吐剂
+
+
+*****
+
+####  时之放浪者  
+##### 1138#       发表于 2023-11-15 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045052&amp;ptid=1992654" target="_blank">mjzs07 发表于 2023-11-15 09:45</a>
+
+跟星空一个类型吗 星空我觉得已经非常浪漫了耶</blockquote>
+不是一个类型，更不是一个级别。
+
+星际拓荒整体立意和玩法设计上要比星空高几个档次了。
+
+
+*****
+
+####  尘落樱飞  
+##### 1139#       发表于 2023-11-15 10:32
+
+Ns版有实体吗？
+
+*****
+
+####  BREEEEZE  
+##### 1140#       发表于 2023-11-15 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045052&amp;ptid=1992654" target="_blank">mjzs07 发表于 2023-11-15 09:45</a>
+跟星空一个类型吗 星空我觉得已经非常浪漫了耶</blockquote>
+星际拓荒全方位吊打星空，不管是玩法、剧情还是演出<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clyde-wang  
+##### 1141#       发表于 2023-11-15 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045523&amp;ptid=1992654" target="_blank">尘落樱飞 发表于 2023-11-15 10:32</a>
+Ns版有实体吗？</blockquote>
+有实体，不过是明年了
+
+
+*****
+
+####  Rebirth_DAN  
+##### 1142#       发表于 2023-11-15 10:53
+
+怎么说呢 星空是披着太空皮的辐射的那一套老东西 星际拓荒更像是是老塞尔达的那种箱庭解谜 
+
+*****
+
+####  liangyi345  
+##### 1143#       发表于 2023-11-15 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045743&amp;ptid=1992654" target="_blank">Rebirth_DAN 发表于 2023-11-15 10:53</a>
+
+怎么说呢 星空是披着太空皮的辐射的那一套老东西 星际拓荒更像是是老塞尔达的那种箱庭解谜  ...</blockquote>
+主催就是塞尔达老粉了 
+
+说这游戏主要来源于天空之剑 而不是梅祖拉 
+
+DLC里还放了个呀哈哈
+
+
+*****
+
+####  比比巴巴波  
+##### 1144#       发表于 2023-11-15 11:31
+
+我要再重复一遍，汪淼玩三体游戏时的震撼，就是我玩星际拓荒的感受
+
+
+*****
+
+####  Motoko-9  
+##### 1145#       发表于 2023-11-15 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045052&amp;ptid=1992654" target="_blank">mjzs07 发表于 2023-11-15 09:45</a>
+跟星空一个类型吗 星空我觉得已经非常浪漫了耶</blockquote>
+星空給这游戏提鞋都不配
+
+
+*****
+
+####  barry.allen  
+##### 1146#       发表于 2023-11-15 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59877410&amp;ptid=1992654" target="_blank">秘银mithril 发表于 2023-2-24 22:48</a>
+
+本体+DLC通关了
+
+确实是个好游戏，非常值得玩
+
+核心的解谜做的很好</blockquote>
+DLC主要还是最后要折回游戏原结局，受了限制，直接买了完全版先打DLC再通结局就通了
+
+*****
+
+####  barry.allen  
+##### 1147#       发表于 2023-11-15 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57101153&amp;ptid=1992654" target="_blank">大夏凉雀 发表于 2022-8-17 12:02</a>
+
+之前玩到进入一个全是风暴海洋的星球内部，要控制飞船进入水母体内，靠水母进入地核时，持续了将近3小时， ...</blockquote>
+不需要飞船，你直接肉身进
+
+
+*****
+
+####  壳壳牛  
+##### 1148#       发表于 2023-11-15 16:42
+
+来烤棉花糖吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  平昭·南宫司卿  
+##### 1149#       发表于 2023-11-15 16:48
+
+我就感觉一开始很多人对星空的期待就是，能做出 outer wilds 浪漫感的贝塞式 rpg，但这用脚指头想都是不可能的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  体质的错  
+##### 1150#       发表于 2023-11-15 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63046133&amp;ptid=1992654" target="_blank">Motoko-9 发表于 2023-11-14 23:32</a>
+
+星空給这游戏提鞋都不配</blockquote>
+
+言重了，应该说近10年95%的游戏都没法给星际拓荒提鞋，虽然我没玩过那么多游戏，但凭直觉是的。
+
+
+*****
+
+####  星花  
+##### 1151#       发表于 2023-11-15 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63049014&amp;ptid=1992654" target="_blank">体质的错 发表于 2023-11-15 16:58</a>
+
+言重了，应该说近10年95%的游戏都没法给星际拓荒提鞋，虽然我没玩过那么多游戏，但凭直觉是的。 ...</blockquote>
+一年游戏千千万，能玩的没几个，95%可能连及格线都没到<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  落油Я  
+##### 1152#       发表于 2023-11-15 17:33
+
+微博上看到有视频，感觉画面阉割了不少，我反正是体会不到浪漫的感觉了
+
+话说之前是在epic上买的，本体通关以后怎么都找不到DLC下载
+
+然后过了段时间又自动给我推送更新了，但那时候我都去玩别的了，epic真的是领了都不一定玩
+
