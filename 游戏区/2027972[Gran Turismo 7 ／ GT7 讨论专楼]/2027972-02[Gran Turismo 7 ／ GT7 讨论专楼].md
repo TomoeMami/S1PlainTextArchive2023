@@ -940,3 +940,92 @@ master license看着截图也有很基础的内容，不会是原来的那套然
 
 5、坐上喜欢的车子去喜欢的赛道跑比赛或者随便什么模式都可以，享受纯粹的驾驶快乐，享受GT独特的韵味
 
+*****
+
+####  Totokei  
+##### 1807#       发表于 2023-11-15 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">更新之后每天休闲打两关大师驾照，说说感想
+
+首先手柄AT TCS1
+
+国内B都是基础题，没啥容错空间
+
+国内A和国际B难度不大，基本能初见差0.2 0.3多跑几把提升
+
+国际A现在跑到IA5，都很阴间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鱼肉丸子  
+##### 1808#       发表于 2023-11-16 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次更新后突然感觉循迹刹车有点感觉了，然后就把sq排档修好开始H档买菜车巡游纽北
+
+哎 赶紧更新点城市赛道呀
+
+
+*****
+
+####  一个陆仁贾  
+##### 1809#       发表于 2023-11-16 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63052125&amp;ptid=2027972" target="_blank">Totokei 发表于 2023-11-15 23:22</a>
+更新之后每天休闲打两关大师驾照，说说感想
+
+首先手柄AT TCS1</blockquote>
+同是手柄但是tcs0跟你感觉有点不同，感觉b和a有个别赛道能卡挺久，不过我是从零开始练手柄动态感应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在s随便摸了一下，感觉动态和摇杆的操控水平都提升了很多
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  WhiteGlint  
+##### 1810#       发表于 2023-11-16 11:18
+
+感觉后驱车不开tcs好容易失控，这几天补普通驾照不开tcs被拷打了
+
+*****
+
+####  byisme001  
+##### 1811#       发表于 2023-11-16 11:22
+
+2000年之后的车是不是就没有只能在传奇车和二手车才能买到的了，展厅里都有卖了
+
+
+*****
+
+####  Totokei  
+##### 1812#       发表于 2023-11-16 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63052676&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2023-11-16 00:52</a>
+
+同是手柄但是tcs0跟你感觉有点不同，感觉b和a有个别赛道能卡挺久，不过我是从零开始练手柄动态感应[f:067 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是休闲局该开就开，IA4那SLR就算开了TCS1也是一出弯给油就滑
+
+
+*****
+
+####  Totokei  
+##### 1813#       发表于 2023-11-16 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">IA7一看封面雨天勒芒老法拉利还以为阴间到极致，没想到太苟了直接初见金牌
+
+然后今天马拉松抽了个六星的零件券，抽完一看价值16500的R35刹车<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一个陆仁贾  
+##### 1814#       发表于 2023-11-16 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63060097&amp;ptid=2027972" target="_blank">Totokei 发表于 2023-11-16 20:21</a>
+我是休闲局该开就开，IA4那SLR就算开了TCS1也是一出弯给油就滑</blockquote>
+那车基本上是方向盘掰直才能缓慢踩油门，其他时候你油门顶踩一点让车子能被往前推就行了
+
+BV1DQ4y1n7nP
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
