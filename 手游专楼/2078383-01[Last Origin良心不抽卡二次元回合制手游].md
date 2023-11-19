@@ -1073,3 +1073,12 @@ asmr第二弹出了
 —— 来自 samsung SM-S9110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
 
+*****
+
+####  铁火辉夜  
+##### 101#       发表于 2023-11-16 16:17
+
+[https://www.last-origin.com/news_view.html?no=539&amp;pg=1](https://www.last-origin.com/news_view.html?no=539&amp;pg=1)
+
+日服22号开战国之刃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都连着好几个讨好新人的弱保软活动了，除了补捞个日灵以外毫无吸引力
+
