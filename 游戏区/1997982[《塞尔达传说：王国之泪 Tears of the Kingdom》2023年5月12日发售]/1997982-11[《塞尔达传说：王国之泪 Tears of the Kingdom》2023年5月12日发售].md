@@ -6880,3 +6880,145 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 2023-11-10 15:02 上传
 
+*****
+
+####  Uqing  
+##### 15582#       发表于 2023-11-15 11:54
+
+鬼手出来的时候周围的怪物竟然会即死
+可惜大部分手手不和精英怪一个区不然速刷材料了
+
+*****
+
+####  子夜的黑暗  
+##### 15583#       发表于 2023-11-15 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63004428&amp;ptid=1997982" target="_blank">马桶3 发表于 2023-11-10 15:03:00</a>
+问一下各位大佬，之前收了一张官方壁纸做手机屏保，想问一下有没有两人最终手牵到手的版本呢？
+
+ ...</blockquote>这是开局吧，牵手的版本得到结尾了，还得把link扒光，塞尔达换身衣服
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  siro1987  
+##### 15584#       发表于 2023-11-15 17:58
+
+[https://www.bilibili.com/video/BV1tj411a7yA/](https://www.bilibili.com/video/BV1tj411a7yA/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">无限耐久翼
+[https://www.youtube.com/watch?v=eSgApaTKqiA&amp;ab_channel=King-X](https://www.youtube.com/watch?v=eSgApaTKqiA&amp;ab_channel=King-X)
+
+获得方法(油土鳖)
+
+
+*****
+
+####  冷泉夜月  
+##### 15585#       发表于 2023-11-16 10:52
+
+<img src="https://img.saraba1st.com/forum/202311/16/105015owl407l70u83zx71.jpg" referrerpolicy="no-referrer">
+
+<strong>大师剑.jpg</strong> (263.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 10:50 上传
+
+《塞尔达传说》× 万代 PROPLICA ，”大师之剑”  商品化决定。
+
+原型将在明天的 TAMASHII NATION 2023 进行首次展出。 
+
+代哥终于来了，最大卖点应该还是内置声光，看看有没有：开光+林克塞尔达语音+嗡嗡音效+各种BGM<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 15586#       发表于 2023-11-16 10:54
+
+<img src="https://img.saraba1st.com/forum/202311/16/105336pjtnwqgnn3xngdgt.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20231116105303329.jpg</strong> (63.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 10:53 上传
+
+马里奥rpg里的林克，对话后会有经典音乐
+
+*****
+
+####  Junakr  
+##### 15587#       发表于 2023-11-16 10:55
+
+会内置法伊语音吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  冷泉夜月  
+##### 15588#       发表于 2023-11-16 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63054826&amp;ptid=1997982" target="_blank">Junakr 发表于 2023-11-16 10:55</a>
+
+会内置法伊语音吗。</blockquote>
+法伊的语音其实不就是那个音效，没准真有也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  king520kyo  
+##### 15589#       发表于 2023-11-16 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62927424&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-11-3 17:03</a>
+
+不过话又说回来，反正所有amiibo的剑到最后都会弯的，晚弯不如早弯
+
+记得网上好像看到过修复的办法， ...</blockquote>
+拿吹风机吹一下或者热水里泡泡不就完事了
+
+
+*****
+
+####  在这停顿  
+##### 15590#       发表于 2023-11-16 14:59
+
+已经盖了520页楼了！
+
+
+*****
+
+####  Junakr  
+##### 15591#       发表于 2023-11-16 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63054835&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-11-16 10:56</a>
+
+法伊的语音其实不就是那个音效，没准真有也不一定</blockquote>
+法伊的声音应该也算合成语音吧，岛村侑也确认过法伊也是她配的。
+主要就是想听法伊再喊我一声 master。
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15592#       发表于 2023-11-16 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63054798&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-11-16 10:52</a>
+
+《塞尔达传说》× 万代 PROPLICA ，”大师之剑”  商品化决定。
+
+原型将在明天的 TAMASHII NATION 2023 进 ...</blockquote>
+哇感觉我可以专心等这个了！
+
+*****
+
+####  king520kyo  
+##### 15593#       发表于 2023-11-16 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63057276&amp;ptid=1997982" target="_blank">Junakr 发表于 2023-11-16 15:06</a>
+
+法伊的声音应该也算合成语音吧，岛村侑也确认过法伊也是她配的。
+主要就是想听法伊再喊我一声 master ...</blockquote>
+他说的大概是野炊开始那个嗡嗡嗡的音效 天剑版那种估计是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
