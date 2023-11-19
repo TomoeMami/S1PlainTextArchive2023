@@ -4862,3 +4862,1776 @@ Z本身系统是完整的（尽管问题不少）
 
 不算OP，应该是放在DLC STAFF列表里播放的
 
+*****
+
+####  qiyu1234  
+##### 6628#       发表于 2023-11-7 08:45
+
+《破晓传说》新DLC宣传视频 历代角色服装与重编版BGM
+[https://www.bilibili.com/video/BV1az4y1A7W8/](https://www.bilibili.com/video/BV1az4y1A7W8/)
+
+该DLC将于11月9日上架单独售卖
+
+（话说重编曲原来是指的AR和AR DLC故事的战斗曲重编曲。。。）
+
+*****
+
+####  qiyu1234  
+##### 6629#       发表于 2023-11-7 08:50
+
+ 本帖最后由 qiyu1234 于 2023-11-7 08:51 编辑 
+
+顺便欧美民间把TOIR（圣洁传说R）的英文化补丁（TOIR没有在欧美正式发行过）做了以后顺带做了高清材质（好像主系列英文化快做完了，欧美粉丝行动力爆表啊）
+
+欧美民间制作 TOIR 高清材质包使用方法（VITA3K模拟器可用，PSV实机不可用）
+
+原帖
+[https://www.reddit.com/r/tales/c ... an_project_english/](https://www.reddit.com/r/tales/comments/17ogjtr/tales_of_innocence_r_hd_fan_project_english/)
+
+高清材质包下载地址
+[https://www.mediafire.com/file_p ... xtures_Beta.7z/file](https://www.mediafire.com/file_premium/rbp7rga09frne6g/ToIR_HDtextures_Beta.7z/file)
+
+英文补丁项目地址（实测高清材质包不需要英文补丁也可使用，这个根据玩家实际需要来决定）
+[https://github.com/lifebottle/Tales-of-Innocence-R](https://github.com/lifebottle/Tales-of-Innocence-R)
+
+1.打开VITA3K模拟器（注意保持模拟器是最新版本），菜单选择 配置-设置 点开 GPU选项卡，下面的Import textures打上✔，然后保存并关闭
+
+（注意这个页面的Internal resolution Upscaling，根据需要和配置拉高而不是保持默认分辨率，否则高清材质包效果不明显）
+
+2.在VITA3K模拟器目录下新建textures文件夹，文件夹内新建import文件夹，把下载好的高清材质包压缩包里的PCSG00009文件夹放到这个里面
+
+3.重新进入模拟器开始游戏
+
+<img src="https://img.saraba1st.com/forum/202311/07/084906vdwwc4tg844gtcgg.jpg" referrerpolicy="no-referrer">
+
+<strong>0.jpg</strong> (303.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/084906pdf44odww4vm44ig.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (261.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/084907i79q7813cc923ozc.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (217.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/084907jmi7a57658a34ycc.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (178.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 08:49 上传
+
+<img src="https://img.saraba1st.com/forum/202311/07/084907bkla93ez5l1e8s9l.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (391.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-7 08:49 上传
+
+
+*****
+
+####  新世界的派蒙  
+##### 6630#       发表于 2023-11-7 10:53
+
+联动历代衣服，会不会有新技能，双针乱舞啥的.....拜托来个新技能吧
+
+
+*****
+
+####  qiyu1234  
+##### 6631#       发表于 2023-11-7 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62965240&amp;ptid=1860328" target="_blank">新世界的派蒙 发表于 2023-11-7 10:53</a>
+
+联动历代衣服，会不会有新技能，双针乱舞啥的.....拜托来个新技能吧</blockquote>
+没有
+
+*****
+
+####  zpower  
+##### 6632#       发表于 2023-11-7 11:23
+
+有新技能还不宣传，多数是没有了。
+
+
+*****
+
+####  CALPISSODA  
+##### 6633#       发表于 2023-11-7 12:24
+
+<blockquote>zpower 发表于 2023-11-7 11:23
+有新技能还不宣传，多数是没有了。</blockquote>
+看那个带新主题曲的宣传片估计是没有了，都是原来的合体技剪辑画面，感觉这DLC就是个纯剧情补丁，顺便给续作留个伏笔。
+
+*****
+
+####  DelayNoMore  
+##### 6634#       发表于 2023-11-7 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62966587&amp;ptid=1860328" target="_blank">CALPISSODA 发表于 2023-11-7 12:24</a>
+
+看那个带新主题曲的宣传片估计是没有了，都是原来的合体技剪辑画面，感觉这DLC就是个纯剧情补丁，顺便给 ...</blockquote>
+有啥续作好出啊，难不成阿尔芬跟西侬的孩子当男主？学宿命2？
+
+
+*****
+
+####  法拉  
+##### 6635#       发表于 2023-11-7 12:33
+
+真的想多，也就是豪华版的toz 1300dlc，奖杯说明也是传说经典的各回各家各找各妈罢了
+
+
+*****
+
+####  kurosophie  
+##### 6636#       发表于 2023-11-7 23:00
+
+历代换装是包含在3000多的dlc里吗，为什么我找了一晚上没找到orz
+
+*****
+
+####  qiyu1234  
+##### 6637#       发表于 2023-11-7 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62973827&amp;ptid=1860328" target="_blank">kurosophie 发表于 2023-11-7 23:00</a>
+
+历代换装是包含在3000多的dlc里吗，为什么我找了一晚上没找到orz</blockquote>
+11月9日上架单独售卖
+
+
+*****
+
+####  宛若青空  
+##### 6638#       发表于 2023-11-8 18:53
+
+PS可以预载了，PS4 13G
+更新说明还提到了追加语言，应该是简中
+还有实装了照相模式
+
+
+*****
+
+####  司马千晶  
+##### 6639#       发表于 2023-11-8 20:52
+
+希望Dlc复刻奥尔芬大战小龙虾这种阴间活儿，搞点乐子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 6640#       发表于 2023-11-8 20:56
+
+这次上Steam版，ps5借出去了
+
+
+*****
+
+####  LT_Harry  
+##### 6641#         楼主| 发表于 2023-11-8 22:03
+
+PC 早上七点解锁<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">先打个🈚名之🐲压压惊
+
+*****
+
+####  塔奇克马  
+##### 6642#       发表于 2023-11-8 22:06
+
+ 本帖最后由 塔奇克马 于 2023-11-8 22:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没想到出dlc了...正片打到阿三坑到现在了,纠结要不要补..
+
+
+*****
+
+####  空洞骑士  
+##### 6643#       发表于 2023-11-8 22:19
+
+明天早上7点解锁，steam没预载，电脑挂着下班回来玩吧，请假玩绝对后悔死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。话说为什么没有评分啊？
+
+
+*****
+
+####  kurosophie  
+##### 6644#       发表于 2023-11-8 22:42
+
+在想明天要不要请假，玩了20年传说就这么一作正好撞上自己生日，虽然就是个dlc
+
+
+*****
+
+####  Piano-Forest  
+##### 6645#       发表于 2023-11-8 23:04
+
+-炎が新たな壁となり 忘れられた仮面が目覚める -
+
+Tales of ARISE - Beyond the Dawn 本日発売！！ 
+
+夜明けの先に進んでいく彼らの旅を、
+
+どうぞ一緒に見届けてください。 
+<img src="https://p.sda1.dev/14/c8a74cc55929b2e04a20fe5778bcb7a8/20231108_230226.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/6edd724785cdb98f3ff28903f54914c7/20231108_230233.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 6646#       发表于 2023-11-8 23:10
+
+等坛友评价了
+toar这剧情实在让人敬谢不敏，dlc还是剧情主导向的……
+
+
+*****
+
+####  zero12  
+##### 6647#       发表于 2023-11-8 23:14
+
+希侬这个吊带袜有点色
+
+*****
+
+####  火红之眼  
+##### 6648#       发表于 2023-11-8 23:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">65级开局，战斗BGM倒是换了，就是这100级奖励.....就只是初期武器换色.....
+
+
+*****
+
+####  qiyu1234  
+##### 6649#       发表于 2023-11-8 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62985897&amp;ptid=1860328" target="_blank">kurosophie 发表于 2023-11-8 22:42</a>
+
+在想明天要不要请假，玩了20年传说就这么一作正好撞上自己生日，虽然就是个dlc ...</blockquote>
+不值得请假
+
+*****
+
+####  qiyu1234  
+##### 6650#       发表于 2023-11-8 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62985676&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2023-11-8 22:19</a>
+
+明天早上7点解锁，steam没预载，电脑挂着下班回来玩吧，请假玩绝对后悔死。话说为什么没有评分啊？ ...</blockquote>
+MC 目前 5媒体 73分
+
+*****
+
+####  qiyu1234  
+##### 6651#       发表于 2023-11-8 23:55
+
+确实没想到这DLC可以在巨体BOSS这块超级加倍，看来制作组是真的觉得这块体验不错
+
+*****
+
+####  猫将军  
+##### 6652#       发表于 2023-11-9 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62986755&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-8 23:55</a>
+确实没想到这DLC可以在巨体BOSS这块超级加倍，看来制作组是真的觉得这块体验不错 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">什么意思？系统几乎没改良吗？
+
+
+*****
+
+####  医生狼多  
+##### 6653#       发表于 2023-11-9 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62986755&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-8 23:55</a>
+确实没想到这DLC可以在巨体BOSS这块超级加倍，看来制作组是真的觉得这块体验不错 ...</blockquote>
+啊？
+
+
+*****
+
+####  Rainwedell  
+##### 6654#       发表于 2023-11-9 00:36
+
+看了当前的媒体评测，感觉质量和我之前猜的差不多，这个企划的意义就是拖时间和宰钱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，做这个能耗费传说组多少资源我是不信的。
+
+
+*****
+
+####  qiyu1234  
+##### 6655#       发表于 2023-11-9 01:00
+
+不管用了多少资源总之续作不能再这么做了，赶紧往回找补
+
+现在真担心这个系列就这么给玩死
+
+
+*****
+
+####  火红之眼  
+##### 6656#       发表于 2023-11-9 01:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">暂时玩下来是0改善，素材全是本篇的，基本就是现捏了个后日谈，甚至CP开门这种糟粕都还留着
+
+不过这种后日谈特有的老熟人小对话还算有趣，但卖4000我觉得是不值的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 6657#       发表于 2023-11-9 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62987209&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-9 01:00</a>
+不管用了多少资源总之续作不能再这么做了，赶紧往回找补
+
+现在真担心这个系列就这么给玩死</blockquote>
+倒不必这么悲观，这个dlc我觉得用户定位很精准，掏出来试探主力用户群体的，卖烂了多半就回头了，怕的是卖的还行，那姨姥可以都滚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CALPISSODA  
+##### 6658#       发表于 2023-11-9 07:12
+
+本篇在PS4玩的，现在转战XBOX了，想玩高帧数又不想重买一遍本篇，只能回去忍受PS4版了
+
+
+*****
+
+####  司马千晶  
+##### 6659#       发表于 2023-11-9 07:46
+
+冷饭合集安排起来吧
+
+
+*****
+
+####  lazycat233  
+##### 6660#       发表于 2023-11-9 08:19
+
+真就战斗系统一点没改，纯拿本体素材拼的内容么
+
+
+*****
+
+####  新世界的派蒙  
+##### 6661#       发表于 2023-11-9 08:36
+
+不继承本篇么，有点尬阿
+
+*****
+
+####  zero4166  
+##### 6662#       发表于 2023-11-9 09:48
+
+没有新的可控角色，没有新技能，没有新系统，就这个完全可以放到本体里的东西，居然让你新开档再从头开始体验一遍这个无聊的战斗系统，万代真是太棒啦
+
+
+*****
+
+####  Rainwedell  
+##### 6663#       发表于 2023-11-9 10:10
+
+拿远程串流看了眼，steam版简中还没加的？
+
+
+*****
+
+####  云梦泽岸  
+##### 6664#       发表于 2023-11-9 10:40
+
+不继承本篇可能是怕暴露流程太短的缺点吧，不靠战斗系统让你刷刷刷撑不起时长。
+
+
+*****
+
+####  byisme001  
+##### 6665#       发表于 2023-11-9 10:59
+
+本体的那些作弊dlc在剧情dlc里可用吗
+
+*****
+
+####  focus  
+##### 6666#       发表于 2023-11-9 11:01
+
+轰霸斩削了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火红之眼  
+##### 6667#       发表于 2023-11-9 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62989901&amp;ptid=1860328" target="_blank">byisme001 发表于 2023-11-9 10:59</a>
+本体的那些作弊dlc在剧情dlc里可用吗</blockquote>
+本体的都能用，看买了本体等级dlc的朋友说也能直接领，不过实际就只升35级(
+
+
+*****
+
+####  火红之眼  
+##### 6668#       发表于 2023-11-9 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62989627&amp;ptid=1860328" target="_blank">云梦泽岸 发表于 2023-11-9 10:40</a>
+不继承本篇可能是怕暴露流程太短的缺点吧，不靠战斗系统让你刷刷刷撑不起时长。 ...</blockquote>
+刷刷刷这方面，敌人掉的素材和能做的装备都是本篇后期顶配那种了，大多素材能直接买，但要用到稍微低一两档的素材反而难搞……感觉就是直接套本篇数据没调整过
+
+
+*****
+
+####  云梦泽岸  
+##### 6669#       发表于 2023-11-9 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62990020&amp;ptid=1860328" target="_blank">火红之眼 发表于 2023-11-9 11:07</a>
+刷刷刷这方面，敌人掉的素材和能做的装备都是本篇后期顶配那种了，大多素材能直接买，但要用到稍微低一两 ...</blockquote>
+那就是纯粹做个后日谈圈钱？早不玩分割商法，现在才想起来？
+
+
+*****
+
+####  zpower  
+##### 6670#       发表于 2023-11-9 11:38
+
+如龙外传今天也出了，要和如龙拼一波?
+
+
+*****
+
+####  新世界的派蒙  
+##### 6671#       发表于 2023-11-9 11:57
+
+记得本篇后期轰霸斩都不是啥无脑了，女主三疾风无限复读动都不用动.....
+
+*****
+
+####  qiyu1234  
+##### 6672#       发表于 2023-11-9 11:59
+
+ 本帖最后由 qiyu1234 于 2023-11-9 12:02 编辑 
+
+本体能用的DLC 黎明新程都能用，包括SAO合作的那个DLC，不过要重新去竞技场打，竞技场多了些战斗
+
+最恶心的地方还是SP和饰品要重刷
+
+等级的话我上来领完DLC就满级了
+
+黎明新程迷宫里增加了一种专门提供大量SP的史莱姆野外强敌，伤害很高，但血量很少就几百点，当然玩家打上去也是1滴血，好像可以金BREAK连？不确定，但火刀BA打上去是强敌的缚地
+
+
+*****
+
+####  CALPISSODA  
+##### 6673#       发表于 2023-11-9 12:14
+
+<blockquote>qiyu1234 发表于 2023-11-9 11:59
+本体能用的DLC 黎明新程都能用，包括SAO合作的那个DLC，不过要重新去竞技场打，竞技场多了些战斗
+
+最恶心的 ...</blockquote>
+啥？意思是不能继承本篇等级？装备和技能呢？都要重刷？麻了，DLC可以选难度吗？我选个简单难度平推看剧情算了。
+
+*****
+
+####  qiyu1234  
+##### 6674#       发表于 2023-11-9 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62990970&amp;ptid=1860328" target="_blank">CALPISSODA 发表于 2023-11-9 12:14</a>
+
+啥？意思是不能继承本篇等级？装备和技能呢？都要重刷？麻了，DLC可以选难度吗？我选个简单难度平推看剧 ...</blockquote>
+DLC可以选难度，跟本篇一样
+
+根据本体存档完成进度可以在开始的时候提供一些奖励，但总体来说，等级还好，SP会提供一点，不多， 装备这些要重新刷
+
+
+*****
+
+####  火红之眼  
+##### 6675#       发表于 2023-11-9 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">继承本篇完美档实际就只是给11万+3100sp和100cp了，100级档给的只是换色初期武器
+
+其他都是从头开始，不过初期60级和技能盘是点了部分技能的，非DLC术技都是1000熟练度开始，随便用用能把其他招都凹出来，不过DLC术技就是从0开始了
+
+斗技场虽然一开始就能去，奖励也不错，但.....没买等级的话调最低难度都挺刮的
+
+
+*****
+
+####  鳗鱼提灯  
+##### 6676#       发表于 2023-11-9 12:45
+
+无法理解日本人的商法
+
+
+*****
+
+####  Rainwedell  
+##### 6677#       发表于 2023-11-9 13:02
+
+上午加中午摸鱼花时间试了一下，主打剧情（x）只有剧情（√），第一章三个马桶支线糊脸令我想起了吉rpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。战斗目前0变化。
+
+
+*****
+
+####  CCauchy  
+##### 6678#       发表于 2023-11-9 14:05
+
+焯，碟卖了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  Leona_Akari  
+##### 6679#       发表于 2023-11-9 14:19
+
+这两天在把本体捡回来继续玩，这个战斗是真无聊吧，打到第三个国家的时候终究还是开了全自动只放QTE大招了……<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 6680#       发表于 2023-11-9 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62991149&amp;ptid=1860328" target="_blank">火红之眼 发表于 2023-11-9 12:30</a>
+
+继承本篇完美档实际就只是给11万+3100sp和100cp了，100级档给的只是换色初期武器
+
+其他都是从头开始 ...</blockquote>
+100级也不行，最多团队战容易点
+
+DLC单人战是真不给活路，高级战斗跟本篇难度不是一个级别
+
+还有怎么感觉杂兵耐久比旧作高了不少，瞬反都很难触发BREAK
+
+
+*****
+
+####  竹様  
+##### 6681#       发表于 2023-11-9 16:23
+
+<img src="https://img.saraba1st.com/forum/202311/09/162156jgt0em9z1kkelxmk.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20231109161709.png</strong> (132.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 16:21 上传
+
+卧槽，破晓居然可以直接利用steam手柄设置来进行背键设置而不是直接映射，代哥牛逼，希望其他厂家多多跟进。
+
+
+*****
+
+####  WGTCorp  
+##### 6682#       发表于 2023-11-9 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62993853&amp;ptid=1860328" target="_blank">竹様 发表于 2023-11-9 16:23</a>
+
+卧槽，破晓居然可以直接利用steam手柄设置来进行背键设置而不是直接映射，代哥牛逼，希望其他厂家多多跟进 ...</blockquote>
+代哥还专门给steam deck做了一套操作集，而不是直接用的xbox布局，唯一的问题是，代哥的键位说明是日文的......
+
+
+*****
+
+####  火红之眼  
+##### 6683#       发表于 2023-11-9 16:54
+
+部分支线需要的低级素材好像真就没自然掉落了，朋友刷了1000只怪都不出，用援护技克制才会掉落的样子，忘了本篇有没这种设计了……
+
+
+*****
+
+####  zero33333  
+##### 6684#       发表于 2023-11-9 17:09
+
+看个视频云一下得了
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 6685#       发表于 2023-11-9 18:02
+
+就这个逼主线剧情质量也好意思拿出来卖剧情 我都想笑了
+
+
+*****
+
+####  司马千晶  
+##### 6686#       发表于 2023-11-9 19:00
+
+我说，这新角色dlc不能用，结果手游疑似要实装？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  horacio  
+##### 6687#       发表于 2023-11-9 20:42
+
+我本体盘都卖了，这么看是真不值得买回来了
+
+
+*****
+
+####  Piano-Forest  
+##### 6688#       发表于 2023-11-9 20:53
+
+<img src="https://p.sda1.dev/14/9b800d86d756cabd022bcd86dee8ee20/20231109_205256.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空洞骑士  
+##### 6689#       发表于 2023-11-9 22:16
+
+玩到DLC第二章了（按成就划分章节），这剧情感觉又能被婊上好几十楼了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  Rainwedell  
+##### 6690#       发表于 2023-11-9 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62997796&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2023-11-9 22:16</a>
+玩到DLC第二章了（按成就划分章节），这剧情感觉又能被婊上好几十楼了。 ...</blockquote>
+一晚上打到第3章给我干困了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">，第2章最后那个演出确实迷惑，婊到本篇程度不至于。
+
+
+*****
+
+####  火红之眼  
+##### 6691#       发表于 2023-11-9 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">他这么个DLC能通出FF16档次的马桶量我是服气.....虽然每一小段马桶都有小对话，但这量是真的吐了.....
+
+*****
+
+####  qiyu1234  
+##### 6692#       发表于 2023-11-9 23:00
+
+ 本帖最后由 qiyu1234 于 2023-11-9 23:02 编辑 
+
+这游戏未来，大概，还有一个update
+
+*****
+
+####  sliver1997  
+##### 6693#       发表于 2023-11-9 23:07
+
+还没买，这么烂？
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 6694#       发表于 2023-11-9 23:14
+
+系统没改系统 剧情没有剧情
+
+cp厨看爽了吗 应该也没爽吧
+
+
+*****
+
+####  空洞骑士  
+##### 6695#       发表于 2023-11-9 23:40
+
+<blockquote>Rainwedell 发表于 2023-11-9 10:10
+拿远程串流看了眼，steam版简中还没加的？</blockquote>
+加了，但是设置里没给选项，需要自己设置启动参数。贴吧（破晓传说吧）有人发了帖子。
+
+
+*****
+
+####  alucardcz  
+##### 6696#       发表于 2023-11-10 01:31
+
+有没有打的快的说说如何。值得我再把本体下回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 6697#       发表于 2023-11-10 08:12
+
+4GAMER对富泽的采访
+[https://www.4gamer.net/games/464/G046403/20231102032/](https://www.4gamer.net/games/464/G046403/20231102032/)
+
+破晓目前全球销量超270万（2023年11月）  （之前官宣全球超200万是2022年4月）
+
+破晓所采用的Atmos着色渲染虽然好评较多，但是未来不一定继续采用这种画面风格，而是根据硬件、作品特征和想表达的概念来决定
+
+对以往的复杂冲突和超展开被戏称为队内经常出现叛徒的故事结构进行了简化，使其集中于奥尔芬和希侬
+
+之前官方直播中提前透露了娜扎米不是可玩以及会与主角对立，是因为这不是故事核心，没必要隐藏（ 实际是因为怕玩家玩了以后直接真之仲间2.0吧）
+
+黎明新程是“全力以赴的剧情DLC”虽然不是以新的战斗为焦点，但还是做了些调整，以免玩家中途厌烦或者觉得拖沓
+
+
+*****
+
+####  qiyu1234  
+##### 6698#       发表于 2023-11-10 08:23
+
+之前万南官方财报，2022年3月到2023年3月财年  tales of 系列增加了154万
+
+其中算上了发售几周的TOS RE（不过应该卖的不多，至今没有公布销量）
+
+破晓算1年零7个月卖了70万，即使财报里全部减掉也还有84万（实际这70万还有不重合的时间段，财年内应该没70万）
+
+TOS RE应该没50万（乐观估计也就30万不到吧），也就是登陆本世代平台的其他TALES这一年少说卖了50万了（V DE,Z,B,S PC）
+
+虽然也有骨折情况，但确实还算是长卖
+
+*****
+
+####  死宅真恶心  
+##### 6699#       发表于 2023-11-10 08:30
+
+我去重温tob了，奥义随便用真爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 6700#       发表于 2023-11-10 10:09
+
+ 本帖最后由 Rainwedell 于 2023-11-10 10:11 编辑 
+
+根据4gamer采访，富泽表示toar销量已经突破270w。
+
+原文链接https://www.4gamer.net/games/464/G046403/20231102032
+
+*****
+
+####  抽烟的猴  
+##### 6701#       发表于 2023-11-10 10:11
+
+居然销量追上潭游了
+
+
+*****
+
+####  火红之眼  
+##### 6702#       发表于 2023-11-10 10:25
+
+打完感觉就是，太水了……不说系统没改，连游戏内容都不改，斗技场直接用的就本篇的敌人配置……个人支线单挑战直接拿本篇boss，就不说敌人全是本篇换色了……
+虽说通马桶通到吐，但打完这主线，我觉得还不如通马桶，好歹有点狗粮吃吃……
+
+
+*****
+
+####  zero12  
+##### 6703#       发表于 2023-11-10 11:35
+
+只能说破晓的画面建模越看越舒服，希望下作剧情系统好点。
+
+
+*****
+
+####  qiyu1234  
+##### 6704#       发表于 2023-11-10 12:56
+
+ 本帖最后由 qiyu1234 于 2023-11-10 12:59 编辑 
+
+主线就是育婴，没啥意思，娜扎米在队时间太短了，根本不足以培养起足够的羁绊
+
+通马桶的话，我感觉是FF16加强版，首先他的奖励确实是需要的（最高的未知难度下）
+
+有几个支线稍微有点意思，洛在DLC的存在感和趣味要强过其他角色一些
+
+然后 洛的角色支线要单挑梦中的爹，我真超死你吧万南，这个单挑几乎可以说是把这个系统的弊病完全显露出来了
+
+首先爹是正常BOSS规格（钢体，只有通过BA触发倒地，或者连续触发防反攻击可以造成倒地），然后他前冲麻痹拳 你瞬反打中后还会中他的后续麻痹效果（要闪2次），
+
+顶着齐尔法攻击打能出一个OVL，系统应该是故意让玩家在这里用OVL爆第二秘奥义取伤害，不然未知难度只能慢慢刮
+
+对面爆OVL后最好的做法就是满场跑，防反效率太低，硬顶只有死
+
+杜欧哈林有个跟莱吉尔的单挑战我觉得处理的就比较合适（敌人规格是套用精英杂鱼，能连段但耐久比较高，需要用瞬反触发BREAK），这是TOAR应该展现的人形单挑战斗
+
+
+*****
+
+####  qiyu1234  
+##### 6705#       发表于 2023-11-10 13:05
+
+DLC“黎明新程”中新追加的迷宫设计由“穴吹健儿”（TOS/A地图设计、TOV战斗程序、TOX2导演）担任，这也是穴吹时隔10年再次负责《传说》系列作品的开发。
+
+*****
+
+####  alucardcz  
+##### 6706#       发表于 2023-11-10 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63001161&amp;ptid=1860328" target="_blank">火红之眼 发表于 2023-11-10 10:25</a>
+
+打完感觉就是，太水了……不说系统没改，连游戏内容都不改，斗技场直接用的就本篇的敌人配置……个人支线单 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 ？ 10小时多点就没了？
+
+
+*****
+
+####  SorroFrost  
+##### 6707#       发表于 2023-11-10 14:16
+
+看起来没有整得必要了
+
+*****
+
+####  火红之眼  
+##### 6708#       发表于 2023-11-10 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63003244&amp;ptid=1860328" target="_blank">alucardcz 发表于 2023-11-10 13:09</a>
+
+啊 ？ 10小时多点就没了？</blockquote>
+10小时已经是通马桶的分量了，主线没这量，我觉得通马桶才是这DLC想做的内容，后日谈该有的细节描写都在这里，反而主线就是为了这硬做的
+
+
+*****
+
+####  alucardcz  
+##### 6709#       发表于 2023-11-10 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63004021&amp;ptid=1860328" target="_blank">火红之眼 发表于 2023-11-10 14:22</a>
+
+10小时已经是通马桶的分量了，主线没这量，我觉得通马桶才是这DLC想做的内容，后日谈该有的细节描写都在这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说好的20小时呢 又骗人  那么问题来了 值得重下本体吗。。。毕竟也挺大的（
+
+*****
+
+####  yohyoh4966  
+##### 6710#       发表于 2023-11-10 14:26
+
+steam内，选择游戏并右键，选择属性，在启动选项内输入-culture=zh-CN 使用简体中文游玩<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火红之眼  
+##### 6711#       发表于 2023-11-10 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63004055&amp;ptid=1860328" target="_blank">alucardcz 发表于 2023-11-10 14:25</a>
+
+说好的20小时呢 又骗人  那么问题来了 值得重下本体吗。。。毕竟也挺大的（ ...</blockquote>
+不如说值得花4000体验吗（
+
+真买了就玩下吧，反正也不长，对本篇角色没什么好感又兴趣不大的话就算了
+
+
+*****
+
+####  火红之眼  
+##### 6712#       发表于 2023-11-10 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63003205&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-10 13:05</a>
+
+DLC“黎明新程”中新追加的迷宫设计由“穴吹健儿”（TOS/A地图设计、TOV战斗程序、TOX2导演）担任，这也是 ...</blockquote>
+这几个新迷宫感觉就是一直堆单向落下出口的回旋通道，有些跨区域的经常搞得落下后不小心走了逆向.....又或者进通道前选错了正路，续作是无缝地图的话可能这种设计会比较巧妙
+
+
+*****
+
+####  qiyu1234  
+##### 6713#       发表于 2023-11-10 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63004251&amp;ptid=1860328" target="_blank">火红之眼 发表于 2023-11-10 14:46</a>
+
+这几个新迷宫感觉就是一直堆单向落下出口的回旋通道，有些跨区域的经常搞得落下后不小心走了逆向.....又 ...</blockquote>
+穴吹之前采访说是22年初就在tales项目上了，DLC新增的这几个迷宫不至于花1年半去做，他大概已经在参与新作开发了
+
+不过这游戏看后台还有一个版本，可能是新联动或者机制上的调整啥的
+
+
+*****
+
+####  wolfensteinBJ  
+##### 6714#       发表于 2023-11-10 15:06
+
+[quote][/quote]<strong></strong>
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  司马千晶  
+##### 6715#       发表于 2023-11-10 15:15
+
+支线里有ba强化么？没注意到。
+
+*****
+
+####  火红之眼  
+##### 6716#       发表于 2023-11-10 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63004562&amp;ptid=1860328" target="_blank">司马千晶 发表于 2023-11-10 15:15</a>
+支线里有ba强化么？没注意到。</blockquote>
+个人支线，2段做完
+
+
+*****
+
+####  qiyu1234  
+##### 6717#       发表于 2023-11-10 15:39
+
+万南工作室官网 更新第三工作室的情况
+
+目前TALES 绯红结系 蓝色协议相关开发人员均归属该工作室
+[https://www.bandainamcostudios.com/recruit/career/interview/12235](https://www.bandainamcostudios.com/recruit/career/interview/12235)
+
+
+*****
+
+####  qiyu1234  
+##### 6718#       发表于 2023-11-10 15:55
+
+ 本帖最后由 qiyu1234 于 2023-11-10 16:02 编辑 
+
+本篇导演 香川宽和 与 本篇战斗程序（也是系列老牌战斗主程）的山瀬孝広 均未参与DLC开发，应该是开发新作去了
+
+DLC导演 Masahiro Endo 是 本篇的 战斗管理
+
+STAFF里除了穴吹还有几个参与了绯红结系的人员
+
+tales要重新回到2个组开发的模式？
+
+
+*****
+
+####  qiyu1234  
+##### 6719#       发表于 2023-11-10 20:04
+
+本篇一些COMBO到DLC里会断连，DLC里的敌人受击硬直应该是调整过的
+
+加了贯穿也不好使，难怪DLC竞技场没有练习关了
+
+
+*****
+
+####  qiyu1234  
+##### 6720#       发表于 2023-11-11 01:53
+
+ 本帖最后由 qiyu1234 于 2023-11-11 01:54 编辑 
+
+这个战斗系统，本篇打完我觉得可以后面修补改进一下
+
+打完DLC我觉得续作还是另起炉灶好一点
+
+BA/BS跟这套系统的关系绑的挺死，DLC的战斗强化了这种联系
+
+强化后的BA体现在发动频率和范围/伤害上（当然最直观的是特效），可以做到巨体中BA倒地，然后刚刚起身再中BA（BA的回转率上升了）再倒地这种循环，全部强化完的角色在这方面的体验上比本篇强，但这种体验的提升跟系列一贯的爽感是有区别的
+
+破晓的故事大概就这么结束了吧，感觉该讲的都讲完了
+
+至于系统，新作也没必要继承这套东西，以前我觉得可以保留本作的术技释放方式，现在觉得不如全部推倒重来，不管是回归老TALES的感觉，还是以另一种新的方式展开，走一步看一步吧，哎
+
+另，最终迷宫的战斗曲不错（其实我觉得这作包括前面的领将迷宫的战斗曲都还可以）
+
+<img src="https://img.saraba1st.com/forum/202311/11/015312yq5h1nzxsmsmshs0.png" referrerpolicy="no-referrer">
+
+<strong>11.png</strong> (282.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-11 01:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/11/015311aq5ff7tk5pf7fzt0.png" referrerpolicy="no-referrer">
+
+<strong>22.png</strong> (52.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-11 01:53 上传
+
+
+*****
+
+####  qiyu1234  
+##### 6721#       发表于 2023-11-11 17:29
+
+穴吹之前采访的时候还说在考虑未来作品里加入一些与场景环境互动的战斗
+
+我当时还纳闷你这套绯红结系不是已经有了？
+
+现在看搞不好要在新作里用上吧
+
+*****
+
+####  苇原雪道  
+##### 6722#       发表于 2023-11-11 17:34
+
+还没买dlc，值得买么？
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 6723#       发表于 2023-11-11 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63014405&amp;ptid=1860328" target="_blank">苇原雪道 发表于 2023-11-11 17:34</a>
+
+还没买dlc，值得买么？</blockquote>
+打个对折差不多
+
+178有点太凯子了
+
+
+*****
+
+####  zero33333  
+##### 6724#       发表于 2023-11-11 18:15
+
+有无人来说下这DLC讲了啥，真不想买了
+
+
+*****
+
+####  苇原雪道  
+##### 6725#       发表于 2023-11-11 21:05
+
+看样子评价不咋地，我去找视频云了算了。。。
+
+
+*****
+
+####  Colure  
+##### 6726#       发表于 2023-11-12 02:46
+
+ 本帖最后由 Colure 于 2023-11-12 02:50 编辑 
+
+通了主线，支线没做完，和解了
+这个DLC剧情一般，脚本稀烂，演出不如本篇，小剧场无聊，支线几乎全是马桶，新技能没有，新地图只有一个迷宫，可以说除了最终迷宫之外全都不如本篇
+我一直认为本篇最大的问题是不给爽，最终战锁血炎剑爽得好好的情绪刚要释放就寸止，打完难受好几天，非常憋屈
+但是DLC的处理我很满意，苦战三阶段，BOSS突然进四阶段狂暴化，吓得我满地乱爬。我的血条被打空，这时候OP响起，大家突然开始说一些二次元样板话，一起进入OVL，还有无限炎剑，秘奥义乱飞，打败BOSS，音乐结束，直接大团圆
+王道二次元的事情不需要搞那么清楚，燃了爽了情绪完全释放，和解了
+
+
+*****
+
+####  Rainwedell  
+##### 6727#       发表于 2023-11-12 06:19
+
+ 本帖最后由 Rainwedell 于 2023-11-12 06:20 编辑 
+
+全支线打完，这结尾处理不是贼TM绯红结系，我打完有强烈既视感。dlc战斗系统唯一改的就是ba技，强化ba技大幅度减cd一定程度提升了这个boss战体验，都是灌伤害，无限倒地循环灌总比输出空挡被打的满地乱跑等CD灌强。
+
+整个dlc整体文本水平过于平庸，特别小剧场，后面想了下问题出在哪里，小剧场这6个人的互动写的太端着了，像命题作文。写的最好的是ex任务的日记文本。演出除了结尾打完就能忘，富泽说的提升过场质量可能是动捕，但演出又不做打戏动作设计<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。楼上有坛友说的对，马桶内容才是想做的dlc后日谈，好歹确确实实讲了点东西，不少马桶支线实际上是能通过加演出扩展的。主线和支线反正完全割裂，量又不大，不如把主线拯救魔怔小女孩的钱省了补点什么音乐会，钓鱼场这些支线演出，把城市变化做出来，马桶反馈拉满。万南都鸡贼到把婚礼任务作为唯一需要在dlc包里面领取的ex级别任务了，你直接把结婚演出做出来直球卖效果肯定比现在强。
+
+新的迷宫设计水平后两个个人觉得比本篇强，但也强的有限，看出花了点心思设计。2023年无缝体验的大地图确实越来越重要了，频繁的读图有些消磨耐心。
+
+打的过程中最绷不住的还是重新进水城坐三层电梯，设计了这么庞大而复杂的外观，就不能好好的弄下城镇内部，稍微做点立体设计，多开几个门呢，现在纯纯浪费。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+最后做个总结，这dlc我算买了三份（ps一份，steam 两份，奶粉钱交够了，新作还这质量那就爬吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  空洞骑士  
+##### 6728#       发表于 2023-11-12 20:03
+
+才发售了4天就已经没人讨论了，steam最高在线也就3000多，看来是没骗到多少凯子<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">。看5ch讨论串才知道原来TOZ和TOB真的有大概率有续作，18年商标都注册了叫Enterteria，可惜目前来看应该是无了，被本来不是传说的破晓给上位了。
+
+
+*****
+
+####  后入芙蓉王  
+##### 6729#       发表于 2023-11-12 20:15
+
+热情那故事坑至少有两个坑没填，一个是TOZ的DLC狐狸头，一个是TOB的初代导师/显师克洛丹
+
+
+*****
+
+####  法拉  
+##### 6730#       发表于 2023-11-12 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63024047&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2023-11-12 20:03</a>
+
+才发售了4天就已经没人讨论了，steam最高在线也就3000多，看来是没骗到多少凯子。看5ch讨论串才知道 ...</blockquote>
+还出格林伍德那这个系列真的可以死了
+
+
+*****
+
+####  Squall25  
+##### 6731#       发表于 2023-11-12 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63024047&amp;ptid=1860328" target="_blank">空洞骑士 发表于 2023-11-12 20:03</a>
+才发售了4天就已经没人讨论了，steam最高在线也就3000多，看来是没骗到多少凯子。看5ch讨论串才知道 ...</blockquote>
+当初估摸着是要出三部曲性质的东西，只是后来toz直接差点送走这个系列，把tob憋出来就不错了，谈不上后面是破晓抢了续作位置。倒不如说这种事情还挺多的，hr和ir作为重制挖坑因为销量不佳也直接没下文了
+
+
+*****
+
+####  qiyu1234  
+##### 6732#       发表于 2023-11-12 22:15
+
+之前采访有提过，最早是没决定让ARISE这游戏套用TALES的名字
+
+那么穴吹他们去做新IP（绯红结系），香川这边是没决定好的名字新IP，那么传说新作在哪呢？
+
+鉴于富泽从16年TOB发售后就担任tales系列IP负责人，家用机没新作的可能性不大，当时应该没有除了这俩组以外的组在做tales，arise作为tales新作不是巧合，只是当时未确定正式名称
+
+ENTERTERIA这个商标在同年9月被万南撤回商标申请（申请一共提交了不到半年），所以我认为这可能是原定的TOARISE的正式名称，或者是某个被取消的手游（看了下应该不是，申请范围是家用机作品）
+
+TOZ所谓伏笔是老黄历了，DLC最后那个tbc马场还没走人的时候就说了是指的本篇的大结局（N年后），也就是说即使原本有企划也早就否定了
+
+
+*****
+
+####  grox133  
+##### 6733#       发表于 2023-11-12 22:29
+
+这个dlc用一句话概括就是不值178但是对于本篇感觉还行的玩家来说值得一玩
+
+
+*****
+
+####  qiyu1234  
+##### 6734#       发表于 2023-11-12 22:37
+
+ 本帖最后由 qiyu1234 于 2023-11-12 22:39 编辑 
+
+另外还是要说句 TALES组的招聘岗位都是针对UE和3D高清游戏的需求来的
+
+没有出现2D作品需求的岗位
+
+所以明后年可能有的旧作移植，高清2D传说的可能性还是不大
+
+当然根据富泽之前的采访，也有可能是一部中型REMAKE
+
+
+*****
+
+####  Squall25  
+##### 6735#       发表于 2023-11-12 22:52
+
+富泽感觉一直对2d作不感兴趣，下一次移植感觉深渊概率最高，本身就是s-a-v这条线上的作品，二来论名气，呼声和质量也是最够格的
+
+
+*****
+
+####  はちたや  
+##### 6736#       发表于 2023-11-12 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">值得玩吗，我云了个最终Boss战怎么感觉还是复读大轰霸斩
+
+
+*****
+
+####  qiyu1234  
+##### 6737#       发表于 2023-11-12 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63025625&amp;ptid=1860328" target="_blank">Squall25 发表于 2023-11-12 22:52</a>
+
+富泽感觉一直对2d作不感兴趣，下一次移植感觉深渊概率最高，本身就是s-a-v这条线上的作品，二来论名气，呼 ...</blockquote>
+也不一定是对2D作不感兴趣，讲难听点可能是对旧作移植都不感兴趣
+
+V DE销量 看样子对他影响挺大的，不仅牢骚一堆而且后面S RE的移植团队还降档次了
+
+不过2D传说从来没有在高清主机/掌机上复刻过，也许万南工作室就不具备这个条件，PSV上的IR HR是找alpha system做的3D化重制外包，当然这个外包组已经没了
+
+他最近提到旧作移植也说了 “不能单纯移植要根据现在的玩家群体做出调整”这种话
+
+可能会找一部体量不大不小的旧作试试3D重制
+
+
+*****
+
+####  qiyu1234  
+##### 6738#       发表于 2023-11-12 23:15
+
+ 本帖最后由 qiyu1234 于 2023-11-12 23:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63025640&amp;ptid=1860328" target="_blank">はちたや 发表于 2023-11-12 22:53</a>
+
+值得玩吗，我云了个最终Boss战怎么感觉还是复读大轰霸斩</blockquote>
+DLC最终BOSS的话
+
+首先不是最高难度我觉得都不太需要一些特别高伤的套路
+
+其次前面说了最好做完角色BA任务，这样BA升级后容易进输出循环，这种BOSS更好处理
+
+第一阶段火刀管用，BOSS中间会转换使用不同武器，看队员对话提示对应不同队员BA击中一次倒地一次
+
+最高难度下第二阶段160多万血，火刀和轰霸斩对二阶段LAST BOSS都不是很好用，还是要磨，
+
+BA倒地然后用HIT多的术技这样更快回复BA，就可以更快使用BA倒地输出循环
+
+当然值不值得是另一种问题，你觉得这么玩没意思，其他部分你也不感兴趣的话，就不值得
+
+
+*****
+
+####  Squall25  
+##### 6739#       发表于 2023-11-12 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63025737&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-12 23:08</a>
+也不一定是对2D作不感兴趣，讲难听点可能是对旧作移植都不感兴趣
+
+V DE销量 看样子对他影响挺大的，不仅牢 ...</blockquote>
+v de我感觉销量还行？旧作移植本来就不可能大卖吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">感觉富泽单纯眼高手低，做的慢还想挣得多。
+其实hr我个人挺喜欢的，但日本遗老好像挺不买账。这俩重制的反响不好不知道有没有出在PSV的原因
+
+
+*****
+
+####  qiyu1234  
+##### 6740#       发表于 2023-11-12 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63025987&amp;ptid=1860328" target="_blank">Squall25 发表于 2023-11-12 23:41</a>
+
+v de我感觉销量还行？旧作移植本来就不可能大卖吧感觉富泽单纯眼高手低，做的慢还想挣得多。
+
+其实 ...</blockquote>
+VITA的平台原因是一方面
+
+还有一点就是总体上这系列还是流程玩家为主，虽然系统有升级但是剧情上的缩水多少还是有些影响
+
+另外就是那个年代TALES还处于高产期末尾，往往前一部作品玩家还没玩透下一部新作就来了，一部分作品的反馈其实是之后这十年间才增多的
+
+
+*****
+
+####  司马千晶  
+##### 6741#       发表于 2023-11-13 00:31
+
+ir和hr，包括更早的topndx都太糙了，掌机作品局限太大。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外都dlc了就别轰霸斩了吧，这技能也就男主没血的时候撅一两下，效率完全不能看。
+
+
+*****
+
+####  qiyu1234  
+##### 6742#       发表于 2023-11-13 10:39
+
+掌机作表现力、动作绘制帧上差一些（以及按键等操作 系统限制）
+
+这几作系统对比00年代的部分本家作品来说都是有进步的（像HR可能是对新玩家最舒服的一作了，系统直接易懂，AI调教的很好，甚至玩家只需要控制时机全体防御就可以看着队友玩了）
+
+最大问题还是玩的人太少，充其量几十万份能有啥水花呢
+
+再复刻也排不上的边缘作
+
+所幸客观环境的原因还能有些热度（欧美那边最近做了IR英文化，以及TALES整体热度因为新作又起来的原因），总体上还是属于时间拉得越长，评价越高的作品
+
+
+*****
+
+####  TheOccuria  
+##### 6743#       发表于 2023-11-13 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">系统没大改只能说制作组没逼数了..后期口碑都炸了..希望dlc的冷遇能让他们反思一下
+
+
+*****
+
+####  法拉  
+##### 6744#       发表于 2023-11-13 12:44
+
+我要是在富泽这个位置我也不会考虑2d传说
+
+唯一我觉得可以推荐给新人的2d传说只有toh，系统简单好上手，手感高速爽快，剧情简单易懂还有男女主告白
+
+*****
+
+####  Squall25  
+##### 6745#       发表于 2023-11-13 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63028214&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-13 10:39</a>
+掌机作表现力、动作绘制帧上差一些（以及按键等操作 系统限制）
+
+这几作系统对比00年代的部分本家作品来说都 ...</blockquote>
+我觉得hr确实对新玩家很舒服，太简单易懂，而且由于流程短，也不至于容易打腻。这也是我比较欣赏hr的缘故。psv两部r确实问题在于太粗糙了，hr明明不是nds版的一条路了，但那个地图也没有什么探索空间，而且劣质3d观感也不好
+
+
+*****
+
+####  法拉  
+##### 6746#       发表于 2023-11-14 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63029480&amp;ptid=1860328" target="_blank">Squall25 发表于 2023-11-13 12:46</a>
+
+我觉得hr确实对新玩家很舒服，太简单易懂，而且由于流程短，也不至于容易打腻。这也是我比较欣赏hr的缘故 ...</blockquote>
+ir卖相还是很好的，hr实在太难看了，而且这两作的系统还是挺难玩的，都不如原版适合新手
+
+
+*****
+
+####  qiyu1234  
+##### 6747#       发表于 2023-11-14 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63036909&amp;ptid=1860328" target="_blank">法拉 发表于 2023-11-14 10:38</a>
+
+ir卖相还是很好的，hr实在太难看了，而且这两作的系统还是挺难玩的，都不如原版适合新手 ...</blockquote>
+哇，这也难啊，那TALES真没法做了
+
+
+*****
+
+####  godless2020  
+##### 6748#       发表于 2023-11-14 11:07
+
+把TOGF先弄出来把，这个技术资金要求都不高。。。。
+
+
+*****
+
+####  法拉  
+##### 6749#       发表于 2023-11-14 11:27
+
+ 本帖最后由 法拉 于 2023-11-14 11:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63036991&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-14 10:46</a>
+
+哇，这也难啊，那TALES真没法做了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破晓传说都有群友跟我喊难，真没法子
+
+
+*****
+
+####  Hidewhite  
+##### 6750#       发表于 2023-11-14 11:46
+
+与其说是难不如说是乱。DLC上手六个人，本体都隔不知道多久，技能链都忘光了， 还每人技能栏有12个。打小怪各种群殴，第一个boss打完既不知道boss在动个啥， 也不知道自己砍了啥，反正就是死了活活了死。重新捡起来感觉好麻烦，想放空大脑打打轰霸斩算了
+
+
+*****
+
+####  gpx234mqx  
+##### 6751#       发表于 2023-11-14 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63037422&amp;ptid=1860328" target="_blank">法拉 发表于 2023-11-14 11:27</a>
+
+破晓传说都有群友跟我喊难，真没法子</blockquote>
+光炮连射没有过不了的敌人
+
+*****
+
+####  キング  
+##### 6752#       发表于 2023-11-14 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63018621&amp;ptid=1860328" target="_blank">Colure 发表于 2023-11-11 10:46</a>
+
+通了主线，支线没做完，和解了
+
+这个DLC剧情一般，脚本稀烂，演出不如本篇，小剧场无聊，支线几乎全是马桶， ...</blockquote>
+今天才跑完，和你感觉完全一样
+
+二次元真的不用太清楚，BOSS最后形态OP一响，锁血无限OVL，直接就和解了
+
+最后分别时再一放we still，随着那个超无敌的前奏进staff表
+
+草，前面多无聊我都和解了
+
+之前有这个感觉要回到当初玩TOZ了
+
+虽然TOZ我黑一辈子
+
+但中间打龙那段真的爽，也是被逼到绝境，然后rising up一响，感觉一下就起来了
+
+二次元就要放歌打架才对
+
+真要说续作，TOX3可不可以，长大的女儿当主角不是现成的么
+
+到底什么时候TOX才能上PC
+
+*****
+
+####  gpx234mqx  
+##### 6753#       发表于 2023-11-14 12:15
+
+dlc麻烦的是不继承本篇技能使用数
+
+最强的几招需要重新刷
+
+
+*****
+
+####  司马千晶  
+##### 6754#       发表于 2023-11-14 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63029461&amp;ptid=1860328" target="_blank">法拉 发表于 2023-11-13 12:44</a>
+我要是在富泽这个位置我也不会考虑2d传说
+
+唯一我觉得可以推荐给新人的2d传说只有toh，系统简单好上手，手感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">男女主告白有这么加分嘛
+
+
+*****
+
+####  司马千晶  
+##### 6755#       发表于 2023-11-14 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">30周年作搞个大地图填充一些秘境和奇幻吧，空旷也无所谓，尼尔水平就好，地图这个早就被制作组摆烂的要素很能拉新。
+迷宫设计也是问题，你游羊肠小道连接的y字路口&amp;三叉路都多少代了，哪怕像以前一样大火柴盒套小火柴盒收集起来也有点乐子啊。
+
+*****
+
+####  Squall25  
+##### 6756#       发表于 2023-11-14 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63037927&amp;ptid=1860328" target="_blank">司马千晶 发表于 2023-11-14 12:30</a>
+男女主告白有这么加分嘛</blockquote>
+我想起以前最搞笑的看别人评价toh是：作为一部后来的传说作品，竟然一点搞基的遐想都没有，全是bg，太不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qiyu1234  
+##### 6757#       发表于 2023-11-14 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63037986&amp;ptid=1860328" target="_blank">Squall25 发表于 2023-11-14 12:38</a>
+
+我想起以前最搞笑的看别人评价toh是：作为一部后来的传说作品，竟然一点搞基的遐想都没有，全是bg，太不 ...</blockquote>
+卡尔赛德尼要不是跟女王绑定了，也会引起遐想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 6758#       发表于 2023-11-14 20:43
+
+『テイルズ オブ アライズ』大型DLCリリースを記念して、アートディレクター岩本稔氏にインタビュー。
+
+“ビヨンド ザ ドーン”の物語のカギを握る少女・ナザミルのデザインに込めたこだわりなどを訊きました。ナザミルのラフ画も掲載！
+[https://s.famitsu.com/news/202311/14323866.html](https://s.famitsu.com/news/202311/14323866.html)
+<img src="https://p.sda1.dev/14/417a4a2484d28c991a7ea17c2c55591c/y_65511a1802505.webp" referrerpolicy="no-referrer">
+
+
+*****
+
+####  司马千晶  
+##### 6759#       发表于 2023-11-14 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">一些不错的截图
+
+F-zX_b2awAA9KPU.jpg
+(447.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213306o3rfncexxenbjzak.jpg" referrerpolicy="no-referrer">
+
+F-zYv58bsAAL7J1.jpg
+(598.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213318vfy7hkwk6nyyksqu.jpg" referrerpolicy="no-referrer">
+
+F-zZ_3saQAALaTM.jpg
+(834.77 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213328k08sfv5wvz5d08gb.jpg" referrerpolicy="no-referrer">
+
+F-zaofqbAAAIsZk.jpg
+(756.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213344ajn33tmjp9jy33py.jpg" referrerpolicy="no-referrer">
+
+F-3NQ3iaEAACz5W.jpg
+(645.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:33 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213353htytt2y9fbhte2hh.jpg" referrerpolicy="no-referrer">
+
+F-3NGRtaYAALFGI.jpg
+(588.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213404whjyhyt7iytjjvwe.jpg" referrerpolicy="no-referrer">
+
+F-3OUzfaEAArtwv.jpg
+(663.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213418jacbtz6glttd1ivi.jpg" referrerpolicy="no-referrer">
+
+F-3O7Gsa4AAru_D.jpg
+(590.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:34 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213440r5wfao6z94u4pl9f.jpg" referrerpolicy="no-referrer">
+
+F-s5WOzbQAA_wcV.jpg
+(573.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:35 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213507bppi7iwcwwpk6kw6.jpg" referrerpolicy="no-referrer">
+
+F-s5Cw5a0AAoKc_.jpg
+(394.14 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 21:35 上传
+
+<img src="https://img.saraba1st.com/forum/202311/14/213511cdzflt70i7h91ufp.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空洞骑士  
+##### 6760#       发表于 2023-11-14 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63042289&amp;ptid=1860328" target="_blank">Piano-Forest 发表于 2023-11-14 20:43</a>
+
+『テイルズ オブ アライズ』大型DLCリリースを記念して、アートディレクター岩本稔氏にインタビュー。
+
+“ ...</blockquote>
+娜扎米原型是猫？我的mygo雷达响了，和猫猫一样都是白毛，蓝黄异色瞳，带点电波的性格，可惜破晓世界观下没有电吉他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">右上这个吃东西的表情dlc里完全没有，破晓这套3D小剧场做不出2D的夸张表情感觉挺遗憾的，以后估计也不会有了 。
+
+
+*****
+
+####  苦瓜师傅  
+##### 6761#       发表于 2023-11-15 09:33
+
+所以只买本体就行了？或者等完整版骨折？
+
+— from Google Pixel 4 XL, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  空洞骑士  
+##### 6762#       发表于 2023-11-15 12:05
+
+<blockquote>苦瓜师傅 发表于 2023-11-15 09:33
+所以只买本体就行了？或者等完整版骨折？
+
+— from Google Pixel 4 XL, Android 14 of S1 Next Goose v2.5. ...</blockquote>
+现在没打折，等黑五看看打折价格再买吧。dlc只适合非常喜欢主角团想看后续剧情的人买。本体没打过不太好给建议（本体加dlc版本如果秋促能打折到200左右就推荐入）
+
+
+*****
+
+####  secretgarnet  
+##### 6763#       发表于 2023-11-15 13:26
+
+dlc的单人95级修炼场怪物配置好恶心，塞的全是对应角色不好对策的怪。昨天晚上打了好久琳薇儿的那场，上来就是一堆水属性+甲盾的怪，不知道是运气不好还是AI变了，怪总是轮流读魔法，一旦BA只counter到两个以下BG条就回不满，压不住剩下的怪放大气冰枪和潮浪汹涌，这两个魔法一个追踪一个大范围，逼你满场走位hit数叠不上去BG更回不上来，之后就是恶性循环。后面想通了放弃BA counter 直接叠满连招咏唱复读天赐之剑马拉松总算打过了，然后进奥尔芬的修炼场一看全是火属性+迅捷的怪，瞬间破防不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+不知道其他角色是什么阴间配置……感觉单人修炼场想打的舒服一些必须针对配装，像是琳薇儿和奥尔芬这两场要是能配出BG+8%*4词条的体力戒指应该会好打很多，至少不用担心BG条的续航。
+
+
+*****
+
+####  Rainwedell  
+##### 6764#       发表于 2023-11-15 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63047070&amp;ptid=1860328" target="_blank">secretgarnet 发表于 2023-11-15 13:26</a>
+dlc的单人95级修炼场怪物配置好恶心，塞的全是对应角色不好对策的怪。昨天晚上打了好久琳薇儿的那场，上来 ...</blockquote>
+其余角色多少能回血可以赖过去的
+
+
+*****
+
+####  qiyu1234  
+##### 6765#       发表于 2023-11-15 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63047070&amp;ptid=1860328" target="_blank">secretgarnet 发表于 2023-11-15 13:26</a>
+
+dlc的单人95级修炼场怪物配置好恶心，塞的全是对应角色不好对策的怪。昨天晚上打了好久琳薇儿的那场，上来 ...</blockquote>
+奥尔芬最高级那个我是攻击徽章堆反击词条打过的
+
+主要是有那种防反没法直接break的敌人就很恶心
+
+直接上风神剑/裂空闪/闪空翔裂破这种滞空技对着抡
+
+敌人多了就跳怪堆上面放，空中攻击来了就风神剑换位
+
+
+*****
+
+####  森兰丸  
+##### 6766#       发表于 2023-11-16 02:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">拖了几天通了...这结局剧情又是做成一副便秘的样子
+
+除开新角色的剧情之外玩这FD不就是想看更多的发糖剧情吗
+
+结果阿尔芬学习结婚知识的时候整个队伍只有希侬一个人被蒙在鼓里....最后结局又定格在阿尔芬的告白前
+
+编剧把整个结婚剧情做出来是会死还是怎么的啊....你倒好不仅没有结婚剧情最后就连阿尔芬的告白都不让说完
+
+
+*****
+
+####  司马千晶  
+##### 6767#       发表于 2023-11-16 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63052940&amp;ptid=1860328" target="_blank">森兰丸 发表于 2023-11-16 02:40</a>
+拖了几天通了...这结局剧情又是做成一副便秘的样子
+
+除开新角色的剧情之外玩这FD不就是想看更多的发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">把你们想看的放在续作中年希侬回忆里，到时候再卖一份。
+
+
+*****
+
+####  忧郁  
+##### 6768#       发表于 2023-11-16 07:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63014355&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-11 17:29</a>
+穴吹之前采访的时候还说在考虑未来作品里加入一些与场景环境互动的战斗
+
+我当时还纳闷你这套绯红结系不是已 ...</blockquote>
+这个其实z和b的时候就有，所以ar没有的时候其实已经是退步了
+
+
+*****
+
+####  qiyu1234  
+##### 6769#       发表于 2023-11-16 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63053174&amp;ptid=1860328" target="_blank">忧郁 发表于 2023-11-16 07:37</a>
+
+这个其实z和b的时候就有，所以ar没有的时候其实已经是退步了</blockquote>
+他指的是场地扔垃圾那种常规动作指令吧
+
+Z B 有吗，我白玩了？
+
+
+*****
+
+####  天王寺綯  
+##### 6770#       发表于 2023-11-16 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63052940&amp;ptid=1860328" target="_blank">森兰丸 发表于 2023-11-16 02:40</a>
+拖了几天通了...这结局剧情又是做成一副便秘的样子
+
+除开新角色的剧情之外玩这FD不就是想看更多的发 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别问，问就是日本人含蓄表达月色真美
+
+
+*****
+
+####  忧郁  
+##### 6771#       发表于 2023-11-16 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63053290&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-16 08:14</a>
+他指的是场地扔垃圾那种常规动作指令吧
+
+Z B 有吗，我白玩了？</blockquote>
+那应该是没有的，我以为是过场无缝转战斗这点
+
+
+*****
+
+####  森兰丸  
+##### 6772#       发表于 2023-11-16 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63053515&amp;ptid=1860328" target="_blank">天王寺綯 发表于 2023-11-16 08:51</a>
+
+别问，问就是日本人含蓄表达月色真美</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">含蓄表达也要看情况啊....男女主周围一圈人就连那些NPC都看出2个人的关系了然而还是不肯直球捅破
+
+明明本篇结尾打完最终BOSS后的动画都被压抑了这么久之后直接忍不住亲了上去...结果FD2个人都过了1年了还是相敬如宾
+
+
+*****
+
+####  森兰丸  
+##### 6773#       发表于 2023-11-16 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63053134&amp;ptid=1860328" target="_blank">司马千晶 发表于 2023-11-16 07:14</a>
+
+把你们想看的放在续作中年希侬回忆里，到时候再卖一份。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还是算了吧.....这作对我来说真就除了男女主的糖之外一无是处....本篇甜度不够想在FD里吃个够的结果这司马编剧还是在FD里吊你胃口
+
+而且这作的世界观也没什么能够展开的了吧....本身游戏的舞台就小现在连雷纳都没了....FD的主线剧情都只是为了搞事而搞事
+
+
+*****
+
+####  secretgarnet  
+##### 6774#       发表于 2023-11-16 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63049963&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-15 18:35</a>
+
+奥尔芬最高级那个我是攻击徽章堆反击词条打过的
+
+主要是有那种防反没法直接break的敌人就很恶心
+
+直接上风神 ...</blockquote>
+谢谢空战的思路，终于过了。我是洗了体力徽章+4反击，直接一段或二段跳到最肉的甲盾怪头顶，先闪空翔裂破打伤害并进一步腾空，然后复读迅雷崩袭击往下方打伤害，AG足够的话能一直骑在怪头上，别的怪也会被引到下方吃到伤害，暴击的话还能进一步回AG续航。这样可能不是最快但比较安逸，除了狼和远程法术其他都打不到你。
+
+
+*****
+
+####  雨宮優子  
+##### 6775#       发表于 2023-11-16 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63009955&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2023-11-11 01:53</a>
+
+这个战斗系统，本篇打完我觉得可以后面修补改进一下
+
+打完DLC我觉得续作还是另起炉灶好一点</blockquote>
+有几个任务死活刷不到素材，请教一下这怎么解决
+
+
+*****
+
+####  qiyu1234  
+##### 6776#       发表于 2023-11-16 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63058416&amp;ptid=1860328" target="_blank">雨宮優子 发表于 2023-11-16 16:58</a>
+
+有几个任务死活刷不到素材，请教一下这怎么解决</blockquote>
+主要素材几乎都可以在商店买到，怪物素材那些
+
+大王鱼那种去猫头鹰森林可以买，或者钓那种最高级的鱼
+
+雅旦胡椒就在主线能采到的地方采，记得是竞技场有个战斗直接送99个
+
+
+*****
+
+####  火红之眼  
+##### 6777#       发表于 2023-11-16 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63058416&amp;ptid=1860328" target="_blank">雨宮優子 发表于 2023-11-16 16:58</a>
+
+有几个任务死活刷不到素材，请教一下这怎么解决</blockquote>
+用克制的BA打一下，必出一个
+
