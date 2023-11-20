@@ -2677,3 +2677,180 @@ xbox才是爽玩完整版，而且现在花一样的钱得5倍pc玩家的氪金�
 
 又要重击，又要榴弹为主，那就是点出冲锋后走去右路的幸运射击，发射榴弹的时候要养成习惯按2下。 
 
+*****
+
+####  boxloli  
+##### 292#       发表于 2023-10-27 17:34
+
+新版本老兵又硬起来咯
+
+*****
+
+####  boxloli  
+##### 293#       发表于 2023-10-27 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62770602&amp;ptid=1951151" target="_blank">FLZB 发表于 2023-10-20 07:15</a>
+
+试了下欧格林，新版技能设计感觉也就那样，死板的强调特化，天赋被路线锁死没法自由搭配，而且倾向性过于明 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">壮壮加点非常自由，主要是看你怎么去蹭中线，就算打机枪也可以强行蹭中线。那小点的远近伤根本不重要。
+
+*****
+
+####  抠鼻屎男  
+##### 294#       发表于 2023-10-30 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62849828&amp;ptid=1951151" target="_blank">boxloli 发表于 2023-10-27 17:34</a>
+
+新版本老兵又硬起来咯</blockquote>
+肝了一周末，老兵总算成型了，现在动力剑+步兵自动枪5走战吼套盾流可以说非常舒服了，现在本萌新都敢去难度5混资源了，这周打算怒淦一周资源，然后把欧格林和狂信徒的装备搞一下
+
+*****
+
+####  Messiah_QY  
+##### 295#       发表于 2023-10-30 09:27
+
+现在老兵一定要试试电浆 非常的爽
+
+*****
+
+####  dfbbymice  
+##### 296#       发表于 2023-10-30 11:17
+
+老兵动力剑加强，离子炮穿透大加强，爆弹枪小加强，能用的枪又多起来了。三个以上的减伤政委流老兵进图全程硬怼，医疗站都用不着。
+
+灵能被削，感觉啥武器输出都差那么一点，除非用BUG电杖，boss又打不动，变成个打酱油补刀辅助了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+欧格林开发出了远程单喷流，输出是真的高，但是没大招打装甲兵也是真的慢
+
+*****
+
+####  抠鼻屎男  
+##### 297#       发表于 2023-10-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62878828&amp;ptid=1951151" target="_blank">dfbbymice 发表于 2023-10-30 11:17</a>
+
+老兵动力剑加强，离子炮穿透大加强，爆弹枪小加强，能用的枪又多起来了。三个以上的减伤政委流老兵进图全程 ...</blockquote>
+欧格林单喷打罐头那跳弹的音效绷不住啊。。。完全打不动
+
+*****
+
+####  抠鼻屎男  
+##### 298#       发表于 2023-10-30 13:35
+
+另外狂信徒现在用啥武器配置好？我之前是冲锋殉道流，拿重剑和猎头8，但是血线一直很紧张，有点想换别的路线，有没有推荐的？
+
+*****
+
+####  boxloli  
+##### 299#       发表于 2023-10-30 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62880592&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-30 13:35</a>
+
+另外狂信徒现在用啥武器配置好？我之前是冲锋殉道流，拿重剑和猎头8，但是血线一直很紧张，有点想换别的路 ...</blockquote>
+步兵自动枪或者龙息喷子都行，打输出，反正现在肉搏壮壮和老兵都多
+
+*****
+
+####  dfbbymice  
+##### 300#       发表于 2023-10-30 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62880592&amp;ptid=1951151" target="_blank">抠鼻屎男 发表于 2023-10-30 13:35</a>
+
+另外狂信徒现在用啥武器配置好？我之前是冲锋殉道流，拿重剑和猎头8，但是血线一直很紧张，有点想换别的路 ...</blockquote>
+我狂信就三种配置
+
+流血匕首祈祷流，流血暴击减伤刷大，远程左轮，利用跑步速度把枪兵拉成近战姿态打，实在扛不住了就在怪堆里开祈祷做标记然后相信自己的队友，输出可能会垫底，但是辅助能力拉满。也有重剑祈祷流的，但我不太适应。
+
+大小链锯剑冲锋流，枪用的阿格里皮娜固定式，我玩法比较刚都是近战上去狂砍的。
+
+隐身雷锤流，专门对boss特化，没事可以敲敲落单的罐头和变种人，带火雷和爆弹枪，娱乐配置。
+
+还有个隐身背刺刷大匕首，我平时联机的一个好友用过，感觉还不错，就是比祈祷流玩的稍微怂了一点
+
+
+*****
+
+####  抠鼻屎男  
+##### 301#       发表于 2023-10-30 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62881729&amp;ptid=1951151" target="_blank">dfbbymice 发表于 2023-10-30 15:10</a>
+
+我狂信就三种配置
+
+流血匕首祈祷流，流血暴击减伤刷大，远程左轮，利用跑步速度把枪兵拉成近战姿态打，实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你说的武器除了ak和重剑以外我都没有五维上350的，看来还是先用老兵刷刷资源吧
+
+*****
+
+####  tbone  
+##### 302#       发表于 2023-10-30 20:43
+
+破服务器老是出问题， 加速器也不能用，坛友怎么解决的
+
+*****
+
+####  dfbbymice  
+##### 303#       发表于 2023-10-30 20:51
+
+ 本帖最后由 dfbbymice 于 2023-10-30 20:52 编辑 
+
+我用的leishen加速器，但是有些朋友说是开了反而更卡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">多试试其他加速器呗
+
+屏蔽词还行
+
+*****
+
+####  aestivalls  
+##### 304#       发表于 2023-11-17 12:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">更新了上去打了吧怎么感觉比以前更卡了，还有这新图也太恶意了
+
+*****
+
+####  wakener2  
+##### 305#       发表于 2023-11-17 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63064873&amp;ptid=1951151" target="_blank">aestivalls 发表于 2023-11-17 12:17</a>
+
+更新了上去打了吧怎么感觉比以前更卡了，还有这新图也太恶意了</blockquote>
+新图不能停，跑越快越好~
+
+
+*****
+
+####  Messiah_QY  
+##### 306#       发表于 2023-11-17 14:57
+
+老老实实清怪稳步推进，特别是向下跳的断头路清好怪，才不会被怪淹死。
+
+这游戏当跑男没前途的
+
+*****
+
+####  LIPP  
+##### 307#       发表于 2023-11-17 15:03
+
+新图的土嗨电音真的好听，就是潮清的太快每次都听不完。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">去b站找也没有找到，请教一下有没有什么提取音乐的方法的。
+
+*****
+
+####  boxloli  
+##### 308#       发表于 2023-11-17 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跑男玩法上个补丁重点照顾过
+
+*****
+
+####  stlover  
+##### 309#       发表于 2023-11-17 15:34
+
+感觉各个难度都加了一堆铁皮罐头，准备润一段时间再回来玩
+
+
+*****
+
+####  dfbbymice  
+##### 310#       发表于 2023-11-17 16:39
+
+原来不止我一个人觉得新图的背景音乐土嗨啊，感觉挺适合老年人跳广场舞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
