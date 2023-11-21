@@ -9578,3 +9578,442 @@ ps版可以安排嘛，感觉这建模和画面上主机也不虚嘛
 
 你为什么要印字上去，好丑啊
 
+*****
+
+####  Alicest  
+##### 825#       发表于 2023-10-30 09:11
+
+<img src="https://img.saraba1st.com/forum/202310/30/091156gr10lqyw19qlltet.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (477.21 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-30 09:11 上传
+
+
+*****
+
+####  Alicest  
+##### 826#       发表于 2023-10-31 17:43
+
+80贫乳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202310/31/174301lhhm8m7hmm5jmw88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (101.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 17:43 上传
+
+
+*****
+
+####  acacaclove  
+##### 827#       发表于 2023-10-31 23:22
+
+60岁的雪步p，哭了哭了
+
+fa87888cd0a418782a4b24b9117ff1c4.jpeg
+(356.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-10-31 23:22 上传
+
+<img src="https://img.saraba1st.com/forum/202310/31/232202pf1gqe62w8xfet22.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wfhtony  
+##### 828#       发表于 2023-11-2 23:35
+
+ 本帖最后由 wfhtony 于 2023-11-2 23:39 编辑 
+
+“CANVAS 08”先行发售的三张封面拼起来是这样的：
+<img src="https://tc2.wfhtony.space/images/2023/11/02/7ef117b042bde7ddf4c329f8471674e7.jpg" referrerpolicy="no-referrer">
+
+|分别的封面：[LZC-2489](https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LZC-2489.jpg) | [LZC-2562](https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LZC-2562.jpg) | [LZC-2563](https://raw.githubusercontent.com/wfhtony/pic-deploy-01/master/img/LZC-2563.jpg)|
+
+虽然 Tr.3 平行線の美学 的封面之前在 Tr.2 くだらないや 先行发售的时候，就已经被烂铁临时工放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 829#       发表于 2023-11-3 09:23
+
+看了看黑星的谷价，羽那怎么已经在next leve了。果然脸和发型太重要了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Alicest  
+##### 830#       发表于 2023-11-3 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62921911&amp;ptid=2130897" target="_blank">虚无缥缈的光阴 发表于 2023-11-3 09:23</a>
+看了看黑星的谷价，羽那怎么已经在next leve了。果然脸和发型太重要了。
+
+—— 来自 S1Fun ...</blockquote>
+羽那加18卢卡减2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么卢卡这么没人要
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 831#       发表于 2023-11-3 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62922523&amp;ptid=2130897" target="_blank">Alicest 发表于 2023-11-3 10:14</a>
+羽那加18卢卡减2为什么卢卡这么没人要</blockquote>
+可能说明集美嘴上说着喜欢酷girl，其实还是喜欢长发甜妹。毕竟东亚审美不是那么好改变得<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Alicest  
+##### 832#       发表于 2023-11-4 12:52
+
+叶月传第二话
+
+这时候的日花还是店员，果然要讲shhis吗
+
+
+*****
+
+####  terry666  
+##### 833#       发表于 2023-11-4 13:16
+
+<blockquote>Alicest 发表于 2023-11-3 10:14
+羽那加18卢卡减2为什么卢卡这么没人要</blockquote>
+我一直觉得卢卡那挑染有点减分，而且她的人设（外表）确实不是那种主流审美
+
+
+*****
+
+####  Unlight  
+##### 834#         楼主| 发表于 2023-11-5 17:07
+
+百万10th ACT4 Day2 全员参战
+
+<img src="https://img.saraba1st.com/forum/202311/05/170754u4a2aricgugc3d44.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_1297.JPG</strong> (876.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-5 17:07 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  NZ-333  
+##### 835#       发表于 2023-11-8 11:30
+
+静香我能理解，疝气女士嘛；那为什么虾是恋钟
+
+<img src="https://img.saraba1st.com/forum/202311/08/112936u8j8v5tqqaqbdabt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (231.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-8 11:29 上传
+
+*****
+
+####  M829A4  
+##### 836#       发表于 2023-11-8 11:32
+
+这个MV是谁做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰寒之月  
+##### 837#       发表于 2023-11-8 11:36
+
+这是在烂铁频道放的 所以肯定是烂铁做的
+
+
+*****
+
+####  yuuuuuuuu  
+##### 838#       发表于 2023-11-8 11:54
+
+实质烂铁祭，能不能把灰姑娘踢出去啊，连个桥儿的镜头都没有
+
+
+*****
+
+####  Aendst  
+##### 839#       发表于 2023-11-9 11:14
+
+3.16-3.17真雪步双人live
+<img src="https://twitter.com/imas_official/status/1722450236495593489/photo/1" id="aimg_Cwsc9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/F-dfLF_aAAAbkMk?format=jpg&amp;name=large" id="aimg_il1g2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 840#       发表于 2023-11-9 11:24
+
+<img src="https://img.saraba1st.com/forum/202311/09/112435sgaqnqolz0j32alm.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231109110612.png</strong> (406.67 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 11:24 上传
+
+
+*****
+
+####  Srchy  
+##### 841#       发表于 2023-11-9 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播片
+
+
+*****
+
+####  水莲寺流歌  
+##### 842#       发表于 2023-11-9 11:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能不能给阁下72也整一场
+
+
+*****
+
+####  acacaclove  
+##### 843#       发表于 2023-11-9 16:24
+
+唐突提前
+
+}}15KM~{EH8I]7FAYXS)SGY_tmb.jpg
+(98.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-9 16:24 上传
+
+<img src="https://img.saraba1st.com/forum/202311/09/162441coidilsolsrlreo8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 844#       发表于 2023-11-9 16:25
+
+雪真live是3d live吧
+
+类似男人3d live那种？
+
+
+*****
+
+####  NZ-333  
+##### 845#       发表于 2023-11-10 19:37
+
+你们俩都是有管人团的吧
+<img src="https://p.sda1.dev/14/d52cbfeee5c97c4e1498441260f9bc60/IMG_CMP_97896444.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/4eebdaa88b96d4bb1d2a81fbec66a1d3/IMG_CMP_103975763.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  koodooliz  
+##### 846#       发表于 2023-11-10 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63007283&amp;ptid=2130897" target="_blank">NZ-333 发表于 2023-11-10 19:37</a>
+你们俩都是有管人团的吧</blockquote>
+万代近两三年都一直这么嗯舔管人的
+
+
+*****
+
+####  a85982313  
+##### 847#       发表于 2023-11-10 20:26
+
+服了这么大企划非要蹭管人是吧，你找个这两企划相关的，或者两初代C不比这两个逼好多了？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  acacaclove  
+##### 848#       发表于 2023-11-10 20:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  CyDiablo  
+##### 849#       发表于 2023-11-10 21:06
+
+感觉是在梦里才能见到的新鲜场面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/b6eff4ee547f63e8b43e622f4ef09c0a/Screenshot_20231110_210442.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/a3f583a188c2021a04c0df0060f09dc4/Screenshot_20231110_210446.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vacuolar  
+##### 850#       发表于 2023-11-10 21:21
+
+忽悠子表面真的能夹
+
+
+*****
+
+####  Seeley  
+##### 851#       发表于 2023-11-10 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">硬蹭管人感觉不如管马士加莲团联动直播虹杏得了
+
+
+*****
+
+####  Aendst  
+##### 852#       发表于 2023-11-10 21:39
+
+怎么蹭管人啊，理解不了<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰寒之月  
+##### 853#       发表于 2023-11-10 21:53
+
+冬優子ちゃん、顔おもしろいっす！
+
+
+*****
+
+####  wfhtony  
+##### 854#       发表于 2023-11-11 14:23
+
+ 本帖最后由 wfhtony 于 2023-11-11 14:25 编辑 
+
+<img src="https://img.saraba1st.com/forum/202311/11/142220wpoxpu3temtzu0b2.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 870 - Twitter 上的 異次元フェス アイドルマスター⭐❤️ラブライ.png</strong> (37.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-11 14:22 上传
+
+这次是 [AsobiStage 和 Abema PPV 同时配信](https://ijigen-fes.jp/utagassen/str.php)啊... （LIVE直前SP倒是[Abema独占](https://abema.tv/channels/abema-anime-3/slots/FJMiEz55yAmaDu)）
+
+咱的话目前暂定是买 [AsobiStage 那边的源](https://asobistage.asobistore.jp/event/ijigenfes_utagassen/ticket)，而且看下来好像也没有买 [Abema PPV](https://abema.tv/live-event/f53640f1-21cc-4bd6-8249-30ac6c9a41a1) 的必要。
+
+
+*****
+
+####  七草にちか  
+##### 855#       发表于 2023-11-13 22:12
+
+那我呢
+
+<img src="https://img.saraba1st.com/forum/202311/13/221214n7s6x4xxunsax62u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (367.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 22:12 上传
+
+
+*****
+
+####  acacaclove  
+##### 856#       发表于 2023-11-14 16:45
+
+scsp就是个半成品，傻逼万代
+
+
+*****
+
+####  NZ-333  
+##### 857#       发表于 2023-11-14 23:59
+
+叶月居然22<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/14/235856tupd3s0w5s5375xl.jpg" referrerpolicy="no-referrer">
+
+<strong>A[RA3DTG%6PE8{BEVZH6SO2.jpg</strong> (224.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 23:58 上传
+
+
+*****
+
+####  KozueAkimoto  
+##### 858#       发表于 2023-11-15 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043583&amp;ptid=2130897" target="_blank">NZ-333 发表于 2023-11-14 23:59</a>
+叶月居然22</blockquote>
+太假了 ，功成名就才22。为了死宅和粉丝让步<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  退行  
+##### 859#       发表于 2023-11-15 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043624&amp;ptid=2130897" target="_blank">KozueAkimoto 发表于 2023-11-15 00:08</a>
+太假了 ，功成名就才22。为了死宅和粉丝让步</blockquote>
+根据她爸和八云那事还有luca，这个年龄没什么问题，只是叶月本人太超人了
+
+
+*****
+
+####  cckuku  
+##### 860#       发表于 2023-11-16 11:29
+
+四个月前的视频终于1万再生了<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">万代你把她们招进来到底想干嘛
+
+IMG_2626.jpeg
+(358.46 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 11:26 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/112610fawb5rbwzbgqlj4r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Seeley  
+##### 861#       发表于 2023-11-16 14:24
+
+管马士现在看着还怪可怜的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Blackson  
+##### 862#       发表于 2023-11-16 14:27
+
+管马仕对比隔壁莲团来说感觉万南就没怎么宣传过它，属于有没有它都没变化
+
+
+*****
+
+####  NZ-333  
+##### 863#       发表于 2023-11-18 16:14
+
+摇滚巨星叶月
+<img src="https://p.sda1.dev/14/dc414e3e10be47da694835d8089c226f/IMG_CMP_203375152.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/f3d884d98b4349400e477016e031735e/IMG_CMP_43196115.jpeg" referrerpolicy="no-referrer">
+
