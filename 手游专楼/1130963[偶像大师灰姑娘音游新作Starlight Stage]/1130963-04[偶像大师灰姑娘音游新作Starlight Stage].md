@@ -551,3 +551,22 @@ CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
 <img src="https://hidamarirhodonite.kirara.ca/spread/301258.png" referrerpolicy="no-referrer">
 <img src="https://p.inari.site/guest/23-10/05/651ea1ff27e69.png" referrerpolicy="no-referrer">
 
+*****
+
+####  wfhtony  
+##### 5405#       发表于 2023-11-18 23:57
+
+ 本帖最后由 wfhtony 于 2023-11-19 00:00 编辑 
+
+デレステ运营开始到现在3000天了。
+
+<img src="https://img.saraba1st.com/forum/202311/18/235734k3c17ma1au5plim7.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-11-18-23-51-19-49_e7f5f3d1aa5e18da32830401b1f09d70.jpg</strong> (375.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-18 23:57 上传
+
+PS：今天下午开活动，到时候就知道大石泉的声优是谁了。
+
