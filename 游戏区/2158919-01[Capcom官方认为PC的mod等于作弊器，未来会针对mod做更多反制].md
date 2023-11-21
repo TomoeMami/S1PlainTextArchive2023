@@ -1541,3 +1541,210 @@ pcmr跟道德没关系，单纯就三个意思
 
 我也这么认为，有种不出PC版，我看卡普空上次不是说现在游戏太便宜了吗？支持不出PC版，然后主机板全面100刀售价
 
+*****
+
+####  supergilaboy  
+##### 153#       发表于 2023-11-14 19:44
+
+本来不想铲的但前面的疑似卡孝子真的太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是因为主机打不了mod在妒嫉呢还是按A按到精神都不正常了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Abba-il-Aeons  
+##### 154#       发表于 2023-11-14 22:03
+
+这几天把97年心跳回忆事件贴上来，那个也是修改器被官方定罪，本子的版权保护真是变态… （不过K婊本来也艹蛋）
+
+
+*****
+
+####  adretyu67  
+##### 155#       发表于 2023-11-14 22:10
+
+来个乐子，周末开了一下steam版大神HD。
+
+结果发现这么古老的玩意也都更新了这个eula。
+
+这么老的游戏也来，卡表，伟大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Q版胖子  
+##### 156#       发表于 2023-11-15 02:44
+
+下部怪猎的皮肤会比崛起更恶劣吧
+
+
+*****
+
+####  Mimic  
+##### 157#       发表于 2023-11-15 02:57
+
+遗憾...
+
+
+*****
+
+####  熊边上  
+##### 158#       发表于 2023-11-15 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62898320&amp;ptid=2158919" target="_blank">猫不萌 发表于 2023-10-31 10:53</a>
+我反正觉得下一代mh不可能给你搞mod了，capcom id全平台联机感觉是板上钉钉 ...</blockquote>
+那种替换模型贴图特效的mod和全平台联机之间不是你死我活啊
+
+*****
+
+####  熊边上  
+##### 159#       发表于 2023-11-15 04:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62900055&amp;ptid=2158919" target="_blank">晴岚 发表于 2023-10-31 20:30</a>
+既然大家都觉得上了pc想怎么改就怎么改，那卡普空作为游戏的所有人，更新之后让mod失效不是还能继续改吗？ ...</blockquote>
+游戏一更新mod就失效又不是卡普空特色。太多游戏都会有更新后mod用不了的情况，包括老滚，但是会有人说老滚不给打mod吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hyiang98  
+##### 160#       发表于 2023-11-15 08:11
+
+上古卷轴一更新版本号，SKSE就要停摆，99%依赖SKSE的mod也没法用，但你滚照样有游戏界数一数二的mod社区
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  jedipiggy  
+##### 161#       发表于 2023-11-15 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62896577&amp;ptid=2158919" target="_blank">dumplingpro 发表于 2023-10-31 20:55</a>
+
+去年40%占比。</blockquote>
+千万别影响RE引擎的通用VR mod啊
+
+
+*****
+
+####  轻巡羊舰  
+##### 162#       发表于 2023-11-15 23:32
+
+卡表这是明显找抽啊，搞pc玩家，怕不是没感受过毛子破解团队的苦吧，有本事别上pc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dbyboy  
+##### 163#       发表于 2023-11-16 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62898729&amp;ptid=2158919" target="_blank">karastar 发表于 2023-11-1 00:58</a>
+
+早说全程单机联网gaas氪金游戏才是未来，也就单机老害认不清形势</blockquote>
+这傻逼就只会一句话吗
+
+
+*****
+
+####  astrayl  
+##### 164#       发表于 2023-11-16 09:49
+
+这就有人进来搅浑水带正版，主机/pc的节奏？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡表可以不上pc啊，卖不好都怪mod呗，眼馋手游吸金可以去做手游啊
+
+
+*****
+
+####  ggyy88478  
+##### 165#       发表于 2023-11-16 09:58
+
+不能衣着片缕伤风败俗还怎么打僵尸啊阔拉
+
+
+*****
+
+####  妹控使徒  
+##### 166#       发表于 2023-11-16 12:06
+
+RE引擎已经有一套成熟的reframework插件体系了,   而接下来的DD2是很适合弄mod扩展的类型.
+
+就看它出来时MODer会遇到多大困难来判断吧
+
+
+*****
+
+####  Muteki_Link  
+##### 167#       发表于 2023-11-16 17:18
+
+主要是碍着自己卖官方作弊了吧
+
+
+*****
+
+####  mencius  
+##### 168#       发表于 2023-11-16 17:33
+
+你可以反制，我可以不买。实际而言，我上一次买 Capcom的游戏已经是 2018年了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ArowRocher  
+##### 169#       发表于 2023-11-16 18:01
+
+《卡普空大战Windows》
+
+
+*****
+
+####  游蜓  
+##### 170#       发表于 2023-11-16 20:18
+
+就怪猎那个傻逼end game，不开修改器就是自虐
+
+
+*****
+
+####  浅井惠  
+##### 171#       发表于 2023-11-17 09:29
+
+果然卡普空还是那个尿性，只不过游戏类型正好处在时代进步的风口显得良心了而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无色辉火  
+##### 172#       发表于 2023-11-17 10:06
+
+反正下部我已经不会再买了，所以我还是支持卡婊折腾PCMR的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 173#       发表于 2023-11-17 10:23
+
+只要上pc这种事情就杜绝不了吧，你自家游戏销量pc都占了快一半了还说这种话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ChrisSnake  
+##### 174#       发表于 2023-11-17 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62896629&amp;ptid=2158919" target="_blank">snkcapcom 发表于 2023-10-31 21:00</a>
+
+ＮＯ！！！！！！！！！！！！！！！！</blockquote>
+种呢？
+
+
+*****
+
+####  cxasuka  
+##### 175#       发表于 2023-11-18 14:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以卡婊最近闲着没事升级冰原
+
