@@ -1954,3 +1954,73 @@ good👍🏻
 
 大胆点，是一季度的量！
 
+*****
+
+####  stedckk  
+##### 14699#       发表于 2023-11-16 02:17
+
+<img src="https://img.saraba1st.com/forum/202311/16/021626cnjpjjnxdv2zzxnc.png" referrerpolicy="no-referrer">
+
+<strong>T{FDH`G}Y5)_~RULVASGP.png</strong> (64.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 02:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总贵为t2，跟t5差不多水平，果然是最大的cjb
+
+
+*****
+
+####  _Ra1nMaker  
+##### 14700#       发表于 2023-11-16 08:20
+
+她们队谁打决斗估计都差不多效果，让t2的去打真是血亏，根本发挥不出她t2的水平，还不如学别的队让t5或者t4的打。。。
+
+
+*****
+
+####  stedckk  
+##### 14701#       发表于 2023-11-16 22:35
+
+唉，要是选了葵皇就好了，这样就不用绫总去打决斗
+
+
+*****
+
+####  stedckk  
+##### 14702#       发表于 2023-11-17 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太折磨了，纯纯的拖后腿
+
+*****
+
+####  stedckk  
+##### 14703#       发表于 2023-11-19 01:45
+
+<img src="https://img.saraba1st.com/forum/202311/19/014524wkxeqkjc1xgxqjpf.png" referrerpolicy="no-referrer">
+
+<strong>7R)KV0`(G_307N~K8Y_D6CK.png</strong> (5.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-19 01:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">看来绫总压力很大。
+
+
+*****
+
+####  因为你不会  
+##### 14704#       发表于 2023-11-19 14:29
+
+绫总又要眼泪打湿枕头了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夏小筱ss  
+##### 14705#       发表于 2023-11-19 23:06
+
+第4还好吧，不是倒数就是胜利
+
