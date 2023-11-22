@@ -25,3 +25,12 @@ PV（PA制作）：
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Herreimu  
+##### 771#       发表于 2023-11-20 02:38
+
+最近看这社区越来越不对劲，你游咋成女性向偶像厨游戏了，说好的术呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+愣是把一个术这ip运营成了能赚钱的四不像，也不好说sega是sb还是nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
