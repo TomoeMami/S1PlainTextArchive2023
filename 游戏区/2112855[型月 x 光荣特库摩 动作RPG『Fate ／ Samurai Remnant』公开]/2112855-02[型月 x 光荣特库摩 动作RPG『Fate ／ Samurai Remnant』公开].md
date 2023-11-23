@@ -1766,3 +1766,56 @@ FGO的1.53就是编剧强开挂，武藏被剑豪英灵逼急了，武藏拿到�
 伊织还是赶不上的</blockquote>
 侍魂是岛原一百多年以后了
 
+*****
+
+####  zechins  
+##### 1653#       发表于 2023-11-20 09:16
+
+<img src="https://p.sda1.dev/14/94234df41074a02c928d9aad6f77fc20/F9mIKtja8AAjt-Z.jpg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/a8ab52d207788d0b0f544cafe2de90b8/F-FA2tKbsAA3NGi.jpg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/d2bb1de9017755962605f7656e8b558c/F-pC_hQbAAAEAMw.jpg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/b694edb2bdcd42563a6839927acaea02/F-KNSM0aIAAFDvX.jpg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/6fedfb035e14c840bb1b736b3da7a5b5/F-KNRTBbsAE51eA.jpg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/a6cb83da0cf7b470cc78dc58e842aa9f/F-VqWvdacAAdRsh.jpg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/85d5430b12a134f1351102d5f6a38dd3/F-9t0yfa0AATMg1.jpg.jpg" referrerpolicy="no-referrer">
+
+村カルキ@ murakaruki [https://twitter.com/murakaruki](https://twitter.com/murakaruki)
+
+
+*****
+
+####  原神高手  
+##### 1654#       发表于 2023-11-20 09:26
+
+侍魂的天草不是活人，是岛原100年后被暗黑神复活的
+
+
+*****
+
+####  ranapocket  
+##### 1655#       发表于 2023-11-20 11:28
+
+ 本帖最后由 ranapocket 于 2023-11-20 11:30 编辑 
+
+我玩时空勇士的时候幕末篇也有个天草（但是我选的路线不用打他），不知道是不是也是参考魔界转生的（还有个感想是30年前的square迷宫设计水平比现在的se强多了）
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  kaion111  
+##### 1656#       发表于 2023-11-20 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63029412&amp;ptid=2112855" target="_blank">TiiTiiLL 发表于 2023-11-13 12:39</a>
+买了豪华版周末二周目把全结局肝完了，只能说500大洋这种剧情属实有点不值，剑鬼结局算有点意思但整体剧情 ...</blockquote>
+assassin的剧情好像和生平事迹经历有关，不过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不了解看上去他就是脑子有问题
+
+
+*****
+
+####  godless2020  
+##### 1657#       发表于 2023-11-20 14:12
+
+值得玩吗，不是原著党，割草的感觉如何？？？
+
