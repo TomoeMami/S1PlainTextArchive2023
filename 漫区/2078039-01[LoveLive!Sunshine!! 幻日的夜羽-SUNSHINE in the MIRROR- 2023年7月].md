@@ -3324,3 +3324,174 @@ demo内容少不好对比......岔路多但能绕回来，Y键关小地图也不
 demo内容少不好对比......岔路多但能绕回来，Y键关小地图也不易迷路，只标记了宝箱（含唯一装备素材）， ...</blockquote>
 支援角色只有黛雅能搓三段。使用露比时，左右移动会让遮挡泡沫产生惯性，可以利用惯性遮挡玩家。
 
+*****
+
+####  cmyk1234  
+##### 300#       发表于 2023-11-15 12:29
+
+（横版游戏幻日夜羽湛海耀光）
+捡取特殊宝箱获得副武器的二段能力
+
+https://dengekionline.com/articles/208190/
+
+强化能力一览表
+花丸：按电脑引发范围爆炸，500伤害。
+黛雅：绯红德尔塔直线冲刺，夜羽不行动。
+露比：黑洞云，吸入周围东西，范围比棉花糖大一圈，小于花丸爆炸范围。
+千歌：射程、伤害同时强化的射击。
+曜：夜羽被发射的期间无敌，附带穿透敌人效果。
+果南：机器青蛙落地后原地向前出拳（类似洛克人zero1的大象boss）。
+梨子：向前直线发射三发火焰波浪，穿透物体和敌人。
+鞠莉：全屏时间停止。
+
+steam版在11月16日下午
+
+
+*****
+
+####  ads147147  
+##### 301#       发表于 2023-11-15 14:08
+
+鞠莉：全屏时间停止。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+金发魔王+the world
+
+
+*****
+
+####  MobileMeowbot  
+##### 302#       发表于 2023-11-15 14:43
+
+<img src="https://img.saraba1st.com/forum/202311/15/143406bdpi33f29c92bplk.png" referrerpolicy="no-referrer">
+
+<strong>yohane.png</strong> (343.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 14:34 上传
+
+另一款衍生游戏（卡牌肉鸽）应该不会比超级子弹娘惨吧
+
+
+*****
+
+####  cmyk1234  
+##### 303#       发表于 2023-11-15 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63047381&amp;ptid=2078039" target="_blank">ads147147 发表于 2023-11-15 14:08</a>
+鞠莉：全屏时间停止。
+
+金发魔王+the world</blockquote>
+鞠莉一阶段仅仅发射一道直线穿透屏幕的水流。
+
+
+*****
+
+####  ads147147  
+##### 304#       发表于 2023-11-15 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63047908&amp;ptid=2078039" target="_blank">cmyk1234 发表于 2023-11-15 15:07</a>
+
+鞠莉一阶段仅仅发射一道直线穿透屏幕的水流。</blockquote>
+那不就是空裂眼刺惊，更合理了（笑
+
+
+*****
+
+####  SchwarzX  
+##### 305#       发表于 2023-11-15 18:00
+
+这游戏是类银河城那种吗？有点兴趣
+
+
+*****
+
+####  cmyk1234  
+##### 306#       发表于 2023-11-15 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63049670&amp;ptid=2078039" target="_blank">SchwarzX 发表于 2023-11-15 18:00</a>
+这游戏是类银河城那种吗？有点兴趣</blockquote>
+有地形图和存档点传送，应该是
+
+
+*****
+
+####  cmyk1234  
+##### 307#       发表于 2023-11-15 23:10
+
+ns版解锁了
+
+
+*****
+
+####  cmyk1234  
+##### 308#       发表于 2023-11-16 10:30
+
+爬墙手套附赠爬墙跳，搭配二段跳鞋子可以同向三角跳。
+
+
+*****
+
+####  愿墨争皓月  
+##### 309#       发表于 2023-11-18 06:07
+
+有人玩了没？感觉做的怎么样啊？
+
+
+*****
+
+####  雪城穗乃香  
+##### 310#       发表于 2023-11-18 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63054571&amp;ptid=2078039" target="_blank">cmyk1234 发表于 2023-11-16 10:30</a>
+爬墙手套附赠爬墙跳，搭配二段跳鞋子可以同向三角跳。</blockquote>
+二段跳只能落地重置，真要无限三角跳还得让曜把夜羽砸墙上，不过也没几个场景能用到这技巧
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  雪城穗乃香  
+##### 311#       发表于 2023-11-18 07:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63071557&amp;ptid=2078039" target="_blank">愿墨争皓月 发表于 2023-11-18 06:07</a>
+有人玩了没？感觉做的怎么样啊？</blockquote>
+关卡上限低，敌人种类少，BOSS平庸，玩法流派研究性有限，剧情TV水平
+除了IP和稻船社应有的优秀手感外就是个素质平庸的银河城
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  wsdbyh  
+##### 312#       发表于 2023-11-18 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63071557&amp;ptid=2078039" target="_blank">愿墨争皓月 发表于 2023-11-18 06:07</a>
+
+有人玩了没？感觉做的怎么样啊？</blockquote>
+手感和BOSS战不错，就是流程短又没啥隐藏要素和附加模式
+
+
+*****
+
+####  愿墨争皓月  
+##### 313#       发表于 2023-11-19 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63071687&amp;ptid=2078039" target="_blank">雪城穗乃香 发表于 2023-11-18 07:48</a>
+关卡上限低，敌人种类少，BOSS平庸，玩法流派研究性有限，剧情TV水平
+除了IP和稻船社应有的优秀手感外就 ...</blockquote>
+就是玩一乐还是可以的呗？剧情没啥雷点我就直接购入了
+
+
+*****
+
+####  离心  
+##### 314#       发表于 2023-11-19 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63078189&amp;ptid=2078039" target="_blank">愿墨争皓月 发表于 2023-11-19 00:11</a>
+
+就是玩一乐还是可以的呗？剧情没啥雷点我就直接购入了</blockquote>
+有啥雷点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
