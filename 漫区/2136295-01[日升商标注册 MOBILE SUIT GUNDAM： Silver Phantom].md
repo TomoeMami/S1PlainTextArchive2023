@@ -638,3 +638,68 @@ SEED看财报的意思是财年内就上映了，只不过财团B还没开始宣
 
 —— 来自 Xiaomi 22127RK46C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Piano-Forest  
+##### 72#         楼主| 发表于 2023-11-19 10:24
+
+VR动画……
+[https://www.animenewsnetwork.com ... th-vr-anime/.204548](https://www.animenewsnetwork.com/news/2023-11-18/bandai-namco-filmworks-reveals-gundam-silver-phantom-feature-length-vr-anime/.204548)
+
+<img src="https://p.sda1.dev/14/183b12b873e782db3d969d5db830862b/20231119_102219.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  -lilipeipei-  
+##### 73#       发表于 2023-11-20 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">VR动画还行
+
+
+*****
+
+####  Piano-Forest  
+##### 74#         楼主| 发表于 2023-11-20 10:56
+
+官网：[https://www.gundam.info/feature/silverphantom](https://www.gundam.info/feature/silverphantom)
+
+PV：[https://youtu.be/ah8moXbpnVE](https://youtu.be/ah8moXbpnVE)
+
+ヴァーチャル・リアリティ（VR）による新規映像作品
+
+『機動戦士ガンダム：銀灰の幻影』制作決定
+
+『機動戦士ガンダム：銀灰の幻影』はVR映画として新たな方法でファンにガンダム世界へ没入する機会を提供し、これまでにないインタラクティブなストーリーへと誘う映像作品となります。
+
+また、本作は多数のVR作品生み出したAtlas Ⅴ社との共同により制作され、Astrea社 がディストリビュートを行い、Meta社のVRヘッドセット・Meta Questにて展開予定です。
+
+VRによるガンダム世界の新体験を通じて、世界中のファンにガンダムの魅力を届けていきます。
+<img src="https://p.sda1.dev/14/13f9572e996cfde1d09baad260d1e0b5/20231120_105354.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  有骨气的百合  
+##### 75#       发表于 2023-11-20 11:08
+
+没活了
+
+
+*****
+
+####  王留美  
+##### 76#       发表于 2023-11-21 15:03
+
+就是把富士急的4D短篇搬到VR里面去吧
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 77#       发表于 2023-11-21 16:16
+
+vr动画这玩意没vr能看吗
+
+—— 来自 OnePlus PGKM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
