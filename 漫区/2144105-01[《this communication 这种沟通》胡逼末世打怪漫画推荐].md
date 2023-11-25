@@ -1116,3 +1116,77 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥们活得也太累了 后宫们什么时候能修正这男主
 
 
+*****
+
+####  Unlight  
+##### 107#       发表于 2023-11-21 12:45
+
+ 本帖最后由 Unlight 于 2023-11-21 12:50 编辑 
+
+那群女人将德鲁哈打至跪地……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  lzz  
+##### 108#       发表于 2023-11-22 02:37
+
+哈人，唐突心跳回忆
+
+
+*****
+
+####  wddjs  
+##### 109#       发表于 2023-11-22 08:48
+
+萝莉病娇忠犬真是至福啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  reficulp  
+##### 110#       发表于 2023-11-22 09:11
+
+德鲁哈，我的超人233333他只是想吃多一顿饭而已啊。话说7和8的设定有点伤感啊，往前拨的年龄没法再返回去了…
+
+
+*****
+
+####  第贰个十年  
+##### 111#         楼主| 发表于 2023-11-22 10:28
+
+有点幽默了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这次我想看到德鲁哈因为失忆判断错误最后被六小只反杀，然后被迫回去当🌟奴隶啊
+
+—— 来自 HUAWEI OXF-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  寒蝉  
+##### 112#       发表于 2023-11-22 11:09
+
+德鲁哈，情圣模式开启<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  redsouris  
+##### 113#       发表于 2023-11-22 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63105904&amp;ptid=2144105" target="_blank">reficulp 发表于 2023-11-22 09:11</a>
+德鲁哈，我的超人233333他只是想吃多一顿饭而已啊。话说7和8的设定有点伤感啊，往前拨的年龄没法再返回去了 ...</blockquote>
+生肉里78已经没了走的很不安详
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  北山玖公  
+##### 114#       发表于 2023-11-22 22:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到16话德鲁哈也太天衣无缝了，确实感觉到了这种极其强大的男性好像很对作者的胃口。
+
