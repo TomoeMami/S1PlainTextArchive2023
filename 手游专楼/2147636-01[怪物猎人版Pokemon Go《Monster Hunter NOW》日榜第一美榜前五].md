@@ -2777,3 +2777,21 @@ mhnow提名TGA最佳手游。诸君，我想看乐子<img src="https://static.sa
 
 真蓄3從 22+278→34+278，強橫1 79→60 強橫2 90→79 強橫3 90→90
 
+*****
+
+####  dudideng  
+##### 161#       发表于 2023-11-22 11:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还想说楼怎么沉了，原来是lz没了。
+貌似要更新雷狼龙和长枪？
+
+—— 来自 Google Pixel 7 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  GALLADE  
+##### 162#       发表于 2023-11-22 16:10
+
+这游戏感觉已经凉了吧，繁华地段开紫星火龙都要等半天，实际上4星上去之后急剧拉升的提升曲线配合这个药水和没好怪的限制，基本都是留不住轻度玩家的
+
