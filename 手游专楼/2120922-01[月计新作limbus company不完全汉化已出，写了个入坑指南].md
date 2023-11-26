@@ -6451,3 +6451,294 @@ PV里展示了战令的六个ego，看着都挺帅：
 
 饼太多，要撑死哩<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 408#       发表于 2023-11-16 11:59
+
+新版本好酷炫啊，直接把战令ego当登录界面<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 409#       发表于 2023-11-16 12:03
+
+新人格是三星的双钩海贼团大副格里高利，黄蓝青配色的穿刺人格，呼吸体系；二星的LCCB良秀，技能橙绿蓝（刺刺打），也是呼吸体系。
+
+看来要强推呼吸体系了，可能常驻人格会加一些笑面或者齿轮教团？
+
+*****
+
+####  Jamaisvu  
+##### 410#       发表于 2023-11-16 12:07
+
+经验本加了LV33，纽本加了LV40，今天是青色忧郁本，里面是火铜牛...不愧是和鼠标杀手强化机器人一个系列，以后就扫荡你了。
+
+
+*****
+
+####  Jamaisvu  
+##### 411#       发表于 2023-11-16 14:11
+
+付费狂气有新用了，1300买一个播报员，2600买一个ego......月计没有金钱概念吗？
+
+
+*****
+
+####  Yuzutea  
+##### 412#       发表于 2023-11-16 15:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会代替无头鱼的是电蜈蚣吧
+
+
+*****
+
+####  erratic璃月  
+##### 413#       发表于 2023-11-16 19:59
+
+没想到牛可以用十罗单刷，如果后面的纽本也这样就好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 414#       发表于 2023-11-16 21:20
+
+晒卡预警：
+
+这游戏的卡池up概率好迷啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他们俩自己的池子却没出货...
+
+
+*****
+
+####  Yuzutea  
+##### 415#       发表于 2023-11-17 13:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这赛季强度普通的卡没必要出就合了
+
+上赛季最后几张必定三星卷全浪费了
+
+
+*****
+
+####  erratic璃月  
+##### 416#       发表于 2023-11-17 17:45
+
+ 本帖最后由 erratic璃月 于 2023-11-17 17:46 编辑 
+
+中指二人组给我整不会了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 417#       发表于 2023-11-17 18:29
+
+<img src="https://img.saraba1st.com/forum/202311/17/181854jtm9jpjh8hqiqdhj.jpg" referrerpolicy="no-referrer">
+
+<strong>1F7AFFA819D1ACCA0893C50301B2E215.jpg</strong> (207.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 18:18 上传
+
+新饼来啦，3号镜牢，圣诞活动，三号线，剑契活动（？），第六章。
+
+下周新池子，中指唐和中指锁：
+
+<img src="https://img.saraba1st.com/forum/202311/17/182819jf1446rfa669qa0p.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231117_182801.jpg</strong> (307.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 18:28 上传
+
+（话说你们帮派的男人也叫末妹啊...）
+
+*****
+
+####  Jamaisvu  
+##### 418#       发表于 2023-11-17 18:32
+
+ 本帖最后由 Jamaisvu 于 2023-11-17 18:39 编辑 
+
+<img src="https://img.saraba1st.com/forum/202311/17/183157u9my144th0qm0q03.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231117_183122.jpg</strong> (184.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202311/17/183824b4s0s8l8i88lvsnv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231117_183800.jpg</strong> (204.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202311/17/183158mqccdkzbd4bzddcm.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231117_183103.jpg</strong> (218.41 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202311/17/183159kdvnlavlfdx6dfb8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231117_183113.jpg</strong> (197.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 18:31 上传
+
+又是圣诞又是中指，维吉尔看得很亲切吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 419#       发表于 2023-11-17 18:34
+
+ 本帖最后由 Jamaisvu 于 2023-11-17 18:36 编辑 
+
+默尔索简直是一块璞玉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">初看平平无奇毫无眼缘，套上人格皮肤后陡增色气。
+
+
+*****
+
+####  erratic璃月  
+##### 420#       发表于 2023-11-17 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63068322&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-11-17 18:34</a>
+
+默尔索简直是一块璞玉初看平平无奇毫无眼缘，套上人格皮肤后陡增色气。 ...</blockquote>
+两个都是**大（喜
+
+5.5没配音了（悲
+
+
+*****
+
+####  ヒトニナル  
+##### 421#       发表于 2023-11-17 19:28
+
+这中指给我感觉就是叮当会pro max版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 422#       发表于 2023-11-17 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上赛季最后箱子全换纽了，换不了小唐了，可恶
+
+
+*****
+
+####  Yuzutea  
+##### 423#       发表于 2023-11-20 13:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新版本感觉兔子不四破难用了啊
+
+
+*****
+
+####  哩子ayil  
+##### 424#       发表于 2023-11-20 17:05
+
+小唐每次的颜都能稳定超级可爱啊
+
+不过才意识到小唐原来这么有料的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+以前完全没注意
+
+
+*****
+
+####  Jamaisvu  
+##### 425#       发表于 2023-11-20 18:57
+
+<img src="https://img.saraba1st.com/forum/202311/20/185453tz3zw25jrrrrjjwc.jpg" referrerpolicy="no-referrer">
+
+<strong>4AD85147B3E0269EBFCB578E04BC34DE.jpg</strong> (391.97 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 18:54 上传
+
+<img src="https://img.saraba1st.com/forum/202311/20/185454x86ynnyavo12o8ne.jpg" referrerpolicy="no-referrer">
+
+<strong>C9998FAE7F291ECEE512137E124B30F3.jpg</strong> (100.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 18:54 上传
+
+やられたらやり返す、倍返しだ！
+
+反击竟然有两个硬币，这下自动P可就亏了。
+
+中指还挺记仇的，怪不得狼姐会扭曲化。
+
+
+*****
+
+####  Yuzutea  
+##### 426#       发表于 2023-11-20 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强者技能模版，会是强者点数吗
+
+
+*****
+
+####  Yuzutea  
+##### 427#       发表于 2023-11-23 12:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新卡都是这种点数咋上场啊
+
+
+*****
+
+####  erratic璃月  
+##### 428#       发表于 2023-11-23 16:09
+
+ 本帖最后由 erratic璃月 于 2023-11-23 16:10 编辑 
+
+big brother也忒难打了,上一次打到这样弹尽粮绝还是klm的时候<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 429#       发表于 2023-11-23 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63120061&amp;ptid=2120922" target="_blank">erratic璃月 发表于 2023-11-23 16:09</a>
+
+big brother也忒难打了,上一次打到这样弹尽粮绝还是klm的时候</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉没当时打klm麻烦
+
+大点数用红艳煞拼掉再随便用个EGO拼掉另一个下回合基本就到阶段了
+
+我兔子还第一回合就给大哥反击毙掉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl 悔恨浮这种超长线表现真挺好的
+
+
+*****
+
+####  erratic璃月  
+##### 430#       发表于 2023-11-23 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63120914&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-11-23 17:31</a>
+
+感觉没当时打klm麻烦
+
+大点数用红艳煞拼掉再随便用个EGO拼掉另一个下回合基本就到阶段了
+
+我兔子还 ...</blockquote>
+刚开第三章klm也没攻略，初见大迷宫前后抗性不一样，人格练度深度也不如现在。主要没注意负面状态给强壮，确实折磨了我挺久。这回也没想到yj最后塞个正儿八经的bb在终幕，现在看来少人会更好打一点，结果当时6个人就傻乎乎的上了。虽然一次过了，但6个折了2个，剩下4个全大残。罪孽资源也用的一干二净，压力还是给足了。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
