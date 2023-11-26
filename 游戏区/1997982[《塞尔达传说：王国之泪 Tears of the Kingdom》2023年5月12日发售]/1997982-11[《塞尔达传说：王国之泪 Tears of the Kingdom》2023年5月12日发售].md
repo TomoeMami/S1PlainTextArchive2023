@@ -7022,3 +7022,77 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 主要就是想听法伊再喊我一声 master ...</blockquote>
 他说的大概是野炊开始那个嗡嗡嗡的音效 天剑版那种估计是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  冷泉夜月  
+##### 15594#       发表于 2023-11-23 09:38
+
+ 本帖最后由 冷泉夜月 于 2023-11-23 09:40 编辑 
+
+<img src="https://img.saraba1st.com/forum/202311/23/093639bokyppyevuuudyjj.jpg" referrerpolicy="no-referrer">
+
+<strong>加侬立像1.jpg</strong> (743.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 09:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/23/093643ksjdf5ponifzsnsb.jpg" referrerpolicy="no-referrer">
+
+<strong>林克加侬立像1.jpg</strong> (442.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 09:36 上传
+
+<img src="https://img.saraba1st.com/forum/202311/23/093647aumi3u0m8kaaxubi.jpg" referrerpolicy="no-referrer">
+
+<strong>林克立像1.jpg</strong> (816.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 09:36 上传
+
+【魔王】加侬多夫 等身大雕像亮相！<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+塞尔达公主的等身大雕像将于2024年1月Nintendo Live Tokyo现场展出<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+老任你能不能继续把版权给Max Factory之类的，再出点靠谱的手办哦<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冷泉夜月  
+##### 15595#       发表于 2023-11-23 20:22
+
+<img src="https://img.saraba1st.com/forum/202311/23/201832rowjw1kkn18x8ykx.jpg" referrerpolicy="no-referrer">
+
+<strong>林克加侬立像2.jpg</strong> (306.01 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 20:18 上传
+
+有一说一这个角度针不戳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/23/201905fr3q03ykbohkyhrh.jpg" referrerpolicy="no-referrer">
+
+<strong>20240120塞尔达音乐会.jpg</strong> (152.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 20:19 上传
+
+然后在Nintendo Live Tokyo上，1月20日下午17点会有塞尔达音乐会的线上免费直播<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15596#       发表于 2023-11-23 21:11
+
+我一直在等塞尔达音乐会再搞一次全球巡演来着……
+40周年时能等到吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
