@@ -1082,3 +1082,26 @@ asmr第二弹出了
 
 日服22号开战国之刃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都连着好几个讨好新人的弱保软活动了，除了补捞个日灵以外毫无吸引力
 
+*****
+
+####  红白二色霉豆腐  
+##### 102#       发表于 2023-11-22 09:34
+
+之前剧情CG里就看到taesi画的虎鲸比corgi的原画劲好多，虽然前段时间taesi高强度画皮肤看得有点审美疲劳了，但这次太顶惹<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑上シグマ  
+##### 103#       发表于 2023-11-22 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">离线自律一开，刷资源进入30秒时代了
+
+
+*****
+
+####  铁火辉夜  
+##### 104#       发表于 2023-11-25 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3-4s只能凹到33秒，摆了
+
