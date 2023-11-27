@@ -743,3 +743,18 @@ ELIN美术大进步啊<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 HUAWEI MGA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+*****
+
+####  batrain  
+##### 68#       发表于 2023-11-24 15:40
+
+noa在X上表示，alpha测试今年年底开始，EA计划2024年年中。
+
+
+*****
+
+####  九十九忍  
+##### 69#       发表于 2023-11-24 19:36
+
+蒸汽上还写着发行日期2023年
+
