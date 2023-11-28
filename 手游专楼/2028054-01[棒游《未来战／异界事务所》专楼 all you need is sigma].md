@@ -1464,3 +1464,14 @@ pvp是觉醒地狙 打拳
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 957#         楼主| 发表于 2023-11-25 21:44
+
+对了 金丝雀小队的原型是上过太空的
+这次剧情已经揭示莱卡的过往跟太空有密切的关系
+那么金丝雀小队后续剧情会不会再次登上太空 然后死掉。
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
