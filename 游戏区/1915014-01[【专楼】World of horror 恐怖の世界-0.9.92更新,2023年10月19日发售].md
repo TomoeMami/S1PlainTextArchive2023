@@ -5046,3 +5046,56 @@ MOD铁PC端
 
 想弄个李火旺玩了
 
+*****
+
+####  Tnsbilws  
+##### 302#         楼主| 发表于 2023-11-23 00:43
+
+<img src="https://img.saraba1st.com/forum/202311/23/004247cytyy8dnod5qag8p.png" referrerpolicy="no-referrer">
+
+<strong>2)QY1_1F0F0~GGJW71Q2`F4.png</strong> (75.42 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 00:42 上传
+
+<img src="https://img.saraba1st.com/forum/202311/23/004248qg8agnnh83ylnoww.png" referrerpolicy="no-referrer">
+
+<strong>Q58%5`J`Z}ZNT]P`YH9DO9Q.png</strong> (57.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 00:42 上传
+
+创意工坊系统施工中
+
+*****
+
+####  Tnsbilws  
+##### 303#         楼主| 发表于 2023-11-23 00:53
+
+ 本帖最后由 Tnsbilws 于 2023-11-23 00:54 编辑 
+
+<img src="https://img.saraba1st.com/forum/202311/23/005137ceghezbee1ftb103.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20231123005036.png</strong> (132.64 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 00:51 上传
+
+额外消息：Panstasz和伊藤润二线下面积采访的英文版本（之前fami通杂志有日语的采访）已发布。找个时间翻译一下。
+这图有个很形象的说法：Pans给伊藤润二的情书，来回信了。
+
+另外：
+
+<img src="https://img.saraba1st.com/forum/202311/23/005140o83pp99qqfp9dedp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20231022105002.png</strong> (49.89 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-23 00:51 上传
+
+特别鸣谢这里是我~~~
+
