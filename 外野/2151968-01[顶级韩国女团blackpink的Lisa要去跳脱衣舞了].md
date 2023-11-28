@@ -4716,3 +4716,34 @@ ab活该，但是是这个录音，青春草率又**的声音还挺好听的，�
 
 结果发现别说什么国际观瞻演艺生涯，连摇尾巴讨好的富哥都没把她当回事，完全就是笑话一个了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说大胆和无谋在结果显现前确实是很有舆论发挥的空间
 
+*****
+
+####  magus  
+##### 479#       发表于 2023-11-25 12:30
+
+刚刚过完75岁生日的查尔斯三世，把四枚“员佐勋章”（简称：MBE）分别送给了BLACKPINK的四名成员，以表彰她们担任了第26届联合国气候变化大会（COP26，曾于2年前在英国的格拉斯哥举行）倡导者的角色。此外她们还是联合国可持续发展目标的全球大使。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Qet  
+##### 480#       发表于 2023-11-25 13:20
+
+<img src="https://k.sinaimg.cn/n/sinakd20200828ac/202/w641h361/20200828/f2e2-iyhvyva8372812.jpg/w700d1q75cms.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Phalaenopsis  
+##### 481#       发表于 2023-11-25 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63135623&amp;ptid=2151968" target="_blank">Qet 发表于 2023-11-25 13:20</a></blockquote>
+看见这张图，想起来小时候国内刚刚开始流行韩剧，什么东西好像加上韩国就时髦了，小学附近卖小鸡的摊贩把小鸡染的五颜六色，大声吆喝“南韩五彩鸡，南韩五彩鸡，南韩流行的新品种，五彩鸡”。真事。
+
+*****
+
+####  野上由加奈  
+##### 482#       发表于 2023-11-25 14:11
+
+看八卦说lv三公子之前想泡谷圣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
