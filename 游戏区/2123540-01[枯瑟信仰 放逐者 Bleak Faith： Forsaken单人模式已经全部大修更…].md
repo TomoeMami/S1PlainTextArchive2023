@@ -2820,3 +2820,295 @@ boss技能和地图都有改变, 完成度似乎又稍微高了一些, 但有些
 这游戏精力条回复真是天才设计，难怪没几个人玩</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">精力条用完会有短暂惩罚效果尽量别掏空，武器有节奏按会有暴击伤害加成， 
 
+*****
+
+####  慕容断月  
+##### 222#       发表于 2023-11-22 10:36
+
+今天出其不意推出个大更新，除了加了等级系统（可以但没啥必要），还把前面关卡的光影重做了，有些关卡画面风格完全不同了，好评
+
+
+*****
+
+####  blueelf  
+##### 223#       发表于 2023-11-22 11:00
+
+第一个BOSS卡了好久了，太难了太难了
+
+
+*****
+
+####  violettor  
+##### 224#       发表于 2023-11-22 11:49
+
+话说更新后是不是把地图切割了，现在前往新区域要loading了？之前是无缝大地图吧。
+
+
+*****
+
+####  DawnGuardian  
+##### 225#       发表于 2023-11-22 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63107776&amp;ptid=2123540" target="_blank"> violettor 发表于 2023-11-22 11:49</a> 话说更新后是不是把地图切割了，现在前往新区域要loading了？之前是无缝大地图吧。 </blockquote>
+我怎么记得发售没多久就改了？不过以前说是无缝，切图加载时会有明显的卡顿和光影变化，体验其实也不太好，但没法从下水道坐电梯直上云霄体验一把blame！名场景还是多少有些遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  qappip  
+##### 226#         楼主| 发表于 2023-11-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63107776&amp;ptid=2123540" target="_blank">violettor 发表于 2023-11-22 11:49:02</a>
+话说更新后是不是把地图切割了，现在前往新区域要loading了？之前是无缝大地图吧。 ...</blockquote>说是读盘感觉就是为了消除bug重置了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qappip  
+##### 227#         楼主| 发表于 2023-11-22 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63106867&amp;ptid=2123540" target="_blank">慕容断月 发表于 2023-11-22 10:36:45</a>
+今天出其不意推出个大更新，除了加了等级系统（可以但没啥必要），还把前面关卡的光影重做了，有些关卡画面 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卧槽，还有更新过几天回去看看
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  qappip  
+##### 228#         楼主| 发表于 2023-11-22 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63107154&amp;ptid=2123540" target="_blank">blueelf 发表于 2023-11-22 11:00:25</a>
+第一个BOSS卡了好久了，太难了太难了</blockquote>康老板招式非常固定，拿出玩音游心态打就好，不要贪刀。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  stair楼梯  
+##### 229#       发表于 2023-11-22 21:10
+
+这游戏更新了这个级别系统后，把血加到我现在的两倍后，敌人打我还是很痛，然而我血瓶的回复量反而是原来的二分一，这游戏不会敌人是按百分比扣血吧……
+
+
+*****
+
+####  慕容断月  
+##### 230#       发表于 2023-11-23 01:32
+
+希望未来还是把无缝地图搞回来，有跟没有还是很大区别的
+
+
+*****
+
+####  shyso  
+##### 231#       发表于 2023-11-23 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63114843&amp;ptid=2123540" target="_blank">慕容断月 发表于 2023-11-23 01:32</a>
+
+希望未来还是把无缝地图搞回来，有跟没有还是很大区别的</blockquote>
+我记得设置里有选项，可以设置成换大区的时候不黑屏，但是选项提示了之所以黑屏是为了避免画面转变太突兀
+
+如果选择不黑屏，坐电梯或者走隧道的时候就会产生光照完全消失然后重新渲染的情况，我觉得也好不到那里去
+
+
+*****
+
+####  慕容断月  
+##### 232#       发表于 2023-11-23 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63116022&amp;ptid=2123540" target="_blank">shyso 发表于 2023-11-23 09:35</a>
+
+我记得设置里有选项，可以设置成换大区的时候不黑屏，但是选项提示了之所以黑屏是为了避免画面转变太突兀 ...</blockquote>
+多谢，确实有这个选项，试了下也确实和提示说的一样切区部分会卡顿，但就算这样体验还是比黑屏读取好不少
+
+
+*****
+
+####  qappip  
+##### 233#         楼主| 发表于 2023-11-23 17:45
+
+我是多周目砍了一个杂兵升满级30了，力气加点70+ 大剑一刀一千多还是切菜。
+变化最大是云顶， 群塔的点能看到迷宫的浮空遗迹群！ 往下看能看到终局 深入地心几千米的迷宫，没想到这么大。 群塔和独塔加了一块新区域现在不用骑巨蛇了。而且云顶现在能看到 积木区部分显眼地标了。
+大部分地区色调改成接近初版的暗色了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  阿萨辛艾沃尔  
+##### 234#       发表于 2023-11-23 18:04
+
+有没有汉化，有没有汉化<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qappip  
+##### 235#         楼主| 发表于 2023-11-23 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63121192&amp;ptid=2123540" target="_blank">阿萨辛艾沃尔 发表于 2023-11-23 18:04</a>
+有没有汉化，有没有汉化</blockquote>
+没有，这游戏文本超级少，只要你看得懂几个技能说明就行。 
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  qappip  
+##### 236#         楼主| 发表于 2023-11-23 20:00
+
+云顶孤塔和群塔往下看远景居然不一样，不在是积木区的景点了，而是初始地区修道院 那些长长无尽建筑墙，这玩意在幽灵村坐地铁能看到远景也是这个。 
+作者多次修改远景，感觉真的有强迫症，不过好处就是 全地图走一遍，你可以轻松脑海构建出 整个3d立体地图了。  
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  慕容断月  
+##### 237#       发表于 2023-11-24 08:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63122048&amp;ptid=2123540" target="_blank">qappip 发表于 2023-11-23 20:00</a>
+
+云顶孤塔和群塔往下看远景居然不一样，不在是积木区的景点了，而是初始地区修道院 那些长长无尽建筑墙，这 ...</blockquote>
+好事，就跟xb一样，走哪能根据远景判断现在位置，非常好
+
+
+*****
+
+####  violettor  
+##### 238#       发表于 2023-11-24 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63121030&amp;ptid=2123540" target="_blank">qappip 发表于 2023-11-23 17:45</a>
+ 我是多周目砍了一个杂兵升满级30了，力气加点70+ 大剑一刀一千多还是切菜。 变化最大是云顶， 群塔的点能看 ...</blockquote>
+啊，那原来的巨蛇还可以走上去吗，坐在巨蛇身上漫游云端是我最喜欢的环节之一55555
+
+
+*****
+
+####  qappip  
+##### 239#         楼主| 发表于 2023-11-24 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63124515&amp;ptid=2123540" target="_blank">慕容断月 发表于 2023-11-24 08:11</a>
+好事，就跟xb一样，走哪能根据远景判断现在位置，非常好</blockquote>
+确实，我现在知道游戏一开始背面那个类似铁道的装置是啥了，还有地理位置上面就是幽灵村坐地铁回来那块， 建筑墙应该是同一块，再往上就云顶孤塔天文台，这三几乎是同一个点非常奇妙。 这两天比较忙还没回去怎么玩，不知道地心那块有没有改动。  
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qappip  
+##### 240#         楼主| 发表于 2023-11-24 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125320&amp;ptid=2123540" target="_blank">violettor 发表于 2023-11-24 09:53</a>
+啊，那原来的巨蛇还可以走上去吗，坐在巨蛇身上漫游云端是我最喜欢的环节之一55555 ...</blockquote>
+新加的地区，我在孤塔看的时候发现远景多了一大块，孤塔坐电梯去幽灵村那个路线就能去
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  violettor  
+##### 241#       发表于 2023-11-24 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125354&amp;ptid=2123540" target="_blank">qappip 发表于 2023-11-24 09:57</a>
+ 新加的地区，我在孤塔看的时候发现远景多了一大块，孤塔坐电梯去幽灵村那个路线就能去  —— 来自 HUAWEI ...</blockquote>
+哦哦所以原来的坐蛇路线还在是吗，那就好。感觉新内容很多啊，可以重玩一遍了
+
+
+*****
+
+####  qappip  
+##### 242#         楼主| 发表于 2023-11-24 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125381&amp;ptid=2123540" target="_blank">violettor 发表于 2023-11-24 10:00:18</a>
+哦哦所以原来的坐蛇路线还在是吗，那就好。感觉新内容很多啊，可以重玩一遍了 ...</blockquote>积洪区之前问加过一块新地区，需要潜水找入口，水里有个颜色不一样灯就是引导。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  stair楼梯  
+##### 243#       发表于 2023-11-24 12:57
+
+这游戏需要上背的那种巨型敌人该咋打，每次上背没砍几刀就被抖下来了
+
+
+*****
+
+####  qappip  
+##### 244#         楼主| 发表于 2023-11-24 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63127324&amp;ptid=2123540" target="_blank">stair楼梯 发表于 2023-11-24 12:57</a>
+这游戏需要上背的那种巨型敌人该咋打，每次上背没砍几刀就被抖下来了</blockquote>
+巨人身上身体有几段血条的，可以跳来跳去的，捅完一段血是必然掉下来，然后修脚等巨人跪了再爬上去捅 。还有捅的时候如果巨人要抓你记得跳别的地方就好。  捅过一段血的地方不要再捅，记得换新地方。
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  shyso  
+##### 245#       发表于 2023-11-24 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63127324&amp;ptid=2123540" target="_blank">stair楼梯 发表于 2023-11-24 12:57</a>
+
+这游戏需要上背的那种巨型敌人该咋打，每次上背没砍几刀就被抖下来了</blockquote>
+根据你武器的攻速，每个地方能捅几刀是有数的，时间到了不换地方或者不下来肯定被打，数着打就行了，比如这次上去捅了四刀被打下来了，下次上去就只捅三刀
+
+
+*****
+
+####  ftfkjb  
+##### 246#       发表于 2023-11-24 15:04
+
+3dm有汉化补丁1.0可以用。
+不过我玩这游戏会在经过皇帝及其护卫群后、像是挖矿区的地方，坐第二个升降梯下去时出bug，到底下时升降梯外面是白色，门口有个机关，但跳出去会一直跌还不死，只能重新来。
+这游戏后期的红眼骑士十分扯淡，跑路举步维艰。还有铠甲似乎加到顶都是相似的攻防值，只不过有轻重科技之分。
+地图确实有探索乐趣，战斗缺乏快感滋味。有些区域还是显得空。
+
+
+*****
+
+####  qappip  
+##### 247#         楼主| 发表于 2023-11-24 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63128606&amp;ptid=2123540" target="_blank">ftfkjb 发表于 2023-11-24 15:04:58</a>
+3dm有汉化补丁1.0可以用。
+不过我玩这游戏会在经过皇帝及其护卫群后、像是挖矿区的地方，坐第二个升降梯下 ...</blockquote>如果红皮你打的艰难，先看下红皮属性抗性，精英和boss血条是有显示各种抗性的，再看下装备。 装备跟上的话，比方我用大剑砍红皮打出暴击的话，两刀就行。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  慕容断月  
+##### 248#       发表于 2023-11-25 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63128606&amp;ptid=2123540" target="_blank">ftfkjb 发表于 2023-11-24 15:04</a>
+
+3dm有汉化补丁1.0可以用。
+
+不过我玩这游戏会在经过皇帝及其护卫群后、像是挖矿区的地方，坐第二个升降梯下 ...</blockquote>
+3dm那个补丁改了主程序，可能会导致奇怪的问题，鉴于这游戏大更新相对还算频繁，所以还是得斟酌下
+
+
+*****
+
+####  qappip  
+##### 249#         楼主| 发表于 2023-11-27 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63133407&amp;ptid=2123540" target="_blank">慕容断月 发表于 2023-11-25 01:04</a>
+3dm那个补丁改了主程序，可能会导致奇怪的问题，鉴于这游戏大更新相对还算频繁，所以还是得斟酌下
+
+ ...</blockquote>
+汉化补丁好像不能用于最新的版本，直接报错
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
