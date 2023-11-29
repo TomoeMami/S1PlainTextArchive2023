@@ -1029,3 +1029,132 @@ BV1DQ4y1n7nP
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  Totokei  
+##### 1815#       发表于 2023-11-21 10:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次的雪地真的全面阴间，以前驾照的拉力赛段都很简单就过了，结果新内容和雪地相关的全都在坐牢
+
+线上计时坐牢
+大师驾照坐牢，最后的IA9跑了四十多公里才勉强金
+大师最后一个系列如果要跑一圈完整的话我要昏了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  byisme001  
+##### 1816#       发表于 2023-11-21 18:58
+
+sm山内又把刷钱修了
+
+
+*****
+
+####  一个陆仁贾  
+##### 1817#       发表于 2023-11-22 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63096416&amp;ptid=2027972" target="_blank">Totokei 发表于 2023-11-21 10:00</a>
+这次的雪地真的全面阴间，以前驾照的拉力赛段都很简单就过了，结果新内容和雪地相关的全都在坐牢
+
+ ...</blockquote>
+你可以把录像放b站，让好大哥给你指点指点<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ranapocket  
+##### 1818#       发表于 2023-11-22 15:56
+
+看最近打折想买一份，看了一圈豪华版唯一值的好像就是ost，买ps5普通版就行了吧？
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  arbilest  
+##### 1819#       发表于 2023-11-22 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63102365&amp;ptid=2027972" target="_blank">byisme001 发表于 2023-11-21 18:58</a>
+sm山内又把刷钱修了</blockquote>
+一个想做GAAS的游戏，原本那些动辄2000万的传奇车可以让不想每天跑圈的人氪多少金啊，不修不是等于全部白送吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  一个陆仁贾  
+##### 1820#       发表于 2023-11-22 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63110396&amp;ptid=2027972" target="_blank">ranapocket 发表于 2023-11-22 15:56</a>
+看最近打折想买一份，看了一圈豪华版唯一值的好像就是ost，买ps5普通版就行了吧？
+
+—— 来自 HUAWEI OCE-A ...</blockquote>
+想收藏ost可以买豪华，不过我记得后来更新的圣诞曲和一些别的应该是没有的，反正网上都已经把ost都提取出来了
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  發發  
+##### 1821#       发表于 2023-11-24 01:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，是应该早刹或者晚刹把弯心调整一下吗，我试着这么开感觉会导致转弯弧度太大转过不来了啊
+
+
+*****
+
+####  一个陆仁贾  
+##### 1822#       发表于 2023-11-24 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63123996&amp;ptid=2027972" target="_blank">發發 发表于 2023-11-24 01:24</a>
+问个问题啊，类似斯帕一小时这种，下雨之后半雨胎跑到雨停，主行车线基本干了之后，不急着进站换胎 ...</blockquote>
+弯道还是一样的，刹车基本是提早
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Tnsbilws  
+##### 1823#       发表于 2023-11-24 13:43
+
+ 本帖最后由 Tnsbilws 于 2023-11-24 13:46 编辑 
+
+大师S10过了，感觉是个教你关掉ABS或者弱ABS，调整刹车力度的教程。
+
+部分弯道都需要循迹刹车才有相对快的出入弯速度，弱刹车力度和弱ABS也让减速过程不至于煞过头和推头，而且不开个2档TC才能尽可能减少出弯打滑，到最后都已经超过示范车了才刚刚进金牌，都要抽筋了。
+
+
+*****
+
+####  一个陆仁贾  
+##### 1824#       发表于 2023-11-24 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63127688&amp;ptid=2027972" target="_blank">Tnsbilws 发表于 2023-11-24 13:43</a>
+大师S10过了，感觉是个教你关掉ABS或者弱ABS，调整刹车力度的教程。
+
+部分弯道都需要循迹刹车才有相对快的出 ...</blockquote>
+不知道你的实际情况，我问过网上的一些高手，abs的设置对游戏里面的影响不大，当然他们中有些人会更喜欢弱abs，我自己是默认abs加tcs1过的这关
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Tnsbilws  
+##### 1825#       发表于 2023-11-26 08:52
+
+ 本帖最后由 Tnsbilws 于 2023-11-26 08:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63130363&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2023-11-24 18:06</a>
+
+不知道你的实际情况，我问过网上的一些高手，abs的设置对游戏里面的影响不大，当然他们中有些人会更喜欢 ...</blockquote>
+个人感觉就是全力刹车不会出现减速过快导致入弯速度比预期慢这种情况
+
+我感觉我右手食指控制刹车不够精细的原因吧
+
