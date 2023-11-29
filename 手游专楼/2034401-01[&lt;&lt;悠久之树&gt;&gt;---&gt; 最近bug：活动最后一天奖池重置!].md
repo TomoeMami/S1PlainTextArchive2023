@@ -4716,3 +4716,14 @@ https://t.bilibili.com/630024638149165074?tab=2</blockquote>
 
 突然发现这楼又被顶起来了，进来一看居然还是因为bug，只能说很符合人设了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+*****
+
+####  VictorWJ  
+##### 519#       发表于 2023-11-22 23:55
+
+二周年，王者归来！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
