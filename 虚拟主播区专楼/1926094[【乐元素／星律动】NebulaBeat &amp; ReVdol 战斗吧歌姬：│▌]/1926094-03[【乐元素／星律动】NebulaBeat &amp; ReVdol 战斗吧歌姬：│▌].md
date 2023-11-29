@@ -2964,3 +2964,10 @@ saku这下在ka动画分到直播组，难道频率要up
 
 <img src="https://img14.360buyimg.com/ddimg/jfs/t1/236827/18/2918/35417/6558d0deFbde2f836/06b507bd8116c386.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  ladiesman802  
+##### 3321#       发表于 2023-11-26 20:17
+
+新团服不错，还是歌姬风格的打歌服
+
