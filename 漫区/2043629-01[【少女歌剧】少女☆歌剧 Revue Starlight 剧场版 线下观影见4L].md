@@ -798,3 +798,10 @@ https://ponycanyon.zaiko.io/e/starlight-bandlive
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  nh_zzz  
+##### 779#       发表于 2023-11-26 19:29
+
+座长生日会速报，2024年3月上海event
+
