@@ -2077,3 +2077,2202 @@ tb有全款2k3的
 突然觉得有点适合现在在家里没有正常时间电视使用权的我…</blockquote>
 天冷了，就等着在被窝里打星海跟如龙了
 
+*****
+
+####  医生狼多  
+##### 210#         楼主| 发表于 2023-11-13 21:03
+
+PS串流掌机PS Portal主界面和系统UI演示。（via twi Zuby_Tech） http://t.cn/A6WQ7CNW ​​​
+
+
+*****
+
+####  Fuero  
+##### 211#       发表于 2023-11-13 22:43
+
+ 本帖最后由 Fuero 于 2023-11-13 22:52 编辑 
+
+评测开始解禁了，1080P点对点就是好
+
+<img src="https://img.saraba1st.com/forum/202311/13/224500lgjybb49gh61gs46.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (275.58 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 22:45 上传
+
+<img src="https://img.saraba1st.com/forum/202311/13/224616pkf4fs87ufd8susf.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (263.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 22:46 上传
+
+<img src="https://img.saraba1st.com/forum/202311/13/225240sz8watkpjpxkup2u.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (229.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 22:52 上传
+
+
+*****
+
+####  allenz3  
+##### 212#       发表于 2023-11-13 23:06
+
+这玩意不是oled，有点弱智。。。
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  硫黄  
+##### 213#       发表于 2023-11-13 23:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比SD还大一圈啊
+
+*****
+
+####  保科智子  
+##### 214#       发表于 2023-11-13 23:11
+
+效果和自家的，第三方的串流app有区别吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 215#       发表于 2023-11-13 23:13
+
+ 本帖最后由 Fuero 于 2023-11-13 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63034654&amp;ptid=2149659" target="_blank">保科智子 发表于 2023-11-13 23:11</a>
+
+效果和自家的，第三方的串流app有区别吗？</blockquote>
+可能最大的区别就是独占触觉反馈和自适应扳机，我就指望被窝里跑圈了[https://bbs.saraba1st.com/2b/thread-2145542-1-1.html](https://bbs.saraba1st.com/2b/thread-2145542-1-1.html)
+
+
+*****
+
+####  亚瑟摩根  
+##### 216#       发表于 2023-11-13 23:36
+
+画面看起来可以，不是oled有点脑壳痛。
+续航多久有评测吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  猫不萌  
+##### 217#       发表于 2023-11-14 00:12
+
+主要是没有 hdr ，怎么不一次性上完整完整版本啊，以后也不大可能升级了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Saikou  
+##### 218#       发表于 2023-11-14 00:42
+
+<blockquote>保科智子 发表于 2023-11-13 23:11
+效果和自家的，第三方的串流app有区别吗？</blockquote>
+b站有人数帧延迟66ms，我怎么感觉就内置了一个自家串流
+
+
+*****
+
+####  内森德雷克  
+##### 219#       发表于 2023-11-14 01:47
+
+这玩意儿是安卓系统的吧，装个chiaki体验比官方的remote play延迟体验好，就是不知道DS手柄那些特色功能还可不可以用
+
+
+*****
+
+####  hockfly  
+##### 220#       发表于 2023-11-14 03:59
+
+问题是没有什么游戏在PS5上玩。我买的PS5在家吃了两年灰，一个PS5游戏都没有玩。现在主机独占游戏除了老任以外越来越少，感觉一台高性能的游戏PC和一台switch 就足够了，最多加一台手持pc
+
+
+*****
+
+####  体质的错  
+##### 221#       发表于 2023-11-14 05:37
+
+你索忙着搞硬件，vr2，精英手柄，带把儿的串流屏，软件这边屁都不放一个，硬件买回来纯吃灰。石榴玩完就没开过机。太整蛊了
+
+
+*****
+
+####  Fuero  
+##### 222#       发表于 2023-11-14 08:59
+
+IGN给了8分，100%亮度50%音量续航是4.5小时，玩了FF7re，小机器人，蜘蛛侠2
+
+*****
+
+####  Fuero  
+##### 223#       发表于 2023-11-14 09:01
+
+<blockquote>内森德雷克 发表于 2023-11-14 01:47
+这玩意儿是安卓系统的吧，装个chiaki体验比官方的remote play延迟体验好，就是不知道DS手柄那些特色功能还 ...</blockquote>
+虽然看之前泄漏的图片在跑AOSP，但没法自己装apk，触觉反馈和自适应扳机都有
+
+*****
+
+####  iou90  
+##### 224#       发表于 2023-11-14 09:02
+
+500g太重了… 屏幕也不够好
+
+
+*****
+
+####  byisme001  
+##### 225#       发表于 2023-11-14 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63034952&amp;ptid=2149659" target="_blank">猫不萌 发表于 2023-11-14 00:12</a>
+主要是没有 hdr ，怎么不一次性上完整完整版本啊，以后也不大可能升级了吧 ...</blockquote>
+串流能支持hdr吗
+
+*****
+
+####  罗克萨斯  
+##### 226#       发表于 2023-11-14 09:05
+
+看评测输入延迟超过4帧了，对玩格斗游戏的效果充满担忧
+
+*****
+
+####  hbxsdfx  
+##### 227#       发表于 2023-11-14 09:05
+
+有没有大手子能解释下，这个和我用iPad连Wi-Fi串流玩xbox的游戏有没有啥本质区别？
+
+*****
+
+####  Fuero  
+##### 228#       发表于 2023-11-14 09:06
+
+<blockquote>byisme001 发表于 2023-11-14 09:03
+串流能支持hdr吗</blockquote>
+MirrorPlay（也就是iOS上的PSPlay）支持HDR，虽然没注意到过有啥不同…
+
+*****
+
+####  Fuero  
+##### 229#       发表于 2023-11-14 09:09
+
+<blockquote>罗克萨斯 发表于 2023-11-14 09:05
+看评测输入延迟超过4帧了，对玩格斗游戏的效果充满担忧</blockquote>
+可能是需要适应一下的
+
+ただ、よりシビアな入力が必要なジャンルであるリズムゲームの『初音ミク Project DIVA Future Tone DX』と『シアトリズム ファイナルバーライン』では、少し違和感があったというのが正直なところ。それでも、それぞれ最初にオプション（コンフィグ）で入力タイミングの設定を行うことで、前者はEXTREAM、後者は究極でクリアーすることができた。
+
+　対戦格闘ゲームについても『Virtua Fighter esports』、『ストリートファイター6』を遊んでみたが、前述のリズムゲーム2タイトル同様にふだんとは少し違ったプレイ感覚があった。
+
+
+*****
+
+####  Fuero  
+##### 230#       发表于 2023-11-14 09:13
+
+<blockquote>hbxsdfx 发表于 2023-11-14 09:05
+有没有大手子能解释下，这个和我用iPad连Wi-Fi串流玩xbox的游戏有没有啥本质区别？ ...</blockquote>
+没有本质区别，就是帮你组了一套屏幕+手柄变成掌机的样子（类似串流玩家里常见的iPadMini+3D打印框架+Joycon组合），按我的理解，官方出品的主要优势体现在完整支持触觉反馈震动和自适应扳机，这是目前任何同类掌机形态串流方案都无法做到的，其他或多或少都有替代
+
+*****
+
+####  Pipcat  
+##### 231#       发表于 2023-11-14 09:15
+
+ 本帖最后由 Pipcat 于 2023-11-14 09:19 编辑 
+
+The verge的评测
+[https://www.theverge.com/2395857 ... d-specs-impressions](https://www.theverge.com/23958572/sony-playstation-portal-ps5-streaming-remote-play-handheld-specs-impressions)
+
+不支持蓝牙
+
+比switch OLED重100g，比Deck轻100g
+
+单人、对延迟不敏感的游戏体验还好
+
+断联问题不可忽视
+
+总结：想不通为啥推这个产品，价格偏贵
+
+*****
+
+####  byisme001  
+##### 232#       发表于 2023-11-14 09:17
+
+那这个打ftg fps 属实有点想不开
+
+*****
+
+####  Fuero  
+##### 233#       发表于 2023-11-14 09:19
+
+<blockquote>byisme001 发表于 2023-11-14 09:17
+那这个打ftg fps 属实有点想不开</blockquote>
+我看到几个评测里打COD和Apex，反馈都不错，没啥input latency
+
+*****
+
+####  猫不萌  
+##### 234#       发表于 2023-11-14 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63035970&amp;ptid=2149659" target="_blank">byisme001 发表于 2023-11-14 09:03</a>
+串流能支持hdr吗</blockquote>
+Moonlight 可以
+
+
+*****
+
+####  hbxsdfx  
+##### 235#       发表于 2023-11-14 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63036064&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-14 09:13</a>
+
+没有本质区别，就是帮你组了一套屏幕+手柄变成掌机的样子（类似串流玩家里常见的iPadMini+3D打印框架+Joy ...</blockquote>
+感谢解惑，那这个价格真有点接受不了哇，200刀
+
+*****
+
+####  Fuero  
+##### 236#       发表于 2023-11-14 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63036173&amp;ptid=2149659" target="_blank">hbxsdfx 发表于 2023-11-14 09:26</a>
+感谢解惑，那这个价格真有点接受不了哇，200刀</blockquote>
+是的 本质上这是个针对Ps5串流玩家的特攻配件，没有很强烈诉求的话，体验稍差的替代方案有很多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  EdSheeran  
+##### 237#       发表于 2023-11-14 09:32
+
+就想买一个用来刷暗黑4，看来还能用用
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  佐伯香織  
+##### 238#       发表于 2023-11-14 11:02
+
+输入延迟4帧……打ftg完全是和别人玩不同的游戏了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  沧兰殇  
+##### 239#       发表于 2023-11-14 12:16
+
+我看图里这不是一百多毫秒的延迟了？超过0.1秒，那就是6帧以上的差距，还是延迟也不稳定？那不是更难受？<img src="https://p.sda1.dev/14/6fd1f5a5be469a8c73eb31ecde32fb0e/CMP_20231114121546517.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  沧兰殇  
+##### 240#       发表于 2023-11-14 12:18
+
+<img src="https://p.sda1.dev/14/cee7da5634aa62c5af68d5d7989fd19f/CMP_20231114121815405.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  GMJ  
+##### 241#       发表于 2023-11-14 12:19
+
+比起400块买个拉伸手柄+手机串流有啥优势？
+
+
+*****
+
+####  GZZETA  
+##### 242#       发表于 2023-11-14 12:24
+
+电子垃圾？
+
+
+*****
+
+####  crosz1985  
+##### 243#       发表于 2023-11-14 12:38
+
+这延迟还不如IOS
+
+*****
+
+####  byisme001  
+##### 244#       发表于 2023-11-14 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63037849&amp;ptid=2149659" target="_blank">GMJ 发表于 2023-11-14 12:19</a>
+比起400块买个拉伸手柄+手机串流有啥优势？</blockquote>
+有振动吧
+
+
+*****
+
+####  ranapocket  
+##### 245#       发表于 2023-11-14 12:43
+
+感觉不如，ipad+ps5手柄
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 246#         楼主| 发表于 2023-11-14 12:49
+
+又不是毫米波，真能指望降什么延迟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Saikou  
+##### 247#       发表于 2023-11-14 12:55
+
+他要700块钱出个拉伸手柄估计买的人会更多<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cfeng123  
+##### 248#       发表于 2023-11-14 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63037849&amp;ptid=2149659" target="_blank">GMJ 发表于 2023-11-14 12:19</a>
+
+比起400块买个拉伸手柄+手机串流有啥优势？</blockquote>
+走的索尼的自有协议吧，虽然REMOTE PLAY是不是自有协议就不清楚了
+
+*****
+
+####  nianiania  
+##### 249#       发表于 2023-11-14 12:56
+
+这延迟绷不住了，属于是精准收割索尼信徒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刘震云  
+##### 250#       发表于 2023-11-14 12:59
+
+大家赶紧多喷喷，把首发价格打下来我好入手<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  和菜头  
+##### 251#       发表于 2023-11-14 13:19
+
+不会首发，蹲个99刀入手，冬天躲被子里打打战旗
+
+*****
+
+####  Rainwedell  
+##### 252#       发表于 2023-11-14 13:22
+
+延迟降不下来就算了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Deay店长  
+##### 253#       发表于 2023-11-14 14:32
+
+我看到有个评测画面都卡成PPT了，文案却一个劲说非常的新鲜非常的美味
+
+
+*****
+
+####  医生狼多  
+##### 254#         楼主| 发表于 2023-11-14 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63038133&amp;ptid=2149659" target="_blank">Saikou 发表于 2023-11-14 12:55</a>
+他要700块钱出个拉伸手柄估计买的人会更多</blockquote>
+这个左转backbone
+
+
+*****
+
+####  Saikou  
+##### 255#       发表于 2023-11-14 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63038974&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-14 14:52</a>
+
+这个左转backbone</blockquote>
+backbone和这个手柄怎么比，天上地下了
+
+
+*****
+
+####  TTAA  
+##### 256#       发表于 2023-11-14 15:27
+
+他这个手柄摇杆要是漂移了是不是得整个拆开
+
+*****
+
+####  Fuero  
+##### 257#       发表于 2023-11-14 15:29
+
+我不跟电视比延迟，实际上如果串流音画同步的话没啥问题吧
+
+
+*****
+
+####  Slyvan  
+##### 258#       发表于 2023-11-14 15:47
+
+我还以为索尼亲自下场应该会比一般的串流好...
+
+*****
+
+####  医生狼多  
+##### 259#         楼主| 发表于 2023-11-14 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039479&amp;ptid=2149659" target="_blank">Slyvan 发表于 2023-11-14 15:47</a>
+我还以为索尼亲自下场应该会比一般的串流好...</blockquote>
+你看官方那个串流app就懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Slyvan  
+##### 260#       发表于 2023-11-14 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039502&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-14 15:49</a>
+
+你看官方那个串流app就懂了</blockquote>
+我以为能到wiiu那种,  那个好像是基于wifi的 , 延迟挺低的, 都那么多年前的技术了 
+
+都2023了, 索尼专门开发个新硬件, 然后出来真的就是一个安卓板装个串流app的效果 , 以前技术的索尼到哪去了
+
+*****
+
+####  医生狼多  
+##### 261#         楼主| 发表于 2023-11-14 15:59
+
+ 本帖最后由 医生狼多 于 2023-11-14 16:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039585&amp;ptid=2149659" target="_blank">Slyvan 发表于 2023-11-14 15:57</a>
+我以为能到wiiu那种,  那个好像是基于wifi的 , 延迟挺低的, 都那么多年前的技术了 
+
+都2023了, 索尼专门 ...</blockquote>
+wiiu是毫米波技术吧
+索尼还想着带到户外串流，没搞这个
+如果想用，其实国内也有毫米波掌机了，串流起来确实延迟体验优秀，缺点是没有对应的系统，就单纯是块屏幕，我用来玩pc有时很蛋疼
+
+
+*****
+
+####  我被骗了五块钱  
+##### 262#       发表于 2023-11-14 16:10
+
+除了震动没有任何优势，但是算上价格和性能，那真是一坨狗屎
+
+
+*****
+
+####  哈罗  
+##### 263#       发表于 2023-11-14 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039699&amp;ptid=2149659" target="_blank">我被骗了五块钱 发表于 2023-11-14 16:10</a>
+
+除了震动没有任何优势，但是算上价格和性能，那真是一坨狗屎</blockquote>
+手柄+大屏一体化，有替代方案吗
+
+*****
+
+####  lolozp  
+##### 264#       发表于 2023-11-14 16:19
+
+官方app用过，我玩血污还是可以接受的，这还能比官方app延迟更大吗
+
+*****
+
+####  huzhiyangqaz  
+##### 265#       发表于 2023-11-14 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039592&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-14 15:59</a>
+wiiu是毫米波技术吧
+索尼还想着带到户外串流，没搞这个
+如果想用，其实国内也有毫米波掌机了，串流起来确 ...</blockquote>
+wiiu 的那个手柄和主机是用 5ghz 频段的 802.11n wifi 通信的，传输的是压缩的 h264 图像数据，没有什么毫米波黑科技
+
+[https://www.copetti.org/writings/consoles/wiiu/](https://www.copetti.org/writings/consoles/wiiu/)
+
+*****
+
+####  白昼梦  
+##### 266#       发表于 2023-11-14 16:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来可以蹲二手区了
+
+
+*****
+
+####  CY傀儡  
+##### 267#       发表于 2023-11-14 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039769&amp;ptid=2149659" target="_blank">哈罗 发表于 2023-11-14 16:17</a>
+
+手柄+大屏一体化，有替代方案吗</blockquote>
+洗洗更健康
+
+
+*****
+
+####  88ace88  
+##### 268#       发表于 2023-11-14 16:49
+
+看起来这波索尼又要花出去不少公关费
+
+
+*****
+
+####  EdSheeran  
+##### 269#       发表于 2023-11-14 17:12
+
+蹲一个国内的评测<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  Cielflame  
+##### 270#       发表于 2023-11-14 17:44
+
+所以延迟上真就和手机串流没区别呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。本来还想买的，想想还是算了
+
+
+*****
+
+####  保科智子  
+##### 271#       发表于 2023-11-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63035076&amp;ptid=2149659" target="_blank">Saikou 发表于 2023-11-14 00:42</a>
+
+b站有人数帧延迟66ms，我怎么感觉就内置了一个自家串流</blockquote>
+自家的串流稳定性吊差。真不如用开源掌机装chiaki了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我被骗了五块钱  
+##### 272#       发表于 2023-11-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63039769&amp;ptid=2149659" target="_blank">哈罗 发表于 2023-11-14 16:17</a>
+
+手柄+大屏一体化，有替代方案吗</blockquote>
+移动设备大型又不是啥优势，很多人还觉得太大呢，抛开大屏的优势并不能和现在的移动串流设备拉开距离
+
+
+*****
+
+####  herryk159  
+##### 273#       发表于 2023-11-14 19:26
+
+媒体评价这么好？难道方向对了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  allenz3  
+##### 274#       发表于 2023-11-14 19:33
+
+其实从公布开始核心卖点就是全功能手柄，在某些人口中就是没区别了，这和b站安卓掌机下面必定出现的拉伸手柄小鬼有什么不同<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  爱马仕不爱生活  
+##### 275#       发表于 2023-11-14 19:40
+
+爱就多了买点，让索尼觉得它的方向是对的，早点入土
+
+
+*****
+
+####  CY傀儡  
+##### 276#       发表于 2023-11-14 20:51
+
+<blockquote>88ace88 发表于 2023-11-14 16:49
+看起来这波索尼又要花出去不少公关费</blockquote>
+还真是
+
+
+*****
+
+####  星海坊主  
+##### 277#       发表于 2023-11-14 22:08
+
+我这辈子用ps remote连自家ps4好像从来没有延迟低于过100ms的，甚至我看到评测说只有四五帧延迟的时候我都不相信觉得在吹牛比
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也可能我处于的世界可能跟所有玩家的世界线都不一样
+
+
+*****
+
+####  nozomitech  
+##### 278#       发表于 2023-11-14 22:49
+
+所以想问问我有sd了是不是没必要再买这玩意了，我最看重的是延迟，不在意屏幕素质还有ds5手柄的那些特性。
+
+*****
+
+####  ffmzsj  
+##### 279#       发表于 2023-11-14 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63040106&amp;ptid=2149659" target="_blank">88ace88 发表于 2023-11-14 16:49</a>
+
+看起来这波索尼又要花出去不少公关费</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202311/14/225100oy1yabbww9ta4wtw.jpg" referrerpolicy="no-referrer">
+
+<strong>MVZDVX[3LJYSSMVT(KL_MD1_tmb.jpg</strong> (257.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-14 22:51 上传
+
+
+*****
+
+####  阳ノ下光  
+##### 280#       发表于 2023-11-14 23:00
+
+还用想？可以预见前几楼某个人到手后要开个贴歌颂了……<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 281#         楼主| 发表于 2023-11-14 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043196&amp;ptid=2149659" target="_blank">nozomitech 发表于 2023-11-14 22:49</a>
+所以想问问我有sd了是不是没必要再买这玩意了，我最看重的是延迟，不在意屏幕素质还有ds5手柄的那些特性。 ...</blockquote>
+我sd开chiaki感觉其实没安卓psplay好用？不知道是不是我设置问题
+
+*****
+
+####  nozomitech  
+##### 282#       发表于 2023-11-14 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043288&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-14 16:06</a>
+
+我sd开chiaki感觉其实没安卓psplay好用？不知道是不是我设置问题</blockquote>
+会不会是sd的cpu解码能力不如高通？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我去试试看吧，不想用手机主要是还得买个拉伸手柄，而且我老iphone用的闪电口实在太蛋疼，本来还期待索尼出这个掌机可以解决延迟问题，楼上说和现有方案差不多真有些绷不住。
+
+
+*****
+
+####  硫黄  
+##### 283#       发表于 2023-11-14 23:28
+
+ 本帖最后由 硫黄 于 2023-11-14 23:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SD无印串流电脑我拍屏测下来大概35-40ms延迟
+
+用chiaki串流PS4没测，但玩了会儿卧龙手感还行
+
+*****
+
+####  Fuero  
+##### 284#       发表于 2023-11-14 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043196&amp;ptid=2149659" target="_blank">nozomitech 发表于 2023-11-14 22:49</a>
+
+所以想问问我有sd了是不是没必要再买这玩意了，我最看重的是延迟，不在意屏幕素质还有ds5手柄的那些特性。 ...</blockquote>
+那你不用买，后面还有换steam deck oled的路线
+
+
+*****
+
+####  医生狼多  
+##### 285#         楼主| 发表于 2023-11-14 23:37
+
+我倒不是延迟问题，是会码率突然掉了然后一片糊
+
+
+*****
+
+####  Deay店长  
+##### 286#       发表于 2023-11-14 23:53
+
+串流很吃芯片的解码能力，NS刷安卓加上神盾框架后，有神乎其技的延迟表现，其次就是苹果，高通，麒麟，联发科。而AMD如果是GCN架构的老卡，串流是嘎嘎快的，更新到RDNA后不好使了，英伟达就不说了，领头羊。用过很多设备串流 体验大概这样。
+
+
+*****
+
+####  nozomitech  
+##### 287#       发表于 2023-11-15 00:36
+
+感谢楼上各位老哥解答，刚拿SD试了一下，确实不用买了，唯一槽点就是这块720P的烂屏幕（虽然我之前大言不惭说不在意屏幕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">），一方面屏幕素质低观感糟糕，另一方面分辨率和屏幕太小导致给电视和电脑屏幕设计的主机游戏字太小了。不过偶尔用用完全能一战。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  硫黄  
+##### 288#       发表于 2023-11-15 00:42
+
+<blockquote>nozomitech 发表于 2023-11-15 00:36
+感谢楼上各位老哥解答，刚拿SD试了一下，确实不用买了，唯一槽点就是这块720P的烂屏幕（虽然我之前大言不惭 ...</blockquote>
+https://github.com/KtzeAbyss/Easy-Virtual-Display
+
+创建个720p虚拟屏幕，然后sunshine指定串那个
+
+不过偶尔用凑合能用就行
+
+
+*****
+
+####  nozomitech  
+##### 289#       发表于 2023-11-15 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043780&amp;ptid=2149659" target="_blank">硫黄 发表于 2023-11-14 17:42</a>
+
+https://github.com/KtzeAbyss/Easy-Virtual-Display
+
+创建个720p虚拟屏幕，然后sunshine指定串那个
+
+不过 ...</blockquote>
+你好像误解我意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我意思是steamdeck的屏幕太烂了（sd是800p的屏幕但是串流因为画面比例实际利用到的只有720p），而且我是串ps5也用不了这个，pc的话大部分游戏我直接在sd本地跑就行了。
+
+
+*****
+
+####  ffmzsj  
+##### 290#       发表于 2023-11-15 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043469&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-14 23:37</a>
+
+我倒不是延迟问题，是会码率突然掉了然后一片糊</blockquote>
+我抄你真买了啊
+
+
+*****
+
+####  zero4166  
+##### 291#       发表于 2023-11-15 08:12
+
+电子垃圾，等降到1000以内
+
+
+*****
+
+####  TTAA  
+##### 292#       发表于 2023-11-15 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63042941&amp;ptid=2149659" target="_blank">星海坊主 发表于 2023-11-14 22:08</a>
+
+我这辈子用ps remote连自家ps4好像从来没有延迟低于过100ms的，甚至我看到评测说只有四五帧延迟的时候我都 ...</blockquote>
+就是PSV还活跃的时候也没什么人用这个功能吧，我印象很深的是当时在大学就是想下铺放PS4，上铺躺着用PSV
+
+结果坦克世界没玩一局就滚下床重开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 293#         楼主| 发表于 2023-11-15 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63044585&amp;ptid=2149659" target="_blank">TTAA 发表于 2023-11-15 08:46</a>
+就是PSV还活跃的时候也没什么人用这个功能吧，我印象很深的是当时在大学就是想下铺放PS4，上铺躺着用PSV
+
+ ...</blockquote>
+psv的串流是我用过的设备里最垃圾的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangqizhi45  
+##### 294#       发表于 2023-11-15 09:01
+
+2w日元还能考虑下，3w日元还是请他滚8
+
+
+*****
+
+####  Fuero  
+##### 295#       发表于 2023-11-15 09:11
+
+果然现在国内没现货
+
+
+*****
+
+####  TTAA  
+##### 296#       发表于 2023-11-15 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63044665&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-15 08:55</a>
+
+psv的串流是我用过的设备里最垃圾的</blockquote>
+垃圾的很，但当年还是PSV的主要卖点之一
+[https://www.gamersky.com/news/201312/315253.shtml](https://www.gamersky.com/news/201312/315253.shtml)
+
+
+*****
+
+####  黄昏之月  
+##### 297#       发表于 2023-11-15 11:15
+
+可以在办公室WIFI连家里的PS5吗？
+
+
+*****
+
+####  Jyions  
+##### 298#       发表于 2023-11-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63045949&amp;ptid=2149659" target="_blank">黄昏之月 发表于 2023-11-15 11:15</a>
+可以在办公室WIFI连家里的PS5吗？</blockquote>
+可以，但这个需求在手机pc装PS remote play也能实现。psp这配件对手柄功能的支持更好，像是震动触控板这些…
+
+
+*****
+
+####  Kojimaru  
+##### 299#       发表于 2023-11-15 13:17
+
+<blockquote>PlayStation Plus Premium的流媒体游戏仅限于在PS内进行游玩。这意味着只能从PS5上玩游戏，而不能从PC或智能手机上进行游玩，甚至从Portal上也无法进行游玩。实际上，微软的“Xbox Cloud Gaming”可以在任何设备上通过浏览器进行游玩。这是出于什么方式考虑的呢？
+
+西野：运行在PS5上的游戏基于“有一定屏幕和完整手柄”的前提条件。提供给无法满足这种质量标准的终端会让顾客感到被欺骗，这是我们的考虑。老实说，标记功能的勾选是很容易的。但是，我认为在仔细考虑的同时，我们应该谨慎地进行，确保一切都能够无问题再提供游戏。
+
+就Portal而言，远程播放和云端只是“服务器在不同地方”的区别，技术上并没有任何问题。首先从远程播放开始，然后进行验证。</blockquote>
+
+工匠精神，懂吗？<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  roxassix  
+##### 300#       发表于 2023-11-15 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63047005&amp;ptid=2149659" target="_blank">Kojimaru 发表于 2023-11-15 13:17</a>
+工匠精神，懂吗？</blockquote>
+他真的我哭死，只要不做就不会出错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kojimaru  
+##### 301#       发表于 2023-11-15 13:32
+
+[https://av.watch.impress.co.jp/docs/series/rt/1546898.html](https://av.watch.impress.co.jp/docs/series/rt/1546898.html)
+
+完整采访<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">希望ps仙人早点把多平台云游戏端出来吧
+
+
+*****
+
+####  byisme001  
+##### 302#       发表于 2023-11-15 13:50
+
+不是纯串流机吗，怎么看设置里还有飞行模式，飞起来能干嘛吗
+
+
+*****
+
+####  子夜的黑暗  
+##### 303#       发表于 2023-11-15 13:57
+
+没有蓝牙是硬件设计问题？为了强推他自己的sony link？以后也不可能像ns一样通过更新来开放？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  PYY  
+##### 304#       发表于 2023-11-15 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63044585&amp;ptid=2149659" target="_blank">TTAA 发表于 2023-11-15 08:46:17</a>
+就是PSV还活跃的时候也没什么人用这个功能吧，我印象很深的是当时在大学就是想下铺放PS4，上铺躺着用PSV
+
+ ...</blockquote>我用过我的国行未破解PSV玩国行PS4上港服的尼尔2。
+在家同一个网络延迟还好吧，敌人的攻击都能反应过来闪避。
+在公司也连着玩过（都是电信），除了画面更糊，也能玩。
+
+后来不知哪天哪个网络环节升级了防火墙，就再也连不上了，包括家里。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  另一个小智  
+##### 305#       发表于 2023-11-15 17:04
+
+moonlight连老黄的那个是多少延迟啊，我对比手机和显示器都感觉不到啥延迟，还蛮爽的。
+
+xbox的那个第三方串流应用延迟就很明显，感觉有七八十毫秒了。
+
+
+*****
+
+####  牙狼GARO  
+##### 306#       发表于 2023-11-15 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63043199&amp;ptid=2149659" target="_blank">ffmzsj 发表于 2023-11-14 22:51</a></blockquote>
+这货不是美工么，现在ucg缺人缺成这个样子还坚持恰烂钱，让人感动。哦或者说现在只能恰烂钱了
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  医生狼多  
+##### 307#         楼主| 发表于 2023-11-15 20:54
+
+wtf，这么菜的？
+- cannot turn on PS5 using the device
+
+*****
+
+####  Fuero  
+##### 308#       发表于 2023-11-15 20:59
+
+<blockquote>子夜的黑暗 发表于 2023-11-15 13:57
+没有蓝牙是硬件设计问题？为了强推他自己的sony link？以后也不可能像ns一样通过更新来开放？
+
+  -- 来自  ...</blockquote>
+用过其他设备串流的话你会发现设备-蓝牙链路也自带额外延迟，所以索尼的方案就是砍了，要么直连机器，要么用新协议
+
+
+*****
+
+####  Fuero  
+##### 309#       发表于 2023-11-15 22:48
+
+A9那边有人实测自己的延迟大约在30毫秒左右，看来还是看自己路由环境
+
+<img src="https://img.saraba1st.com/forum/202311/15/224804tmls4rmlcrs4prm8.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (342.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-15 22:48 上传
+
+*****
+
+####  葵  
+##### 310#       发表于 2023-11-15 22:50
+
+看评测说延迟不怎么样，还比NS OLDE重不少，传输码率还有限制，瞬间不想买了，等着大家试毒好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 311#         楼主| 发表于 2023-11-15 23:45
+
+今日，PlayStation香港官方发布新型PS5、Portal掌机等新品发售情报，其中提到港版PS串流掌机将于今年下半年发售（也就是未来两个月内），国行版暂未公布消息。
+
+
+*****
+
+####  Fuero  
+##### 312#       发表于 2023-11-15 23:56
+
+ 本帖最后由 Fuero 于 2023-11-15 23:59 编辑 
+
+不同渠道订了两台，就看哪台先到了，到手了跟手里几个串流设备对比一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+作为1k首发入手官方拉伸手柄的串流怨种无所畏惧
+
+
+*****
+
+####  Fuero  
+##### 313#       发表于 2023-11-16 00:10
+
+超猫拳的延迟测试
+
+<img src="https://img.saraba1st.com/forum/202311/16/001001ws7a4afq5fmff5u0.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (117.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 00:10 上传
+
+
+*****
+
+####  沧兰殇  
+##### 314#       发表于 2023-11-16 10:47
+
+建议配合不同等级的家用路由器测试，看看哪个路由器最适合，普遍延迟最低最稳定
+
+
+*****
+
+####  淡定君  
+##### 315#       发表于 2023-11-16 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63051913&amp;ptid=2149659" target="_blank">葵 发表于 2023-11-15 22:50</a>
+
+看评测说延迟不怎么样，还比NS OLDE重不少，传输码率还有限制，瞬间不想买了，等着大家试毒好了 ...</blockquote>
+光手柄就接近200克了，剩下350克加了4500毫安电池，8寸LCD，550克也没办法。
+
+平时玩一些对延迟要求不高的游戏，一些适合掌机的会免游戏还是不错的，评测那些都是吹毛求疵的要求，没特别差就行。
+
+
+*****
+
+####  阳ノ下光  
+##### 316#       发表于 2023-11-16 11:17
+
+我有一个建议，大家评测，测试延迟的时候尽量用延迟大一点的电视，把一些增加延迟的选项打开，这样对比起来，psp remote player就会显得延迟很小，就可以堵住黑子们的嘴巴了。
+
+
+*****
+
+####  泰坦失足  
+##### 317#       发表于 2023-11-16 11:25
+
+我发售前好奇索尼如何解决在外面时候因为NAT和路由器问题连不回去的问题，结果是压根不管吗
+
+*****
+
+####  iou90  
+##### 318#       发表于 2023-11-16 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63052358&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-15 23:56</a>
+
+不同渠道订了两台，就看哪台先到了，到手了跟手里几个串流设备对比一下
+
+作为1k首发入手官方拉伸手柄 ...</blockquote>
+官方拉伸手柄是啥？ backbone?
+
+想知道有没有拉伸到可以夹 ipad mini 的...
+
+
+*****
+
+####  白昼梦  
+##### 319#       发表于 2023-11-16 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63049331&amp;ptid=2149659" target="_blank">牙狼GARO 发表于 2023-11-15 17:26</a>
+这货不是美工么，现在ucg缺人缺成这个样子还坚持恰烂钱，让人感动。哦或者说现在只能恰烂钱了
+
+—— 来自 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一刀都去腾讯快十年了吧
+
+
+*****
+
+####  nashor  
+##### 320#       发表于 2023-11-16 12:27
+
+到手了 握感非常好
+
+因为手柄和屏幕有空位
+
+反而手更舒服了
+
+
+*****
+
+####  nashor  
+##### 321#       发表于 2023-11-16 13:00
+
+portal不能用netfix
+
+sony你真行
+
+*****
+
+####  Fuero  
+##### 322#       发表于 2023-11-16 13:00
+
+<blockquote>iou90 发表于 2023-11-16 11:31
+官方拉伸手柄是啥？ backbone?
+
+想知道有没有拉伸到可以夹 ipad mini 的...</blockquote>
+对，是backbone，可以用淘宝上卖的3D打印框架来夹iPad Mini（joycon）
+
+
+*****
+
+####  Fuero  
+##### 323#       发表于 2023-11-16 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63055076&amp;ptid=2149659" target="_blank">阳ノ下光 发表于 2023-11-16 11:17</a>
+
+我有一个建议，大家评测，测试延迟的时候尽量用延迟大一点的电视，把一些增加延迟的选项打开，这样对比起来 ...</blockquote>
+其实我一直觉得测串流延迟不应该跟电视比，直接用Project Diva那种音游内置的延迟校准最科学，而且能顺便一起测输入延迟和音频延迟
+
+*****
+
+####  硫黄  
+##### 324#       发表于 2023-11-16 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像各平台测手柄输入延迟，显示器延迟，串流延迟是没个什么统一的工具
+
+
+*****
+
+####  Fuero  
+##### 325#       发表于 2023-11-16 13:17
+
+ 本帖最后由 Fuero 于 2023-11-16 13:21 编辑 
+
+看到很多鬼佬贴图感慨不用跟女朋友/老婆/基友抢电视了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+男人太可怜了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+只剩下手里的小屏幕还剩一丝温暖<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">  
+
+<img src="https://img.saraba1st.com/forum/202311/16/131702l9nye95anjunn19v.jpg" referrerpolicy="no-referrer">
+
+<strong>vssi9570fm0c1.jpg</strong> (728.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 13:17 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/131855ftj0e7dhvgcee4nc.png" referrerpolicy="no-referrer">
+
+<strong>111.png</strong> (148.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 13:18 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/132150ip3tps3o3s0t0jjj.png" referrerpolicy="no-referrer">
+
+<strong>222.png</strong> (260.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 13:21 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/132150jby1yivklpwmmgej.png" referrerpolicy="no-referrer">
+
+<strong>333.png</strong> (265.05 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 13:21 上传
+
+<img src="https://img.saraba1st.com/forum/202311/16/132150ga3effeeb2dbe6zj.png" referrerpolicy="no-referrer">
+
+<strong>444.png</strong> (140.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 13:21 上传
+
+
+*****
+
+####  陈词与芍药  
+##### 326#       发表于 2023-11-16 15:17
+
+<img src="https://img.saraba1st.com/forum/202311/16/031628tyr9bwab9753jbr4.jpg" referrerpolicy="no-referrer">
+
+<strong>DB769697-9624-4210-8D42-35BBC062402B.jpg</strong> (402.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-16 15:16 上传
+
+屏幕素质不错，可惜不是oled。打打单机可以，多人fps这种对延迟要求高的别指望
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  淡定君  
+##### 327#       发表于 2023-11-16 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63057388&amp;ptid=2149659" target="_blank">陈词与芍药 发表于 2023-11-16 15:17</a>
+
+屏幕素质不错，可惜不是oled。打打单机可以，多人fps这种对延迟要求高的别指望
+
+—— 来自 S1Fun ...</blockquote>
+请问孤岛惊魂6之类的单机模式能跑吗
+
+*****
+
+####  你好s1  
+##### 328#       发表于 2023-11-16 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63057817&amp;ptid=2149659" target="_blank">淡定君 发表于 2023-11-16 15:58</a>
+请问孤岛惊魂6之类的单机模式能跑吗</blockquote>
+为啥不能跑，这是串流掌机，不是真的掌机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3350, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  彩虹肥宅  
+##### 329#       发表于 2023-11-16 16:20
+
+对马岛的草地没有糊吗
+
+
+*****
+
+####  另一个小智  
+##### 330#       发表于 2023-11-16 16:27
+
+用显示设备测的，怕是不准的厉害，随便调调就能测出个负的延迟
+
+
+*****
+
+####  淡定君  
+##### 331#       发表于 2023-11-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63057867&amp;ptid=2149659" target="_blank">你好s1 发表于 2023-11-16 16:02</a>
+
+为啥不能跑，这是串流掌机，不是真的掌机
+
+—— 来自 realme RMX3350, Android 13上的 S1Next-鹅 ...</blockquote>
+非联网下的单机打枪类延迟要是能用就行  个人没啥联网对战需求
+
+
+*****
+
+####  sakuranosibe  
+##### 332#       发表于 2023-11-16 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63044585&amp;ptid=2149659" target="_blank">TTAA 发表于 2023-11-15 08:46</a>
+
+就是PSV还活跃的时候也没什么人用这个功能吧，我印象很深的是当时在大学就是想下铺放PS4，上铺躺着用PSV
+
+ ...</blockquote>
+串流ps3躺被窝里玩gal还是挺方便的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 333#       发表于 2023-11-16 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63055237&amp;ptid=2149659" target="_blank">iou90 发表于 2023-11-16 11:31</a>
+
+官方拉伸手柄是啥？ backbone?
+
+想知道有没有拉伸到可以夹 ipad mini 的...</blockquote>
+有个D8手柄可以
+
+
+*****
+
+####  牙狼GARO  
+##### 334#       发表于 2023-11-16 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63055297&amp;ptid=2149659" target="_blank">白昼梦 发表于 2023-11-16 11:37</a>
+一刀都去腾讯快十年了吧</blockquote>
+是么，这还真没关注过
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  gigalomaniacs  
+##### 335#       发表于 2023-11-16 20:56
+
+什么渠道买便宜啊
+
+tb随便搜了下要两千多
+
+
+*****
+
+####  医生狼多  
+##### 336#         楼主| 发表于 2023-11-16 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63060368&amp;ptid=2149659" target="_blank">gigalomaniacs 发表于 2023-11-16 20:56</a>
+什么渠道买便宜啊
+
+tb随便搜了下要两千多</blockquote>
+等咸鱼（）
+索尼出货应该不多，英欧日基本都售罄了，港版还没出
+
+
+*****
+
+####  淡定君  
+##### 337#       发表于 2023-11-18 19:33
+
+听说PS5接网线串流延迟会有所改善，有机器的坛友可以试试。
+
+*****
+
+####  ab20000801  
+##### 338#       发表于 2023-11-18 19:39
+
+看别人实验接网线延迟能到30多，这个水平其实不打格斗游戏很多网战都能接受了
+
+
+*****
+
+####  静静在想我  
+##### 339#       发表于 2023-11-18 23:46
+
+刚拿了iPad Pro串流试了下，都是无线，跑gt7延迟才12ms，屏幕更大，画面显示效果更棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阳ノ下光  
+##### 340#       发表于 2023-11-18 23:55
+
+什么30ms，黑子吧，我调了下电视，延迟是负的……
+
+
+*****
+
+####  Fuero  
+##### 341#       发表于 2023-11-19 11:42
+
+我的明天到，晚上踩踩雷
+
+
+*****
+
+####  Fuero  
+##### 342#       发表于 2023-11-19 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63058477&amp;ptid=2149659" target="_blank">淡定君 发表于 2023-11-16 17:04</a>
+
+非联网下的单机打枪类延迟要是能用就行  个人没啥联网对战需求</blockquote>
+瞄到REDDIT上有个打通泰坦陨落2的
+
+<img src="https://img.saraba1st.com/forum/202311/19/114337lm75z3z57jr03jja.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (213.68 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-19 11:43 上传
+
+
+*****
+
+####  哈罗  
+##### 343#       发表于 2023-11-19 12:15
+
+<blockquote>Fuero 发表于 2023-11-19 11:47
+瞄到REDDIT上有个打通泰坦陨落2的</blockquote>
+不玩联机都好说，b站有个在学校连家里ps5的，效果也不错
+
+
+*****
+
+####  CyborgIP  
+##### 344#       发表于 2023-11-19 13:56
+
+等降到1300感觉可以买一个，反正不玩联机
+
+—— 来自 vivo V2055A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  Fuero  
+##### 345#       发表于 2023-11-19 14:00
+
+国内激活可能有坑，得挂代理，得亲自试试了，不知道有没有国内坛友激活过
+
+
+*****
+
+####  Fuero  
+##### 346#       发表于 2023-11-20 15:45
+
+我的到了，日版，不需要挂代理，开启更新后直接用PS App扫码就能登录。
+
+网络环境是上海电信+精品网，PS5网线连AX88U Pro，Portal 5G连路由器（信道选了5G 44）。
+
+扫过一次后按PS键就能唤醒主机，有啥想试的可以帮忙
+
+<img src="https://img.saraba1st.com/forum/202311/20/154449zii6266969jvvkt6.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (206.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 15:44 上传
+
+<img src="https://img.saraba1st.com/forum/202311/20/154455z9i131zr3hvu2xij.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (18.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 15:44 上传
+
+
+*****
+
+####  Fuero  
+##### 347#       发表于 2023-11-20 15:58
+
+对比一下Portal-Steam Deck-Rog Ally的画面效果，后两者都是Chiaki（H.265、3万码率）
+
+体验上来说，基本上就是安卓的Remote Play改的吧，对我来说最大加成确实就是完整手柄特性了
+
+在家里玩的朋友推荐直接用主机上插的无线耳机
+
+<img src="https://img.saraba1st.com/forum/202311/20/155314cffoozfofij0wt7k.png" referrerpolicy="no-referrer">
+
+<strong>portal.png</strong> (416 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 15:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/20/155316o0s6u92fluag1xjc.png" referrerpolicy="no-referrer">
+
+<strong>rog.png</strong> (332.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 15:53 上传
+
+<img src="https://img.saraba1st.com/forum/202311/20/155318ftzjj2lu2a0jiuzj.png" referrerpolicy="no-referrer">
+
+<strong>steam deck.png</strong> (358.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 15:53 上传
+
+*****
+
+####  彩虹肥宅  
+##### 348#       发表于 2023-11-20 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090390&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 15:45</a>
+
+我的到了，日版，不需要挂代理，开启更新后直接用PS App扫码就能登录。
+
+网络环境是上海电信+精品网，PS5网 ...</blockquote>
+试试对马岛动态草地转视角，看看画面会不会糊
+
+
+*****
+
+####  看了十分感动  
+##### 349#       发表于 2023-11-20 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090512&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 15:58</a>
+
+对比一下Portal-Steam Deck-Rog Ally的画面效果，后两者都是Chiaki（H.265、3万码率）
+
+体验上来说，基本上 ...</blockquote>
+您觉得用rog串和psp串哪个效果以及使用体验更好呀
+
+
+*****
+
+####  闽明  
+##### 350#       发表于 2023-11-20 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090512&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 15:58</a>
+
+对比一下Portal-Steam Deck-Rog Ally的画面效果，后两者都是Chiaki（H.265、3万码率）
+
+体验上来说，基本上 ...</blockquote>
+挂奇游、UU之类加速器的时候串流效果会不会受影响？
+
+以前win10笔记本用remote play玩GBO2效果不理想，搜了一下，都说是加速器的信道对串流支持不好
+
+*****
+
+####  Fuero  
+##### 351#       发表于 2023-11-20 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090518&amp;ptid=2149659" target="_blank">彩虹肥宅 发表于 2023-11-20 15:58</a>
+
+试试对马岛动态草地转视角，看看画面会不会糊</blockquote>
+总码率上不去，还是会有点糊糊的感觉
+
+但是在这个码率范围内，不算糊
+
+手机拍不出效果，只能看看意思了。。一个静态，一个右摇杆旋转时录制视频的截图（注意草和枝叶没有变成马赛克）
+
+<img src="https://img.saraba1st.com/forum/202311/20/162154mr6psprlpezxltts.png" referrerpolicy="no-referrer">
+
+<strong>静态.png</strong> (474.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 16:21 上传
+
+<img src="https://img.saraba1st.com/forum/202311/20/162158xuirlai4l0nuian6.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (213.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 16:21 上传
+
+
+*****
+
+####  Fuero  
+##### 352#       发表于 2023-11-20 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090633&amp;ptid=2149659" target="_blank">看了十分感动 发表于 2023-11-20 16:07</a>
+
+您觉得用rog串和psp串哪个效果以及使用体验更好呀</blockquote>
+只看串流那肯定是PSP呀，ROG只有模拟震动，Chiaki远程串流也折腾
+
+*****
+
+####  彩虹肥宅  
+##### 353#       发表于 2023-11-20 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090817&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 16:22</a>
+
+总码率上不去，还是会有点糊糊的感觉
+
+但是在这个码率范围内，不算糊
+
+手机拍不出效果，只能看看意思了。。 ...</blockquote>
+那看起来还是比其他设备好的，
+
+我之前chiaki串流的效果是比这个差的
+
+*****
+
+####  byisme001  
+##### 354#       发表于 2023-11-20 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090390&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 15:45</a>
+我的到了，日版，不需要挂代理，开启更新后直接用PS App扫码就能登录。
+
+网络环境是上海电信+精品网，PS5网 ...</blockquote>
+设置里是有飞行模式的开关吗
+
+
+*****
+
+####  医生狼多  
+##### 355#         楼主| 发表于 2023-11-20 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090512&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 15:58</a>
+对比一下Portal-Steam Deck-Rog Ally的画面效果，后两者都是Chiaki（H.265、3万码率）
+
+体验上来说，基本上 ...</blockquote>
+不折腾的情况下，外网串流怎么样？
+
+*****
+
+####  Fuero  
+##### 356#       发表于 2023-11-20 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090719&amp;ptid=2149659" target="_blank">闽明 发表于 2023-11-20 16:14</a>
+
+挂奇游、UU之类加速器的时候串流效果会不会受影响？
+
+以前win10笔记本用remote play玩GBO2效果不理想，搜 ...</blockquote>
+UU，日服Apex，速度没啥影响
+
+<img src="https://img.saraba1st.com/forum/202311/20/163712ipbwrt9wp79ymtjm.png" referrerpolicy="no-referrer">
+
+<strong>xxx.png</strong> (99.82 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-20 16:37 上传
+
+*****
+
+####  Fuero  
+##### 357#       发表于 2023-11-20 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090893&amp;ptid=2149659" target="_blank">byisme001 发表于 2023-11-20 16:29</a>
+
+设置里是有飞行模式的开关吗</blockquote>
+确实有，不过比较迷惑，可能是留给未来5G版本的口子？
+
+*****
+
+####  阳ノ下光  
+##### 358#       发表于 2023-11-20 16:39
+
+5g版喷了，好思路
+
+
+*****
+
+####  Fuero  
+##### 359#       发表于 2023-11-20 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090947&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-11-20 16:34</a>
+
+不折腾的情况下，外网串流怎么样？</blockquote>
+iPhone15PM，电信卡和联通卡，都寄了，提示连不上网
+
+*****
+
+####  喵喵叫的猫  
+##### 360#       发表于 2023-11-20 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63090390&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-20 15:45</a>
+我的到了，日版，不需要挂代理，开启更新后直接用PS App扫码就能登录。
+
+网络环境是上海电信+精品网，PS5网 ...</blockquote>
+我的还没到
+他触摸板支持怎么样
+像对马岛能上划刮风吗
+
+另外看a9的帖子说按下触摸板的操作要按两下才行
+很久没用官方remote play app了不记得是不是也是这样
+但psplay好像不是
+
+
+*****
+
+####  偏執王  
+##### 361#       发表于 2023-11-20 16:51
+
+这东西最后总体评价究竟如何<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 362#       发表于 2023-11-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63091085&amp;ptid=2149659" target="_blank">喵喵叫的猫 发表于 2023-11-20 16:46</a>
+
+我的还没到
+
+他触摸板支持怎么样
+
+像对马岛能上划刮风吗</blockquote>
+点一下屏幕，会出现虚拟触控板
+
+然后就可以滑动了
+
+
+*****
+
+####  Fuero  
+##### 363#       发表于 2023-11-20 17:06
+
+ 本帖最后由 Fuero 于 2023-11-20 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63091132&amp;ptid=2149659" target="_blank">偏執王 发表于 2023-11-20 16:51</a>
+
+这东西最后总体评价究竟如何</blockquote>
+我的建议是打FPS或者FTG没必要买，RPG或者ARPG绝配，试了下MHW/MHR，如龙，老头环，博得3啥的，几乎没有违和感，跟在掌机上原生运行差不多（等个新主机怪猎），赛车和体育类型也可以，试了FC24，GT7和飙酷车神轰鸣盛典。
+
+另外跟其它串流一样，虽然原生运行是60帧，但视频流还是会有卡顿的，终究只能当配件用了
+
+
+*****
+
+####  MR.McGillis  
+##### 364#       发表于 2023-11-20 17:25
+
+看了b站在外用热点玩都挺流畅的 打rpg真没啥问题
+
+
+*****
+
+####  霖岚_  
+##### 365#       发表于 2023-11-20 17:46
+
+所以连索尼自己的这玩意也没整好外网串流么，还指望能像云游戏那样玩点二档会免呢
+
+顺便问下目前除了psplay还有什么能外网串流PS5的手段吗？因为条件不允许接不上网线只能wifi，psplay外网检索不到……
+
+
+*****
+
+####  plok201  
+##### 366#       发表于 2023-11-20 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63091132&amp;ptid=2149659" target="_blank">偏執王 发表于 2023-11-20 16:51</a>
+
+这东西最后总体评价究竟如何</blockquote>
+看IGN评测视频咯
+
+基本上都点到了，好还是坏要看你的游戏环境和需求，作为一个串流设备基本完成任务吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fuero  
+##### 367#       发表于 2023-11-20 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63091738&amp;ptid=2149659" target="_blank">霖岚_ 发表于 2023-11-20 17:46</a>
+
+所以连索尼自己的这玩意也没整好外网串流么，还指望能像云游戏那样玩点二档会免呢
+
+顺便问下目前除了psplay ...</blockquote>
+官方的remoteplay和chiaki
+
+
+*****
+
+####  Fuero  
+##### 368#       发表于 2023-11-21 11:28
+
+公司网倒是能直连，很流畅，快乐
+
+
+*****
+
+####  Fuero  
+##### 369#       发表于 2023-11-21 22:17
+
+个人热点知道怎么连了，还得利用UU主机版App，用个人热点连接模式即可，UU反应还挺快的
+
+不过PSP远程有个问题是没法主动控制分辨率和码率，流量消耗很大
+
+<img src="https://img.saraba1st.com/forum/202311/21/221648vey49eyr4h4kyzc7.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (93.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202311/21/221648n90wi038ze113sqr.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (39.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-21 22:16 上传
+
+*****
+
+####  喵喵叫的猫  
+##### 370#       发表于 2023-11-21 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63103955&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-21 22:17</a>
+个人热点知道怎么连了，还得利用UU主机版App，用个人热点连接模式即可，UU反应还挺快的
+
+不过PSP远程有个问 ...</blockquote>
+等下
+为什么要加速
+不会是不加速登不上psn吧
+
+
+*****
+
+####  Fuero  
+##### 371#       发表于 2023-11-21 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63103980&amp;ptid=2149659" target="_blank">喵喵叫的猫 发表于 2023-11-21 22:22</a>
+
+等下
+
+为什么要加速
+
+不会是不加速登不上psn吧</blockquote>
+确实，我家里和公司WiFi OK，iPhone热点寄
+
+
+*****
+
+####  喵喵叫的猫  
+##### 372#       发表于 2023-11-23 18:37
+
+出差一半偷偷跑回来
+终于摸到实机了，实机好长，买的收纳盒还没到然而塞不进我平时背的包
+
+摇杆明明没省任何空间搞不懂为什么要用小的
+键帽小了，手指短的我明明dualsense完全没问题，但这个摇杆推到底就感觉稍微有点够不到，下单了个摇杆套不知道会不会改善
+手感和全特性是真的舒服，坐在电视前侧打着打着变成一边看着电视画面然后完全把机器当手柄，没有一点违和感
+
+屏幕离按钮在纵深上有点距离，拿贯各种掌机的觉得有点诡异
+
+设置里能改的真心少，看得出是想推ps link但你好歹一起上市啊
+
+触摸板这个不是太适应，第一下点屏幕只是把触摸区域显示出来然后才能滑动，点击触摸板的操作变成双击才行
+找了下remote play app触摸板还真是双击，但滑动并不需要先把触摸区域按出来
+我psplay是单独设定了个全透明的触摸板，同时虚拟键设定不隐藏（完全透明所以也看不到）按触摸板的操作单机就行，但是psplay的触摸板不支持滑动，硬要玩要把每个滑动方向单独设置键位很麻烦。
+
+当初用罗技掌机的时候，其实有些挑游戏。一些触摸板用的多的和手柄特性比较好的会选择不串流，只能找大块空闲时间坐在电视前玩
+
+另外稍微找了个信号不好的地方测试了下，他和remote play app一样信号一不好就会糊比较激进，而psplay是维持画面但是变卡直到画面撕裂掉帧。其实我更喜欢后者。
+
+但继续出差估计是不会带了，一是酒店的wifi需要网页认证，二是用酒店的网从我屋里的nas拷动画看只有1Mb每秒，怕是用电脑开热点也够呛
+
+
+*****
+
+####  刘震云  
+##### 373#       发表于 2023-11-23 20:55
+
+我今天也到货了，国内非科学环境连不上主机的，出差玩就别想了要么就用加速器，我没用加速器，后来设置了下走我的旁路由就可以联了，但没加新的规则，我估计是国内网络DNS污染的锅
+
+槽点1：没电源适配器，这很环保<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，说明书上是推荐你直连PS5充电，默认充电5V3A，估计大多数type-c的手机充电器都可以冲
+
+槽点2：串流掌机 的虚拟触摸板要按两次才算点击成功
+
+槽点3：机器设置简陋的一B，不能更改已设置自动连接的wifi的DNS等的信息，你要网络手动设置请自己输全部信息，包括SSID
+
+槽点4：不能用来看B站/youtube，真就纯串流游戏啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+优点：串流效果还不错，PS5在客厅，我在卧室串流玩瑞奇与叮当，隔着一堵墙，一局竞技场下来相当流畅（有轻微掉帧，可忽略不计）
+
+延迟还是在我的正常容忍范围内，仁王太刀逆波这种对输入时机很严格的弹反武技，我成功率从90%调到了40%
+
+
+*****
+
+####  喵喵叫的猫  
+##### 374#       发表于 2023-11-24 00:11
+
+真服了
+看到前面帖子说不支持需要web认证的网络
+还以为索尼估计没考虑到这点，抱着试试看的心态带到酒店
+想着最多是连上但提示没网络吧，说不定哪哪能跳出浏览器页面
+
+结果一连酒店wifi直接跳出提示
+“该网络需要使用web浏览器进行额外验证步骤。请连接到其他不同的网络”
+
+合着你明明知道啊
+
+一瞬间感觉又回到十来年前快捷酒店认证只允许一台设备连wifi，不得不随身带着迷你路由器来用。现在的酒店除非去拔iptv不然都没有网线口了吧
+
+
+*****
+
+####  刘震云  
+##### 375#       发表于 2023-11-24 07:24
+
+防破解是这样的，直接把浏览器噶了
+
+
+*****
+
+####  wthall  
+##### 376#       发表于 2023-11-24 08:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等下，这玩意儿局域网串流都需要**？
+
+
+*****
+
+####  刘震云  
+##### 377#       发表于 2023-11-24 09:02
+
+早上上班前又玩了会儿串流机子，发现串流掌机按键输入相对于电视屏幕基本是没有延迟的，就是普通的手柄效果，输入延迟基本不存在（局域网环境下），你坐沙发上手握串流手柄，眼睛看电视，不看串流机，就是普通游玩PS5的效果。目前延迟基本就是纯串流延迟
+
+
+*****
+
+####  小猪猪  
+##### 378#       发表于 2023-11-24 09:25
+
+<blockquote>刘震云 发表于 2023-11-24 09:02
+早上上班前又玩了会儿串流机子，发现串流掌机按键输入相对于电视屏幕基本是没有延迟的，就是普通的手柄效果 ...</blockquote>
+你盯着电视看当然没烟吃
+
+*****
+
+####  医生狼多  
+##### 379#         楼主| 发表于 2023-11-24 09:27
+
+npd似乎会记录psp的销量
+
+
+*****
+
+####  Fuero  
+##### 380#       发表于 2023-11-24 09:37
+
+我美版快到了，到时候看看热点这步会不会有区别
+
+*****
+
+####  刘震云  
+##### 381#       发表于 2023-11-24 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125052&amp;ptid=2149659" target="_blank">小猪猪 发表于 2023-11-24 09:25</a>
+
+你盯着电视看当然没烟吃</blockquote>
+目前测下来国内延迟一般在50-60ms，在日本的话延迟更低，只有30ms，局域网环境下基本上都是串流延迟，之前听人说输入延迟还有100ms，这就纯属扯淡了
+
+就算不串流，如果ps5手柄没电了，你那这个买回来充当个临时手柄也是完全没问题的
+
+买手柄送串流功能，亮度调最低+静音，续航甚至比原手柄强！是不是感觉太值了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zid99825  
+##### 382#       发表于 2023-11-24 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63123712&amp;ptid=2149659" target="_blank">喵喵叫的猫 发表于 2023-11-24 00:11</a>
+真服了
+看到前面帖子说不支持需要web认证的网络
+还以为索尼估计没考虑到这点，抱着试试看的心态带到酒店</blockquote>
+那什么，web认证是Wi-Fi标准协议里的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想不到是不可能的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  SergeGlenn  
+##### 383#       发表于 2023-11-24 09:44
+
+PDD百亿补贴有这玩意儿了，2429
+
+*****
+
+####  ultraseven  
+##### 384#       发表于 2023-11-24 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125192&amp;ptid=2149659" target="_blank">刘震云 发表于 2023-11-24 09:40</a>
+
+目前测下来国内延迟一般在50-60ms，在日本的话延迟更低，只有30ms，局域网环境下基本上都是串流延迟，之 ...</blockquote>
+99刀吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弦巻こころ  
+##### 385#       发表于 2023-11-24 09:51
+
+1429可以考虑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 386#         楼主| 发表于 2023-11-24 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125230&amp;ptid=2149659" target="_blank">SergeGlenn 发表于 2023-11-24 09:44</a>
+PDD百亿补贴有这玩意儿了，2429</blockquote>
+之前天猫2k1，还可以再等等<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  奥柏伦亲王  
+##### 387#       发表于 2023-11-24 09:58
+
+那么和 ipad+手柄比起来有什么明显的体验改善吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  plok201  
+##### 388#       发表于 2023-11-24 10:17
+
+要说的话，就一体性吧，其他单看数据没啥优势，蓝牙还给你砍了
+
+但是基本上评测和尝鲜的都说用下来算是体验最好的PS串流设备<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  淡定君  
+##### 389#       发表于 2023-11-24 11:19
+
+2429百亿补贴？ 这是买家补贴给卖家吧
+
+PSVR2那会才是百亿补贴，首发便宜一千。
+
+
+*****
+
+####  Fuero  
+##### 390#       发表于 2023-11-24 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125358&amp;ptid=2149659" target="_blank">奥柏伦亲王 发表于 2023-11-24 09:58</a>
+那么和 ipad+手柄比起来有什么明显的体验改善吗
+
+论坛助手,iPhone</blockquote>
+这个设备约等于索尼帮你把8寸屏幕和dualsense缝了起来，手柄特性齐全
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  奥柏伦亲王  
+##### 391#       发表于 2023-11-24 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63129283&amp;ptid=2149659" target="_blank">Fuero 发表于 2023-11-24 16:09</a>
+这个设备约等于索尼帮你把8寸屏幕和dualsense缝了起来，手柄特性齐全
+
+—— 来自 S1Fun ...</blockquote>
+听起来像是给价格不敏感也不爱折腾的玩家的首选
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  陈词与芍药  
+##### 392#       发表于 2023-11-24 18:59
+
+ 本帖最后由 陈词与芍药 于 2023-11-24 07:01 编辑 
+
+适合半夜一个人在被窝里摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/24/070122xeakzup1bgeywwbe.jpg" referrerpolicy="no-referrer">
+
+<strong>6C9B3449-6CA2-4A54-BBAA-98888A81762B.jpg</strong> (347.03 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 19:01 上传
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  shimotsuki14  
+##### 393#       发表于 2023-11-24 19:01
+
+等价格差不多了买一个。
+现在带娃没时间坐电视前面了
+
+
+*****
+
+####  buttersVcartman  
+##### 394#       发表于 2023-11-24 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63130797&amp;ptid=2149659" target="_blank">shimotsuki14 发表于 2023-11-24 19:01</a>
+
+等价格差不多了买一个。
+
+现在带娃没时间坐电视前面了</blockquote>
+这机子现在还真就是奶爸神器
+
+
+*****
+
+####  shimotsuki14  
+##### 395#       发表于 2023-11-24 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63130995&amp;ptid=2149659" target="_blank">buttersVcartman 发表于 2023-11-24 19:32</a>
+
+这机子现在还真就是奶爸神器</blockquote>
+等啥时候能到一千七八的时候可以考虑入手了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刘震云  
+##### 396#       发表于 2023-11-24 22:51
+
+<img src="https://img.saraba1st.com/forum/202311/24/224025rmpsje5pjk4epemm.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20231124223843.jpg</strong> (102.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-24 22:40 上传
+
+试下了特殊方式把PS5的浏览器调出来了，用计时网站测了下串流延迟
+
+静态延迟在43ms左右，当然游戏延迟会随着画面变化解码压力增大，开车游戏的延迟大致在50-60ms
+
+备注：我是国内垃圾移动网300M，主路由TPLINK 5430，没开加速器，无线串流稍微设置了下我的旁路由规则，能过验证就行
+
+
+*****
+
+####  硫黄  
+##### 397#       发表于 2023-11-24 22:53
+
+这玩意局域网串流还要连外网的？
+
+*****
+
+####  Fuero  
+##### 398#       发表于 2023-11-24 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63132657&amp;ptid=2149659" target="_blank">硫黄 发表于 2023-11-24 22:53</a>
+
+这玩意局域网串流还要连外网的？</blockquote>
+不需要，为什么需要连外网啊？不过我手机热点是要UU的
+
+
+*****
+
+####  阳ノ下光  
+##### 399#       发表于 2023-11-24 23:09
+
+ 本帖最后由 阳ノ下光 于 2023-11-24 23:12 编辑 
+
+大家测延迟记得把电视插帧啥的打开，30还是太保守，太不大胆了。而且尽量去日本测，日本网络串流有黑科技。
+
+
+*****
+
+####  Fuero  
+##### 400#       发表于 2023-11-25 00:06
+
+延迟就是普通安卓的水平了，不推荐打竞技FPS，但是其它类型的游戏差不多都能胜任，包括2077那种强辅助单人射击
+
+试了下DJMAX不调延迟的成绩对比
+
+<img src="https://img.saraba1st.com/forum/202311/25/000331f5nxd3uhvss8ihru.png" referrerpolicy="no-referrer">
+
+<strong>PSP.png</strong> (279.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-25 00:03 上传
+
+<img src="https://img.saraba1st.com/forum/202311/25/000331taietwtsd1uduowt.png" referrerpolicy="no-referrer">
+
+<strong>TV.png</strong> (184.49 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-25 00:03 上传
+
+
+*****
+
+####  lightingstar  
+##### 401#       发表于 2023-11-25 08:57
+
+有了孩子之后电视机在孩子三岁之前是打不开了，就算将来想要拉着他打游戏，每天也没法打很久，所以想要玩还得是偷偷用掌机玩
+
+不过目前预算紧张，ps remote软件用的还不错，手头还有个轻薄本，加上switch，感觉还是有救的
+
+如果手头大把钱的话，真想psp和steam deck都安排上啊
+
+
+*****
+
+####  DZDZaima  
+##### 402#       发表于 2023-11-25 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63125358&amp;ptid=2149659" target="_blank">奥柏伦亲王 发表于 2023-11-24 09:58</a>
+那么和 ipad+手柄比起来有什么明显的体验改善吗
+
+论坛助手,iPhone</blockquote>
+ipad 以及现在手机的比例都不是 16:9，这可能是串流最大的问题。
+
+
+*****
+
+####  Fuero  
+##### 403#       发表于 2023-11-27 22:43
+
+实测美版一样无法直连手机热点
+
