@@ -1087,3 +1087,28 @@ gpx里就有女车手了。。。
 
 —— 来自 OnePlus PGP110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  Piano-Forest  
+##### 95#         楼主| 发表于 2023-11-28 21:53
+
+┏━━━━━━━┓
+
+  𝙃𝙄𝙂𝙃𝙎𝙋𝙀𝙀𝘿 𝙀́𝙩𝙤𝙞𝙡𝙚
+
+ 𝘾𝙃𝘼𝙍𝘼𝘾𝙏𝙀𝙍 𝙑𝙄𝙎𝙐𝘼𝙇
+
+┗━━━━━━━┛
+
+浅河カナタ (CV #日笠陽子)
+
+小町永遠 (CV #井澤詩織)
+
+新ビジュアル公開⚡️
+
+レース前、サーキットで過ごす
+
+キャラクターの様子をお届け🏎
+<img src="https://p.sda1.dev/14/5724ddff69150870d6f4990cd74e6b0e/20231128_215313.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/554c03412af31466898f40851f9baab9/20231128_215314.jpg" referrerpolicy="no-referrer">
+
