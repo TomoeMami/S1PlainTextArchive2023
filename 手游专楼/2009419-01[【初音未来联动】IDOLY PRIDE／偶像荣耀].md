@@ -490,3 +490,137 @@ kana加入卑女战场<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  最强惠酱  
+##### 800#       发表于 2023-11-23 18:39
+
+绝了，联动水水
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  liyropen  
+##### 801#       发表于 2023-11-23 19:14
+
+会有角色吗会有角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  伊布桑  
+##### 802#         楼主| 发表于 2023-11-23 20:17
+
+这次能不能拉人过来建模啊，上次联kon跟没有一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+*****
+
+####  镜hinata  
+##### 803#       发表于 2023-11-24 09:58
+
+恶心
+
+
+*****
+
+####  伊布桑  
+##### 804#         楼主| 发表于 2023-11-24 18:07
+
+有3D模型和live，这下血本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  liyropen  
+##### 805#       发表于 2023-11-24 18:08
+
+好，有人物建模<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liyropen  
+##### 806#       发表于 2023-11-24 18:36
+
+料不少啊，甚至还有圣诞服
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  最强惠酱  
+##### 807#       发表于 2023-11-24 19:23
+
+比2周年还丰富<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  最强惠酱  
+##### 808#       发表于 2023-11-25 08:35
+
+追加垃圾广告转盘，你游快要跑路了吧
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  liyropen  
+##### 809#       发表于 2023-11-27 13:15
+
+我好想玩烂梗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/27/131520fd6ah66a1wwdewxv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-11-27-13-14-38-356-edit_com.twitter.android.jpg</strong> (388.27 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-27 13:15 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liyropen  
+##### 810#       发表于 2023-11-28 15:03
+
+崭新的数值高度
+
+<img src="https://img.saraba1st.com/forum/202311/28/150348mdluvi8kk48m48ww.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-11-28-15-02-51-169-edit_com.twitter.android.jpg</strong> (191.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 15:03 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  两个路人  
+##### 811#       发表于 2023-11-28 15:04
+
+<blockquote>liyropen 发表于 2023-11-28 15:03
+崭新的数值高度
+
+</blockquote>
+怎么才3G，要快步进入5G时代了哇（笑
+

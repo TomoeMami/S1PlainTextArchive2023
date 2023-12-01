@@ -1190,3 +1190,10 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到16话德鲁哈也太天衣无缝了，确实感觉到了这种极其强大的男性好像很对作者的胃口。
 
+*****
+
+####  TiiTiiLL  
+##### 115#       发表于 2023-11-28 14:40
+
+男主说情话实在太难蚌了
+
