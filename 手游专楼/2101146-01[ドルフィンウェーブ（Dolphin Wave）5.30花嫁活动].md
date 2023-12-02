@@ -4167,3 +4167,10 @@ FES卡池角色及礼装（礼装也是LIVE2D！）
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年庆也没人回帖！凉了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新旧fes同一个卡池，真有你的
 
+*****
+
+####  startea15  
+##### 402#       发表于 2023-11-29 23:41
+
+狂出fes卡池，这游戏感觉快倒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

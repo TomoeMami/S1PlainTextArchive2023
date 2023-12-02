@@ -9702,3 +9702,50 @@ Do It Yourself!! -どぅ－・いっと・ゆあせるふ-
 [https://twitter.com/raku_rakugaki/status/1713880029837541833](https://twitter.com/raku_rakugaki/status/1713880029837541833)
 <img src="https://p.sda1.dev/13/536ed355b37ef8986a4487a3e1318401/20231018_004035.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  reficulp  
+##### 704#       发表于 2023-11-30 00:00
+
+设定集到手了，合计248页，人物设定和小道具设定50页，场地背景设定150页，版权绘初期设定等50页。解说的量适中，人物设定图有点少了。
+
+<img src="https://img.saraba1st.com/forum/202311/29/235913jkgzqazk4z4suyek.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231129_235419.jpg</strong> (374.11 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202311/29/235914hrlg55i0n39qh0f6.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231129_235404.jpg</strong> (468.8 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202311/29/235914orr3sr49979r2oyz.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231129_235349.jpg</strong> (360.02 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202311/29/235915zauduggvzjjudv3j.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231129_231935.jpg</strong> (482.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 23:59 上传
+
+<img src="https://img.saraba1st.com/forum/202311/29/235915l8e4des38wqr3ed1.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231129_231923.jpg</strong> (511.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 23:59 上传
+
