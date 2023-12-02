@@ -7177,3 +7177,10 @@ FAZE!
 
 太BT了，这种赛程顶住压力翻盘夺冠的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+*****
+
+####  ispep  
+##### 3939#       发表于 2023-11-29 19:38
+
+说要是原来niko去猎鹰的话monesy会去c9<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这样看现在找nexa回来真的聚是一坨屎吧，还不如散了
+

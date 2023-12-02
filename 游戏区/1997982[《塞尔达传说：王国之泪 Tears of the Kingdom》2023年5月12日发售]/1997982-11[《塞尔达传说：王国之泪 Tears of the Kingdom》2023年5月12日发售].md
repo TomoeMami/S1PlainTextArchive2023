@@ -7096,3 +7096,20 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  冷泉夜月  
+##### 15597#       发表于 2023-11-29 19:38
+
+<img src="https://img.saraba1st.com/forum/202311/29/193406ik1wrskjeic4zl87.jpg" referrerpolicy="no-referrer">
+
+<strong>背包呀哈哈.jpg</strong> (257.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 19:34 上传
+
+“好想前往朋友身边啊。。。”
+
+旅行克洛格明年2月发售，3300日元（含税）1只，分A/B款<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
