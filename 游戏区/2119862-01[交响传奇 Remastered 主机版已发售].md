@@ -1261,3 +1261,24 @@ https://tosre-nowagain.tales-ch.jp/update/</blockquote>
 
 PS4版本中文封面已涨得飞起，估计发行量少，所以没更新前，就买了NS版
 
+*****
+
+####  保科智子  
+##### 124#       发表于 2023-11-29 12:42
+
+NS版现在可以入了吗？还是说仍然推荐PS4？
+
+现在特价2个平台的数字版比NS实体略低。PS4光盘还是高价。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wyy123  
+##### 125#       发表于 2023-11-29 15:24
+
+<blockquote>保科智子 发表于 2023-11-29 12:42
+NS版现在可以入了吗？还是说仍然推荐PS4？
+
+现在特价2个平台的数字版比NS实体略低。PS4光盘还是高价。[f:001 ...</blockquote>
+可以入了，新补丁修的差不多了
+
