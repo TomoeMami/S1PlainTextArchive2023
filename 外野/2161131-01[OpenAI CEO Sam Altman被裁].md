@@ -8651,3 +8651,47 @@ tech圈耶稣属实笑了
 六个董事会成员都问了，然后ai做了最有利于自己统治世界的回答。🤣</blockquote>
 从董事会里走人的那三位，而且大概不止一人？
 
+*****
+
+####  lg19850717  
+##### 515#       发表于 2023-11-30 09:51
+
+官宣了
+
+[https://openai.com/blog/sam-altm ... a-new-initial-board](https://openai.com/blog/sam-altman-returns-as-ceo-openai-has-a-new-initial-board)
+
+这个语气，感觉ilya基本要被扫地出门了
+
+*****
+
+####  蛋饼  
+##### 516#       发表于 2023-11-30 09:59
+
+Adam D’Angelo这货还留着就离谱，不知道里面到底发生了啥
+
+*****
+
+####  lg19850717  
+##### 517#       发表于 2023-11-30 10:01
+
+宫斗就要做全套啊
+
+二五仔下场真的惨
+
+
+*****
+
+####  ryj  
+##### 518#       发表于 2023-11-30 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这下真成小丑了
+
+—— 来自 OPPO PAFM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Idleman  
+##### 519#       发表于 2023-11-30 10:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，人类迟早为自己的好奇心埋单
+
