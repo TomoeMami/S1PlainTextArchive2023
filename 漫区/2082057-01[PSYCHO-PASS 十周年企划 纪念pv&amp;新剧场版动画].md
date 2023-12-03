@@ -1355,3 +1355,1110 @@ IG做近身搏击的演出一直都可以的
 「劇場版 PSYCHO-PASS サイコパス PROVIDENCE」BD＆DVD発売決定！</blockquote>
 12月能看到资源的意思吧
 
+*****
+
+####  saturnus  
+##### 128#       发表于 2023-11-25 18:22
+
+贴吧好像有资源了
+
+
+*****
+
+####  silversor  
+##### 129#       发表于 2023-11-25 19:01
+
+ny有了，3.5g
+
+
+*****
+
+####  Piano-Forest  
+##### 130#       发表于 2023-11-25 21:16
+
+U-NEXT 流媒体先行
+
+[https://tieba.baidu.com/p/8744242094](https://tieba.baidu.com/p/8744242094)
+
+【个人听译】PSYCHO-PASS PROVIDENCE
+[https://pan.baidu.com/s/1dyqVNCJlsDEujVdrg4Dr7g](https://pan.baidu.com/s/1dyqVNCJlsDEujVdrg4Dr7g)
+
+提取码 348x
+
+
+*****
+
+####  蠽蟟龟  
+##### 131#       发表于 2023-11-25 23:13
+
+所以新剧场版时间线是在第三季之前啊
+
+
+*****
+
+####  nh_zzz  
+##### 132#       发表于 2023-11-26 02:09
+
+看了一半，毛子各种意义上都被霍霍的好惨啊
+
+
+*****
+
+####  smdzh2  
+##### 133#       发表于 2023-11-26 06:55
+
+果然，西比拉才是真正的主角，和第一监视者一样靠着大鱼吃小鱼的方法实现了进化<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YetToCome  
+##### 134#       发表于 2023-11-26 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63140429&amp;ptid=2082057" target="_blank">smdzh2 发表于 2023-11-26 06:55</a>
+果然，西比拉才是真正的主角，和第一监视者一样靠着大鱼吃小鱼的方法实现了进化 ...</blockquote>
+其实在第一部剧场版里就能发现西比拉这玩意就是个bug，Staff最开始估计就是想写个反乌托邦的世界，结果到了最后认真思考了一下这玩意除了官僚主义简直没有任何缺点，反向实现乌托邦了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Siran_China  
+##### 135#       发表于 2023-11-26 11:13
+
+这剧场版纯粹是为了“常守朱开枪打死局长”这点醋包的饺子，这点事硬拖两个小时，剧场版还搞这么舒缓的叙事吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+你把砺波和将军还有大鱼吃小鱼啥的删了感觉都没啥关系，只要推动法律废止的议程还在，常守朱肯定会这么干的
+
+
+*****
+
+####  wonner_2012  
+##### 136#       发表于 2023-11-26 16:26
+
+ 本帖最后由 wonner_2012 于 2023-11-26 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63140984&amp;ptid=2082057" target="_blank">YetToCome 发表于 2023-11-26 10:16</a>
+其实在第一部剧场版里就能发现西比拉这玩意就是个bug，Staff最开始估计就是想写个反乌托邦的世界，结果到 ...</blockquote>
+说的没错。其实我当初喜欢pp就是因为动画实质上表现出来的是近乌托邦世界（甚至在不断自我完善），而不是反乌托邦世界。这点在老虚剧场版更明显，我怀疑老虚就是想写乌托邦世界。
+
+现在尝试写近乌托邦世界的科幻影视作品太少了，反乌托邦我都看腻了。
+
+我原来以为冲方丁接手剧本以后会朝反乌托邦写，结果他竟然削弱西比拉系统的权力，搞出国防省、外务省
+
+
+*****
+
+####  千叶铁矢  
+##### 137#       发表于 2023-11-26 16:51
+
+哈哈这回锡纸帽真有用啊
+
+
+*****
+
+####  aptx8285144  
+##### 138#       发表于 2023-11-26 17:23
+
+还行了，作为一个剧场版还不错，朱爷和狗哥的糖还挺多的，最后那一枪的目的是保住法务省顺便给西比西一个警告吗，毕竟“局长”是随便量产的，朱爷真得算温和版的拉克丝，几乎所有人都在口头或行动上为她赎罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，到了最终幕也让人笑不出来了（
+
+
+*****
+
+####  aptx8285144  
+##### 139#       发表于 2023-11-26 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63141363&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 11:13</a>
+
+剧场版纯粹是为了“常守朱开枪打死局长”这点醋包的饺子，为此硬拖两个小时，剧场版还搞这么舒缓的叙事吗[f ...</blockquote>
+主要是那两个小时是各种事态和行动里面蓄情绪吧，如果只是一般的官僚程序**控提出废黜法律，那以朱的性格恐怕也不会轻易下死手，毕竟哪怕是一期时西比拉也不是纯反派形象
+
+
+*****
+
+####  aptx8285144  
+##### 140#       发表于 2023-11-26 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61699219&amp;ptid=2082057" target="_blank">manyin1 发表于 2023-7-17 22:58</a>
+
+有源了吗？</blockquote>
+130楼有资源了
+
+*****
+
+####  aptx8285144  
+##### 141#       发表于 2023-11-26 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60843872&amp;ptid=2082057" target="_blank">发财就收 发表于 2023-5-14 19:34</a>
+
+禾生局长每季度都得死一次替身都成了固定戏码，剧场版也终于是最后一次死了吧
+
+----发送自 STAGE1 App for  ...</blockquote>
+反正都是随时能量产的，也不算“替身”（
+
+*****
+
+####  aptx8285144  
+##### 142#       发表于 2023-11-26 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60881257&amp;ptid=2082057" target="_blank">満月－夜 发表于 2023-5-17 20:48</a>
+
+除了那部第一监视者之外好像剧场版的打戏都挺多的？
+
+起码就这部来说打戏真的看爽了，把坑也填了。在我心中 ...</blockquote>
+不过老师死的那段打戏，我感觉bgm是不是太夸张了，几乎要盖过人物们的台词和行动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 143#       发表于 2023-11-26 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60844727&amp;ptid=2082057" target="_blank">无音命题 发表于 2023-5-14 21:14</a>
+
+看完了，优点有不少，首先是把第三季的坑基本都填了，包括体操王子他爹的死，男2他哥，俩老年佣兵，以及朱 ...</blockquote>
+佐仓正确地脑控了官方，剧场版三部曲的第一部重置了她的人设<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+毕竟宜野平日里和红毛全都是话语一个比一个少的人，全靠霜月一个人不让场面冷下来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，话说把原型枪交给宜野那里，用另一种要活着回来的表达时，她竟然是转身说出来，我磋磨着莫非官方有宜霜党（
+
+*****
+
+####  aptx8285144  
+##### 144#       发表于 2023-11-26 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60844727&amp;ptid=2082057" target="_blank">无音命题 发表于 2023-5-14 21:14</a>
+
+看完了，优点有不少，首先是把第三季的坑基本都填了，包括体操王子他爹的死，男2他哥，俩老年佣兵，以及朱 ...</blockquote>
+王女要是有朱爷这行动力，那很多路人印象里也不会觉得她“好像只有互相理解”的嘴炮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Siran_China  
+##### 145#       发表于 2023-11-26 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143560&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 17:28</a>
+
+主要是那两个小时是各种事态和行动里面蓄情绪吧，如果只是一般的官僚程序**控提出废黜法律，那以朱的性格 ...</blockquote>
+倒也合理，砺波搞事情导致死了那么多常守朱认识的人，尤其是最后西比拉想和“将军”和解，才导致她选了这条路。
+
+毕竟是PP3和PPFI先出的，PPP结局已经固定了只能想办法激化一下矛盾，这一下搞了两个小时实在是看得我有点不耐烦，大概是最近真人影视和老番看多了语速有点不习惯……
+
+
+*****
+
+####  Siran_China  
+##### 146#       发表于 2023-11-26 18:03
+
+说起来其实我还是有一个疑问啊，有点太习以为常反而忘掉了
+
+常守朱是免罪体质吗？我看她价值观也并非像西比拉那样异于常人，怎么一枪崩了禾生局长色相还是清澈的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  csolfans  
+##### 147#       发表于 2023-11-26 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143523&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 17:23</a>
+
+还行了，作为一个剧场版还不错，朱爷和狗哥的糖还挺多的，最后那一枪的目的是保住法务省（法律）顺便给西比 ...</blockquote>
+朱姐：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在PC局老大都是我的人，西比拉你拿什么跟我斗
+
+*****
+
+####  csolfans  
+##### 148#       发表于 2023-11-26 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143801&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 18:03</a>
+
+说起来其实我还是有一个疑问啊，有点太习以为常反而忘掉了
+
+常守朱是免罪体质吗？我看她价值观也并非像西比 ...</blockquote>
+不是。。。毕竟禾生局长就不是人，意识是西比拉的，肉体是量产的
+
+*****
+
+####  千叶铁矢  
+##### 149#       发表于 2023-11-26 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143801&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 18:03</a>
+说起来其实我还是有一个疑问啊，有点太习以为常反而忘掉了
+
+常守朱是免罪体质吗？我看她价值观也并非像西比 ...</blockquote>
+没提过这个，但观众看这么多年pp朱爷各种操作估计心里都有数了，反正我是默认她是免罪体质的
+
+
+*****
+
+####  千叶铁矢  
+##### 150#       发表于 2023-11-26 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143921&amp;ptid=2082057" target="_blank">csolfans 发表于 2023-11-26 18:21</a>
+不是。。。毕竟禾生局长就不是人，意识是西比拉的，肉体是量产的</blockquote>
+但脑子不还是人吗？
+
+
+*****
+
+####  aptx8285144  
+##### 151#       发表于 2023-11-26 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143936&amp;ptid=2082057" target="_blank">千叶铁矢 发表于 2023-11-26 18:23</a>
+
+但脑子不还是人吗？</blockquote>
+局长的脑子里记得就是一堆机械吧，我记得好像一期时候白毛打倒她后好像有镜头
+
+
+*****
+
+####  Siran_China  
+##### 152#       发表于 2023-11-26 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143972&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 18:30</a>
+
+局长的脑子里记得就是一堆机械吧，我记得好像一期时候白毛打倒她后好像有镜头 ...</blockquote>
+我记得局长好像就脑子是人脑，西比拉选的代表，其他部分是机械
+
+*****
+
+####  aptx8285144  
+##### 153#       发表于 2023-11-26 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144001&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 18:36</a>
+
+我记得局长好像就脑子是人脑，西比拉选的代表，其他部分是机械</blockquote>
+不知道官方具体怎么设定，但我记得好像有过局长直接进入游离（就是西比拉背后在讨论）状态（外面看过去就像局长在充电一样），然后得出结论，反正这种肯定不是普通人类，朱爷对她开火也肯定不用当人类的心态
+
+
+*****
+
+####  Siran_China  
+##### 154#       发表于 2023-11-26 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144036&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 18:41</a>
+
+不知道官方具体怎么设定，但我记得好像有过局长直接进入游离（就是西比拉背后在讨论）状态（外面看过去就 ...</blockquote>
+回去看了下第二季11集，禾生局长确实是个机器人，只有脑子是一个西比拉成员，被 Dominator 打一下之后只有脑子部分爆了
+
+那么常守朱朝她开枪的时候观念里大概没把她当个人，否则解释不了……只能这么想了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 155#       发表于 2023-11-26 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143523&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 17:23</a>
+还行了，作为一个剧场版还不错，朱爷和狗哥的糖还挺多的，最后那一枪的目的是保住法务省（法律）顺便给西比 ...</blockquote>
+最后一枪在公开场合崩了局长一是朱爷信里说的想质询法律，估计她自己心里也觉察到自己可能是免罪体质了，二是想换个局长吧，最后也确实法斑静火当局长了。
+
+*****
+
+####  千叶铁矢  
+##### 156#       发表于 2023-11-26 18:51
+
+说起来最后这个局长咋还带血的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Siran_China  
+##### 157#       发表于 2023-11-26 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144086&amp;ptid=2082057" target="_blank">千叶铁矢 发表于 2023-11-26 18:51</a>
+
+说起来最后这个局长咋还带血的朱爷崩的是脖子啊</blockquote>
+一枪胸口一枪脖子，带血大概是给大脑准备的循环系统吧（
+
+
+*****
+
+####  aptx8285144  
+##### 158#       发表于 2023-11-26 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144067&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 18:47</a>
+
+回去看了下第二季11集，禾生局长确实是个机器人，只有脑子是一个西比拉成员，被 Dominator 打一下之后只 ...</blockquote>
+肯定没当普通人类看呀，倒不如说把西比西的代表当人类看才是奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 159#       发表于 2023-11-26 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143881&amp;ptid=2082057" target="_blank">csolfans 发表于 2023-11-26 18:15</a>
+
+朱姐：现在PC局老大都是我的人，西比拉你拿什么跟我斗</blockquote>
+除非西比拉真得能把这次反派搞出来的精神芯片控制到所有公务员和警务人员脑子里，否则根本斗不过朱爷，大姐头，我们还是老老实实一起合作干活吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  死宅真恶心  
+##### 160#       发表于 2023-11-26 21:35
+
+红色的是机油吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  YetToCome  
+##### 161#       发表于 2023-11-26 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143248&amp;ptid=2082057" target="_blank">wonner_2012 发表于 2023-11-26 16:26</a>
+说的没错。其实我当初喜欢pp就是因为动画实质上表现出来的是近乌托邦世界（甚至在不断自我完善），而不是 ...</blockquote>
+从第三季来看，冲方丁对主要路线的理解还是没啥问题的，主要是表现形式太sb了
+回过头去看第二季其实是去解决西比拉本身作为群体的犯罪性，最后也确实是排除掉了一些内部个体去解决。只不过表现形式真是烂中烂，血肉横飞泛滥到了一个反胃的地步了
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  manyin1  
+##### 162#       发表于 2023-11-26 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143622&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 17:36</a>
+
+130楼有资源了</blockquote>
+谢谢提醒
+
+
+*****
+
+####  wonner_2012  
+##### 163#       发表于 2023-11-27 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63146077&amp;ptid=2082057" target="_blank">YetToCome 发表于 2023-11-26 22:56</a>
+从第三季来看，冲方丁对主要路线的理解还是没啥问题的，主要是表现形式太sb了
+回过头去看第二季其实是去 ...</blockquote>
+只要冲方丁还在完善近乌托邦世界观（基本上等于完善西比拉系统）这个方向上写剧本大纲，pp这个系列我就会继续看下去。我是真的很好奇西比拉系统在系列结局会变成什么样。
+
+如果剧本方向变成彻底打倒西比拉系统，我大概就弃番了，除非剧本能提出这个世界观下更可行的替代方案（比如变回人类官僚机构就是一种倒退，从科幻角度上看是个极其没意思、没想象力的方案）
+
+现在描绘未来社会上层建筑大致样貌的科幻影视作品大多都是反乌托邦，要不然就是毫无想象力地直接照搬现实存在的上层建筑（科幻全表现在技术上）。希望pp这个系列能保持自己的独特性。
+
+
+*****
+
+####  aptx8285144  
+##### 164#       发表于 2023-11-27 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60780244&amp;ptid=2082057" target="_blank">meailove 发表于 2023-5-8 21:54</a>
+
+看来如果这之后还有后续，主角也已经彻底换了</blockquote>
+按照贴吧访谈说法，第三季换主角是因为电视台（地位相当于甲方）想扩大受众而搞的，包括有些倒叙手法的干涉让动画官方非常为难
+
+
+*****
+
+####  洛克萨斯  
+##### 165#       发表于 2023-11-27 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西比拉目前展现来看比人类官僚好用多了
+
+
+*****
+
+####  smdzh2  
+##### 166#       发表于 2023-11-27 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151440&amp;ptid=2082057" target="_blank">洛克萨斯 发表于 2023-11-27 16:00</a>
+西比拉目前展现来看比人类官僚好用多了</blockquote>
+系统有着严谨的运算逻辑，必要的时候又会变通，百脑汇开会还不会掀桌子，确实是理想中的官僚系统<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 167#       发表于 2023-11-27 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二季冲方给西比拉诞生加上了黑色的季节这个原罪，然后再尝试去审判西比拉的思路还是不错的
+真让我受不了的是老虚拍的那个去东南亚输出西比拉的剧场版，真就除了秀秀机设外空无一物，单纯是军阀套了个西比拉皮在玩毒菜
+
+
+*****
+
+####  洛克萨斯  
+##### 168#       发表于 2023-11-27 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151686&amp;ptid=2082057" target="_blank">smdzh2 发表于 2023-11-27 15:20</a>
+
+系统有着严谨的运算逻辑，必要的时候又会变通，百脑汇开会还不会掀桌子，确实是理想中的官僚系统 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最重要的是这玩意不会产生利益团体，想象不出怎么腐败
+
+*****
+
+####  winda  
+##### 169#       发表于 2023-11-27 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151746&amp;ptid=2082057" target="_blank">洛克萨斯 发表于 2023-11-27 15:25</a>
+最重要的是这玩意不会产生利益团体，想象不出怎么腐败</blockquote>
+第二季的东金母子不就是利益集体么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后就被排毒了
+
+*****
+
+####  洛克萨斯  
+##### 170#       发表于 2023-11-27 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151765&amp;ptid=2082057" target="_blank">winda 发表于 2023-11-27 15:27</a>
+
+第二季的东金母子不就是利益集体么
+
+然后就被排毒了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，没了啊，所以才是西比拉某种程度来说很好用
+
+
+*****
+
+####  nh_zzz  
+##### 171#       发表于 2023-11-27 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143801&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 18:03</a>
+说起来其实我还是有一个疑问啊，有点太习以为常反而忘掉了
+
+常守朱是免罪体质吗？我看她价值观也并非像西比 ...</blockquote>
+不是，具体可以看第一季闺蜜那段
+
+
+*****
+
+####  nh_zzz  
+##### 172#       发表于 2023-11-27 18:07
+
+补充一个芯片锁数值只是调整的一种方式，只可惜舞台剧vv的编剧进去了不然还能继续挖
+
+所以本篇的舞台什么时候出第二季，我到要看看冲方丁这剧本怎么演
+
+
+*****
+
+####  smdzh2  
+##### 173#       发表于 2023-11-27 18:31
+
+朱妹的喘气回pp值是bug级别的，全国独此一家，这也是她有底气和西比拉叫板的原因，白毛、缝合怪的特性完全没法比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 174#       发表于 2023-11-27 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151765&amp;ptid=2082057" target="_blank">winda 发表于 2023-11-27 15:27</a>
+
+第二季的东金母子不就是利益集体么
+
+然后就被排毒了</blockquote>
+多少都是<strong>被动</strong>排毒的，其实第一季，第二季和这个剧场版有点很像，就是“外部人员”搞事，公安系统（天意这个剧场版加上外务省+慎导）追查，最后都指向了西比拉系统的问题，最后倒逼做选择，
+
+只不过天意剧场版里系统表面更从容可以把锅甩给将军（外部人员）和慎导，因为他们不像白毛和鹿屋，那两个人是把矛头<strong>直接</strong>对准了西比拉，加上身份和设定差异（慎导还是体制内的人），因此西比拉在甩锅（和慎导谈判，想把博士的文件交给将军）的同时还想进一步废掉法务省，只是被朱爷一枪阻止了
+
+
+*****
+
+####  aptx8285144  
+##### 175#       发表于 2023-11-27 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63153646&amp;ptid=2082057" target="_blank">smdzh2 发表于 2023-11-27 18:31</a>
+
+朱妹的喘气回pp值是bug级别的，全国独此一家，这也是她有底气和西比拉叫板的原因，白毛、缝合怪的特性完全 ...</blockquote>
+也是有“不富裕”的时候，二期最后，东金突然拿出杀朱爷奶奶的事情来刺激她时，朱就喘气很难，鹿屋在侧直接给她”送“pp值（他可是缝合怪）
+
+
+*****
+
+####  aptx8285144  
+##### 176#       发表于 2023-11-27 22:10
+
+[https://bbs.saraba1st.com/2b/thread-2162150-1-1.html](https://bbs.saraba1st.com/2b/thread-2162150-1-1.html)  开了投票贴，感觉算是15年剧场版以来观感最好的一部了
+
+
+*****
+
+####  hamartia  
+##### 177#       发表于 2023-11-27 22:49
+
+<blockquote>wonner_2012 发表于 2023-11-27 00:29
+只要冲方丁还在完善近乌托邦世界观（基本上等于完善西比拉系统）这个方向上写剧本大纲，pp这个系列我就会 ...</blockquote>
+我也是这么想
+
+西比拉的理想形态应该是柏拉图提出的那种哲学家
+
+
+*****
+
+####  发财就收  
+##### 178#       发表于 2023-11-27 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144086&amp;ptid=2082057" target="_blank">千叶铁矢 发表于 2023-11-26 18:51</a>
+
+说起来最后这个局长咋还带血的朱爷崩的是脖子啊</blockquote>
+局长这种公众人物的义体应该是会做得较真实点，加点人造血液来防止出意外时被记者拍到身体与常人的不同
+
+
+*****
+
+####  Midnight.Coup  
+##### 179#       发表于 2023-11-28 00:00
+
+不是12.20才出BD，楼上是哪里看的
+
+*****
+
+####  发财就收  
+##### 180#       发表于 2023-11-28 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144036&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 18:41</a>
+
+不知道官方具体怎么设定，但我记得好像有过局长直接进入游离（就是西比拉背后在讨论）状态（外面看过去就 ...</blockquote>
+按第一季局长在不同时期的身体小动作都不同这点看（玩魔方，咬手指），应该是百脑汇里的大脑定时出来轮班扮演，但如果值班那个出事死亡就意味着百脑汇里那个大脑就废了，稹岛那个被抓进去的猎奇杀人犯好友就被砸了脑袋死了
+
+
+*****
+
+####  发财就收  
+##### 181#       发表于 2023-11-28 00:04
+
+话说唐人街庆祝新年那段的画面，有种PIG在致敬以前攻壳机动队剧场版香港花街游行那段的感觉
+
+*****
+
+####  nh_zzz  
+##### 182#       发表于 2023-11-28 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156482&amp;ptid=2082057" target="_blank">Midnight.Coup 发表于 2023-11-28 00:00</a>
+不是12.20才出BD，楼上是哪里看的</blockquote>
+unext 网络配信，当然白嫖就ny和贴吧了
+
+
+*****
+
+####  发财就收  
+##### 183#       发表于 2023-11-28 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151701&amp;ptid=2082057" target="_blank">winda 发表于 2023-11-27 15:22</a>
+
+第二季冲方给西比拉诞生加上了黑色的季节这个原罪，然后再尝试去审判西比拉的思路还是不错的
+
+真让我 ...</blockquote>
+剧场版第一季里的西比拉证明了内部那些阴谋家组成的大脑可不是只会把才智用于国内管理平民百姓，用于国外一样也行，只是做法上过于重效率而忽略民主的“程序正义”
+
+
+*****
+
+####  大厨麦当牛  
+##### 184#       发表于 2023-11-28 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143801&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-26 18:03</a>
+
+说起来其实我还是有一个疑问啊，有点太习以为常反而忘掉了
+
+常守朱是免罪体质吗？我看她价值观也并非像西比 ...</blockquote>
+不是免罪体质，因为这一枪在西比拉看来早已经是预定调和的事件了，本质上就是西比拉配合常守朱在大众面前演一波杀人戏码，要点是公布“西比拉系统也有缺陷”这个事实，从而迫使废黜法律的议题终止。只有上帝视角和极少数知情者知道常守朱杀的不是“人”。所以来颁奖的这个局长可能本来就是纯遥控机器人胸口装一血袋，也有可能就是平常的带大脑义体人，反正系统也知道常守朱肯定不会真的打头。
+
+不过这次的配合应该又是西比拉向常守朱做出的妥协，比起免罪体质更像是主角光环，不愧是倒A的玛丽苏剧本。
+
+
+*****
+
+####  csolfans  
+##### 185#       发表于 2023-11-28 01:53
+
+突然发现剧场版，“将军”这个AI好像也是百脑汇？西比拉现在变千脑汇了？
+
+*****
+
+####  大厨麦当牛  
+##### 186#       发表于 2023-11-28 01:53
+
+<blockquote>smdzh2 发表于 2023-11-27 18:31
+朱妹的喘气回pp值是bug级别的，全国独此一家，这也是她有底气和西比拉叫板的原因，白毛、缝合怪的特性完全 ...</blockquote>
+她敢和西比拉叫板的原因是西比拉是霸道总裁，她是霸道总裁眼里的有趣的女人，所以她才能呼吸回复pp值。
+
+白毛和缝合怪完全是靠西比拉认知不了他们的思维模式所以才能叫板的，并不是靠人格魅力。
+
+
+*****
+
+####  YetToCome  
+##### 187#       发表于 2023-11-28 07:39
+
+ 本帖最后由 YetToCome 于 2023-11-28 07:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156956&amp;ptid=2082057" target="_blank">大厨麦当牛 发表于 2023-11-28 01:53</a>
+她敢和西比拉叫板的原因是西比拉是霸道总裁，她是霸道总裁眼里的有趣的女人，所以她才能呼吸回复pp值。
+
+ ...</blockquote>
+确实是有点霸道总裁的味道<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过在这个世界观下，这种味道反而像人类
+本身在社会学方向进化到能适应西比拉系统的系统了
+
+—— 来自 realme RMX3706, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  aptx8285144  
+##### 188#       发表于 2023-11-28 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156482&amp;ptid=2082057" target="_blank">Midnight.Coup 发表于 2023-11-28 00:00</a>
+
+不是12.20才出BD，楼上是哪里看的</blockquote>
+[https://tieba.baidu.com/p/874424 ... 73E5BB04FC12C13D4EB](https://tieba.baidu.com/p/8744242094?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.50.3.1&amp;st=1701130507&amp;is_video=false&amp;unique=00C972C3F2E8F73E5BB04FC12C13D4EB)
+
+贴吧有个人听译（因此有些翻译只能说存疑，凑合看了）
+
+
+*****
+
+####  Siran_China  
+##### 189#       发表于 2023-11-28 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156820&amp;ptid=2082057" target="_blank">大厨麦当牛 发表于 2023-11-28 01:07</a>
+
+不是免罪体质，因为这一枪在西比拉看来早已经是预定调和的事件了，本质上就是西比拉配合常守朱在大众面前 ...</blockquote>
+这个想法也挺有趣的……我还是觉得西比拉并不提前知道常守朱要开这一枪，他们在厚生省的地下室已经谈妥了。
+
+<img src="https://img.saraba1st.com/forum/202311/28/083550vff0lc381gtg8wfx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (172.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 08:35 上传
+
+但是回看开枪前的这个镜头，禾生局长处变不惊，看到常守朱举枪一点反应都没有，而右下角的官员就很明显地吓到了。所以大概西比拉做了两手准备？
+
+
+*****
+
+####  aptx8285144  
+##### 190#       发表于 2023-11-28 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63157645&amp;ptid=2082057" target="_blank">Siran_China 发表于 2023-11-28 08:38</a>
+
+这个想法也挺有趣的……我还是觉得西比拉并不提前知道常守朱要开这一枪，他们在厚生省的地下室已经谈妥了 ...</blockquote>
+“轮值”局长应该死“习惯”了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，看到枪什么的，都应该没感觉了（
+
+
+*****
+
+####  Midnight.Coup  
+##### 191#       发表于 2023-11-28 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63157488&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-28 08:13</a>
+[https://tieba.baidu.com/p/8744242094?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;cli](https://tieba.baidu.com/p/8744242094?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;cli) ...</blockquote>
+大妈花园上找到了，还是等等 BD 吧
+
+
+*****
+
+####  aptx8285144  
+##### 192#       发表于 2023-11-28 09:28
+
+朱爷在剧场版里还没接替慎导之前应该就已经是公安二号人物了吧，杂贺老师提到听说你升官了，她苦笑说感觉脑子都不够用了，按照百度百科得说法是她一开始出席会议的身份是公安总督察，这可比第三季霜月当的科长听起来还威风<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 193#       发表于 2023-11-28 09:31
+
+ 本帖最后由 aptx8285144 于 2023-11-28 09:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156956&amp;ptid=2082057" target="_blank">大厨麦当牛 发表于 2023-11-28 01:53</a>
+
+她敢和西比拉叫板的原因是西比拉是霸道总裁，她是霸道总裁眼里的有趣的女人，所以她才能呼吸回复pp值。
+
+ ...</blockquote>
+西比拉也不是万能的，比如二期最后东金拿亲人的死刺激她那里的情绪波动不可能在西比拉计算里面，那时候是鹿屋迅速做了反应而稳定了朱爷的指数
+
+
+*****
+
+####  洛克萨斯  
+##### 194#       发表于 2023-11-28 09:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">西比拉是怎么效率怎么来吧，常守朱这个人类是有利于西比拉提升自己的效率的
+
+
+*****
+
+####  cauchua2  
+##### 195#       发表于 2023-11-28 16:57
+
+最后决战有一点没看懂，常守朱为啥要只身去见将军，文献在门口给特种部队老大带回去上传和她亲自上传有啥区别？
+
+*****
+
+####  大厨麦当牛  
+##### 196#       发表于 2023-11-28 17:02
+
+<blockquote>cauchua2 发表于 2023-11-28 16:57
+最后决战有一点没看懂，常守朱为啥要只身去见将军，文献在门口给特种部队老大带回去上传和她亲自上传有啥区 ...</blockquote>
+常守朱那边要用支配者锁定将军的具体所在地。给保安送怎么定位？
+
+
+*****
+
+####  kisstv22  
+##### 197#       发表于 2023-11-28 17:05
+
+看完了，发现从三期开始pp真是越来越多的动作戏，不过剧场版应该也是朱最后的主场了，三期的新主角感觉还是差点意思
+
+
+*****
+
+####  cauchua2  
+##### 198#       发表于 2023-11-28 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63162370&amp;ptid=2082057" target="_blank">大厨麦当牛 发表于 2023-11-28 17:02</a>
+常守朱那边要用支配者锁定将军的具体所在地。给保安送怎么定位？</blockquote>
+朱也没拿将军怎么样啊，不就是把支配者丢过去，内藏的数据上传 ai 系统
+
+—— 来自 Xiaomi 2112123AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  古怪山庄士大夫  
+##### 199#       发表于 2023-11-28 20:20
+
+想想还是我霜月科长最惨，第三季最后调了个大前辈做自己手下，都不知道该怎么搞<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 200#       发表于 2023-11-28 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63164115&amp;ptid=2082057" target="_blank">古怪山庄士大夫 发表于 2023-11-28 20:20</a>
+
+想想还是我霜月科长最惨，第三季最后调了个大前辈做自己手下，都不知道该怎么搞 ...</blockquote>
+身份不重要吧，霜月自己不在意就行<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，三部曲时霜月作为后辈要案件，朱也随手给她，不要逆鳞朱爷，自己当个甩手掌柜还不轻松，当然最关键的还是二期的那些拙劣表演必须会被官方当黑历史封存，毕竟天意剧场版里 狗哥和宜野在船上聊天说得为朱爷赎罪，这在霜月那边可不是个“理论上的问题”（
+
+
+*****
+
+####  ff2077  
+##### 201#       发表于 2023-11-28 20:37
+
+前面的都忘了 免罪体质到底是个啥 第一部好像是基因层面上 第二部是群体免疫 第三部忘了…朱属于哪种
+
+
+*****
+
+####  aptx8285144  
+##### 202#       发表于 2023-11-28 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63164282&amp;ptid=2082057" target="_blank">ff2077 发表于 2023-11-28 20:37</a>
+
+前面的都忘了 免罪体质到底是个啥 第一部好像是基因层面上 第二部是群体免疫 第三部忘了…朱属于哪种 ...</blockquote>
+从二期最后听到东金拿奶奶事情刺激她时的波动而言，她在基因上应该没有免罪的本能吧，当然如果这东西还能“进化”的话....
+
+
+*****
+
+####  发财就收  
+##### 203#       发表于 2023-11-28 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63164282&amp;ptid=2082057" target="_blank">ff2077 发表于 2023-11-28 20:37</a>
+
+前面的都忘了 免罪体质到底是个啥 第一部好像是基因层面上 第二部是群体免疫 第三部忘了…朱属于哪种 ...</blockquote>
+免罪体质按深见真说法
+[https://tieba.baidu.com/p/2166311398](https://tieba.baidu.com/p/2166311398)
+
+几百万分之一的概率。简单来说就是共感能力低下的表现。比如无法想象他人的伤痛，自己对于自己的所作所为完全没有罪恶感，即使看见大量飙血的场景也不会感受到压力，对于他人的惨叫完全无法产生共鸣
+
+*****
+
+####  酸菜泡面  
+##### 204#       发表于 2023-11-28 21:11
+
+这片只有第一季和剧场版，后面都只能当同人看
+
+
+*****
+
+####  发财就收  
+##### 205#       发表于 2023-11-28 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63164237&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-28 20:33</a>
+
+还是二期的那些拙劣表演必须永远被官方当黑历史封存 ...</blockquote>
+二期那时估计冲方丁也想不到这个IP能出那么多部，可能以为自己是临时找过来帮下忙，外加上找来协助的熊谷纯水平也不太行，人物描写就各种问题，原本还打算二季是想让霜月死掉的但被虚渊玄喊停
+
+*****
+
+####  发财就收  
+##### 206#       发表于 2023-11-28 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156955&amp;ptid=2082057" target="_blank">csolfans 发表于 2023-11-28 01:53</a>
+
+突然发现剧场版，“将军”这个AI好像也是百脑汇？西比拉现在变千脑汇了？ ...</blockquote>
+将军AI看起来只是运用到西比拉的人脑分布式运算技术，就算那个女教授的大脑被西比拉吸收要是不符合PP数值的测定标准还是要被毁灭
+
+
+*****
+
+####  stormist  
+##### 207#       发表于 2023-11-28 22:23
+
+绷不住，拍得这啥玩意，现在的目标观众群到底是谁？
+
+打斗是打了很多场，也有爆炸和机械戏，但感觉就像空学了好莱坞的节奏，却为了和第三季挂上勾而把故事拆散了一样，最后那口气没提上来，然后因为知道了第三季开局的设定，又不会很意外。
+
+常守朱的精神状况不说和第一个剧场版比了，简直比第二季还缩退，配上包子脸给人窜回了第一季的错觉。
+
+顺带狡朱关系也是一个模样，明明第一个剧场版都互相理解了，这剧场版上半部还给安排些小情侣一般的赌气。
+
+然后是各种挑衅的台词与不负责任的行为，看得人摇头。
+
+霜月和原一科的也基本是一种空有形象然后顺着形象进行工具化演出的模样。对着狡啮大吼大叫，宜野第一部剧场版是不是不是你演的，我记得那段你们已经携手作战过了吧？现在的你只是机械臂人柱力是吧？
+
+出岛新年那段焰火参考了台北101吧？
+
+最后把常守朱处理成免罪体质者一样也很奇怪，明明应该是那种能够迅速使自己澄澈起来的类型。
+
+为了制造矛盾，又引入了更多的设定和势力，这个日本也变成了上世纪中后期的美利坚，原本只是想做个大搜，现在明显位置上的天花板已经形成了，但政治舞台又要变大，现在还加了公务员脑控芯片的设定，真不知道之后打算怎样。
+
+关于海外行动，正义定义，守护日本这些，你让西比拉来做主，西比拉表示自己只是个免疫系统的neta，它也很绝望啊。
+
+不由得让人想起了之前热播的日剧vivant,只是赢麻位换到了西比拉。
+
+是的，原本要靠发烧解决炎症的西比拉系统，现在学会了吃退烧药了，变得更加亚撒西，虽然时灵时不灵，可喜可贺呢。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 208#       发表于 2023-11-28 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63165201&amp;ptid=2082057" target="_blank">stormist 发表于 2023-11-28 22:23</a>
+
+绷不住，拍得这啥玩意，现在的目标观众群到底是谁？
+
+打斗是打了很多场，也有爆炸和机械戏，但感觉就像空学 ...</blockquote>
+宜野当年15剧场版分开之前明确和狗哥说过，不要出现在我面前了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 209#       发表于 2023-11-28 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63164602&amp;ptid=2082057" target="_blank">发财就收 发表于 2023-11-28 21:14</a>
+
+二期那时估计冲方丁也想不到这个IP能出那么多部，可能以为自己是临时找过来帮下忙，外加上找来协助的熊谷 ...</blockquote>
+老虚的权力在一期之后也有这么大？我一直以为他的权力没有冲方丁大
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 210#       发表于 2023-11-28 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63158067&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-28 09:28</a>
+
+朱爷在剧场版里还没接替慎导之前应该就已经是公安二号人物了吧，杂贺老师提到听说你升官了，她苦笑说感觉脑 ...</blockquote>
+开头会议朱妹的席卡上写的职位是“厚生省公安局统括监视官”（刚查了下官网也是这么写的）。时间线更靠后的第三期里面，霜月的职位是“厚生省公安局刑事课课长、统括监视官”。
+
+
+*****
+
+####  hamartia  
+##### 211#       发表于 2023-11-28 23:48
+
+<blockquote>aptx8285144 发表于 2023-11-28 23:00
+宜野当年15剧场版分开之前明确和狗哥说过，不要出现在我面前了</blockquote>
+牢骚罢了，实际怎么可能呢
+
+狡啮还是监视官研习生时和kino是同窗，沦落成执行官后跟他爸还是铁战友。狡啮精神的自立自律程度相当早熟，所以无意识里对kino各种照顾
+
+我正在玩game版《没有抉择的幸福》，那里面kino只要一发表那些书本上教条主义式的判断，狡啮就跟着打圆场:
+
+“在我看这个事情就是这样的”
+
+“也不能否定xxx的可能性”
+
+悲催的是一般狡啮都是对的。如果气头上来，kino就开始骂执行官都是狗，这个时候狡啮就啥话都不说等他冷静。作为同龄的朋友，精神的前辈，这么帮衬够意思了
+
+S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡啮疯了一样追杀白毛。有同人女当年就爱凑狡宜这对cp，这种想磕的心情我也不是不能理解
+
+
+*****
+
+####  aptx8285144  
+##### 212#       发表于 2023-11-29 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63165826&amp;ptid=2082057" target="_blank">hamartia 发表于 2023-11-28 23:48</a>
+
+牢骚罢了，实际怎么可能呢
+
+狡啮还是监视官研习生时和kino是同窗，沦落成执行官后跟他爸还是铁战友。狡啮 ...</blockquote>
+我当然也知道这句话起码有一半是“骄傲”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，但是看到对方一言不发地加入外务省以这个身份出现在自己公安系的办公室，发点火也正常
+
+
+*****
+
+####  smdzh2  
+##### 213#       发表于 2023-11-29 08:35
+
+第三季警花自己也加入了外务省，和阿狡、须乡并称真香三人组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stormist  
+##### 214#       发表于 2023-11-29 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63165479&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-28 23:00</a>
+
+宜野当年15剧场版分开之前明确和狗哥说过，不要出现在我面前了</blockquote>
+那段我的理解是猎犬警告逃跑的狼躲避危险，不要再靠近西比拉。看到狼变战狼绷不住很正常，但这个剧场版的情绪方向就不对，就和教授着急狡朱的事一样。就全员绕着人气CP跳舞了。
+
+
+*****
+
+####  aptx8285144  
+##### 215#       发表于 2023-11-29 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63167180&amp;ptid=2082057" target="_blank">stormist 发表于 2023-11-29 09:11</a>
+
+那段我的理解是猎犬警告逃跑的狼躲避危险，不要再靠近西比拉。看到狼变战狼绷不住很正常，但这个剧场版的 ...</blockquote>
+所以两人在船上时候也谈过，确认狗哥现在不是战狼状态（宜野:废话，你小子干掉了白毛（佐佐山和大叔的仇)，现在又不可能推翻系统，再外面战狼久了就容易心态变了），而放心不少，人气CP推也不错，反正已经是“YES，西比拉系统”了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，公务员们可以把自己视线投放在自己的日子里去了jpg
+
+
+*****
+
+####  stormist  
+##### 216#       发表于 2023-11-29 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63167267&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-29 09:19</a>
+
+所以两人在船上时候也谈过，确认狗哥现在不是战狼状态（宜野:废话，你小子干掉了白毛（佐佐山和大叔的仇) ...</blockquote>
+反了，现在的状态才是野狼变战狼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+"为了反后殖民佣兵，西比拉的狗也可以合作”（剧场版1）
+
+"UN无法带来真正的和平，霓虹必须重拳出击“（SS3）
+
+“我的恋人早就是这个国家了"（←开局滑翔服，中间黑衣抽烟，结尾无能狂怒的call酱换成降谷零也不违和）
+
+
+*****
+
+####  hkguty  
+##### 217#       发表于 2023-11-29 11:04
+
+现在这ip唯一的价值是不是就是看狡哥朱妹了，但是我只看了前两季，感觉好像很难说两人之间是爱情
+
+
+*****
+
+####  stormist  
+##### 218#       发表于 2023-11-29 12:11
+
+<blockquote>hkguty 发表于 2023-11-29 11:04
+现在这ip唯一的价值是不是就是看狡哥朱妹了，但是我只看了前两季，感觉好像很难说两人之间是爱情 ...</blockquote>
+主要是二期三期都没什么立起来的人物，所以导致基本观众目光就绕着狡朱转了，官方自然也本着好用就用到死的原则。我个人理解是战友同志的关系，朱作为nova tower事件亲历者和call有共同的秘密，以及一些对前一批执行官的愧疚和怀念。
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 219#       发表于 2023-11-29 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63143523&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-26 17:23</a>
+
+还行了，作为一个剧场版还不错，朱爷和狗哥的糖还挺多的，最后那一枪的目的是保住法务省（法律）顺便给西比 ...</blockquote>
+禾生局长在外界看来就是死了，第三期里面局长虽然外表变化不是很大，但名字变成了“细吕木晴海”。最后细吕木局长跳楼死亡之后，霜月接到了局长电话，名字又变回了“禾生壤宗”，但这时西比拉已经要把局长职务交出去了，所以在公众面前“禾生壤宗”这个身份并没有再出现过。
+
+
+*****
+
+####  发财就收  
+##### 220#       发表于 2023-11-29 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63165495&amp;ptid=2082057" target="_blank">aptx8285144 发表于 2023-11-28 23:02</a>
+
+老虚的权力在一期之后也有这么大？我一直以为他的权力没有冲方丁大</blockquote>
+不一定是权利大，只是提醒冲方丁因为15年剧场版，霜月是要出场的，所以她不能死
+
+不过剧场版后的作品，老虚就开始只作为故事原案挂名了
+
+
+*****
+
+####  kisstv22  
+##### 221#       发表于 2023-11-29 13:14
+
+其实狡朱在剧场版真的有点刻意发糖，细节上和老虚处理的还是有不同
+
+
+*****
+
+####  aptx8285144  
+##### 222#       发表于 2023-11-29 14:31
+
+不过感觉天意剧场版倒是找准了霜月的塑造，有些话以朱爷的性格不好轻易开口，那就都让霜月说吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 223#       发表于 2023-11-29 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63168575&amp;ptid=2082057" target="_blank">hkguty 发表于 2023-11-29 11:04</a>
+
+现在这ip唯一的价值是不是就是看狡哥朱妹了，但是我只看了前两季，感觉好像很难说两人之间是爱情 ...</blockquote>
+按照以前有访谈的说法，老虚原来的剧本里两人关系要暧昧很多，然后忘记是担心喧宾夺主还是其他考虑，最后定稿就没有那么暧昧了（一期印象比较深的是两人有过一次背靠背<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  大厨麦当牛  
+##### 224#       发表于 2023-11-29 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63163593&amp;ptid=2082057" target="_blank">cauchua2 发表于 2023-11-28 19:16</a>
+
+朱也没拿将军怎么样啊，不就是把支配者丢过去，内藏的数据上传 ai 系统
+
+—— 来自 Xiaomi 2112123AC, An ...</blockquote>
+因为行动前没人知道将军是人还是AI啊，如果是人的话当然要找到将军所在地并拘捕或者消灭他。是AI也要确保数据的上传，而不是等反派自己研究透了之后改写再上传，说到底不找到将军老巢，就没有主动权，无法确保能达成摧毁peacebreaker这个组织的目的。
+
+
+*****
+
+####  stormist  
+##### 225#       发表于 2023-11-30 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63163593&amp;ptid=2082057" target="_blank">cauchua2 发表于 2023-11-28 19:16</a>
+
+朱也没拿将军怎么样啊，不就是把支配者丢过去，内藏的数据上传 ai 系统
+
+—— 来自 Xiaomi 2112123AC, An ...</blockquote>
+最后丢枪是连网后，枪里不止有数据，还联网了西比拉系统，直接把ai和西比拉整合，但是是将军被西比拉吸收。
+
+这也是老头破防的原因，意味着组织的存在没意义了。（虽然从结果而言，总有一天要做这事，但是主动权他认为不应该是西比拉）
+
+
+*****
+
+####  owlet  
+##### 226#       发表于 2023-11-30 10:17
+
+杂贺教授操心狡朱的事也是希望人与人之间的羁绊可以把战狼拉回来吧，在外面跟着佣兵混沌地打打杀杀或者回来单纯作为暴力machine的末端工具人，都会迎来物理上穷途末路精神上意义破灭的那一天。
+
+。
+
+。
+
+。
+
+不过朱现在操心的事那么多，我看她才是没空谈感情的那个
+
+
+*****
+
+####  chaoliu  
+##### 227#       发表于 2023-11-30 20:32
+
+看完怎么感觉西比拉就是一个大型草台赛博议会（
+
