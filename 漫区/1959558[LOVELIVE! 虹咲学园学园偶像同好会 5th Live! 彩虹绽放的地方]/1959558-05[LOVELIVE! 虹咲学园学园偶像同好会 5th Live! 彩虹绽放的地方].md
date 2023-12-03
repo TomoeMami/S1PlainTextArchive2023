@@ -7669,3 +7669,29 @@ sif2剧情里设定上这次所有情歌都是每个人自己写的，这就是�
 #虹ヶ咲
 <img src="https://p.sda1.dev/14/a1c24448db11a0bd95fb20978975b035/20231113_210051.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 7417#       发表于 2023-11-30 21:57
+
+杂志 侑庆生
+<img src="https://p.sda1.dev/14/e98a9da2e525672ba68827b279cb33fe/CMP_20231130215727365.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/d3f8ff9495e209a3542fa0818eeefc55/CMP_20231130215727401.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 7418#       发表于 2023-11-30 21:58
+
+河村监督
+<img src="https://p.sda1.dev/14/78e0d6da8bc5bfe5b4a538d49a1acf70/CMP_20231130215830284.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/8170daff00e4febe538ea34ec2fd8fab/CMP_20231130215830326.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Huanghaozheng  
+##### 7419#       发表于 2023-11-30 21:59
+
+河村？河豚！
+典中典之《二创》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
