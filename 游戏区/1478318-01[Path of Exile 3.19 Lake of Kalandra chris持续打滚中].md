@@ -542,3 +542,110 @@ GGPK预载已出  
 
 如果没办法修改打算找个UI和迅雷更接近的
 
+*****
+
+####  妹控使徒  
+##### 1360#         楼主| 发表于 2023-12-1 11:55
+
+<img src="https://i.imgur.com/SWQyPKO.png" referrerpolicy="no-referrer">
+<[strong>主题页</strong>](https://www.pathofexile.com/ancestor)
+<[strong>每日小爆料</strong>](https://www.pathofexile.com/forum/view-thread/3409025)
+<[strong>Patch Note</strong>](https://www.pathofexile.com/forum/view-thread/3409617)
+<[strong>全技能石信息</strong>](https://www.pathofexile.com/forum/view-thread/3410291)
+
+<strong>GGPK预载磁链</strong>
+
+magnet:?xt=urn:btih:CS4LN2B7QYDZN7P7YLG2EWIBUX2P33QE
+
+<strong>S1 POE群</strong>
+<strong>13481013</strong>
+
+<strong>Trial of the Ancestors</strong>
+
+你将访问Karui的死后世界，并在一系列对抗赛中击败十个部落，以获得宝贵的新奖励。
+
+16个新的地图天赋大点，重制的守护者和酋长进阶，14个新的辅助宝石和禁忌圣地。以及The Forbidden Sanctum回归.
+
+每个Karui部落的堕落酋长都要参加一场名为“祖先审判”的比赛。你将前往他们的死后世界，通过组建你自己的Karui战士队伍来与这些部落竞争。你将在比赛中与他们的酋长战斗，以获得宝贵的奖励。
+
+使用可交易的银币获得通往Karui死后世界的通道。你将从一个由三名Karui战士组成的基本团队开始进入祖先的审判。
+
+在每场比赛中，你可以根据所提供的奖励选择与哪个部落竞争。你可以检查敌人团队的战场配置，并策略性地放置你的战士来挑战他们。然后你和你的团队将与你的战士一起摧毁对方的图腾并赢得比赛。
+
+当你参加比赛时，你会得到每个部落的青睐。这些钱可以用来招募战士，购买战场道具和装备来增强你的团队。每个部落都有自己的专长，你可以混合和匹配来自不同部落的战士，以建立一个体现你的战略的团队。
+<img src="https://i.imgur.com/iNSZpSJ.jpg" referrerpolicy="no-referrer">
+
+你赢得每一场比赛都会获得奖励。除了可能提供的常规物品选择外，还有一些独家的新奖励，您只能从祖先的审判中获得。被动树纹就是这样一种奖励。这些不是应用在你的皮肤上，而是刻在你的灵魂上。使用你的纹身会改变你被动树的属性技能。
+
+如果你赢得了整个比赛，Hinekora还可以为你提供一种名为预兆的新型物品。它们可以储存在你的库存中，直到满足一个条件，此时它被消耗并产生效果。每个战斗区域只能消耗一个预兆。她也可能会提供一绺头发，这样你就可以预见物品制作的结果。
+
+<img src="https://i.imgur.com/TeaSarU.png" referrerpolicy="no-referrer">
+
+<img src="https://i.imgur.com/z2xdbsq.png" referrerpolicy="no-referrer">
+
+<strong>Ascendancy Rework</strong>
+<img src="https://i.imgur.com/vMutNej.jpg" referrerpolicy="no-referrer">
+
+<strong>New Support Gems</strong>
+
+一共加入了个14个新辅助技能, 大多效果独特有趣
+<img src="https://i.imgur.com/wZ3iQRc.png" referrerpolicy="no-referrer">
+
+<strong>Altas Keystone</strong>
+
+新版本引入了16个新的关键天赋在在ATLAS天赋树上。
+
+这些关键点允许你在你想要玩的内容上加倍投入，并提供你想要的终局控制。通过分配正确的关键石，你可以制作瓦尔侧区域，成为一个折磨的精神占有，在远征中放置一个巨大的爆炸装置，或者玩任何kirac的mod，不管他给你什么。
+<img src="https://i.imgur.com/sEeZMY7.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  妹控使徒  
+##### 1361#         楼主| 发表于 2023-12-1 15:10
+
+赛季贴初步更新完毕  以后有啥新料再加.
+
+这次新的附魔台调整意味着手脚附魔也没了,  如果需求这块资源比较大的build得注意下.
+
+以及演示和文字介绍都没说但PN有提到---------附魔台可以改变辅助石.  如果不是笔误那就是真的存在,   这波技能石改变效果至少演示的来说还是不错的,  很多开拓了玩法. 但愿实际内容也是大多有这种水准.
+<img src="https://i.imgur.com/g1v2WfG.png" referrerpolicy="no-referrer">
+
+另外赛季小精灵那3种颜色............... 怎么感觉是预谋取代花园.
+
+
+*****
+
+####  Wiksy  
+##### 1362#       发表于 2023-12-1 17:54
+
+是ChatGPT 4证明自己分析能力的时候了！不过从结果看来直接让他读patch note还不够：
+
+        1.        闪电打击 (Flicker Strike)：技能质量现在提供更高的几率在击中时获得狂怒球，可能会提升以快速攻击和机动性为中心的构建的流行度 。
+
+        2.        禁忌仪式 (Forbidden Rite)：改为发射额外的弹幕，可能会在以区域伤害或群体控制为中心的构建中获得更多使用 。
+
+        3.        霜刃 (Frost Blades)：能够发射额外的弹幕可能会增强其群体控制和清理速度，使其成为近战构建中更具吸引力的选项 。
+
+        4.        冰川爆破 (Glacial Cascade)：最后爆炸造成的额外伤害可能使这个技能在爆发伤害构建中更具吸引力 。
+
+        5.        地裂 (Ground Slam) 和 重击 (Heavy Strike)：这些技能获得更多伤害潜力可能会导致它们在以眩晕和重击为中心的近战构建中更频繁使用 。
+
+        6.        正义之火 (Righteous Fire)：基础火焰伤害作为最大生命和能量护盾的百分比增加可能会使这个技能更强大，特别是在坦克或高能量护盾构建中 。
+
+        7.        冰矛 (Ice Spear) 和 冰霜陷阱 (Ice Trap)：这些技能在暴击乘数和陷阱触发几率方面的改进可能会使它们在基于暴击和陷阱的构建中更受青睐 。
+
+        8.        箭雨 (Rain of Arrows) 和 召唤魔影 (Raise Spectre)：这些技能的增强可能会提高它们在弓箭手和召唤师构建中的实用性 。
+
+        9.        雷霆先驱 (Herald of Thunder)：击中频率的增加可能使其在基于闪电的构建中更有效 。
+
+        10.        电光 (Spark)：发射额外弹幕的能力可能会使这个技能在清理和群体控制方面更受欢迎 。
+
+        11.        漩涡 (Vortex)：施法时间和效果区域的改变可能会影响其流行度，可能会使其在某些构建中更具威力 。
+
+        12.        先祖呼唤辅助 (Ancestral Call Support)：额外目标的增加范围可能会提升使用这个辅助宝石的近战构建的效果，使它们在清理和战斗中更有效 。
+
+        13.        欣哥拉，死亡之怒 (Chieftain Ascendancy - Hinekora, Death’s Fury)：改动允许图腾触发敌人爆炸可能会使图腾构建更具破坏力 。
+
+这些改变反映了潜在的元游戏转变，可能会增加近战、暴击和区域控制构建的流行度。
+
