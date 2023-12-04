@@ -1475,3 +1475,55 @@ pvp是觉醒地狙 打拳
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 958#         楼主| 发表于 2023-11-29 14:51
+
+<img src="https://p.sda1.dev/14/7c344dee4d3171ecee6adce4382d9187/CMP_20231129145050432.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/9c27e18f52726706500279247dfc126c/CMP_20231129145050553.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/e5a4f6dcd95836c77f25154365c19a39/CMP_20231129145050651.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/3582007afd4378326d53dd7ec6d7b1ee/CMP_20231129145050759.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/4a91b59b661fb9a76990752373eca903/CMP_20231129145050880.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/6a5880ae1d57d1f407f49df30b17dff0/CMP_20231129145154828.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">来点直球员工
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  拍不到脑袋  
+##### 959#       发表于 2023-12-1 08:12
+
+上170的女角色好多，在日游难得一见<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  rgauss  
+##### 960#         楼主| 发表于 2023-12-1 14:47
+
+毕竟韩游
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">arca怎么火起来了 原神那事引出来的吗
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  拍不到脑袋  
+##### 961#       发表于 2023-12-1 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">想必是，我们SB社未来战也榜上有名啊
+
+
+*****
+
+####  rgauss  
+##### 962#         楼主| 发表于 2023-12-1 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那确实 我们未来战频道可是足足有2w人订阅 而原神频道也才10w人左右
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
