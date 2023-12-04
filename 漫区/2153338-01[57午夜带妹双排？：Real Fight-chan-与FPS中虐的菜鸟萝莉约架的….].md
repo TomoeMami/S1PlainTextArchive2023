@@ -979,3 +979,98 @@ QQ图片20231023223428.png
 论坛助手,iPhone ...</blockquote>
 你看头像都是101/301啊
 
+*****
+
+####  liekong  
+##### 69#       发表于 2023-11-28 15:58
+
+<img src="https://img.saraba1st.com/forum/202311/28/155806me15g5leeldr4wgl.png" referrerpolicy="no-referrer">
+
+<strong>JHIIH1L[TWL@C(B707($_5M.png</strong> (120.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202311/28/155812eg8ehex9tz3nh3qy.png" referrerpolicy="no-referrer">
+
+<strong>9P_5(66KJHJOURJB0]AQU12_tmb.png</strong> (92.98 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202311/28/155818kdjxkx86pkip6pil.png" referrerpolicy="no-referrer">
+
+<strong>@0K8AX@2(5YVI(12RA%U_tmb.png</strong> (107.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 15:58 上传
+
+<img src="https://img.saraba1st.com/forum/202311/28/155828kp0xzdz2tttozmdv.png" referrerpolicy="no-referrer">
+
+<strong>S%JMNK8_UYTA{{5XAKR21_tmb.png</strong> (100.74 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 15:58 上传
+
+又有更新了
+
+
+*****
+
+####  三合一出现  
+##### 70#       发表于 2023-11-28 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  pure_liquid  
+##### 71#       发表于 2023-11-28 20:29
+
+和FPS、约架这些要素已经快一点关系都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  玄天大佐  
+##### 72#       发表于 2023-11-28 21:22
+
+男主是屑，支持打一顿
+
+
+*****
+
+####  fuochai  
+##### 73#       发表于 2023-11-28 21:35
+
+后续有点烂了
+
+
+*****
+
+####  沙包王  
+##### 74#         楼主| 发表于 2023-11-30 20:05
+
+作者缺乏驾驭长篇的能力，烂掉了……
+
+
+*****
+
+####  新吾  
+##### 75#       发表于 2023-11-30 23:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">点子型漫画烂掉不是很常见吗，之前的啥再会的原以为假小子青梅竹马是大波女（a岛俗称合金弹头），xx天后告白，这种推特短时间暴热然后没点子后迅速烂掉的漫画已经品鉴的够多了
+
+
+*****
+
+####  51569  
+##### 76#       发表于 2023-12-1 16:27
+
+下头男啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
