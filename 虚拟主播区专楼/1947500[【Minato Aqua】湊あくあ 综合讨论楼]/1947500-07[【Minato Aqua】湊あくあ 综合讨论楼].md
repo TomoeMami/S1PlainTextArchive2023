@@ -3310,3 +3310,33 @@ apex19赛季更好玩啊，不过估计不会播这个了
 
 haha<img src="https://pic.liesys.com/i/2023/11/27/65646a4c59aa0.png" referrerpolicy="no-referrer">
 
+*****
+
+####  zpy393  
+##### 9696#       发表于 2023-11-30 23:09
+
+生日快乐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  旧时代的扎比  
+##### 9697#       发表于 2023-11-30 23:17
+
+这次是逆凸啊，生日在这个日期挺好的
+
+
+*****
+
+####  zpy393  
+##### 9698#       发表于 2023-12-1 22:05
+
+抢购失败<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  旧时代的扎比  
+##### 9699#       发表于 2023-12-1 23:40
+
+看了下频道今年直播，这要不是年末冲了次大师
+
