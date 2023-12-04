@@ -1851,3 +1851,12 @@ https://al-gest.com/batenkaitos/baten-change/
 ##### 144#       发表于 2023-10-18 13:34
 
 片头动画怎么是英文的，简体和繁体都是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+*****
+
+####  夏之岚  
+##### 145#       发表于 2023-12-1 22:17
+
+话说，这游戏有攻略么。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
