@@ -6903,3 +6903,513 @@ FA我喷了起名和服装没诚意，设定敷衍。而且FA通用SP，对一�
 
 （这炸串公发癫的原因就还挺现实，农民因为减产举债，丧失生活信心然后饮酒赌博什么的……
 
+*****
+
+####  江戸前ルナ  
+##### 784#         楼主| 发表于 2023-11-13 15:17
+
+ 本帖最后由 江戸前ルナ 于 2023-11-13 15:21 编辑 
+
+<img src="https://img.saraba1st.com/forum/202311/13/151446pmo5ddk7m2z71s5z.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231113151344.jpg</strong> (211.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/13/151445ursu4q4ravo4qqvm.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231113151353.jpg</strong> (159.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/13/151445jcg512nn0cknlx69.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231113151357.jpg</strong> (175.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 15:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/13/151445hu7v71w70aba727s.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231113151402.jpg</strong> (215.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 15:14 上传
+
+这ANSP剑有三种形态，双持蛋刀大剑，挺帅的，但是没分支，没分支，没分支。金字塔你这么摸的吗？
+
+<img src="https://img.saraba1st.com/forum/202311/13/151555oca4doococ4lobos.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231113151408.jpg</strong> (154.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-13 15:15 上传
+
+另外中间那里的红色设计太莫名其妙了，有限几个的巨X角色涩气没了，太可惜了。弄成透肉X丝也可以啊，现在搞得像超人那样内衣外穿，囧。不过利佳的这身皮衣反光质地的是第一次见？四星芹菜的那套是哑色没反光的。
+
+
+*****
+
+####  madcow  
+##### 785#       发表于 2023-11-13 16:57
+
+阿金还搞促销买月卡送服袋，我感觉服袋都没啥好抽的（
+
+
+*****
+
+####  不灭的旋律  
+##### 786#       发表于 2023-11-13 20:26
+
+50票没四星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下个月AN晶乃就做完去年的女演员了，今年只实装了四人看明年怎么办。可能要疯狂复刻联动拖时间了？靠FA是能撑到后年但也要想点新花样了
+
+
+*****
+
+####  Picavian  
+##### 787#       发表于 2023-11-14 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63031750&amp;ptid=2104259" target="_blank">madcow 发表于 2023-11-13 16:57</a>
+
+阿金还搞促销买月卡送服袋，我感觉服袋都没啥好抽的（</blockquote>
+而且持续时间极短。我怀疑以后每次有新衣服上线都会搞这么一个促销，属于是捞点算点了
+
+
+*****
+
+####  不灭的旋律  
+##### 788#       发表于 2023-11-16 15:06
+
+ 本帖最后由 不灭的旋律 于 2023-11-16 15:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62579834&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-9-30 22:59</a>
+
+有人抽了FA小芦看了剧情了吗，求一下剧透。
+
+另外试玩了下，小芦的新战斗语音怎么成这样了？完全被原语音吊 ...</blockquote>
+还要不要？
+
+睦海拿了好几个格斗游戏大赛冠军但是不死鸟都没有参加，她想日翻不死鸟证明自己。因为安艺作战期间不死鸟没有参赛睦海怀疑不死鸟也是女演员。在街机厅睦海再次遇到最强，提出对战想要看看最强是不是不死鸟。结果最强虽然日翻睦海但睦海感觉不到不死鸟的气势觉得最强不是。失落时队长拉来了睦海爹，爹说你会的其他人也会，要找到战斗的理由才算是职业选手。爹准备了睦海（moo）对不死鸟的表演赛，结果一直线上参赛的最强上台亮相了。10战先胜制最强本来压着睦海打的，但是睦海在比赛中确定自己的目标是超越最强，扳到9比9。但是睦海注意力和体力都不行了，而最强一直保持最佳状态。睦海放手一搏先放松注意力，最强没有放过这个机会但下一瞬间睦海突然再次集中注意力反击，最强发现但已经刹不住了，睦海胜。赛后两人约好再战。睦海确定自己的目标是格斗游戏和女演员都超过最强，要队长好好培养。
+
+话说一天到晚吃泡面的最强哪来这么好的体力的，不注意健康我看她老了会断崖式下跌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 789#         楼主| 发表于 2023-11-16 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63057274&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-11-16 15:06</a>
+
+还要不要？
+
+睦海拿了好几个格斗游戏大赛冠军但是不死鸟都没有参加，她想日翻不死鸟证明自己。因为安艺作战 ...</blockquote>
+谢谢~~
+
+吃泡面体力不是问题，但就是营养不均衡，这大概就是师承熏子的唯一弱点了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  外骨骼  
+##### 790#       发表于 2023-11-17 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63057274&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-11-16 15:06</a>
+
+还要不要？
+
+睦海拿了好几个格斗游戏大赛冠军但是不死鸟都没有参加，她想日翻不死鸟证明自己。因为安艺作战 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202311/17/131102psaa0sap7yj00w87.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1613.png</strong> (57.55 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-17 13:11 上传
+
+这样的623怎么可能营养不良
+
+
+*****
+
+####  ushas  
+##### 791#       发表于 2023-11-18 00:35
+
+这小鹿是SF玩家么，30了还能打
+
+
+*****
+
+####  江戸前ルナ  
+##### 792#         楼主| 发表于 2023-11-19 21:50
+
+[https://twitter.com/yamichiyan/status/1726215300373532800](https://twitter.com/yamichiyan/status/1726215300373532800)
+
+由这个视频和看到各种反坦克想到的，现在BBA可以算是hms超人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+阿金的刻板印象实在落后时代了，两个中东相关的女演员，东云放C4王女自爆，都没现在的bba够中东<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 793#       发表于 2023-11-19 22:51
+
+东云的武器都是自己手搓的够超人了吧。
+
+负责主线剧情的是岩片烈，看这次巴以冲突AGA对中东的描写真的是刻板老印象了。两个漫画SIN还是那种又蠢又坏心狠手辣的KB分子形象还在玩人弹抓儿童填线。吉尼和会长都杀过中东少年兵血债洗不掉了。就这样还把吉尼会长阿迪包装成伟光正是为中东和平而战斗，也不想想是谁搅屎才让中东这样。虽然把伊朗写成中东老大但是公主亲美又亲日真是活在梦里。
+
+
+*****
+
+####  江戸前ルナ  
+##### 794#         楼主| 发表于 2023-11-19 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63085015&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-11-19 22:51</a>
+
+东云的武器都是自己手搓的够超人了吧。
+
+负责主线剧情的是岩片烈，看这次巴以冲突AGA对中东的描写真的是刻板 ...</blockquote>
+该请重信命来做阿嘎设定和剧情指导了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  regular  
+##### 795#       发表于 2023-11-20 12:24
+
+公主是伊朗的啊？革命前的倒是可以对上。
+
+
+*****
+
+####  アヘ顔  
+##### 796#       发表于 2023-11-20 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是
+你让一个现在的日本人写出反美的剧情是不是有点强人所难了...
+后面能不把苏联写成幕后黑手就算是烧了高香了
+
+
+*****
+
+####  不灭的旋律  
+##### 797#       发表于 2023-11-21 22:48
+
+看完本月的电子月刊，女演员的战斗服不是有防御力场的吗怎么就被一刀捅死了。利佳的战斗服可是能顶住黑帮枪击的。这个小女孩就是上个月被枪决的女演员的妹妹，明说了不是女演员。
+
+看这样大概是把SIN当ISIS这样的极端组织写了。
+
+
+*****
+
+####  江戸前ルナ  
+##### 798#         楼主| 发表于 2023-11-22 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63104153&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-11-21 22:48</a>
+
+看完本月的电子月刊，女演员的战斗服不是有防御力场的吗怎么就被一刀流了。利佳的战斗服可是能顶住黑帮枪击 ...</blockquote>
+可能有两种可能吧。
+
+1是发动防御力场是要有意识或者什么操作去发动的，漫画里纯粹被阴完全没一点防备；
+
+2是有可能在空气环境内作战啥的没宇宙那么高风险，反正没了gear也不死人不用gear也不上去打就不穿有防护功能的了。
+
+总之解释都可以解释，就是剧情需要<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">另外这回的剧情真是为黑而黑，没啥意义。
+
+
+*****
+
+####  regular  
+##### 799#       发表于 2023-11-24 16:36
+
+战女高又加俩人，说明产能还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  alialex  
+##### 800#       发表于 2023-11-24 20:16
+
+这次联动pv做的挺用心啊，感觉战女高那边是不是有点后悔死太早了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 801#         楼主| 发表于 2023-11-24 20:17
+
+产能可以个屁，小萌和利佳都没做分支<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thee  
+##### 802#       发表于 2023-11-24 20:17
+
+此乃借尸还魂，借壳重生之技也XD
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  冰风血羽  
+##### 803#       发表于 2023-11-24 23:40
+
+请问解析用的绿电池怎么攒，消耗好快，今年FAG开始正式玩的几千现在正式进入三位数了……顺便战女高这么多人装备肯定没法用勋章换了，难不成要一个个去刷调查<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  アヘ顔  
+##### 804#       发表于 2023-11-25 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63133001&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-11-24 23:40</a>
+请问解析用的绿电池怎么攒，消耗好快，今年FAG开始正式玩的几千现在正式进入三位数了……顺便战女高这么多 ...</blockquote>
+该车就车，不用啥贝都开...
+这玩意儿难道不是越用越多么
+我退坑的时候还有四万电池...
+
+*****
+
+####  江戸前ルナ  
+##### 805#         楼主| 发表于 2023-11-25 00:07
+
+ 本帖最后由 江戸前ルナ 于 2023-11-25 00:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63133001&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-11-24 23:40</a>
+
+请问解析用的绿电池怎么攒，消耗好快，今年FAG开始正式玩的几千现在正式进入三位数了……顺便战女高这么多 ...</blockquote>
+1，最容易的，咸鱼躺平。
+
+2，买通行证，开贝壳仓库。买个+30档的基本可以肝一大轮再慢慢开不用耗电池。只要不以普通蓝贝赌+1为目的的（二星蓝贝也能赌+1而且省电池多了），只开素材贝够CD就一车车把三星蓝贝没啥用的1,2星红水贝金钱贝卖走，不要拿来消耗电池。理论上这么肝调查电池是慢慢增加的，当年没通行证也能加，现在更不用说了。还有注意的是贝类型的活动也要平时每天打一点积累别临急抱佛脚；
+
+3，注意使用技巧。尽量以10倍数分钟来使用电池，例如5分钟的一星类一起解析，12分钟的二星类和32分钟的三星类一起解析+等2分钟再用电池，48分钟或以上三星贝的不玩时解析慢慢开，用电池也遵循上述原则，彩贝基本大半天不玩或者睡觉前开；
+
+4，成就。多无伤，红水那里有成就拿电池。或者不嫌麻烦还有合成次数那里也可以一个个合成刷一下。
+
+
+*****
+
+####  冰风血羽  
+##### 806#       发表于 2023-11-25 00:14
+
+ 本帖最后由 冰风血羽 于 2023-11-25 00:16 编辑 
+
+平时倒还好我也遵循第三点用解析，就是一开活动四个四星兑换箱子一下就要20个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后我平时资源收入也少想养成一个挺慢的就也有开一星二星的红水金币箱子
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  江戸前ルナ  
+##### 807#         楼主| 发表于 2023-11-25 00:20
+
+ 本帖最后由 江戸前ルナ 于 2023-11-25 00:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63133195&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-11-25 00:14</a>
+
+平时倒还好我也遵循第三点用解析，就是一开活动四个四星兑换箱子一下就要20个然后我平时资源收入也 ...</blockquote>
+……这种活动一般20天，你每天拿多余的委任票出来（4个日常5张票）去打打慢慢开，然后找时间手打个10来次就差不多够了的……开活动时为什么还要用电池啊，不是临急抱佛脚的那些老咸鱼才用的吗
+
+1,2星红水金贝我在打的时候凑4个时我也会开就是了，不影响多少。但这东西看心情随便拉车卖走也没啥问题。
+
+
+*****
+
+####  冰风血羽  
+##### 808#       发表于 2023-11-25 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63133232&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-11-25 00:20</a>
+……这种活动一般20天，你每天拿多余的委任票出来（4个日常5张票）去打打慢慢开，然后找时间手打个10来次 ...</blockquote>
+看来是我贪图快了，每次还有十几天结束就换完了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  regular  
+##### 809#       发表于 2023-11-27 00:57
+
+早个一周弄完也好，通常下一个活动也差不多来了。
+
+
+*****
+
+####  不灭的旋律  
+##### 810#       发表于 2023-11-27 08:40
+
+去年战女高还免费送个四星呢看来真没钱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 没记错的话你游是吸收了战女高的部分员工的也不算亏了
+
+
+*****
+
+####  yygundam  
+##### 811#       发表于 2023-11-27 10:35
+
+只有我是日常开着解析通知然后不用电池慢慢挂着的么（
+
+现在电池即将突破7万<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  hl7424994  
+##### 812#       发表于 2023-11-27 12:20
+
+以前刷箱子还说爆仓了要用电池，现在每天只砸五张票下去都能刷满奖励有余了，电池存在意义-1
+
+
+*****
+
+####  冰风血羽  
+##### 813#       发表于 2023-11-28 15:15
+
+ 本帖最后由 冰风血羽 于 2023-11-28 15:18 编辑 
+
+<img src="https://img.saraba1st.com/forum/202311/28/151501lxigmuftxdjdnjtx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2023-11-28-15-09-43-96_767f5d40067c198238d924d9d2eeee20.jpg</strong> (31.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 15:15 上传
+
+200必得里我一个都没有还给我+1……亏大发了
+
+
+*****
+
+####  江戸前ルナ  
+##### 814#         楼主| 发表于 2023-11-29 12:02
+
+被夺舍还魂果然没啥讨论<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+狗到了巨乳，筒子基本照搬咪睦的有点偷懒啊
+
+
+*****
+
+####  vacuumsword  
+##### 815#       发表于 2023-11-29 12:41
+
+专武还没刷到，这次有あんこ狙一样的特殊机制吗
+
+----发送自 [Xiaomi 2304FPN6DC,Android 13](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  hl7424994  
+##### 816#       发表于 2023-11-29 16:08
+
+40抽下去啥水花都没有，没什么好讨论了 (
+
+
+*****
+
+####  冰风血羽  
+##### 817#       发表于 2023-11-29 16:55
+
+我只是觉得这次更新完网络好差，，不管是否直连经常连不上服务器进不了本，联机都只敢去最低级打五次完事
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  alialex  
+##### 818#       发表于 2023-11-30 17:31
+
+抽卡暴毙了没啥好聊的啊
+
+
+*****
+
+####  yygundam  
+##### 819#       发表于 2023-12-1 01:26
+
+ 本帖最后由 yygundam 于 2023-12-1 01:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63172242&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-11-29 16:55</a>
+我只是觉得这次更新完网络好差，，不管是否直连经常连不上服务器进不了本，联机都只敢去最低级打五次完事
+
+ ...</blockquote>
+前两天有bug，进图随机跳连接超时报错，而且跳了就永远进不去，只能杀进程。这个感觉实际上和连接没关系。今天修复了。
+
+此外这bug似乎还挑机器，我一台手机就容易出，另一台没出过。
+
+最后顺带一提，目前红魔9pro开aga直接读条闪退。
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  RioShiina  
+##### 820#       发表于 2023-12-1 07:36
+
+AGA的抽卡特别搞人心态， 我已经被气得删两次游戏了 ：）
+
+以后只买塑料小人， 再氪金抽卡我就是XX
+
+
+*****
+
+####  冰风血羽  
+##### 821#       发表于 2023-12-1 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63187821&amp;ptid=2104259" target="_blank">yygundam 发表于 2023-12-1 01:26</a>
+
+前两天有bug，进图随机跳连接超时报错，而且跳了就永远进不去，只能杀进程。这个感觉实际上和连接没关系 ...</blockquote>
+当时我看贴吧说带了新角色进去就会触发bug
+
+红魔9P是不是太新了没适配？
+
+
+*****
+
+####  yygundam  
+##### 822#       发表于 2023-12-1 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63188308&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-12-1 08:12</a>
+
+当时我看贴吧说带了新角色进去就会触发bug
+
+红魔9P是不是太新了没适配？</blockquote>
+我估计和角色没啥关系，这问题在联动开始前两天的更新之后就出现了，应该就是他们不小心把什么东西弄坏了。总之现在应该修好了。
+
+红魔是最近大更新了系统（9pro就用的这个新系统），我估计是他们还没整明白BUG，只能等他们更新了，反正我还有另一台手机可以上，问题不大。我这边日服蔚蓝档案也是切到其他APP再切回来就必崩，然后帧率卡在45不动（满帧60），但是国服就没事。此外有个群友的千年战争也打不开。
+
+
+*****
+
+####  冰风血羽  
+##### 823#       发表于 2023-12-1 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63188658&amp;ptid=2104259" target="_blank">yygundam 发表于 2023-12-1 09:02</a>
+我估计和角色没啥关系，这问题在联动开始前两天的更新之后就出现了，应该就是他们不小心把什么东西弄坏了 ...</blockquote>
+还好这个能pc双端，我试过手机临时上不了用pc清日常，不难
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  不灭的旋律  
+##### 824#       发表于 2023-12-1 14:19
+
+累计近80连一个四星都没有，又找回玩你游的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还好现在是战女高可以让我回一下血
+
