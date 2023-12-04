@@ -6635,3 +6635,60 @@ Z B 有吗，我白玩了？</blockquote>
 有几个任务死活刷不到素材，请教一下这怎么解决</blockquote>
 用克制的BA打一下，必出一个
 
+*****
+
+####  司马千晶  
+##### 6778#       发表于 2023-11-27 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">结果rays真的实装娜扎米尔了？正统在手游。
+
+
+*****
+
+####  法拉  
+##### 6779#       发表于 2023-11-30 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">抽到娜扎米尔了，好可爱，所以为啥dlc不给操作……
+
+
+*****
+
+####  天王寺綯  
+##### 6780#       发表于 2023-11-30 16:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，这么看这个dlc就是为了给手游引流出的吧
+
+相当于半个收费广告了
+
+
+*****
+
+####  qiyu1234  
+##### 6781#       发表于 2023-11-30 22:45
+
+“难道你们没有被这优美的场景和动人的故事打动吗？”
+
+现在万南家用机这块自以为是的制作人不少，是该被现实打下脸了
+
+*****
+
+####  zero12  
+##### 6782#       发表于 2023-12-1 00:41
+
+以后打折会带着dlc一起吗？
+
+
+*****
+
+####  法拉  
+##### 6783#       发表于 2023-12-1 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63182843&amp;ptid=1860328" target="_blank">天王寺綯 发表于 2023-11-30 16:10</a>
+
+草，这么看这个dlc就是为了给手游引流出的吧
+
+相当于半个收费广告了
+
+ ...</blockquote>
+不至于，这手游现在的营收情况根本不值得
+
