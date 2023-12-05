@@ -10043,3 +10043,202 @@ IMG_2626.jpeg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  cckuku  
+##### 865#       发表于 2023-11-26 18:19
+
+https://www.youtube.com/live/6LhgRhH6a7A?si=LuQRhgTtjMZ2s8ir
+
+今天是管马仕3小只的3d回，看着不像是在糊弄人啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  没取名啊  
+##### 866#       发表于 2023-11-26 18:39
+
+两千多同接，模型也还行，惊了
+
+
+*****
+
+####  BQlin  
+##### 867#       发表于 2023-11-26 19:03
+
+动起来不错啊，都有模型了看来能撑下去
+
+
+*****
+
+####  BQlin  
+##### 868#       发表于 2023-11-26 19:25
+
+等下看看新歌如何了
+
+<img src="https://img.saraba1st.com/forum/202311/26/192313rs2z0h25zmbg24wz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.61 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-26 19:23 上传
+
+
+*****
+
+####  没取名啊  
+##### 869#       发表于 2023-11-26 20:00
+
+大逃杀这规则现在还存在吗？这都一起唱原创曲了，要是哪天开始杀头，不就连唱这歌的人都凑不齐了
+
+
+*****
+
+####  wfhtony  
+##### 870#       发表于 2023-11-28 01:26
+
+虚假的怀旧：
+
+<img src="https://img.saraba1st.com/forum/202311/28/012608bbhyyt3tzkkhffl8.png" referrerpolicy="no-referrer">
+
+<strong>canvas_23-11-28_01-16-59.png</strong> (368.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 01:26 上传
+
+真正的怀旧：
+
+<img src="https://img.saraba1st.com/forum/202311/28/012610agw5bc05z5b1wy0a.png" referrerpolicy="no-referrer">
+
+<strong>00a9d62c-d7db-4423-a5e1-d9c41383e20d.png</strong> (76.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 01:26 上传
+
+via [Twitter](https://twitter.com/sockpuppet_p/status/1729167814026781084)
+
+
+*****
+
+####  NZ-333  
+##### 871#       发表于 2023-11-28 23:07
+
+[straylight第三话](https://www.bilibili.com/opus/869062675034800135)
+
+<img src="https://img.saraba1st.com/forum/202311/28/230732d2tp5tnmt9pqhkma.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 23:07 上传
+
+
+*****
+
+####  NZ-333  
+##### 872#       发表于 2023-11-29 15:00
+
+叶月你<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/29/150046kiiqqzwwgm7wqag7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (380.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 15:00 上传
+
+
+*****
+
+####  灰谷真实  
+##### 873#       发表于 2023-11-29 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63171042&amp;ptid=2130897" target="_blank">NZ-333 发表于 2023-11-29 15:00</a>
+
+叶月你</blockquote>
+兄啊这不是千雪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NZ-333  
+##### 874#       发表于 2023-11-29 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63174299&amp;ptid=2130897" target="_blank">灰谷真实 发表于 2023-11-29 20:16</a>
+兄啊这不是千雪吗？</blockquote>
+今天刚看迷光漫画，搞混了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  露崎まひる  
+##### 875#       发表于 2023-11-30 11:59
+
+逆他妈大天了万代
+
+093138fdac2cea6c3e2cb9f42f61ff47.jpg
+(120.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 11:59 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/115905wvzrm0xwrkcz94rr.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FMIC  
+##### 876#       发表于 2023-11-30 12:06
+
+别急，接下来看是哪个幸运儿来首缪歌
+
+
+*****
+
+####  柏崎Sena  
+##### 877#       发表于 2023-11-30 16:03
+
+没有谁
+
+GAG7qOVbQAAD2TD.jpg
+(400.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:03 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/160310fc2sf0p4744c4pss.jpg" referrerpolicy="no-referrer">
+
+GAG7rseaMAEPz3F.jpg
+(459.04 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 16:03 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/160310vfdgygw3edely5ej.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  NZ-333  
+##### 878#       发表于 2023-12-2 15:15
+
+[叶月传第三话](https://www.bilibili.com/read/cv28247359)
+
+甜瓜好可爱
+
+<img src="https://img.saraba1st.com/forum/202312/02/151515z8fdw5sfda5czf5w.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.94 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 15:15 上传
+
