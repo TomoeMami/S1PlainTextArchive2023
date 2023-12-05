@@ -769,3 +769,18 @@ B站的:[https://www.bilibili.com/video/BV19S4y117cP/](https://www.bilibili.com/
 
 试玩过学习版，其他都感觉没问题，就是这游戏太喜欢给没有视野的战斗了，进洞直接摸黑，火把照不了两格。在雪地也给你大雪封视野，只能原地等着怪物来找你，烦躁的不行。
 
+*****
+
+####  windtrack_qh  
+##### 73#       发表于 2023-12-1 23:51
+
+12月中旬DLC，变大航海时代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  back57992  
+##### 74#       发表于 2023-12-2 10:18
+
+顺便问下这游戏联机体验咋样 ？游戏看着还不错
+
