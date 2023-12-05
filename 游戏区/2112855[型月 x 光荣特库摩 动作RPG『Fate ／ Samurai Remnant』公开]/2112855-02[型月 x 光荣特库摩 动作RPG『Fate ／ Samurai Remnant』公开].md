@@ -1819,3 +1819,67 @@ assassin的剧情好像和生平事迹经历有关，不过<img src="https://sta
 
 值得玩吗，不是原著党，割草的感觉如何？？？
 
+*****
+
+####  roxassix  
+##### 1658#       发表于 2023-11-30 20:16
+
+草 还要开禁药不能续命难度，暗荣你不会真觉得这个b战斗系统很好玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARKGRAY  
+##### 1659#       发表于 2023-11-30 23:55
+
+谁要这种更新，不如先放点DLC的预告啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  忧郁  
+##### 1660#       发表于 2023-12-1 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63187274&amp;ptid=2112855" target="_blank">DARKGRAY 发表于 2023-11-30 23:55</a>
+谁要这种更新，不如先放点DLC的预告啦</blockquote>
+DLC情报留到年底的月球春晚了
+
+
+*****
+
+####  eilot  
+##### 1661#       发表于 2023-12-1 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63185400&amp;ptid=2112855" target="_blank">roxassix 发表于 2023-11-30 20:16</a>
+
+草 还要开禁药不能续命难度，暗荣你不会真觉得这个b战斗系统很好玩吧 ...</blockquote>
+一是連武器系統都要改，最低限度都要加多一個破盾效率
+
+又或者武器及2項防具都要有4~5種效果，還有最大值要進一步提高
+
+現在最高難度破了對方盾後，好快就恢復，還要再提高攻擊和體力，及不能吃藥的話，只能說弱X智
+
+
+*****
+
+####  亚历山大帝  
+##### 1662#       发表于 2023-12-2 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63029412&amp;ptid=2112855" target="_blank">TiiTiiLL 发表于 2023-11-13 12:39</a>
+
+买了豪华版周末二周目把全结局肝完了，只能说500大洋这种剧情属实有点不值，剑鬼结局算有点意思但整体剧情太出戏了。
+
+比较难蚌的几个点： </blockquote>
+最难绷的是，女主角是男的，他还有个老婆。 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗日生化体  
+##### 1663#       发表于 2023-12-3 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63205172&amp;ptid=2112855" target="_blank">亚历山大帝 发表于 2023-12-2 20:34</a>
+
+最难绷的是，女主角是男的，他还有个老婆。</blockquote>
+武尊这种有女装事迹的娘化才没意思的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
