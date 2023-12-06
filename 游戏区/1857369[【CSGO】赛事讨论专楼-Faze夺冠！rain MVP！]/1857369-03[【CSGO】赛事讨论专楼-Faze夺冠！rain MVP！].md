@@ -7184,3 +7184,12 @@ FAZE!
 
 说要是原来niko去猎鹰的话monesy会去c9<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这样看现在找nexa回来真的聚是一坨屎吧，还不如散了
 
+*****
+
+####  heseran  
+##### 3940#       发表于 2023-12-3 19:06
+
+ 本帖最后由 heseran 于 2023-12-3 19:10 编辑 
+
+G2米垃圾被炸鱼了哈哈哈哈，呼吸0-14，图二还是OP哈哈哈哈。太会宠粉了，好久不打比赛一上来就这么乐。
+
