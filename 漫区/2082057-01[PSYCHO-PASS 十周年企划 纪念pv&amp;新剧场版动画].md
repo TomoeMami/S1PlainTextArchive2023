@@ -2462,3 +2462,41 @@ S1E23《血之褒赏》，看见大叔殉职，kino血肉模糊的惨样，狡�
 
 看完怎么感觉西比拉就是一个大型草台赛博议会（
 
+*****
+
+####  zayrq  
+##### 228#       发表于 2023-12-3 21:05
+
+难怪找的大冢明夫配音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不纯纯的big boss coser
+
+
+*****
+
+####  whiteweakbear  
+##### 229#       发表于 2023-12-3 21:30
+
+隔了好多年才出来。又是倒序的时间线，脑子不够用了
+不过第三季的存在感不强倒是真的
+
+—— 来自 realme RMX3708, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  whiteweakbear  
+##### 230#       发表于 2023-12-3 21:38
+
+专门去看了一下第三季的楼，好矮，一点存在感都没有，怪不得看完了剧场版完全没有主动想起来任何情节。第三季男主角，还有白毛男一家，出现了半天，还觉得好像哪个看过的路人甲。。。。
+
+—— 来自 realme RMX3708, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  洛克萨斯  
+##### 231#       发表于 2023-12-3 22:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以就是阿朱拿自己卡bug，你们要废除法律，但是西比拉那套对我没用，你还得用法律才能处理这事
+
+西比拉：有趣
+
