@@ -1158,3 +1158,38 @@ sm山内又把刷钱修了</blockquote>
 
 我感觉我右手食指控制刹车不够精细的原因吧
 
+*****
+
+####  masokishin  
+##### 1826#       发表于 2023-12-2 21:15
+
+新手，现在36级跑东高赚80万，还有啥好去处么？
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  byisme001  
+##### 1827#       发表于 2023-12-4 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63205479&amp;ptid=2027972" target="_blank">masokishin 发表于 2023-12-2 21:15</a>
+新手，现在36级跑东高赚80万，还有啥好去处么？
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 S1Next-鹅 ...</blockquote>
+一个月前有，现在没了
+
+
+*****
+
+####  一个陆仁贾  
+##### 1828#       发表于 2023-12-4 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63205479&amp;ptid=2027972" target="_blank">masokishin 发表于 2023-12-2 21:15</a>
+新手，现在36级跑东高赚80万，还有啥好去处么？
+
+—— 来自 Xiaomi M2012K11AC, Android 13上的 S1Next-鹅 ...</blockquote>
+条件差不多的就是撒丁岛和勒芒，不知道你这个等级解锁没有
+
+—— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
