@@ -811,3 +811,10 @@ However, this does not mean that Donald Trump or other political leaders cannot 
 需要e3或者e5的订阅+额外付费，个人应该用不了</blockquote>
 没法拼车？
 
+*****
+
+####  宏.  
+##### 82#         楼主| 发表于 2023-12-5 18:53
+
+果不其然，最近WPS也新增了AI助手功能，试用了一下，效果相当可以，写废话文学报告省事多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
