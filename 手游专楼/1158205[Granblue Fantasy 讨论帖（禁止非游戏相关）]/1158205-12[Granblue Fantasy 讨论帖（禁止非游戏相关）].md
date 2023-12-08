@@ -2289,3 +2289,484 @@ NGA已经有号召召唤卡车了，但是行动力我看悬（奶<img src="http
 
 估计要等更新的高难或者3.0内容出了，也不打算用沙漏卡人之后才会改18人降蓝箱线了
 
+*****
+
+####  江戸前ルナ  
+##### 17459#       发表于 2023-11-26 11:48
+
+这丧心病狂的BUFF就算了，妈的把反射藏最里面是哪个没妈的想出来的？就算有卡有盘但只要等级低些或者没做极巴武龙武的血不够吃一个反就4W5 5W血不是死人就是直接残废
+
+
+*****
+
+####  Sylpheed  
+##### 17460#       发表于 2023-11-27 14:25
+
+但相对来说这次团只要能保证不死（狗妈安），就不怕档线追屁股，已经算近来比较好打的一次了。
+在多数人盘子不够硬，团前落地的对策角也不够硬的时候给boss上强度确实有奇效。
+最好以后大家都只能兽王愈神剑豪狗住，10分钟收一次菜才是最好的。
+不过也有风团推销斑比的操作，运营多半才不管这些呢，现在砍25防都百万平a，更像试试水准备上250hell了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  江戸前ルナ  
+##### 17461#       发表于 2023-11-27 17:47
+
+这次进50后必须对好轴起码有2个驱散，不然就是2动+高扬BOSS上了满排的BUFF，被BOSS对上轴了。以前轴不对但有技能还能磨个几回合救回来，现在这里对不上直接寄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+好像上上次风团的猛犸也是这样？是特动后可以接平A？
+
+*****
+
+####  洛克萨斯  
+##### 17462#       发表于 2023-11-27 17:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本好像不咋流行卡车攻击，不然真想众筹卡车给cy上点强度，这尼玛整的是什么烂活，无聊就算了还坐牢，这团战虫子超越恐龙和波奇了吧，太恶心了，游戏体验极差
+
+
+*****
+
+####  poor  
+##### 17463#       发表于 2023-11-27 22:15
+
+打够10亿收工了，什么JB玩意，再NMD见
+
+
+*****
+
+####  phoenixxj  
+##### 17464#       发表于 2023-11-27 22:49
+
+去年还没感觉方阵和老王有很大差距
+
+今年差距就特别夸张
+
+尤其水，我5分多打完，群里方阵10分钟以上，
+
+属于方阵比以前更难了 老王虐起来更爽了
+
+数值氪金属实给四字母玩明白了
+
+
+*****
+
+####  洛克萨斯  
+##### 17465#       发表于 2023-11-27 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63155956&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-11-27 22:49</a>
+
+去年还没感觉方阵和老王有很大差距
+
+今年差距就特别夸张
+
+尤其水，我5分多打完，群里方阵10分钟以上，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">明明是看角色有没有..........没有终突女教皇，加百列这些超级倍卡，你再好的盘子一样被虫子吊起来打
+
+
+*****
+
+####  phoenixxj  
+##### 17466#       发表于 2023-11-28 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63156036&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2023-11-27 22:59</a>
+
+明明是看角色有没有..........没有终突女教皇，加百列这些超级倍卡，你再好的盘子一样被虫子吊起 ...</blockquote>
+我怎么感觉每次在泥潭gbf发言都是这个话题
+
+角色比盘子重要。
+
+一个免费角色，一个200我根本没上的角色
+
+*****
+
+####  Niu  
+##### 17467#       发表于 2023-11-28 08:46
+
+這次對人員要求真的是太嚴格了。終突女教皇，月球人，老鼠這三個一定要有。否則FA休想壓到7分以下。光少一個就生不如死。
+
+
+*****
+
+####  phoenixxj  
+##### 17468#       发表于 2023-11-28 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63157688&amp;ptid=1158205" target="_blank">Niu 发表于 2023-11-28 08:46</a>
+
+這次對人員要求真的是太嚴格了。終突女教皇，月球人，老鼠這三個一定要有。否則FA休想壓到7分以下。光少一 ...</blockquote>
+这里面只有女教皇是不可或缺的，没办法这单位超模的过分，整个游戏比他性能强的都不一定超过3个。
+
+实际上有一个超级低配的盘子和队伍就是 天司+奶嘴
+
+
+*****
+
+####  usoda  
+##### 17469#       发表于 2023-11-28 09:24
+
+奶嘴这次确实不错，救了我狗命
+
+*****
+
+####  洛克萨斯  
+##### 17470#       发表于 2023-11-28 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我没有终突女教皇fa每把都13分钟左右，这傻逼玩意最恶心就是反射藏太后面，月球人根本清不掉，基本都是月球人打反射上面死掉的，影响进度
+
+
+*****
+
+####  Niu  
+##### 17471#       发表于 2023-11-28 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63158087&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2023-11-27 17:30</a>
+
+我没有终突女教皇fa每把都13分钟左右，这傻逼玩意最恶心就是反射藏太后面，月球人根本清不掉，基本 ...</blockquote>
+這裡就該讓團長上羅賓漢替跟月球人分擔傷害。更別說羅賓漢也有驅散。
+
+
+*****
+
+####  好奇害死喵  
+##### 17472#       发表于 2023-11-28 17:19
+
+闹麻了，机神改版改成这个吊样
+
+
+*****
+
+####  spector  
+##### 17473#       发表于 2023-11-29 08:33
+
+新活动牛逼 无人生还啊 我还蛮喜欢绿毛双子的人设 结果几句台词就挂了 真舍得啊
+
+
+*****
+
+####  syndrome2032  
+##### 17474#       发表于 2023-11-29 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63166882&amp;ptid=1158205" target="_blank">spector 发表于 2023-11-29 08:33</a>
+新活动牛逼 无人生还啊 我还蛮喜欢绿毛双子的人设 结果几句台词就挂了 真舍得啊 ...</blockquote>
+新活动剧情其实我觉得挺失败的，全是套路，自称侦探活动搞暴风雪山庄连续杀人也算是传统戏份了。
+
+最后真凶爆出来居然连在场的人都不是那一刻。。。。我觉得编剧还是老老实实让武内p老实回去抓松岗吧。起码那个写搞笑剧情我不会反对。
+
+
+*****
+
+####  spector  
+##### 17475#       发表于 2023-11-29 11:26
+
+<blockquote>syndrome2032 发表于 2023-11-29 10:12
+新活动剧情其实我觉得挺失败的，全是套路，自称侦探活动搞暴风雪山庄连续杀人也算是传统戏份了。
+
+最后真 ...</blockquote>
+我应该说直白点的……确实傻逼 只是感叹浪费人设
+
+
+*****
+
+####  Geyorkias  
+##### 17476#       发表于 2023-11-30 10:38
+
+只能说CY美术组人太多了，美术资源随便用，杀人不眨眼也无所谓
+
+前面我都忍了，看到最后白毛那实在蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 17477#       发表于 2023-11-30 12:38
+
+光涂鸦这性能…………
+
+火黄埔军校真是名不虚传
+
+
+*****
+
+####  はちたや  
+##### 17478#       发表于 2023-11-30 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63155956&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-11-27 22:49</a>
+
+去年还没感觉方阵和老王有很大差距
+
+今年差距就特别夸张
+
+尤其水，我5分多打完，群里方阵10分钟以上，</blockquote>
+很简单，方阵多久没强化了？最大的强化7剑还被砍掉了。
+
+角色不是强的破格已经很难弥合现在盘子成熟神石和方阵的差距了，不只是数值的问题，两边武器技能的维度就差了太多了
+
+像这期的光涂鸦，又是个方阵带不起来的强力角色。不过从神石下放超得的时候开始这种情况就可以预见了，明年所谓的3.0方阵大概率又是个噱头，七剑都给你砍了，给你塞个复制粘贴的新六属武器，难道还指望策划做六属不同质扩展功能性的新免费盘子给你玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我说都10年的破游戏了，稍微运营过几年六属玩玩低配老王也不是什么难事，现在有红路和bb这样的优质主招石头连老王jgj都可以不投资，真别玩方阵恶心自己
+
+
+*****
+
+####  kobushi  
+##### 17479#       发表于 2023-11-30 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">章鱼水剑豪，比方阵还慢几分钟，反正挂着就行不着急
+
+
+*****
+
+####  gammatau  
+##### 17480#       发表于 2023-11-30 21:04
+
+这下国内不敢说自己玩gbf了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|不至于，真不至于。你b都一大堆视频呢.|
+
+查看全部评分
+
+
+*****
+
+####  kobushi  
+##### 17481#       发表于 2023-11-30 21:17
+
+不管木口还是别的管人厂，和管人联动都好恶心，这次能让我可以彻底退坑挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 17482#       发表于 2023-11-30 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">免费武器做的比氪金武器强那还怎么让人氪金啊，新角色新武器只会对标终突贤者超限天人的强度去设计的
+
+
+*****
+
+####  Sylpheed  
+##### 17483#       发表于 2023-11-30 22:58
+
+就这几个大佐玩票的水平还要上主舞台情报环节也太乐了，虽然部分cv也好不到哪去就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usoda  
+##### 17484#       发表于 2023-11-30 23:03
+
+哎 盼杏归
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17485#       发表于 2023-12-1 08:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次这楼被顶起来就知道又有烂活了
+
+
+*****
+
+####  洛克萨斯  
+##### 17486#       发表于 2023-12-1 08:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我看cy是真的皮痒了，日本那边流行卡车么
+
+
+*****
+
+####  zhwpjy  
+##### 17487#       发表于 2023-12-1 09:11
+
+烂活一坨一坨的
+
+
+*****
+
+####  Gqdsbnzctrg  
+##### 17488#       发表于 2023-12-1 09:47
+
+福狗这传奇的十一月整这么多活，很难不让人怀疑gbf能不能活到12神将整完。
+
+
+*****
+
+####  usoda  
+##### 17489#       发表于 2023-12-1 10:37
+
+梦回16年的11月，四字母重握大权，然后直接整了2个月的烂活
+
+还要3年才出完神将，有种在那之前你游就似了的感觉
+
+
+*****
+
+####  洛克萨斯  
+##### 17490#       发表于 2023-12-1 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我现在觉得你游活不到12神将出齐了啊，cy是没人了么，把福老狗换掉啊
+
+
+*****
+
+####  Geyorkias  
+##### 17491#       发表于 2023-12-1 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你游现在流水CY第二，大概怎么作死也能活到12年的
+
+不过还是希望他别作了，折腾来折腾去我是真的找不到第二个竖屏单手摸鱼的游戏了
+
+*****
+
+####  好奇害死喵  
+##### 17492#       发表于 2023-12-1 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以后生放送要邀请皮套人鬼叫吗，说实话这些皮套人玩gbf吗
+
+*****
+
+####  phoenixxj  
+##### 17493#       发表于 2023-12-1 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63191210&amp;ptid=1158205" target="_blank">好奇害死喵 发表于 2023-12-1 12:08</a>
+
+以后生放送要邀请皮套人鬼叫吗，说实话这些皮套人玩gbf吗</blockquote>
+皮套人当然有玩gbf的 **经常能看到 有些还挺pro的
+
+但是不知道猴楼会玩吗 我也不认识他们
+
+
+*****
+
+####  Sylpheed  
+##### 17494#       发表于 2023-12-1 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63191271&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-12-1 12:11</a>
+
+皮套人当然有玩gbf的 **经常能看到 有些还挺pro的
+
+但是不知道猴楼会玩吗 我也不认识他们 ...</blockquote>
+工商直播至少年初就开始了，兔大佐玩得算比较长，还有486直播也是挂着cy游戏收益化许可的。
+
+水平嘛，不要期待，比不是常驻的几个嘉宾cv好不到哪去，暗团猴楼几个组队打古战场，印象是cb组的样子。486年初也还是自开新号水平，后面**没给我推送过了也就不知道还在玩没了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  syndrome2032  
+##### 17495#       发表于 2023-12-1 17:29
+
+我5月份去了一趟日本，感觉holo还是有点人气的。线下还有和神社联动创作了一堆巫女服管人。
+
+不过我反正不看就不知道究竟啥情况了
+
+
+*****
+
+####  usoda  
+##### 17496#       发表于 2023-12-1 18:00
+
+不看杏，管人打你游的只知道个P家的0g0，玩得还挺pro的，可惜是个臭底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  初雪绫  
+##### 17497#       发表于 2023-12-1 18:06
+
+佩克拉我记得上次光团就在打一档了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 浓度还是比那几个声优高点的
+
+
+*****
+
+####  sodah  
+##### 17498#       发表于 2023-12-1 18:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼被顶上来肯定就是有烂活
+
+*****
+
+####  shinitakute  
+##### 17499#       发表于 2023-12-1 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实有好活也能被顶上来，但是现在明显整不出好活喽
+
+
+*****
+
+####  dddty  
+##### 17500#       发表于 2023-12-2 00:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">KMR估计真不懂为什么会被炎上吧，什么时候能见到KMR被CY踹了。
+
+
+*****
+
+####  dddty  
+##### 17501#       发表于 2023-12-2 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63190178&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2023-12-1 11:03</a>
+
+我现在觉得你游活不到12神将出齐了啊，cy是没人了么，把福老狗换掉啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">小福忙着GBVSR和relink呢。反观KMR可是明牌管人痴。
+
+*****
+
+####  洛克萨斯  
+##### 17502#       发表于 2023-12-2 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63198965&amp;ptid=1158205" target="_blank">dddty 发表于 2023-12-2 00:41</a>
+
+KMR估计真不懂为什么会被炎上吧，什么时候能见到KMR被CY踹了。</blockquote>
+木村混到那个职位不太可能滚的，要滚也是福原滚.........<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  はちたや  
+##### 17503#       发表于 2023-12-2 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉年底要fs贵族落地了，以后召唤石就是贝巴法搓麻将三缺一
+
+
+*****
+
+####  Sylpheed  
+##### 17504#       发表于 2023-12-3 21:30
+
+说实话挺紧张的，当过1年半无bb人士，真是fs强度又高的话，没抽到我估计忍不住直接黑卡，又要血亏一把石油<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Geyorkias  
+##### 17505#       发表于 2023-12-4 13:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主要还是看啥地方能用，现在召唤盘子也太挤了不好讲啊，先观望下吧，总不能啥属到最后都变成天佑全套Q个雅琪玛吧
+
+
+*****
+
+####  poor  
+##### 17506#       发表于 2023-12-4 22:31
+
+换了艾蕾现在还有500金月，我真的好想换雅琪玛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  poor  
+##### 17507#       发表于 2023-12-5 21:17
+
+三剑二斧0凸盘比树枝盘火力方面提升有多大？
+
