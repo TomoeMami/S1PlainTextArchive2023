@@ -2963,3 +2963,31 @@ OLED版原价都要3900+，3000左右买新机应该不可能，二手捡漏说�
 
 原本就很优秀了，这次更新后给我的感觉就像是从IBM小红点转到MacBook的触摸板，或者从60帧转到120帧屏幕
 
+*****
+
+####  Meltina  
+##### 272#       发表于 2023-12-6 14:09
+
+蛋都碎了，换了OLED后，玩2077觉得红色太鲜艳了，哪里调能把饱和度下降一点？
+
+
+*****
+
+####  bypass  
+##### 273#       发表于 2023-12-6 14:18
+
+ 本帖最后由 bypass 于 2023-12-6 14:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63241012&amp;ptid=2160139" target="_blank">Meltina 发表于 2023-12-6 14:09</a>
+
+蛋都碎了，换了OLED后，玩2077觉得红色太鲜艳了，哪里调能把饱和度下降一点？ ...</blockquote>
+
+设置显示里面可以调节饱和度和色温。
+
+<img src="https://img.saraba1st.com/forum/202312/06/141927sru336p66u3zk5dk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (86.81 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-6 14:19 上传
+
