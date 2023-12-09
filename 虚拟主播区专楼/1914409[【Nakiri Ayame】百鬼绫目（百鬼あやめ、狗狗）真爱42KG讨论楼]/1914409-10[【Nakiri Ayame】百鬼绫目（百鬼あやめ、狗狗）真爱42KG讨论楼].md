@@ -2024,3 +2024,30 @@ good👍🏻
 
 第4还好吧，不是倒数就是胜利
 
+*****
+
+####  因为你不会  
+##### 14706#       发表于 2023-11-28 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59263131&amp;ptid=1914409" target="_blank">stedckk 发表于 2023-1-8 21:32</a>
+
+刚说完，被观众提了之后，就很勉强加了条，我就看看下年能增加多少
+
+ ...</blockquote>
+一年还差一个月，感觉差不多可以清算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/28/004054m6kk4g1qc5r2hhwp.png" referrerpolicy="no-referrer">
+
+<strong>213103eeikh49h1cok6kw9.png</strong> (31.17 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-28 00:40 上传
+
+*****
+
+####  夏小筱ss  
+##### 14707#       发表于 2023-12-6 16:53
+
+这个月有点忙啊，啥live都有绫总
+
