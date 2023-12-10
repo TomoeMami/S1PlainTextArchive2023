@@ -3330,3 +3330,68 @@ XB2的隐藏雷点也继承还更夸大了，本篇光焰演的好像疑似有�
 
 上一次看上半结局搭档从白毛换成黑毛的动画还是冈妈的wixoss
 
+*****
+
+####  aptx8285144  
+##### 3310#       发表于 2023-12-6 18:20
+
+[https://tieba.baidu.com/p/877114 ... FC32F24A988BD90D15A](https://tieba.baidu.com/p/8771144175?share=9105&amp;fr=sharewise&amp;see_lz=0&amp;share_from=post&amp;sfc=copy&amp;client_type=2&amp;client_version=12.51.5.1&amp;st=1701858103&amp;is_video=false&amp;unique=4CA0F7236D2E0FC32F24A988BD90D15A)  
+
+ 1月8日播出后半部分
+
+
+*****
+
+####  Piano-Forest  
+##### 3311#         楼主| 发表于 2023-12-6 21:13
+
+🎉放送情報公開🎉
+
+TVアニメ「#SYNDUALITY Noir」第2クール
+
+テレ東系6局ネット・BS日テレほかにて
+
+1月8日月曜より放送決定✨
+
+ディズニープラスにて
+
+1月8日月曜深夜24:30～
+
+観放題独占配信👀
+
+✨設定公開✨
+
+第12話で突如ノワールと入れ替わって
+
+現れた謎のメイガス「ミステル」の設定画を公開！
+
+見た目も口調も異なり、メイガススキルで
+
+シルヴァーストームすらも撃破するほどの
+
+圧倒的な能力を誇る彼女がどのように
+
+第2クールの物語へ関わってくるのか、
+
+是非、ご期待ください！
+<img src="https://p.sda1.dev/14/2cfc1e387555c32cc7fc931872e91f02/20231206_211135.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RE㐅ia  
+##### 3312#       发表于 2023-12-7 00:56
+
+这衣服不是大哥的吗？也太贴身了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 3313#       发表于 2023-12-7 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247060&amp;ptid=2092345" target="_blank">RE㐅ia 发表于 2023-12-7 00:56</a>
+
+这衣服不是大哥的吗？也太贴身了吧</blockquote>
+这腿细得和C妈画得差不多（
+
