@@ -1204,3 +1204,90 @@
 
 从对战复制德鲁哈开始，这漫画一连好几话把关键情节先藏着，到最后才揭开的情况变多了，不连着看真的很难看懂。追上进度后如果每个月才能看一集的话感觉自己的脑子会跟不上。好在翻译质量不错，还没出现连句子都读不懂的情况。
 
+*****
+
+####  白金口袋  
+##### 117#       发表于 2023-12-6 16:56
+
+被踢蛋引发的超级赛亚人状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北山玖公  
+##### 118#       发表于 2023-12-6 17:12
+
+上来一大串字我还以为我在看轻小说呢，这下堂堂“爆种”了。
+
+不过这爆种状态也太奇葩了点，我是误入电锯人片场了？
+
+
+*****
+
+####  KDConan  
+##### 119#       发表于 2023-12-6 17:33
+
+我又看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  redsouris  
+##### 120#       发表于 2023-12-6 18:49
+
+ 本帖最后由 redsouris 于 2023-12-6 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63243281&amp;ptid=2144105" target="_blank">KDConan 发表于 2023-12-6 17:33</a>
+我又看不懂了
+
+—— 来自 Xiaomi 23013RK75C, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
+蛋蛋挨打导致想起来失忆前的事情了，
+32话被打败之后，又爆种反杀（没有杀死而是切块延迟再生），失忆药也是自己喝的，因为这次女猎人忘不掉了，赌自己失忆来改善状况
+爆种后的行动实在太奇行种，女猎人认为他“被迫杀人重置”搞到精神坏掉了，如果精神恢复正常的话是个温柔的好人，所以在他失忆后反而后宫式照看<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">希望他恢复成共同战斗的同伴
+现在德鲁哈连自己如何爆种的事也想起来了……
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ストック  
+##### 121#       发表于 2023-12-7 10:11
+
+以前有过触发条件这么丢人而且觉醒场面还这么清奇的最终觉醒吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不过这一话的剧情构筑张力真的是相当厉害了
+一直以来作为人其实已经足够过分了的德鲁哈居然还有能剥离的作为“人”的外皮和其下更恶劣的隐藏面，而这样完全失去人性的隐藏面却依然会考虑和女猎人们的关系甚至生出“即使消去记忆关系也回不去从前”的感伤；虽然一直在冷酷精确地算计自己和他人，也多次为了利益算计自伤甚至不惜步步加码，但是像这样[明确地把自身看作负面要素排除]对德鲁哈来说好像还是第一次
+而且由于使用了一直用于女猎人们身上的[记忆操作]，包括试图通过伪装保住记忆(和老六对应)、因为失去记忆而失去了关键时刻的出力极限(和操血的技巧对应)这些部分在内，德鲁哈在通过相似体验一步步更为理解女猎人们的处境乃至心境；而由于无法真正地理解德鲁哈的扭曲，女猎人们则还在一厢情愿地把自己的纯真和善性单方面地投射在德鲁哈身上，寻求的仍是德鲁哈一直以来伪装出的温柔在她们心中倒映的虚像
+拼命践踏和扼杀着的男人愈发接近对方的真实，拼命伸手和呼唤着的女孩徒劳寻求虚伪的泡影，这种荒唐无稽的关系，真的正如本话的德鲁哈所说，「皮肉でなくて何であろうか」
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  狂马王  
+##### 122#       发表于 2023-12-7 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62976924&amp;ptid=2144105" target="_blank">Booorunestud 发表于 2023-11-8 10:13</a>
+
+上推看了看原来剩5话就完结了，可以看看结局能整出什么活这次这两个月记忆应该是不能让他重置了
+
+ ...</blockquote>
+那等完结再补一次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主醒来以后的剧情，有点太碎了
+
+
+*****
+
+####  redsouris  
+##### 123#       发表于 2023-12-7 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63248954&amp;ptid=2144105" target="_blank">ストック 发表于 2023-12-7 10:11</a>
+以前有过触发条件这么丢人而且觉醒场面还这么清奇的最终觉醒吗
+不过这一话的剧情构筑张力真的是相当 ...</blockquote>
+不愧是合理性的怪物，发现自己变成障碍也会毫不犹豫的排除
+
+觉醒奇行种的记忆连德鲁哈自己都被吓到了，没有让读者白等那么久<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
