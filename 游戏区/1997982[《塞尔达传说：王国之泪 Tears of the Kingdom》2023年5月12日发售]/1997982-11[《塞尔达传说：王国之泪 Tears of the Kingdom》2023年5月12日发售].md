@@ -7113,3 +7113,18 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 旅行克洛格明年2月发售，3300日元（含税）1只，分A/B款<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+*****
+
+####  冷泉夜月  
+##### 15598#       发表于 2023-12-8 19:51
+
+<img src="https://img.saraba1st.com/forum/202312/08/195049fo8dkjbhomojiioi.jpg" referrerpolicy="no-referrer">
+
+<strong>TGA2023.jpg</strong> (152.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 19:50 上传
+
+有一说一这张图也太好看了吧。。。多出点谷子手办啊可恶！<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
