@@ -627,3 +627,20 @@ DLC会不会是补全光头是咋从希腊去北欧遇到老婆的
 
 —— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+*****
+
+####  医生狼多  
+##### 1996#       发表于 2023-12-8 09:18
+
+新dlc，但是免费，似乎是关卡连战的小型更新？
+
+
+*****
+
+####  Piano-Forest  
+##### 1997#         楼主| 发表于 2023-12-8 09:27
+
+免费DLC：[https://youtu.be/C44_HrseDSs](https://youtu.be/C44_HrseDSs)
+
+23年12月12日推出
+
