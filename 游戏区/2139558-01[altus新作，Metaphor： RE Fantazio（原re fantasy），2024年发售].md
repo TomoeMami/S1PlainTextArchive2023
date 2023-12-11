@@ -4787,3 +4787,233 @@ https://gouhuo.qq.com/u/t/27673N4
 这个是穿越系的还是纯异世界背景</blockquote>
 目前消息量看着不是穿越类的
 
+*****
+
+####  Piano-Forest  
+##### 477#       发表于 2023-12-7 08:30
+
+TGA新情报公开
+
+
+*****
+
+####  医生狼多  
+##### 478#         楼主| 发表于 2023-12-7 09:29
+
+ATLUS奇幻RPG新作《暗喻幻想 ReFantazio》将在TGA2023颁奖典礼中公开最新情报，本作将于2024年登陆PS5、PS4、XSX|S与PC，支持中文。 ​​​
+
+
+*****
+
+####  医生狼多  
+##### 479#         楼主| 发表于 2023-12-8 09:02
+
+2024年球发售！
+
+
+*****
+
+####  医生狼多  
+##### 480#         楼主| 发表于 2023-12-8 09:10
+
+ATLUS公布最新作《暗喻幻想》全新视频，本作将在2024年发售。 http://t.cn/A6lUGgCu ​​​
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 481#       发表于 2023-12-8 09:14
+
+FALCOM天下第一！！！！
+
+真的有人学了啊，学falcom那套最大的优点是被怪摸到不会强制切场景战斗，可谓杜绝了传统JRPG杂兵堵路问题
+
+*****
+
+####  cowgp01  
+##### 482#       发表于 2023-12-8 09:20
+
+感觉是真4没了东京，加ddsat
+
+
+*****
+
+####  guiminan  
+##### 483#       发表于 2023-12-8 09:28
+
+祖传豪华cv
+<img src="https://p.sda1.dev/14/69190a85277fc95ea4b512861493cfa7/CMP_20231208092752348.png" referrerpolicy="no-referrer">
+
+*****
+
+####  红魔馆的糖  
+##### 484#       发表于 2023-12-8 09:29
+
+这个皮可西是尤加利吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alviaze  
+##### 485#       发表于 2023-12-8 09:30
+
+帧数和抗锯齿not good啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道哪个平台录制的
+
+
+*****
+
+####  2082082012  
+##### 486#       发表于 2023-12-8 10:00
+
+可以的，期待<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  ace7ace  
+##### 487#       发表于 2023-12-8 11:30
+
+奇幻风格配这个ui看着挺怪的
+
+
+*****
+
+####  bobosnader  
+##### 488#       发表于 2023-12-8 11:51
+
+终于摆脱了恶魔的atlus==
+
+
+*****
+
+####  星野航  
+##### 489#       发表于 2023-12-8 12:10
+
+这俩配角一个叫斯特罗尔，一个叫霍肯博格，你们是F1围场跑过来串戏的是么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  黑夜守望者  
+##### 490#       发表于 2023-12-8 12:28
+
+意外合胃口
+
+*****
+
+####  黑夜守望者  
+##### 491#       发表于 2023-12-8 12:31
+
+意外合胃口
+
+
+*****
+
+####  那我也没办法  
+##### 492#       发表于 2023-12-8 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63258447&amp;ptid=2139558" target="_blank">guiminan 发表于 2023-12-8 09:28</a>
+祖传豪华cv</blockquote>
+太豪华了吧<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 6 Pro, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  eaglu  
+##### 493#       发表于 2023-12-8 13:14
+
+P5有夏亚，新作来个阿姆罗？
+
+
+*****
+
+####  缪斯替  
+##### 494#       发表于 2023-12-8 13:32
+
+这版宣传片主题很明确展示的东西也不错，感觉比第一版好不少，已经很有兴趣玩了
+
+第一版那片子我看完了只觉得什么勾RPG样板戏不听不听鬼子念经
+
+
+*****
+
+####  wlgdc  
+##### 495#       发表于 2023-12-8 13:52
+
+没校园就没有校园霸凌。
+
+
+*****
+
+####  whzfjd  
+##### 496#       发表于 2023-12-8 14:23
+
+听 PV 感觉这作是要讲种族问题和团结群众？
+
+不知道最后那个变萝卜的场面是我方机制还是单纯 BOSS 演出。
+
+*****
+
+####  Pipcat  
+##### 497#       发表于 2023-12-8 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63261219&amp;ptid=2139558" target="_blank">星野航 发表于 2023-12-8 12:10</a>
+
+这俩配角一个叫斯特罗尔，一个叫霍肯博格，你们是F1围场跑过来串戏的是么 ...</blockquote>
+所以Joker（小丑）是？<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  vmon  
+##### 498#       发表于 2023-12-8 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目前来看不还是云里雾里么，剧情主题和世界观设定没明确，系统也就漏了一点点，全靠自己猜，不过类异闻录应该没跑了。
+
+
+*****
+
+####  抽烟的猴  
+##### 499#       发表于 2023-12-8 15:09
+
+ 本帖最后由 抽烟的猴 于 2023-12-8 15:13 编辑 
+
+有日历，有羁绊，有类五维的成长，再看对话和战斗UI，男一男二的长相，叫p6也没多大问题<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+006Hm8pLgy1hkm9zy8ag5j30zk0k0wnl.jpg
+(187.84 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 15:09 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/150902tcbta99a2fbclnl1.jpg" referrerpolicy="no-referrer">
+
+760d160fgy1hkm8hsekynj229h19u1kx.jpg
+(662.88 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 15:09 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/150907mdanlssi4k64wzpj.jpg" referrerpolicy="no-referrer">
+
+cf131b23dd54564e99e26a0ff5de9c82d0584fcc.jpg
+(94.95 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 15:10 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/151014p7vdg36mnnbgh2cf.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  被击坠王  
+##### 500#       发表于 2023-12-8 21:12
+
+这越宣传越把当初“重新定义RPG和真正的幻想”的口号埋进土里
+
