@@ -7705,3 +7705,13 @@ sif2剧情里设定上这次所有情歌都是每个人自己写的，这就是�
 <img src="https://p.sda1.dev/14/1fae9e2ccb8becf54fe9d6e76f2bc53f/CMP_20231206193045210.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/14/7154b7747fcf8124178e6fb16fd473bd/CMP_20231206193045294.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  wxc060302  
+##### 7421#       发表于 2023-12-10 01:00
+
+侑：你们都是我的翅膀<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/c93e4fa9a4e346cb66c1400b8d760fd9/CMP_20231210005959951.jpg" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
