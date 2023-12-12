@@ -2875,3 +2875,1073 @@ pv里主角那张脸就挺暗荣预设脸的，应该能捏
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+*****
+
+####  Piano-Forest  
+##### 303#         楼主| 发表于 2023-12-8 09:56
+
+24年3月22日发售
+
+*****
+
+####  碎镜子  
+##### 304#       发表于 2023-12-8 09:59
+
+龙信同一天？二哥要被大哥吊打了？
+
+*****
+
+####  whzfjd  
+##### 305#       发表于 2023-12-8 10:00
+
+光荣你的500W到底是哪个
+
+*****
+
+####  Piano-Forest  
+##### 306#         楼主| 发表于 2023-12-8 10:00
+
+新PV：[https://youtu.be/zS8EvlTGCiE](https://youtu.be/zS8EvlTGCiE)
+
+*****
+
+####  laoz  
+##### 307#       发表于 2023-12-8 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">怎么还敢撞龙信2的，等打完龙信2再考虑了
+
+
+*****
+
+####  nage560  
+##### 308#       发表于 2023-12-8 10:09
+
+我觉得是换皮侍道，别整那垃圾RPG了，直接照抄侍道，凭忍组的动作制作销量分分钟翻倍。
+
+*****
+
+####  ff2077  
+##### 309#       发表于 2023-12-8 10:12
+
+撞龙信2也太狠了 两个游戏类型还很像
+
+*****
+
+####  thecatnie  
+##### 310#       发表于 2023-12-8 10:12
+
+怎么感觉一股子如龙味？
+
+*****
+
+####  rainsheep  
+##### 311#       发表于 2023-12-8 10:12
+
+好像是固定主角了？
+
+—— 来自 vivo V2241A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  凑斗景明上s1  
+##### 312#       发表于 2023-12-8 10:13
+
+看起来场景美术还是一如既往地狗屎
+
+*****
+
+####  廖化  
+##### 313#       发表于 2023-12-8 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63258951&amp;ptid=2092342" target="_blank">laoz 发表于 2023-12-8 10:02</a>
+
+怎么还敢撞龙信2的，等打完龙信2再考虑了</blockquote>
+卧槽你这么一说才发现……妈的暗荣你们清醒点啊！这不是自己作死吗
+
+*****
+
+####  zqqwe  
+##### 314#       发表于 2023-12-8 10:13
+
+只要不搞死にゲー和装备驱动就买
+
+
+*****
+
+####  冷泉夜月  
+##### 315#       发表于 2023-12-8 10:14
+
+这美术看起来还是脏兮兮<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  focus  
+##### 316#       发表于 2023-12-8 10:16
+
+麻了，画面怎么还不如仁王2，但愿地图够大够开放吧
+
+*****
+
+####  新世界的派蒙  
+##### 317#       发表于 2023-12-8 10:21
+
+这发售日也太快了，应该马上有实机宣传了吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 318#       发表于 2023-12-8 10:22
+
+仁王手感对马岛，画面还不如，500万就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  被雨困住的城市  
+##### 319#       发表于 2023-12-8 10:23
+
+求求你，别去下水道打怪了
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  byisme001  
+##### 320#       发表于 2023-12-8 10:24
+
+看都是打人，没有妖怪
+
+
+*****
+
+####  TheOccuria  
+##### 321#       发表于 2023-12-8 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是500w？发售日和龙信2撞了
+
+*****
+
+####  kg21xhunter  
+##### 322#       发表于 2023-12-8 10:28
+
+虽然撅起动作系统比龙信好，但是龙信敢挑战金字塔尖的多角色arpg，两难选择
+
+*****
+
+####  shigure_ee  
+##### 323#       发表于 2023-12-8 10:33
+
+感觉像仁王换了一张对马岛的皮肤
+
+
+*****
+
+####  drx66  
+##### 324#       发表于 2023-12-8 10:46
+
+感觉就是拿仁王改了改的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  病態極端  
+##### 325#       发表于 2023-12-8 10:52
+
+可以切換可控角色？
+
+拿長槍的主角化解雜兵突刺之後，鏡頭移動到左輪哥肩後連續開火。
+
+
+*****
+
+####  千秋难诉  
+##### 326#       发表于 2023-12-8 11:17
+
+新PV来看，很难相信这是500wIP
+
+
+*****
+
+####  horacio  
+##### 327#       发表于 2023-12-8 11:27
+
+ 本帖最后由 horacio 于 2023-12-8 11:28 编辑 
+
+这真的是500w吗？第一感觉还不如卧龙，就预告片而言我肯定优先龙信了
+
+
+*****
+
+####  黑修士  
+##### 328#       发表于 2023-12-8 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63258889&amp;ptid=2092342" target="_blank">whzfjd 发表于 2023-12-8 10:00</a>
+
+光荣你的500W到底是哪个</blockquote>
+哪个卖到500W就是哪个<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  性兽阿怪  
+##### 329#       发表于 2023-12-8 11:40
+
+明年三月这两个估计要被天天拿来pk<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+*****
+
+####  Dorohedoro  
+##### 330#       发表于 2023-12-8 12:25
+
+希望地图设计还是维持仁王的风格，别整问号大罐头
+
+
+*****
+
+####  duraa  
+##### 331#       发表于 2023-12-8 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">感觉大部分人第一时间会龙信2，就由我来品这个500w
+
+*****
+
+####  clover293  
+##### 332#       发表于 2023-12-8 12:29
+
+这个不是500万吧，不过仁王2 ps5手柄适配还是不错的，希望能保持下来
+
+*****
+
+####  duraa  
+##### 333#       发表于 2023-12-8 12:32
+
+我印象中浪人没公布之前就流出过一个500w代号叫浪人的消息，还有项目图，当然真算不算那是光荣一句话的事情
+
+
+*****
+
+####  KENN  
+##### 334#       发表于 2023-12-8 12:41
+
+看上去比卧龙更像只狼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 335#       发表于 2023-12-8 12:43
+
+骑马动作还是爸爸的妈妈是奶奶级别的
+
+
+*****
+
+####  武机霸拳流代师范  
+##### 336#       发表于 2023-12-8 13:09
+
+我是很喜欢仁系列的，但实话实说这真的不是五百万的卖相~~~
+
+*****
+
+####  jxzeroga0  
+##### 337#       发表于 2023-12-8 13:10
+
+祖传的黑紫红屎美术，真的一点购买欲望都没<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yeelolo  
+##### 338#       发表于 2023-12-8 13:11
+
+就是仁王2换皮我也会买，就好这口，卧龙一边去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bgmilk  
+##### 339#       发表于 2023-12-8 13:12
+
+    怎么就没人给忍组说说这画面乌漆嘛黑么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桥洞底下盖小被  
+##### 340#       发表于 2023-12-8 13:14
+
+看预告就像是把忍组所有的东西全揉进了对马岛的框架里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉应该还是好玩的，但媒体分肯定不会高。怎么还撞上了龙信2，我不好说了
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 341#       发表于 2023-12-8 13:14
+
+不觉得很有忍组味吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">画面不烂不玩
+
+感觉看见龙哥ot动作了
+
+
+*****
+
+####  雪菜碧池  
+##### 342#       发表于 2023-12-8 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63262154&amp;ptid=2092342" target="_blank">bgmilk 发表于 2023-12-8 13:12</a>
+
+怎么就没人给忍组说说这画面乌漆嘛黑么</blockquote>
+比仁王2已经改善了
+
+
+*****
+
+####  ac死或生  
+##### 343#       发表于 2023-12-8 13:42
+
+和龙信2同期发售怎么了？真当龙信是啥大作？
+
+
+*****
+
+####  刘震云  
+##### 344#       发表于 2023-12-8 13:45
+
+肯定先玩浪人，龙信往后稍稍
+
+*****
+
+####  Yeelolo  
+##### 345#       发表于 2023-12-8 13:47
+
+龙信1做任务我能玩睡着，龙信2我肯定不会首发的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  karastar  
+##### 346#       发表于 2023-12-8 13:49
+
+其实对比仁王和卧龙画面好很多了，火焰特效，夜晚的光影都有进步
+
+
+*****
+
+####  gg142857  
+##### 347#       发表于 2023-12-8 13:57
+
+ 本帖最后由 gg142857 于 2023-12-8 13:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 仁王1 仁王2 卧龙 三部了吧，怎么还改不了你这个狗屎的大白大黑大红的审美，服了
+
+索尼呢救一下啊，照着对马岛画风抄一下啊
+
+
+*****
+
+####  BadYanL  
+##### 348#       发表于 2023-12-8 14:10
+
+明年三月就发售，会有SoP专场的吧。
+
+*****
+
+####  wtyrambo  
+##### 349#       发表于 2023-12-8 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">龙信的战斗系统太RPG了，还是看好浪人
+
+*****
+
+####  格林卡罗尔  
+##### 350#       发表于 2023-12-8 14:12
+
+不熟日本历史，问下这作会有新选组出现吗
+
+*****
+
+####  acejoe  
+##### 351#       发表于 2023-12-8 14:13
+
+场景美术怎么还是这么一坨黑啊，求求学一下别人的美术吧！
+
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 352#       发表于 2023-12-8 14:19
+
+说实话光荣内部估计审美就是这样的，omega组做的几部无双场景美术真得也没多好，再说已经形成路径依赖了，除非另起炉灶，否则基本很难改
+
+*****
+
+####  BadYanL  
+##### 353#       发表于 2023-12-8 14:20
+
+看起来是双主角，应该没有捏人和联机了？
+
+*****
+
+####  xzzfft  
+##### 354#       发表于 2023-12-8 14:20
+
+相比最初的pv开放世界改箱庭了？
+
+*****
+
+####  ckseng  
+##### 355#       发表于 2023-12-8 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63262496&amp;ptid=2092342" target="_blank">ac死或生 发表于 2023-12-8 13:42</a>
+
+和龙信2同期发售怎么了？真当龙信是啥大作？</blockquote>
+现在卡粉都在用700w喷人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+也不去看看他们家龙信发售2年时是什么成绩
+
+
+*****
+
+####  葵  
+##### 356#       发表于 2023-12-8 14:26
+
+我觉得画面光影风格什么的还真是要索尼救一下，FS也是从血源跟索尼合作了以后画面才上了一个阶梯～<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 357#       发表于 2023-12-8 14:28
+
+KT 引擎的限制吧，UE 随便抄抄都比这个好
+
+*****
+
+####  izayoi39  
+##### 358#       发表于 2023-12-8 14:29
+
+看pv，主角大概是原创了一个松阳的学生，至于新选组的剧情肯定有，毕竟那么大一个坂本龙马在那儿立着
+
+*****
+
+####  银色天空  
+##### 359#       发表于 2023-12-8 14:30
+
+后发定档同期，应该是很有自信爆杀龙信2了
+
+*****
+
+####  ac死或生  
+##### 360#       发表于 2023-12-8 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63262974&amp;ptid=2092342" target="_blank">izayoi39 发表于 2023-12-8 14:29</a>
+
+看pv，主角大概是原创了一个松阳的学生，至于新选组的剧情肯定有，毕竟那么大一个坂本龙马在那儿立着 ...</blockquote>
+那新选组估计是反派了吧
+
+
+*****
+
+####  ナルバレック  
+##### 361#       发表于 2023-12-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63262873&amp;ptid=2092342" target="_blank">xzzfft 发表于 2023-12-8 14:20</a>
+
+相比最初的pv开放世界改箱庭了？</blockquote>
+就是开放世界啊，上次文案还展现过开放世界地图选项来着
+
+*****
+
+####  汪达  
+##### 362#       发表于 2023-12-8 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63262950&amp;ptid=2092342" target="_blank">葵 发表于 2023-12-8 14:26</a>
+
+我觉得画面光影风格什么的还真是要索尼救一下，FS也是从血源跟索尼合作了以后画面才上了一个阶梯～ ...</blockquote>
+SCEJ：我都不知道原来我这么牛比
+
+*****
+
+####  byisme001  
+##### 363#       发表于 2023-12-8 14:32
+
+那看宣传上索尼会不会帮忙打压龙信了
+
+*****
+
+####  廖化  
+##### 364#       发表于 2023-12-8 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63262868&amp;ptid=2092342" target="_blank">BadYanL 发表于 2023-12-8 14:20</a>
+
+看起来是双主角，应该没有捏人和联机了？</blockquote>
+没有捏人还是有点可惜……不想看男人屁股，明明光荣做妹子更行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 365#       发表于 2023-12-8 14:34
+
+光影这种只能指望下一个时代的光追了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+上次看好像索尼地平线2也就3个搞灯光的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clover293  
+##### 366#       发表于 2023-12-8 14:36
+
+我个人觉得其实题材选的一般，纯砍人其实蛮无聊的，做不了中大型的boss战只能搞对人战总感觉会少点东西
+
+*****
+
+####  ナルバレック  
+##### 367#       发表于 2023-12-8 14:44
+
+预购任何版本，以提前解锁伊贺忍者的武士刀和盔甲套装以及 4 种战斗风格（隼流太刀/薙刀，仁王流太刀，爱洲影流太刀）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">钓忍龙粉丝的伎俩吗？
+
+
+*****
+
+####  karastar  
+##### 368#       发表于 2023-12-8 14:45
+
+龙哥虽然失业连拳都没得打，但是卖卖周边生活还是滋润的，也没有那么多打打杀杀
+
+*****
+
+####  BadYanL  
+##### 369#       发表于 2023-12-8 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63263076&amp;ptid=2092342" target="_blank">clover293 发表于 2023-12-8 14:36</a>
+
+我个人觉得其实题材选的一般，纯砍人其实蛮无聊的，做不了中大型的boss战只能搞对人战总感觉会少点东西 ...</blockquote>
+没妖魔鬼怪确实差点意思，不过仁王系列最好玩的还是人形boss，这点还是可以放心的。
+
+*****
+
+####  ybfelix  
+##### 370#       发表于 2023-12-8 14:49
+
+无双也没这么黑啊。到底是哪代带起来的，总不能是忍龙吧
+
+*****
+
+####  被雨困住的城市  
+##### 371#       发表于 2023-12-8 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63259343&amp;ptid=2092342" target="_blank">byisme001 发表于 2023-12-8 10:24</a>
+看都是打人，没有妖怪</blockquote>
+好，那应该就不会钻下水道了吧
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  smdzh2  
+##### 372#       发表于 2023-12-8 14:56
+
+不好说哦，屎男龙之进客串可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  萌萌地镜头  
+##### 373#       发表于 2023-12-8 15:08
+
+投降投降，忍组哪来的自信
+
+*****
+
+####  黑修士  
+##### 374#       发表于 2023-12-8 15:10
+
+看了下预购的赠品和价格，只能说粉丝的钱真好赚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nage560  
+##### 375#       发表于 2023-12-8 15:12
+
+看了最新预告发现更像仁王换皮啊，第一个预告明明很像侍道来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yeelolo  
+##### 376#       发表于 2023-12-8 15:15
+
+仁王2确实还是人形boss比较有意思，大型怪我都是找机会要么部位破坏要么等妖反，人形怪我还能打压制
+
+*****
+
+####  性兽阿怪  
+##### 377#       发表于 2023-12-8 15:50
+
+很多开放世界游戏的缺点不就是战斗无聊么，看看这次浪人能不能解决这个痛点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stair楼梯  
+##### 378#       发表于 2023-12-8 16:22
+
+新pv观感确实不如卧龙，只能说一句相信安田了
+
+
+*****
+
+####  BadYanL  
+##### 379#       发表于 2023-12-8 16:40
+
+看了一下商店页面，有联机标和需PS+的说明，应该还是能联机？
+
+开放世界怎么联有点好奇。
+
+
+*****
+
+####  sandro  
+##### 380#       发表于 2023-12-8 17:10
+
+脱光的游戏肯定先质疑再质疑
+
+
+*****
+
+####  宛若青空  
+##### 381#       发表于 2023-12-8 17:14
+
+忍者组的场景美术审美真的很喜欢这一套吗，要是能对马岛的美术+忍者组的战斗就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woshenc  
+##### 382#       发表于 2023-12-8 17:21
+
+没想到真的还在用仁王引擎，马上2024年了啊！
+
+
+*****
+
+####  bwsusaga  
+##### 383#       发表于 2023-12-8 17:26
+
+这个时间点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+就是要干死龙信2口牙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  廖化  
+##### 384#       发表于 2023-12-8 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63264679&amp;ptid=2092342" target="_blank">bwsusaga 发表于 2023-12-8 17:26</a>
+
+这个时间点
+
+就是要干死龙信2口牙</blockquote>
+我信了，500W大作光荣冲甲鸟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  你好s1  
+##### 385#       发表于 2023-12-8 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63263242&amp;ptid=2092342" target="_blank">ybfelix 发表于 2023-12-8 14:49</a>
+
+无双也没这么黑啊。到底是哪代带起来的，总不能是忍龙吧</blockquote>
+
+   无双真的很黑，最近玩了会三国无双3和三国无双4，还有三国无双7
+
+  都黑
+
+   想了一下玩的最多的无双大蛇2也非常的黑
+
+
+*****
+
+####  zqqwe  
+##### 386#       发表于 2023-12-8 18:22
+
+特典卖的隼流是“战斗风格”还真搞侍道啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 387#       发表于 2023-12-8 18:41
+
+还行吧。感觉可以试试。不过我应该是先考虑龙信2。
+
+*****
+
+####  Booorunestud  
+##### 388#       发表于 2023-12-8 18:41
+
+其实这个战斗风格是什么意思，看这一送送四个那起码本体得有十几个吧
+同武器下的不同模组这样？
+
+
+*****
+
+####  zqqwe  
+##### 389#       发表于 2023-12-8 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63265358&amp;ptid=2092342" target="_blank">Booorunestud 发表于 2023-12-8 18:41</a>
+其实这个战斗风格是什么意思，看这一送送四个那起码本体得有十几个吧
+同武器下的不同模组这样？ ...</blockquote>
+可以参考侍道或者剑豪系列那种同武器下多个流派切换招式模组，如果做灵活点就是各流派在不同段位或按键的招式可以混搭
+
+
+*****
+
+####  bwsusaga  
+##### 390#       发表于 2023-12-8 19:23
+
+武器就太刀打刀，估计做不了像剑豪那么丰富的幕末各种流派剑术派生，大概率最后打起来还是某大招复读<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  advane  
+##### 391#       发表于 2023-12-8 19:34
+
+这都几作了，忍组的审美真的没救了，隔壁欧米茄组的狂野之心看起来可比这舒服多了
+
+*****
+
+####  yt5wt2c  
+##### 392#       发表于 2023-12-8 19:36
+
+看了眼好像能切换角色，但是看不到一个女的，光荣你在搞毛啊
+
+*****
+
+####  Nosgoth  
+##### 393#       发表于 2023-12-8 19:38
+
+跟龙信2一天，还PS5独占，我等PC版再说。
+
+
+*****
+
+####  ちにそら  
+##### 394#       发表于 2023-12-8 19:47
+
+已经想笑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+493b1f6433a6e6fc11711e0ae4fcba4e38012022.jpg
+(80.3 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 19:47 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/194704txhx41r2sq7z4xxq.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  性兽阿怪  
+##### 395#       发表于 2023-12-8 19:58
+
+仁王卧龙都有demo，浪人也整一个好不好<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 396#       发表于 2023-12-8 20:10
+
+额，这玩意首发竟是ps独占，那我直说了，看着就像低配粗糙的对马鬼+忍者组的动作系统
+
+
+*****
+
+####  格林达姆  
+##### 397#       发表于 2023-12-8 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还是这样又土又辣眼睛
+
+
+*****
+
+####  医生狼多  
+##### 398#       发表于 2023-12-8 21:16
+
+忍组画面不单是黑的问题吧，是特喜欢黑红，或者一片白，都是极端瞎眼的场景
+
+*****
+
+####  isa2456  
+##### 399#       发表于 2023-12-8 21:20
+
+感觉就把仁王3将妖怪去掉换成开放世界那样，我还想会是侍道那样子呢，能不能赶紧做卧龙2
+
+
+*****
+
+####  Piano-Forest  
+##### 400#         楼主| 发表于 2023-12-8 21:48
+
+预购12月14日开启
+<img src="https://p.sda1.dev/14/ca4c3b06de930b10ed36e7b24dc1343b/6b03f0e6gy1hkmg2n6tftj21o01o0hdt.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/409b7e78d5c9f6b73eb18bdbf89ebb9c/6b03f0e6gy1hkmg2o5k8qj21o01o0kjl.jpg" referrerpolicy="no-referrer">
+
+自去年9月正式公开后，本作获得玩家的广大回响，成了我们倾注全力开发游戏的动力。作为一款游戏，《浪人崛起》同时兼具Koei Tecmo招牌的历史题材，以及Team NINJA独有的动作和战斗模式两项特色。这是我们迄今为止开发过最大规模的游戏。在开发过程中，我们与SIE团队并肩合作，联手打造出能让玩家在德川幕府末期，完全化身为浪人的游戏体验。
+
+19世纪末的日本，以德川幕府的殒落而为人所知，这是一个高压统治且充满动乱的时代。在这个时期可见坂本龙马和吉田松阴等革新者努力追求国家现代化。本作的浪人主角将以各种不同方式与这些角色们（其中有几位出现于实机游玩影片）的命运紧密相连。您的选择将左右主角与故事角色及他们所属的派系结成同盟或发生冲突。
+
+运用马匹和滑翔翼探索日本江户时代末期的广阔世界，并使用多种武器和装备迎战敌人，像是刀剑和长枪等近战武器，以及枪炮和投掷武器等远距离武器。游戏系统也具备钩绳装置和潜行战术，您可以期待实机游玩影片中所呈现的多样化且高自由度的游戏体验。
+
+*****
+
+####  Dorohedoro  
+##### 401#       发表于 2023-12-8 21:52
+
+其实脱裤魔现在的美术水平已经比ps3时代强很多了，虽然还是比不上卡普空，忍龙的美术才是一泡污
+
+
+*****
+
+####  zqqwe  
+##### 402#       发表于 2023-12-8 22:08
+
+没有季票感觉就没必要买豪华版了
+
+
+*****
+
+####  popchong  
+##### 403#       发表于 2023-12-8 22:18
+
+这特典装备土的像育碧
+
+
+*****
+
+####  1a不解释  
+##### 404#       发表于 2023-12-8 23:23
+
+是不是因为瞎眼光少了很多，反而凸显出材质的辣鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  captoon  
+##### 405#       发表于 2023-12-8 23:30
+
+这豪华版送的，明示主角一开始是支持幕府的？
+
+
+*****
+
+####  ckseng  
+##### 406#       发表于 2023-12-8 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63263076&amp;ptid=2092342" target="_blank">clover293 发表于 2023-12-8 14:36</a>
+
+我个人觉得其实题材选的一般，纯砍人其实蛮无聊的，做不了中大型的boss战只能搞对人战总感觉会少点东西 ...</blockquote>
+你说的中大型怪是忍者组几十年来都做不好还特别爱做的部分吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  emmerMK2  
+##### 407#       发表于 2023-12-8 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 好土啊
+
+
+*****
+
+####  panzerkamf  
+##### 408#       发表于 2023-12-9 01:08
+
+赶紧爆死滚回来重启doa和忍龙<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yeelolo  
+##### 409#       发表于 2023-12-9 01:11
+
+不会真的没有妹子角色玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3370, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Ashice  
+##### 410#       发表于 2023-12-9 01:14
+
+仁王去掉妖怪敌人真不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  nma  
+##### 411#       发表于 2023-12-9 01:45
+
+还以为是新人练手赚独占费的摸鱼作，结果是来真的啊
+
+
+*****
+
+####  Dorohedoro  
+##### 412#       发表于 2023-12-9 09:28
+
+<blockquote>panzerkamf 发表于 2023-12-9 01:08
+赶紧爆死滚回来重启doa和忍龙
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+仁王销量都有两百万，这个销量再爆死也不至于低过仁王，跑回去做死或生那种50万不到的卖肉垃圾？
+
+
+*****
+
+####  izayoi39  
+##### 413#       发表于 2023-12-9 12:09
+
+主角是有一男一女双人，具体可以去看日版pv，日版pv的旁白是角色配音的，从开头开始大概是吉田松阴，女主角，版本龙马和桂小太郎。
+
+
+*****
+
+####  BadYanL  
+##### 414#       发表于 2023-12-9 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63272035&amp;ptid=2092342" target="_blank">izayoi39 发表于 2023-12-9 12:09</a>
+
+主角是有一男一女双人，具体可以去看日版pv，日版pv的旁白是角色配音的，从开头开始大概是吉田松阴，女主角 ...</blockquote>
+回去看了一下，确实好像在说兄妹两人分开了。
+
+<img src="https://img.saraba1st.com/forum/202312/09/124357x7nye979bze999wy.png" referrerpolicy="no-referrer">
+
+<strong>image_2023-12-09_124356675.png</strong> (32.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-9 12:43 上传
+
+看这一幕感觉还是有捏人！
+
+
+*****
+
+####  廖化  
+##### 415#       发表于 2023-12-9 14:25
+
+P5独占？？？暗荣吃屎吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dorohedoro  
+##### 416#       发表于 2023-12-9 14:56
+
+看预告又发现了一个细节，战斗中两个角色一个拿长枪挡掉敌人攻击后，视角切换到了另一个角色上，用长枪攻击，难道这游戏还能切换控制角色
+
+
+*****
+
+####  stair楼梯  
+##### 417#       发表于 2023-12-9 16:15
+
+这预告其实还有雪景，别的不说如果是开放世界真做了四季的场景工作量也确实挺大的
+
+
+*****
+
+####  慕容断月  
+##### 418#       发表于 2023-12-9 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63273111&amp;ptid=2092342" target="_blank">廖化 发表于 2023-12-9 14:25</a>
+P5独占？？？暗荣吃屎吧</blockquote>
+可能有件事你忘了，仁王也是ps4独占的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+至今也是哦，完全版另算
+
+*****
+
+####  廖化  
+##### 419#       发表于 2023-12-9 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63274038&amp;ptid=2092342" target="_blank">慕容断月 发表于 2023-12-9 16:36</a>
+
+可能有件事你忘了，仁王也是ps4独占的
+
+至今也是哦，完全版另算</blockquote>
+但是我有P4<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stair楼梯  
+##### 420#       发表于 2023-12-9 16:58
+
+这游戏阿索技术支持同时也是为了推广ps5，那能咋办呢。。。。
+
+
+*****
+
+####  忧郁  
+##### 421#       发表于 2023-12-9 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63273111&amp;ptid=2092342" target="_blank">廖化 发表于 2023-12-9 14:25</a>
+P5独占？？？暗荣吃屎吧</blockquote>
+这游戏发行都是阿索发行，光荣：我就打个工
+
+*****
+
+####  海豹墨鱼卷  
+##### 422#       发表于 2023-12-9 17:01
+
+战斗风格大概是locomotion动画资源替换和部分技能动画替换。
+
+
+*****
+
+####  Leliel  
+##### 423#       发表于 2023-12-9 17:11
+
+这熟悉的动作模组，是开放世界仁王
+
+
+*****
+
+####  stair楼梯  
+##### 424#       发表于 2023-12-9 17:28
+
+老师说游戏里河上彦斋如果是请砂糖来当脸模，那宣传效果确实有点爆炸了
+
+
+*****
+
+####  廖化  
+##### 425#       发表于 2023-12-9 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63274498&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2023-12-9 17:28</a>
+
+老师说游戏里河上彦斋如果是请砂糖来当脸模，那宣传效果确实有点爆炸了</blockquote>
+不太可能吧，光荣哪来这么多预算……（不过如果是真的那确实炸裂啊
+
+
+*****
+
+####  慕容断月  
+##### 426#       发表于 2023-12-9 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63263076&amp;ptid=2092342" target="_blank">clover293 发表于 2023-12-8 14:36</a>
+
+我个人觉得其实题材选的一般，纯砍人其实蛮无聊的，做不了中大型的boss战只能搞对人战总感觉会少点东西 ...</blockquote>
+你是不是忘记了忍者组有个游戏叫忍者外传？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+忍龙大多数敌人可都是人形，瘦死的骆驼比马大，唯独人形敌人是忍者组最不需要担心的部分
+
