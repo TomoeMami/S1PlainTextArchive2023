@@ -2117,3 +2117,18 @@ MLTD公开发了以下两份「资料」：
 志保新ssr卡面这个胸，这就是14岁b83的实力吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/14/22851838709cf75c73b2cc575c91fd87/CMP_20231112140810337.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  BQlin  
+##### 7244#       发表于 2023-12-8 21:03
+
+哇，这新衣服，又缝又瞎眼
+
+
+*****
+
+####  BQlin  
+##### 7245#       发表于 2023-12-10 21:30
+
+这两天抽卡优惠加上必出ssr，收入不少石头，配合月底fes又能升几个五星了
+
