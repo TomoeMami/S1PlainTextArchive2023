@@ -7413,3 +7413,56 @@ AGA的抽卡特别搞人心态， 我已经被气得删两次游戏了 ：）
 
 还好现在是战女高可以让我回一下血
 
+*****
+
+####  江戸前ルナ  
+##### 825#         楼主| 发表于 2023-12-5 19:42
+
+大毛生日只有大头照了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  外骨骼  
+##### 826#       发表于 2023-12-6 18:33
+
+50票下去 司哥+1，再也没什么阿嘎了
+
+
+*****
+
+####  冰风血羽  
+##### 827#       发表于 2023-12-8 18:06
+
+3必得+50票，刚好五个池子各有一只，只能收手了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  不灭的旋律  
+##### 828#       发表于 2023-12-8 19:51
+
+看你游c103的内容12月底应该是兔子队的记者+主播FA给兔年收官。中旬如果有新池很可能是AN尾长。
+
+按惯例明年1月要到22日才有新池，京和安洁总该来了吧？反正俄乌已经过气了。明年龙年红花能不能史诗级强化一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 829#         楼主| 发表于 2023-12-10 12:26
+
+今天安里的第五年生日，竟然是岛田画图。岛田都隔了多久没画阿嘎了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 830#       发表于 2023-12-10 19:02
+
+上次是小裤裤联动都快半年了吧。
+
+图是画了但是就是不发推转推，我看是闹别扭了只剩下商业关系？柏木和岛田年的十几年交情怕不是纸糊的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
