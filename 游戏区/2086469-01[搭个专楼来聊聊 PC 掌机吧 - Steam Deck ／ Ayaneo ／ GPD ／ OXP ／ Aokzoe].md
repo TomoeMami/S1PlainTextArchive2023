@@ -4169,3 +4169,1120 @@ go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原�
 
 之前一直在我机器上缺失的 900p 突然就出现了，我也没升级固件什么的。
 
+*****
+
+####  navarra  
+##### 1000#       发表于 2023-12-7 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63250766&amp;ptid=2086469" target="_blank">dududa 发表于 2023-12-7 13:00</a>
+
+后盖硬安肯定能安上去，安完后你试过再把后盖打开吗，你要打开肯定就能发现2280固态的贴纸上有好几个凹陷， ...</blockquote>
+我拆都拆几个来回了，你在说什么啊...
+
+
+*****
+
+####  dududa  
+##### 1001#       发表于 2023-12-8 04:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63255388&amp;ptid=2086469" target="_blank">navarra 发表于 2023-12-07 21:01:41</a>
+我拆都拆几个来回了，你在说什么啊...</blockquote>是我不懂你在干什么。你说你拆开了很多回，那后盖顶不顶2280固态没点数吗。你可以说顶不顶的无所谓，能安上就行。这跟我没关系，我不关心你怎么安固态的。我是在回复另一个人装2280有什么问题，顶后盖就是问题。你觉得可以不打磨，顶不顶无所谓，你回复那个人去。你打没打磨跟我有什么关系
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bypass  
+##### 1002#         楼主| 发表于 2023-12-8 08:05
+
+ 本帖最后由 bypass 于 2023-12-8 08:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63257459&amp;ptid=2086469" target="_blank">dududa 发表于 2023-12-8 04:51</a>
+
+是我不懂你在干什么。你说你拆开了很多回，那后盖顶不顶2280固态没点数吗。你可以说顶不顶的无所谓，能安上 ...</blockquote>
+两位朋友都是出于好心，不用有矛盾哈。感谢你们让我知道还可以安装 2280 哈，我打算去研究一下。
+
+
+*****
+
+####  bypass  
+##### 1003#         楼主| 发表于 2023-12-8 20:39
+
+ROG Ally 又更新了 335 BIOS：
+ <blockquote>ROG ALLY - Latest Update 2023/12/08 BIOS 335 on 12/8 through Armoury Crate SE · Bugfix: Fixed a bug in BIOS 330 where unexpected throttling occurred.</blockquote>
+
+
+*****
+
+####  muyefytte  
+##### 1004#       发表于 2023-12-8 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63257459&amp;ptid=2086469" target="_blank">dududa 发表于 2023-12-8 04:51</a>
+
+是我不懂你在干什么。你说你拆开了很多回，那后盖顶不顶2280固态没点数吗。你可以说顶不顶的无所谓，能安上 ...</blockquote>
+如果是有些人顶后盖 有些人不顶，有可能是双面颗粒和单面颗粒的问题。
+
+*****
+
+####  weare17k  
+##### 1005#       发表于 2023-12-8 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63267135&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-08 20:39:17</a>
+ROG Ally 又更新了 335 BIOS：</blockquote>不错，不知道能不能解决我的问题
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  dududa  
+##### 1006#       发表于 2023-12-8 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63267568&amp;ptid=2086469" target="_blank">muyefytte 发表于 2023-12-08 21:00:48</a>
+如果是有些人顶后盖 有些人不顶，有可能是双面颗粒和单面颗粒的问题。</blockquote>其实跟单面双面没关系，单面顶，双面更顶，一般这种掌机也没人用双面颗粒的固态，太厚了。说白了，就是顶后盖但不影响硬安。贴吧有一堆安2280的例子，有不打磨后盖的，但没有说不顶的。2280顶后盖的幅度不大，不仔细看很难看出来，打磨也只是打磨一小截，嫌麻烦或者觉得看不出来无所谓而不打磨的人挺多的。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bypass  
+##### 1007#         楼主| 发表于 2023-12-10 11:14
+
+ 本帖最后由 bypass 于 2023-12-10 11:16 编辑 
+
+Skull &amp; Co 的 ROG Ally 保护壳到了，还是忍不住买了。先说第一时间感觉，后续再更新长期使用感想。
+
+1. 加重是明显的，但是因为握把手感的增强（中指不用卡在背键那边了，可以相对舒服抓着握把），似乎也能在一定程度弥补重量会带来的疲惫感。待长期使用。
+
+2. 能斜着立起来很有想法，虽然斜度不大，但比立着还是要好很多。
+
+3. 指纹识别影响很大，因为电源键被陷在壳里面了，没法指头平铺放在电源键上，我一直能正常识别的指纹在戴套之后无法识别了，重新录入了两次才正常。待长期观察。
+
+<img src="https://img.saraba1st.com/forum/202312/10/111122bif624og4082faom.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (387.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 11:11 上传
+
+<img src="https://img.saraba1st.com/forum/202312/10/111131unbwxxjknyg4njxb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (279.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 11:11 上传
+
+*****
+
+####  bypass  
+##### 1008#         楼主| 发表于 2023-12-10 11:20
+
+<img src="https://img.saraba1st.com/forum/202312/10/111909jmdo3nvsad32dlxm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (530.66 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 11:19 上传
+
+还是能放到我的卖萌包里面的。握把手感比之前 3D 打印件好太多了。
+
+
+*****
+
+####  trow233  
+##### 1009#       发表于 2023-12-10 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63280308&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-10 11:14</a>
+
+Skull &amp; Co 的 ROG Ally 保护壳到了，还是忍不住买了。先说第一时间感觉，后续再更新长期使用感想。
+
+1. 加 ...</blockquote>
+看着不错，不过原装包应该装不进去了吧
+
+散热会影响么
+
+
+*****
+
+####  wyy123  
+##### 1010#       发表于 2023-12-10 12:55
+
+明年要出的几个游戏，铁拳8和龙之信条2配置要求比较高，不知道rog能带动吗
+
+
+*****
+
+####  医生狼多  
+##### 1011#       发表于 2023-12-10 13:24
+
+amd这边下一代芯片是啥计划？我看要出的80都是换皮？
+
+*****
+
+####  trow233  
+##### 920#       发表于 2023-11-24 18:34
+
+话说，现阶段除了SD OLED版（那价格太美）
+
+首选是不是只有ROG Ally了
+
+联想那个拯救者掌机感觉差评如潮，而且也太大了吧……
+
+ROG Ally芯片是什么水平？看了下似乎是定制的，不是6800U、7840那些
+
+*****
+
+####  医生狼多  
+##### 921#       发表于 2023-11-24 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63130602&amp;ptid=2086469" target="_blank">trow233 发表于 2023-11-24 18:34</a>
+话说，现阶段除了SD OLED版（那价格太美）
+
+首选是不是只有ROG Ally了</blockquote>
+就是7840微调，没啥差别
+
+
+*****
+
+####  ChrisSnake  
+##### 922#       发表于 2023-11-24 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63130602&amp;ptid=2086469" target="_blank">trow233 发表于 2023-11-24 18:34</a>
+
+话说，现阶段除了SD OLED版（那价格太美）
+
+首选是不是只有ROG Ally了</blockquote>
+就是7840u 没什么特殊需求就ally吧
+
+
+*****
+
+####  ChrisSnake  
+##### 923#       发表于 2023-11-24 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62902834&amp;ptid=2086469" target="_blank">emcl 发表于 2023-11-1 13:11</a>
+
+go的屏幕和ally的屏幕对比，颜色，亮度，观感咋样？这个原生竖屏有什么不好么？ ...</blockquote>
+个别游戏分辨率会不适配 画面奇怪没饭玩
+
+
+*****
+
+####  bypass  
+##### 924#         楼主| 发表于 2023-11-24 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63130602&amp;ptid=2086469" target="_blank">trow233 发表于 2023-11-24 18:34</a>
+
+话说，现阶段除了SD OLED版（那价格太美）
+
+首选是不是只有ROG Ally了</blockquote>
+Ally 吧，除了续航烂一些，其他都比较平衡。
+
+
+*****
+
+####  yjmy705  
+##### 925#       发表于 2023-11-24 20:28
+
+<blockquote>trow233 发表于 2023-11-24 18:34
+话说，现阶段除了SD OLED版（那价格太美）
+
+首选是不是只有ROG Ally了
+</blockquote>
+Ally缺点就是续航了，原生横屏和vrr、freesync目前独一家，vrr不能提高帧数，但是能在40-50fps左右这个区间肉眼可见画面顺畅很多，减少帧数波动的顿卡感(相比无vrr的屏幕）
+
+
+*****
+
+####  shellte  
+##### 926#       发表于 2023-11-24 20:47
+
+其实Ally的续航问题还算好解决了，没什么是一块充电宝解决不了，要是还不行就两块。至少配置在线，屏幕在线，软件也还算过得去。对比SD的芯片已经玩不了明年的3A，GO的竖屏变成横屏，还有一众国内的小作坊掌机又热又贵，算是很均衡的搭配了。
+
+*****
+
+####  硫黄  
+##### 927#       发表于 2023-11-24 20:49
+
+张口就来玩不了明年3a了，希望明年3a真的都是您做的
+
+
+*****
+
+####  bypass  
+##### 928#         楼主| 发表于 2023-11-25 12:45
+
+这个设计廉价感好强……
+
+[https://www.bilibili.com/video/BV16C4y1P7U4](https://www.bilibili.com/video/BV16C4y1P7U4)
+
+*****
+
+####  bypass  
+##### 929#         楼主| 发表于 2023-11-25 12:45
+
+这个设计廉价感好强……
+
+[https://www.bilibili.com/video/BV16C4y1P7U4](https://www.bilibili.com/video/BV16C4y1P7U4)
+
+<img src="https://img.saraba1st.com/forum/202311/25/124449dpmvspg44m6m64tr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (236.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-25 12:44 上传
+
+
+*****
+
+####  clyde-wang  
+##### 930#       发表于 2023-11-25 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63131611&amp;ptid=2086469" target="_blank">硫黄 发表于 2023-11-24 20:49</a>
+张口就来玩不了明年3a了，希望明年3a真的都是您做的</blockquote>
+玩不了不至于，但是明年如果还像今年这样优化稀烂，体验肯定不太好。
+
+PC掌机不跟着配置换机器，那肯定没有1最好的体验的
+
+
+*****
+
+####  医生狼多  
+##### 931#       发表于 2023-11-25 15:11
+
+买了xreal2+beam，感觉几乎解决我的串流需求了
+之前一直处于小屏嫌小大屏嫌重的状态，现在用sd+xreal，或者平板+手柄+xreal串，舒服多了，而且视野感觉比雷鸟的好不少
+
+等后面q3到了再试试串流情况
+
+
+*****
+
+####  keytomylife  
+##### 932#       发表于 2023-11-25 15:59
+
+<img src="https://img.saraba1st.com/forum/202311/25/155901w9y0aiamzyuc1iiu.png" referrerpolicy="no-referrer">
+
+<strong>XP71A`1@1WO[YTP%F%FWG)A.png</strong> (99.23 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-25 15:59 上传
+
+联想这么快就做出来了
+
+
+*****
+
+####  bypass  
+##### 933#         楼主| 发表于 2023-11-25 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63136291&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-11-25 15:11</a>
+
+买了xreal2+beam，感觉几乎解决我的串流需求了
+
+之前一直处于小屏嫌小大屏嫌重的状态，现在用sd+xreal，或者 ...</blockquote>
+我用过一段时间 Xreal Air，感觉啥都好，就是夹头 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 头大人士真的是，戴啥都容易脑袋瓜疼。
+
+*****
+
+####  bypass  
+##### 934#         楼主| 发表于 2023-11-25 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63136532&amp;ptid=2086469" target="_blank">keytomylife 发表于 2023-11-25 15:59</a>
+
+联想这么快就做出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer"> 草，ROG 之前答应的锁核呢。
+
+
+*****
+
+####  leitingkai3  
+##### 935#       发表于 2023-11-27 15:38
+
+我的steamdeck丢车站了找不回来，准备买个rogally，看了好像没有官方渠道，现在什么渠道买比较好，还是等steamdeck oled价格压下来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  dududa  
+##### 936#       发表于 2023-11-27 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151929&amp;ptid=2086469" target="_blank">leitingkai3 发表于 2023-11-27 15:38:55</a>
+我的steamdeck丢车站了找不回来，准备买个rogally，看了好像没有官方渠道，现在什么渠道买比较好，还是等st ...</blockquote>官方渠道不就是京东的rog官方旗舰店，在那买呗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bypass  
+##### 937#         楼主| 发表于 2023-11-27 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63151929&amp;ptid=2086469" target="_blank">leitingkai3 发表于 2023-11-27 15:38</a>
+
+我的steamdeck丢车站了找不回来，准备买个rogally，看了好像没有官方渠道，现在什么渠道买比较好，还是等st ...</blockquote>
+官方就京东吧，不知道双十二还会不会有打折。
+
+
+*****
+
+####  navarra  
+##### 938#       发表于 2023-11-29 11:47
+
+rog正在测试官方陀螺仪支持，很快就会上线
+
+—— 来自 samsung SM-X710, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  bypass  
+##### 939#         楼主| 发表于 2023-11-29 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63169165&amp;ptid=2086469" target="_blank">navarra 发表于 2023-11-29 11:47</a>
+
+rog正在测试官方陀螺仪支持，很快就会上线
+
+—— 来自 samsung SM-X710, Android 13上的 S1Next-鹅版 v2.5. ...</blockquote>
+Phawx 说 30 号上线，咱们这边应该是后天。
+
+<img src="https://img.saraba1st.com/forum/202311/29/115707lvxz7829toxo7vvz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (234.26 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 11:57 上传
+
+
+*****
+
+####  bypass  
+##### 940#         楼主| 发表于 2023-11-29 12:02
+
+可以一键开关 CPU Boost：
+
+<img src="https://img.saraba1st.com/forum/202311/29/115859w4akeqayqfeetzyc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 11:58 上传
+
+类 Steam Deck 的多层级监控界面。
+
+<img src="https://img.saraba1st.com/forum/202311/29/120016ot9ccc9cyt4vvtgh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 12:00 上传
+
+Extreme Standby Mode，这个我不确定是不是本来就有，待机更省电。
+
+<img src="https://img.saraba1st.com/forum/202311/29/120233imb4vzx4rjqxhq6q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.96 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-29 12:02 上传
+
+
+*****
+
+####  霖岚_  
+##### 941#       发表于 2023-11-29 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63136291&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-11-25 15:11</a>
+
+买了xreal2+beam，感觉几乎解决我的串流需求了
+
+之前一直处于小屏嫌小大屏嫌重的状态，现在用sd+xreal，或者 ...</blockquote>
+能问下现在beam的体验如何吗，之前看[其他谭友的使用反馈](https://bbs.saraba1st.com/2b/thread-2142655-1-1.html)好像评价都不怎样，现在有没有版本更新后有所改善的？
+
+*****
+
+####  ultraseven  
+##### 942#       发表于 2023-11-29 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63169354&amp;ptid=2086469" target="_blank">bypass 发表于 2023-11-29 12:02</a>
+
+可以一键开关 CPU Boost：</blockquote>
+请问这是升级奥创中心就有？还是要更新bios。一直停在317<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 943#         楼主| 发表于 2023-11-29 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170321&amp;ptid=2086469" target="_blank">ultraseven 发表于 2023-11-29 13:41</a>
+
+请问这是升级奥创中心就有？还是要更新bios。一直停在317</blockquote>
+目前未知，等等看两天后的更新吧。
+
+*****
+
+####  navarra  
+##### 944#       发表于 2023-11-29 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170321&amp;ptid=2086469" target="_blank">ultraseven 发表于 2023-11-29 13:41</a>
+
+请问这是升级奥创中心就有？还是要更新bios。一直停在317</blockquote>
+先把bios升了吧，提升很多的
+
+
+*****
+
+####  ultraseven  
+##### 945#       发表于 2023-11-29 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170334&amp;ptid=2086469" target="_blank">navarra 发表于 2023-11-29 13:43</a>
+
+先把bios升了吧，提升很多的</blockquote>
+直接333吗？现在版本风扇噪声控制怎么样。目前用着还满意就一直没升
+
+
+*****
+
+####  医生狼多  
+##### 946#       发表于 2023-11-29 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170294&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2023-11-29 13:39</a>
+能问下现在beam的体验如何吗，之前看其他谭友的使用反馈好像评价都不怎样，现在有没有版本更新后有所改善 ...</blockquote>
+我不知道坛友当时是什么版本，说下我的体验吧
+ar眼镜我之前试过雷鸟的air，然后头显试过arpara和goovis，都有一个问题就是没有定位功能，屏幕大小和远近固定，然后随着头部抖动后就会摆动
+用上beam后就可以调整大小，或者固定在空间中了，感觉很方便；这样掌机就不用捧起来or低着头去看屏幕，直接躺床上或倚在靠枕上，掌机放在肚子上，或者直接拿手柄玩
+问题有两个，一个是ar眼镜视场角都不大，不过我对比了下拿在手里的距离其实比sd的八寸还要略大一点；这里的问题主要是眼镜镜片位置导致的遮挡，你的视野上面一点会有黑压压的感觉
+另外是坛友说的beam续航问题，大概满电用完1.5h多一点；噪音我倒觉得还好，完全被游戏本身声音盖住
+另外不用beam直接插眼镜，我感觉xreal的视角和抖动问题都优于雷鸟，有时候懒得拿beam直接插sd游玩也可以适应
+
+
+*****
+
+####  霖岚_  
+##### 947#       发表于 2023-11-29 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63171176&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-11-29 15:16</a>
+
+我不知道坛友当时是什么版本，说下我的体验吧
+
+ar眼镜我之前试过雷鸟的air，然后头显试过arpara和goovis， ...</blockquote>
+我手上有副nreal air（还没改名xreal前闲鱼收的），之前拿来连sd打gal体感也不错，现在也经常在用，只是最近是觉得beam能放大屏幕+3dof悬停越看越有意思也打算收个二手，但想起之前看那贴里的谭友反应续航不行/噪音发热问题严重/内置功能少这样，就想了解几个月更新后有没有改善这些问题，就我个人可能比较在意的是发热温度高了会自动关机，不过也看到有人买散热背夹这种感觉有点怪怪的解决方法的……
+
+
+*****
+
+####  医生狼多  
+##### 948#       发表于 2023-11-29 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63171532&amp;ptid=2086469" target="_blank">霖岚_ 发表于 2023-11-29 15:52</a>
+我手上有副nreal air（还没改名xreal前闲鱼收的），之前拿来连sd打gal体感也不错，现在也经常在用，只是 ...</blockquote>
+反馈这几个问题应该都是没改善的……我个人能接受就是了
+另外如果你是安卓串流玩的话，可以下他们的官方app，手机也可以调整屏幕大小和悬停，看看效果再决定要不要买
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 霖岚_| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  navarra  
+##### 949#       发表于 2023-11-29 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63170489&amp;ptid=2086469" target="_blank">ultraseven 发表于 2023-11-29 13:58</a>
+
+直接333吗？现在版本风扇噪声控制怎么样。目前用着还满意就一直没升</blockquote>
+高负载噪音感觉还行，而且对tf卡那块也有一定效果
+
+
+*****
+
+####  bypass  
+##### 950#         楼主| 发表于 2023-11-30 10:11
+
+ROG Ally 的 Z1（不带 E）版本 BestBuy 直降 $200 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/30/101114m71rq67p2l691027.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (191.22 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 10:11 上传
+
+
+*****
+
+####  bypass  
+##### 951#         楼主| 发表于 2023-11-30 10:14
+
+ROG Ally 奥创月底的更新：[https://rogallylife.com/2023/11/ ... pdate-gyro-support/](https://rogallylife.com/2023/11/29/armoury-crate-se-update-gyro-support/)
+
+补充两个上面没提到的：
+
+<img src="https://img.saraba1st.com/forum/202311/30/101429ow02q24qk4wwewlq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 10:14 上传
+
+<img src="https://img.saraba1st.com/forum/202311/30/101434yayazfauuwczcs3a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (113.29 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-30 10:14 上传
+
+
+*****
+
+####  trow233  
+##### 952#       发表于 2023-11-30 13:34
+
+ROG前端看来强了不少啊
+
+联想的是不是不用指望了
+
+
+*****
+
+####  bypass  
+##### 953#         楼主| 发表于 2023-11-30 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63180990&amp;ptid=2086469" target="_blank">trow233 发表于 2023-11-30 13:34</a>
+
+ROG前端看来强了不少啊
+
+联想的是不是不用指望了</blockquote>
+联想我感觉更新还是挺积极的，但是底子不好，想弄好得需要很大的精力，不知道他们的销量能否支持他们这么做。
+
+
+*****
+
+####  dududa  
+##### 954#       发表于 2023-11-30 15:06
+
+我大致看了下，意思是奥创要集成amd控制面板里的那些选项按钮呗。咋说呢，咋一听感觉挺不错，但仔细一想调个接口的事。
+我更希望rog那边能憋一憋，把关核给憋出来。拯救者现在这么烂的前端和bios都能整出来关核，你rog发售好半年了整不出来？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  hockfly  
+##### 955#       发表于 2023-11-30 17:19
+
+Rog的续航确实不行，我玩如龙7外传，充满电也就能玩90分钟
+
+
+*****
+
+####  bypass  
+##### 956#         楼主| 发表于 2023-11-30 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63183659&amp;ptid=2086469" target="_blank">hockfly 发表于 2023-11-30 17:19</a>
+
+Rog的续航确实不行，我玩如龙7外传，充满电也就能玩90分钟</blockquote>
+续航是属于超烂那种，第一次调成 25w，剩余时间 50 分钟，看笑了 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  trow233  
+##### 957#       发表于 2023-11-30 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63183788&amp;ptid=2086469" target="_blank">bypass 发表于 2023-11-30 17:30</a>
+
+续航是属于超烂那种，第一次调成 25w，剩余时间 50 分钟，看笑了</blockquote>
+不知道前端更新后，关闭睿频啥的会不会好一些
+
+不过在前端更新前，大家就在用体感助手来做到这一步了吧
+
+*****
+
+####  bypass  
+##### 958#         楼主| 发表于 2023-11-30 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63183828&amp;ptid=2086469" target="_blank">trow233 发表于 2023-11-30 17:34</a>
+
+不知道前端更新后，关闭睿频啥的会不会好一些
+
+不过在前端更新前，大家就在用体感助手来做到这一步了吧 ...</blockquote>
+我晚上打算试试，最近在玩日落黄昏时，看看关闭睿频之后续航有没有提升。
+
+
+*****
+
+####  shellte  
+##### 959#       发表于 2023-11-30 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63183788&amp;ptid=2086469" target="_blank">bypass 发表于 2023-11-30 17:30</a>
+
+续航是属于超烂那种，第一次调成 25w，剩余时间 50 分钟，看笑了</blockquote>
+乐观点看，除了续航外，Rog Ally已经没有大问题了，连烧SD卡的问题在返厂后也修好了。而续航的问题也不是不能解决，外加充电宝，一块不行就两块，我的100W充电宝能在Turbo模式撑将近2个小时，加上内置的电池，3个小时的游玩时间其实也够用了，基本上也持平SteamDeck OLED的15W游戏时间了。
+
+
+*****
+
+####  ultraseven  
+##### 960#       发表于 2023-11-30 21:26
+
+插电玩毫无续航需求<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ultraseven  
+##### 961#       发表于 2023-11-30 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63178450&amp;ptid=2086469" target="_blank">bypass 发表于 2023-11-30 10:11</a>
+
+ROG Ally 的 Z1（不带 E）版本 BestBuy 直降 $200</blockquote>
+看来卖得不好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Z1E都几千评论了，这个才几十。
+
+
+*****
+
+####  bypass  
+##### 962#         楼主| 发表于 2023-12-1 08:16
+
+<img src="https://img.saraba1st.com/forum/202312/01/081533cwn22d2bzmjsgsp0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-1 08:15 上传
+
+Skull &amp; Co 家给 Ally 做的保护套有用过的坛友吗 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 我其实不喜欢戴套，就想要一个舒服一点的握把，不过看这个重量 110g…以及评论区有人说会挡肩键，有点下不去手。
+
+
+*****
+
+####  dududa  
+##### 963#       发表于 2023-12-1 09:32
+
+我想问一下大家，rog前端的那个锁帧是怎么用的，我感觉锁不上啊，我现在用的是体感助手来锁帧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  zfly  
+##### 964#       发表于 2023-12-1 09:42
+
+之前legion go 首发时随缘竟然买到了，bios进群的话用内测版功能更新的还是挺快的，现在基本上该有的都有了，但这个拉胯前端就紧急更新了一次不动弹了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bypass  
+##### 965#         楼主| 发表于 2023-12-1 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63188963&amp;ptid=2086469" target="_blank">dududa 发表于 2023-12-1 09:32</a>
+
+我想问一下大家，rog前端的那个锁帧是怎么用的，我感觉锁不上啊，我现在用的是体感助手来锁帧
+
+  -- 来自  ...</blockquote>
+有些能锁有些不能，讲究一个随缘，锁不了的我就上 RTSS。
+
+*****
+
+####  bypass  
+##### 966#         楼主| 发表于 2023-12-1 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63189088&amp;ptid=2086469" target="_blank">zfly 发表于 2023-12-1 09:42</a>
+
+之前legion go 首发时随缘竟然买到了，bios进群的话用内测版功能更新的还是挺快的，现在基本上该有的都有了 ...</blockquote>
+都加了什么新功能了呀 BIOS <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 我知道加了 ROG 难产半年的关核功能，还有其他的吗。
+
+
+*****
+
+####  zfly  
+##### 967#       发表于 2023-12-1 09:55
+
+ 本帖最后由 zfly 于 2023-12-1 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63189176&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-1 09:51</a>
+
+都加了什么新功能了呀 BIOS  我知道加了 ROG 难产半年的关核功能，还有其他的吗。 ...</blockquote>
+V27增加风扇曲线调整支持（调整界面位于Legion Space，还要等前端更新）；优化显存容量设置问题；增加STT开关（可以在插电下锁死功耗）；增加sPPT和fPPT设置支持（于Legion Space中可调整）；增强C口兼容性；解决插电下单核频率被锁；解决插电下GPU频率偏低；加上了TF读卡器的修复；v28显存设置加了auto，增加内存频率降低到6400的选项。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bypass| + 1|好评加鹅|
+
+查看全部评分
+
+
+*****
+
+####  bypass  
+##### 968#         楼主| 发表于 2023-12-1 10:55
+
+Ayaneo Slide 的开箱：[https://www.bilibili.com/video/BV1gC4y1A77U](https://www.bilibili.com/video/BV1gC4y1A77U)
+
+
+*****
+
+####  trow233  
+##### 969#       发表于 2023-12-1 16:53
+
+GPD WIN 也发布了GPD OS第二版
+
+支持6800U以上的机子，看着是对标STEAM OS的
+
+不知道效果如何
+
+
+*****
+
+####  ddddhunter  
+##### 970#       发表于 2023-12-1 17:09
+
+deck和ally我都有，我感觉就是你使用场景多是在外面玩的话就deck，多是床上或者工位这种插电场景就ally，这俩插电性能插得有点多，其他家都不太用考虑了，何况现在ally的价格在win掌机里算低的
+
+
+*****
+
+####  医生狼多  
+##### 971#       发表于 2023-12-1 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63194580&amp;ptid=2086469" target="_blank">trow233 发表于 2023-12-1 16:53</a>
+GPD WIN 也发布了GPD OS第二版
+
+支持6800U以上的机子，看着是对标STEAM OS的</blockquote>
+gpd这个前端都搞不定的还有os？有没有相关视频看看
+
+
+*****
+
+####  bypass  
+##### 972#         楼主| 发表于 2023-12-1 17:42
+
+话说，AYANEO OS 还活着吗 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不对，是真的有做出来东西过吗
+
+
+*****
+
+####  trow233  
+##### 973#       发表于 2023-12-1 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63195110&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-12-1 17:29</a>
+
+gpd这个前端都搞不定的还有os？有没有相关视频看看</blockquote>
+[https://mp.weixin.qq.com/s/cGB1Rq-0iJQkIPONOUmBEA](https://mp.weixin.qq.com/s/cGB1Rq-0iJQkIPONOUmBEA)
+
+我是有收到过推送
+
+不过6800U WINMAX2 有点懒得折腾了
+
+*****
+
+####  trow233  
+##### 974#       发表于 2023-12-1 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63190059&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-1 10:55</a>
+
+Ayaneo Slide 的开箱：https://www.bilibili.com/video/BV1gC4y1A77U</blockquote>
+Ayaneo Slide本来很感兴趣
+
+不过这屏幕也太小了……
+
+
+*****
+
+####  亦饮阑珊  
+##### 975#       发表于 2023-12-1 19:06
+
+win掌机的休眠总给人一种不靠谱的感觉，如果要开机进去还没点进游戏就不想玩了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫不萌  
+##### 976#       发表于 2023-12-1 21:40
+
+这 SD oled 效果是真不错，算得上第一次正经的玩 hdr 游戏了，只可惜新世代的游戏跑起来不怎么完美，老游戏又没 hdr<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  emcl  
+##### 977#       发表于 2023-12-1 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63189217&amp;ptid=2086469" target="_blank">zfly 发表于 2023-12-1 09:55</a>
+V27增加风扇曲线调整支持（调整界面位于Legion Space，还要等前端更新）；优化显存容量设置问题；增加STT ...</blockquote>
+
+请问 sppt 和 fppt 是干啥用的？能分享一下群号码么，官网只看到 26 的 bios
+
+
+*****
+
+####  Israfil  
+##### 978#       发表于 2023-12-2 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63189088&amp;ptid=2086469" target="_blank">zfly 发表于 2023-12-1 09:42</a>
+之前legion go 首发时随缘竟然买到了，bios进群的话用内测版功能更新的还是挺快的，现在基本上该有的都有了 ...</blockquote>
+今天，哦不昨天，前端终于又更新了。。。
+
+—— 来自 realme RMX3560, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  zfly  
+##### 979#       发表于 2023-12-2 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63198324&amp;ptid=2086469" target="_blank">emcl 发表于 2023-12-1 23:04</a>
+
+请问 sppt 和 fppt 是干啥用的？能分享一下群号码么，官网只看到 26 的 bios</blockquote>
+消息发你了
+
+
+*****
+
+####  plumlis  
+##### 980#       发表于 2023-12-3 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63195110&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-12-1 17:29</a>
+
+gpd这个前端都搞不定的还有os？有没有相关视频看看</blockquote>
+就是 manjaro 和 holoiso 的集合体，属于装了个 SteamOS 上去。
+
+然后装了几个 steamos 的插件支持了变相的功耗调整。
+
+居然恬不知耻的说 GPD OS ，笑死。
+
+
+*****
+
+####  trow233  
+##### 981#       发表于 2023-12-3 20:55
+
+所以ROG前端更新后，调整一下功耗和续航能提升多少？
+
+
+*****
+
+####  巨馍蘸酱  
+##### 982#       发表于 2023-12-4 03:07
+
+7840U的Ayaneo Air Plus还没消息吗？之前6800U版本出的时候不就说了要出7000系U的，怎么这么久还没动静，7840U的Air 1S都出了几个月了，再拖就明年了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  hockfly  
+##### 983#       发表于 2023-12-4 07:20
+
+<blockquote>bypass 发表于 2023-12-1 08:16
+Skull &amp; Co 家给 Ally 做的保护套有用过的坛友吗  我其实不喜欢戴套，就想要一个舒服一点的握把， ...</blockquote>
+Ally 已经偏重了，我基本上都是手拿着靠着一个平面上玩。如果完全靠手举起来玩，十几分钟以后手就酸了。所以最好不要再加重量
+
+
+*****
+
+####  bypass  
+##### 984#         楼主| 发表于 2023-12-4 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63215632&amp;ptid=2086469" target="_blank">hockfly 发表于 2023-12-4 07:20</a>
+
+Ally 已经偏重了，我基本上都是手拿着靠着一个平面上玩。如果完全靠手举起来玩，十几分钟以后手就酸了。 ...</blockquote>
+嗯最后还是没买，就这样简简单单朴朴素素用就挺好的了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  weare17k  
+##### 985#       发表于 2023-12-4 18:41
+
+rog把电源键设置成睡眠，之前待机再继续玩一直好好的，最近更新完后睡眠一定时间后再唤醒就自动重启了，之前不怎么会出现这种情况，有哪位有什么头猪吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  bypass  
+##### 986#         楼主| 发表于 2023-12-6 10:27
+
+[https://www.bilibili.com/video/BV1bb4y1L7JT](https://www.bilibili.com/video/BV1bb4y1L7JT)
+
+疯疯的 Ayaneo Slide 开箱。
+
+
+*****
+
+####  医生狼多  
+##### 987#       发表于 2023-12-6 10:43
+
+看着跟win4一样一个暖手问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  dududa  
+##### 988#       发表于 2023-12-6 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63222702&amp;ptid=2086469" target="_blank">weare17k 发表于 2023-12-04 18:41:37</a>
+rog把电源键设置成睡眠，之前待机再继续玩一直好好的，最近更新完后睡眠一定时间后再唤醒就自动重启了，之 ...</blockquote>是不是睡眠时间太长系统自动转休眠了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 989#       发表于 2023-12-6 13:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">问一哈rog掌机固态用2230和2280转接哪个好些
+
+*****
+
+####  bypass  
+##### 990#         楼主| 发表于 2023-12-6 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63222702&amp;ptid=2086469" target="_blank">weare17k 发表于 2023-12-4 18:41</a>
+
+rog把电源键设置成睡眠，之前待机再继续玩一直好好的，最近更新完后睡眠一定时间后再唤醒就自动重启了，之 ...</blockquote>
+试试奥创里面关掉 Extreme Standby Mode 呢？
+
+
+*****
+
+####  trow233  
+##### 991#       发表于 2023-12-7 00:24
+
+近期新出的壹号本飞行家F1也不错的样子
+
+最近WIN掌机真是百花齐放啊
+
+
+*****
+
+####  dududa  
+##### 992#       发表于 2023-12-7 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63240708&amp;ptid=2086469" target="_blank">桥洞底下盖小被 发表于 2023-12-06 13:35:57</a>
+问一哈rog掌机固态用2230和2280转接哪个好些</blockquote>看你有没有强迫症了。因为要用2280的话肯定是需要打磨一下后盖的，如果你是那种全原装主义者，整个机器改一点就难受的那种，那就老老实实用2230，不然肯定是2280好。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  weare17k  
+##### 993#       发表于 2023-12-7 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63240741&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-06 13:38:28</a>
+试试奥创里面关掉 Extreme Standby Mode 呢？</blockquote>这个关了，还是没法正常唤醒。
+
+顺便也问问其他朋友，没人遇到这种问题吗？你们的机器最近更新后睡眠以后唤醒都能正常继续玩，不用重新开机？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  bypass  
+##### 994#         楼主| 发表于 2023-12-7 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63249717&amp;ptid=2086469" target="_blank">weare17k 发表于 2023-12-7 11:22</a>
+
+这个关了，还是没法正常唤醒。
+
+顺便也问问其他朋友，没人遇到这种问题吗？你们的机器最近更新后睡眠以后唤 ...</blockquote>
+我是休眠，一直都是正常唤醒，不需要重启。
+
+*****
+
+####  weare17k  
+##### 995#       发表于 2023-12-7 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63249736&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-07 11:24:29</a>
+我是休眠，一直都是正常唤醒，不需要重启。</blockquote>电源键直接设置成休眠吗？那唤醒的时候电源长按还是按一下？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  bypass  
+##### 996#         楼主| 发表于 2023-12-7 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63249742&amp;ptid=2086469" target="_blank">weare17k 发表于 2023-12-7 11:25</a>
+
+电源键直接设置成休眠吗？那唤醒的时候电源长按还是按一下？
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+对，电源键设置成休眠，长按。
+
+*****
+
+####  weare17k  
+##### 997#       发表于 2023-12-7 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63249758&amp;ptid=2086469" target="_blank">bypass 发表于 2023-12-07 11:26:34</a>
+对，电源键设置成休眠，长按。</blockquote>谢谢，我再试试
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  navarra  
+##### 998#       发表于 2023-12-7 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63247066&amp;ptid=2086469" target="_blank">dududa 发表于 2023-12-7 00:57</a>
+看你有没有强迫症了。因为要用2280的话肯定是需要打磨一下后盖的，如果你是那种全原装主义者，整个机器改一 ...</blockquote>
+2280完全不需要打磨后盖……本人就是买了个转接板直接装上去屁问题没有
+
+—— 来自 samsung SM-S9180, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  dududa  
+##### 999#       发表于 2023-12-7 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63250678&amp;ptid=2086469" target="_blank">navarra 发表于 2023-12-07 12:49:30</a>
+2280完全不需要打磨后盖……本人就是买了个转接板直接装上去屁问题没有
+
+—— 来自 samsung SM-S9180, An ...</blockquote>后盖硬安肯定能安上去，安完后你试过再把后盖打开吗，你要打开肯定就能发现2280固态的贴纸上有好几个凹陷，说明后盖已经顶到固态了，都不谈散热啥的，就后盖长时间顶着固态能保证不出问题吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
