@@ -2770,3 +2770,321 @@ KMR估计真不懂为什么会被炎上吧，什么时候能见到KMR被CY踹了
 
 三剑二斧0凸盘比树枝盘火力方面提升有多大？
 
+*****
+
+####  kenqqex  
+##### 17508#       发表于 2023-12-11 11:21
+
+主角妈都出来了
+这巴哈指定的13岁感觉巴哈就是kmr一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Geyorkias  
+##### 17509#       发表于 2023-12-11 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你就说实装了抽不抽吧
+
+
+*****
+
+####  zhwpjy  
+##### 17510#       发表于 2023-12-11 11:49
+
+合理怀疑re里的白毛古兰是爸爸
+
+
+*****
+
+####  江戸前ルナ  
+##### 17511#       发表于 2023-12-11 13:10
+
+看到有讨论，跳舞狐的1可以奥义延长一直续，但是当技能冷却了再放无论续成多少T都会重新变回持续3T（所以FA建议关了自动开局手动开1），CY的程序员实在太厉害啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  phoenixxj  
+##### 17512#       发表于 2023-12-11 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63234921&amp;ptid=1158205" target="_blank">poor 发表于 2023-12-5 21:17</a>
+
+三剑二斧0凸盘比树枝盘火力方面提升有多大？</blockquote>
+关键是你可以1面甚至0面
+
+树枝必须双面
+
+这是最大的区别，现在火暴击盘都被红路单面暴揍的情况下，这已经不是火力的问题了。
+
+
+*****
+
+####  洛克萨斯  
+##### 17513#       发表于 2023-12-11 14:40
+
+..............那条啃苹果的龙居然xp是黑长直萝莉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zhwpjy  
+##### 17514#       发表于 2023-12-11 15:07
+
+ 本帖最后由 zhwpjy 于 2023-12-11 15:08 编辑 
+<blockquote>洛克萨斯 发表于 2023-12-11 14:40
+..............那条啃苹果的龙居然xp是黑长直萝莉</blockquote>
+是黑长卷 13岁loil 还好姬塔是金发 不然13岁碧哥把持不住咋办
+
+*****
+
+####  洛克萨斯  
+##### 17515#       发表于 2023-12-11 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63293788&amp;ptid=1158205" target="_blank">zhwpjy 发表于 2023-12-11 15:07</a>
+
+是黑长卷 13岁loil 还好姬塔是金发 不然13岁碧哥把持不住咋办</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">碧哥啃了那么久的苹果，终于暴露xp了，金发都得给你整成黑的
+
+
+*****
+
+####  poor  
+##### 17516#       发表于 2023-12-11 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63292816&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-12-11 13:32</a>
+关键是你可以1面甚至0面
+
+树枝必须双面
+
+这是最大的区别，现在火暴击盘都被红路单面暴揍的情况下，这已经不 ...</blockquote>
+但是血少啊……火力也不太行的话就不是很想弄了指把武器从礼物箱拿出来占5个格子
+
+
+*****
+
+####  洛克萨斯  
+##### 17517#       发表于 2023-12-11 16:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">骑空士群到处都是碧哥的梗图了，这下古兰姬塔爹也危险了，已知碧哥觉得13岁的巫女最好，那亲爹拐走亲妈的时间是啥时候呢，不能细想
+
+
+*****
+
+####  phoenixxj  
+##### 17518#       发表于 2023-12-11 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63294463&amp;ptid=1158205" target="_blank">poor 发表于 2023-12-11 16:10</a>
+
+但是血少啊……火力也不太行的话就不是很想弄了指把武器从礼物箱拿出来占5个格子 ...</blockquote>
+首先为啥现在200都是红路。双面反而并不是主流。
+
+如果我打200我肯定也是红路基老王不会走必爆的
+
+红路有50%hp的主招效果+buff回复，比直接10w血还要硬的多。（如果你可以q红路你可以砸，而且你可以基老王，不需要自己砸jgj，前提是你自己有红路）
+
+红路的属攻火力更强 还要buff的攻刃
+
+红路的功能性更强，他有净化。
+
+而火方用的是最菜的树枝暴击，需要摆4把才有相当于独立50的乘区，算下来相当菜。背水更是开局屁都没有的属性。这也就是火方攻刃ex都缺情况下打200应该会很慢很菜。
+
+而三剑二斧0凸盘，他首先ex的性价比就完爆暴击了。他还有21的上限和10的增伤。火力肯定是完爆垃圾4树枝的。剩下的强度我觉得应该看是否有双满破贤者，无氪盘这2把应该特别好用。然后还有无限剑可以用，无限剑单面应该是个很不错的填充手段。
+
+最后就是你关心的生存问题，这就要云了，我觉得红路比死肉树枝要强。
+
+
+*****
+
+####  poor  
+##### 17519#       发表于 2023-12-11 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63294699&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2023-12-11 16:27</a>
+首先为啥现在200都是红路。双面反而并不是主流。
+
+如果我打200我肯定也是红路基老王不会走必爆的
+
+红路有50 ...</blockquote>
+所以火力提升还是挺大的吧？我其实就想问这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过都0凸的话基老王也没用啊，我也没有无限剑，准备神灭湿婆刀凑合了，而且我也没红路保守估计下下次古战打到8亿的时候可以有
+
+
+*****
+
+####  zhwpjy  
+##### 17520#       发表于 2023-12-12 00:08
+
+主线看完了 音乐和配音还是高质量  这格兰塞法彻底重组了啊
+
+
+*****
+
+####  cenhr  
+##### 17521#       发表于 2023-12-12 00:11
+
+怎么感觉主线要烂尾了
+
+*****
+
+####  Niu  
+##### 17522#       发表于 2023-12-12 02:26
+
+我是看漏了什麼？？ 碧君的性癖怎麼了？？
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17523#       发表于 2023-12-12 06:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63300130&amp;ptid=1158205" target="_blank">Niu 发表于 2023-12-12 02:26</a>
+
+我是看漏了什麼？？ 碧君的性癖怎麼了？？</blockquote>
+VSR剧情 
+
+巴哈把古兰姬塔的妈妈（巴哈的巫女）拉到了VSR的世界线做事情
+
+然后妈妈显现的造型是13岁黑发
+
+13岁是因为巴哈觉得她这个年龄是力量和信仰最强大的 黑发是因为被巴哈影响染成了黑色
+
+四舍五入就是碧的性癖是13岁黑发妈妈
+
+
+*****
+
+####  jxzeroga0  
+##### 17524#       发表于 2023-12-12 08:59
+
+你游是时候出本世界设定解说了，平行世界的设定越来越复杂，光是剧情线就分成活动、主线、gbfvs、relink四条了
+
+
+*****
+
+####  洛克萨斯  
+##### 17525#       发表于 2023-12-12 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63299633&amp;ptid=1158205" target="_blank">cenhr 发表于 2023-12-12 00:11</a>
+
+怎么感觉主线要烂尾了</blockquote>
+给我一种cy很想完结掉然后出gbf2的感觉
+
+
+*****
+
+####  Niu  
+##### 17526#       发表于 2023-12-12 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63300278&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2023-12-11 14:18</a>
+
+VSR剧情 
+
+巴哈把古兰姬塔的妈妈（巴哈的巫女）拉到了VSR的世界线做事情
+
+然后妈妈显现的造型是13岁黑发</blockquote>
+能把老媽那事扯到性癖上的思考也太跳躍了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cenhr  
+##### 17527#       发表于 2023-12-12 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63301102&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2023-12-12 09:23</a>
+
+给我一种cy很想完结掉然后出gbf2的感觉</blockquote>
+大概会出完12生肖才收工吧
+
+*****
+
+####  欠陷制品  
+##### 17528#       发表于 2023-12-12 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁sv已经准备byd世界了，gbf啥时候啊
+
+
+*****
+
+####  Geyorkias  
+##### 17529#       发表于 2023-12-12 15:53
+
+GBF要是出2他还重构个锤子的代码，放着定式运营就能赚米的社内第二IP不干，砍了出新的那才是有病。
+
+
+*****
+
+####  windlikeman  
+##### 17530#       发表于 2023-12-12 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63303882&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2023-12-12 13:27</a>
+
+隔壁sv已经准备byd世界了，gbf啥时候啊</blockquote>
+worlds beyond不就是转世的副标题么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  windlikeman  
+##### 17531#       发表于 2023-12-12 16:14
+
+真王洗白 幽世变成boss
+
+这个转折点开始就加速主线收束了吧 大概第二部结束第三部开始的时候
+
+平行世界真的烂活......
+
+
+*****
+
+####  洛克萨斯  
+##### 17532#       发表于 2023-12-12 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63305882&amp;ptid=1158205" target="_blank">windlikeman 发表于 2023-12-12 16:14</a>
+
+真王洗白 幽世变成boss
+
+这个转折点开始就加速主线收束了吧 大概第二部结束第三部开始的时候
+
+平行世界真的烂 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用来解释古兰姬塔的战斗力合理啊，上能和法桑打的有来有回，下能在小混混手上吃瘪，万物皆可用平行世界兜底，是其他的世界线
+
+
+*****
+
+####  windlikeman  
+##### 17533#       发表于 2023-12-12 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63306240&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2023-12-12 16:45</a>
+
+用来解释古兰姬塔的战斗力合理啊，上能和法桑打的有来有回，下能在小混混手上吃瘪，万物皆可用平 ...</blockquote>
+这个东西大家开开玩笑就好了
+
+特别是蓝皮这个...大家都知道是neta赛亚人就完事了...
+
+你一本正经的一定要像个科学合理的解释就很......不要怪大家拿放大镜看你有没有bug了...
+
+*****
+
+####  洛克萨斯  
+##### 17534#       发表于 2023-12-12 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63306522&amp;ptid=1158205" target="_blank">windlikeman 发表于 2023-12-12 17:05</a>
+
+这个东西大家开开玩笑就好了
+
+特别是蓝皮这个...大家都知道是neta赛亚人就完事了...
+
+你一本正经的一定要像 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">遇事不决平行世界本身就说明编剧菜...............
+
+
+*****
+
+####  Sylpheed  
+##### 17535#       发表于 2023-12-12 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63303882&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2023-12-12 13:27</a>
+隔壁sv已经准备byd世界了，gbf啥时候啊</blockquote>
+现在gbf不就是个byd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
