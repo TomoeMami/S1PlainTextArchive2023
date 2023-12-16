@@ -1,4 +1,4 @@
-
+﻿
 *****
 
 ####  Piano-Forest  
@@ -14972,4 +14972,973 @@ V转过来就是7，懂了！七爷1999，欧米茄档案是吧，期待下参�
 ##### 1405#       发表于 2023-11-15 00:50
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">斩不死虹蛇神我觉得挺合理的，人家本身其实算是守护灵被你强行拉起来肯定得生气吧
+
+
+*****
+
+####  hgcg-ix  
+##### 1406#       发表于 2023-11-18 08:15
+
+盖亚里的史汀格车？
+
+
+*****
+
+####  kal_008  
+##### 1407#       发表于 2023-11-18 10:11
+
+如果把巴赞甲当常规作战，海星算电子战，那么海星二代算生化战？
+
+
+*****
+
+####  novyDC  
+##### 1408#       发表于 2023-11-18 10:21
+
+阿斯加隆终于有个人头了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  kal_008  
+##### 1409#       发表于 2023-11-18 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63072493&amp;ptid=2104492" target="_blank">novyDC 发表于 2023-11-18 10:21</a>
+
+阿斯加隆终于有个人头了
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+人头？断尾！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nonodundun  
+##### 1410#       发表于 2023-11-18 10:41
+
+阿斯加隆终于站起来一次，然而新闻报道的还是队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Aeroblast  
+##### 1411#       发表于 2023-11-18 10:43
+
+想起来骸龙
+
+*****
+
+####  游蜓  
+##### 1412#       发表于 2023-11-18 10:48
+
+刚还想这集海星怎么死的这么草率，原来结尾还有后续
+
+贤人暴露自己是skard这段家人居然没给上压力，太难得了
+
+
+*****
+
+####  毛头子  
+##### 1413#       发表于 2023-11-18 11:33
+
+海星这什么排面啊，不仅能再登场碾压一波，还有幼年（？）形态，虽然从鳗鱼变成海星好像不太对劲。
+
+
+*****
+
+####  scorbian  
+##### 1414#       发表于 2023-11-18 12:10
+
+从预告来看就是研究所开了个次元裂缝而已？估计布莱泽就是偶然从裂缝里钻出来的，我还以为内情会更复杂点<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  scorbian  
+##### 1414#       发表于 2023-11-18 12:10
+
+从预告来看就是研究所开了个次元裂缝而已？估计布莱泽就是偶然从裂缝里钻出来的，我还以为内情会更复杂点<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Y.Cassano  
+##### 1415#       发表于 2023-11-18 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63072545&amp;ptid=2104492" target="_blank">kal_008 发表于 2023-11-18 10:27</a>
+
+人头？断尾！</blockquote>
+稀有素材掉率增加5%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Y.Cassano  
+##### 1415#       发表于 2023-11-18 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63072545&amp;ptid=2104492" target="_blank">kal_008 发表于 2023-11-18 10:27</a>
+
+人头？断尾！</blockquote>
+稀有素材掉率增加5%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  达达葱2  
+##### 1416#       发表于 2023-11-18 12:58
+
+还说你不是新一代盖亚
+
+
+*****
+
+####  达达葱2  
+##### 1416#       发表于 2023-11-18 12:58
+
+还说你不是新一代盖亚
+
+
+*****
+
+####  NZ-333  
+##### 1417#       发表于 2023-11-18 13:22
+
+怎么都20集了，快完结了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  haoshion  
+##### 1418#       发表于 2023-11-18 14:54
+
+家庭关系真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  haoshion  
+##### 1418#       发表于 2023-11-18 14:54
+
+家庭关系真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1419#       发表于 2023-11-18 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">防卫队的科技有点强了吧，这镭射车被抛到空中掉下来都没死人
+
+
+*****
+
+####  angelooo  
+##### 1420#       发表于 2023-11-18 23:33
+
+<blockquote>毛头子 发表于 2023-11-18 11:33
+海星这什么排面啊，不仅能再登场碾压一波，还有幼年（？）形态，虽然从鳗鱼变成海星好像不太对劲。 ...</blockquote>
+铁炮鱼都能进化成章鱼桶呢，幻想世界的事不要想太多
+
+
+*****
+
+####  阿刚  
+##### 1421#       发表于 2023-11-19 00:16
+
+ 本帖最后由 阿刚 于 2023-11-19 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63073133&amp;ptid=2104492" target="_blank">毛头子 发表于 2023-11-18 11:33</a>
+
+海星这什么排面啊，不仅能再登场碾压一波，还有幼年（？）形态，虽然从鳗鱼变成海星好像不太对劲。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">阿斯加龙什么都会，除了打怪兽，这次好不容易拿了个人头结果还是个幼年体
+
+
+*****
+
+####  RainbowSealife  
+##### 1422#       发表于 2023-11-19 00:34
+
+<img src="https://img.saraba1st.com/forum/202311/19/002737tuuyig1x4yig3suz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (170.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-19 00:27 上传
+
+<img src="https://img.saraba1st.com/forum/202311/19/002753un5bk8zocffj1ocq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.24 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-19 00:27 上传
+
+被年轻女下属冷不丁地喊了声欧豆桑，有点吓人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+寻求对策感觉耗个两三天就可以了，怪兽硬生生排了一周的毒气，有点离谱。 就算毒性和光化学污染差不多，也不能就这么排一周吧？常规武器屁用没有，A.T Field是吧？为什么不直接变身呢？这不是什么都没有守护吗？！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Case  
+##### 1423#       发表于 2023-11-19 00:55
+
+这集这么处理手链的问题还挺喜欢的。没有强行为了戏剧冲突上压力。
+
+家人是能够理解弦人隐瞒一切这个选择的。
+
+
+*****
+
+####  hahaha111  
+##### 1424#       发表于 2023-11-21 19:49
+
+伏笔这么一走越来越感觉布莱泽其实是惠美老爸了
+
+
+*****
+
+####  Piano-Forest  
+##### 1425#         楼主| 发表于 2023-11-21 23:01
+
+龙幸伸绘
+<img src="https://p.sda1.dev/14/820be50abbdb0f512814119b5f614856/20231121_230049.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 1426#       发表于 2023-11-24 20:54
+
+这集的特摄部分有种怀念的感觉，奥棚是不是很久没有这种会咬人的怪兽了
+
+
+*****
+
+####  Piano-Forest  
+##### 1427#         楼主| 发表于 2023-11-24 22:18
+
+<img src="https://p.sda1.dev/14/502ece0665e1830dbe5ba4d7835b3912/8797dff0ly1hk6jl308bkj20xc1b6atc.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 1428#       发表于 2023-11-24 22:54
+
+剧场版没参谋长演员名，有人猜在TV里要终极牺牲
+
+*****
+
+####  akiji  
+##### 1429#       发表于 2023-11-24 23:00
+
+越来越机动条子了
+
+
+*****
+
+####  scorbian  
+##### 1430#       发表于 2023-11-25 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">参谋长终究扛下了所有
+
+
+*****
+
+####  novyDC  
+##### 1431#       发表于 2023-11-25 10:45
+
+参谋长被送进去去可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nonodundun  
+##### 1432#       发表于 2023-11-25 10:48
+
+参谋长他真的，你哭死<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeroblast  
+##### 1433#       发表于 2023-11-25 10:51
+
+虽然结尾爽起来了，前面这开挂还是挺粗暴的。
+
+共同战斗，指武器架子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Wildfire  
+##### 1434#       发表于 2023-11-25 10:54
+
+苍边博士这是致敬稻森博士？祖传诈尸<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  白玫瑰之夜  
+##### 1435#       发表于 2023-11-25 12:53
+
+火鸟出来的时候出来个弹幕说猎人布莱泽这下鹰犬齐全了，笑不活了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGEM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  不灭的旋律  
+##### 1436#       发表于 2023-11-25 13:04
+
+队长经常在外面和年轻女下属幽会就不怕被老婆儿子抓个正着吗？到时候“我要晚些回来”的短信就洗不清了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  封印的右手  
+##### 1437#       发表于 2023-11-25 14:13
+
+就算队长没这个想法，就惠美现在这状态，放在大部分肥皂剧里都容易恋上队长的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 1438#       发表于 2023-11-25 14:27
+
+这集emmm不太好看吧，卖玩具的过程有点草率，前面参谋长上压力的部分不如砍砍留给战斗中和惠美探66号基地
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  洛克萨斯  
+##### 1439#       发表于 2023-11-25 14:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剑也太弱了吧，开场就被打断了
+
+*****
+
+####  灼眼的夏娜酱  
+##### 1440#       发表于 2023-11-25 14:39
+
+这集好几个场景感觉转折有些突兀<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">文戏没有那么流畅。
+
+
+*****
+
+####  取名真是难  
+##### 1441#       发表于 2023-11-25 15:27
+
+感觉这集全在挖坑了，秘密潜入搜查官她爹那一段看起来仿佛是她爹转生成了火鸟
+
+
+*****
+
+####  水边井  
+##### 1442#       发表于 2023-11-25 15:42
+
+信息量塞太满是有点突兀了，惠美怎么潜入设施没说，惠美爹唐突出现唐突消失
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 1443#       发表于 2023-11-25 15:43
+
+这集不行
+
+
+*****
+
+####  acejoe  
+##### 1444#       发表于 2023-11-25 16:18
+
+这起码再来一集铺垫惠美老爹和火龙啊
+
+
+*****
+
+####  Case  
+##### 1445#       发表于 2023-11-25 16:30
+
+新生代因为集数少导致的一系列经典问题又来了……
+
+但放弃铺垫火龙直接上强化形态这个加减法还是可以理解的。
+
+毕竟隔壁暴太郎那会从来不聊强化形态怎么来的。
+
+氛围到这了就直接让强化上。玩具一样卖的很好。
+
+不过即便如此。这集的节奏还是有些怪怪的。
+
+
+*****
+
+####  athena_1982  
+##### 1446#       发表于 2023-11-25 18:06
+
+肯定跳了，剧情不连贯。要不就是挖坑之后补，要不就得等后日谈补全了
+
+惠美怎么去那的没交代，火龙是被关在那的吗还是想从虫洞钻过来？那个箱子也太儿戏了，没有钥匙就完全没法？
+
+新形态和新武器，怎么看都像“火焰神！武装起来！”……
+
+
+*****
+
+####  游蜓  
+##### 1447#       发表于 2023-11-25 19:33
+
+说起来，法德兰是不是根本没皮套，一团火焰特效也太敷衍了
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  浅川雏羽  
+##### 1448#       发表于 2023-11-26 02:55
+
+在无人在意的角落，孝子凹凸曼变成肥仔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202311/26/025501qphtwkk93kxqk3ok.jpg" referrerpolicy="no-referrer">
+
+<strong>img_2621.jpg</strong> (942.51 KB, 下载次数: 0)
+
+下载附件
+
+2023-11-26 02:55 上传
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  希望之花  
+##### 1449#       发表于 2023-11-26 03:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被机器人姐妹养肥了
+
+
+*****
+
+####  ques0712  
+##### 1450#       发表于 2023-11-26 04:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63136430&amp;ptid=2104492" target="_blank">水边井 发表于 2023-11-25 15:42</a>
+信息量塞太满是有点突兀了，惠美怎么潜入设施没说，惠美爹唐突出现唐突消失 ...</blockquote>
+没有唐突出现唐突消失吧？
+这是她爹失踪的地方，可以是她出现了幻觉（其实是独立解决的）；
+可以是她爹精神体回来救她；
+也可以是她爹回来就是为了跟她说一句话。
+
+很顺畅啊。
+
+宫崎骏《红猪》里男主看到飞机飞到天上变成银河，你也觉得唐突？男主那次之后变成猪你也觉得唐突？
+
+*****
+
+####  ques0712  
+##### 1451#       发表于 2023-11-26 04:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63137382&amp;ptid=2104492" target="_blank">athena_1982 发表于 2023-11-25 18:06</a>
+肯定跳了，剧情不连贯。要不就是挖坑之后补，要不就得等后日谈补全了
+
+惠美怎么去那的没交代，火龙是被关在 ...</blockquote>
+那个钥匙是银行保险柜的开锁凭证。
+核心不是“打开箱子”，而是让女主知道她爹给她留了个保险柜，里边有线索。
+
+你没那根钥匙根本不知道有这么个箱子。保管的银行也不知道这个本子里有啥特别的（他们不看本子内容），自然没法找到
+
+
+*****
+
+####  zzf111  
+##### 1452#       发表于 2023-11-26 06:47
+
+火鸟这话感觉至少两集的任务挤到一起了，火鸟出场零铺垫（野人基本上这集就是打不过突然蹦出来一只宠物+新形态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且就出在这集秘密旧址太都合了，不仅能能刷坐骑掉主线线索还能闹鬼的），大人这边的阴谋也分不清有几派在斗，唐突长官思过唐突老头抢书
+
+而且惠美这边一直单独和队长同框互动（有点怪怪的，只特别亲近队长显得队友好生疏，好像爹和主线秘密的事也没和他们说），好几次队友们一起出任务出力打怪时惠美这边就一个人在搞秘密潜入（我懂了，是惠美80了其他队员）
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 1453#       发表于 2023-11-26 10:40
+
+差一天生日到底是啥字谜？这里完全没懂
+
+
+*****
+
+####  RainbowSealife  
+##### 1454#       发表于 2023-11-26 19:29
+
+鉴定为纯纯带货回，很多展开莫名其妙。炎龙毫无铺垫地唐突登场，就是给天降强化装备找了个由头。惠美爸是什么样的存在？量子幽灵吗？要不是看楼上解说我都搞不清楚最后原来是去银行保险柜取惠美爸的遗物了，毕竟那个铁盒子看着就像是不需要钥匙就能打开的类型，要是盒子真在组织手里惠美还有机会弄到手？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  楠城旧篱  
+##### 1455#       发表于 2023-11-26 19:58
+
+罢了罢了，希望收尾能收好_(:з」∠)_
+
+
+*****
+
+####  Sleipnirω  
+##### 1456#       发表于 2023-11-26 20:15
+
+坏了，队长跟惠美的互动真的是越看越有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aliya  
+##### 1457#       发表于 2023-11-26 20:19
+
+看最后能不能收好尾吧
+
+
+*****
+
+####  老衲还挺得住  
+##### 1458#       发表于 2023-11-26 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63144719&amp;ptid=2104492" target="_blank">Sleipnirω 发表于 2023-11-26 20:15</a>
+
+坏了，队长跟惠美的互动真的是越看越有意思</blockquote>
+第一集我就说，这俩人的互动更像情侣
+
+
+*****
+
+####  上坂莲华  
+##### 1459#       发表于 2023-11-26 21:16
+
+差一天生日大概是暗示在女儿（照片）后面
+
+不过这照片后面藏东西按说是个正常人都能翻出来，大叔不翻可能是因为别人遗物不想动，女主拿上不翻就说不过去了
+
+说尊敬吧，转手就给队长随便看了，说不尊敬吧，你拿上都不检查的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性  
+##### 1460#       发表于 2023-11-26 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63145068&amp;ptid=2104492" target="_blank">老衲还挺得住 发表于 2023-11-26 20:55</a>
+第一集我就说，这俩人的互动更像情侣</blockquote>
+如果队长改成单身人设
+我愿称之为新生代最强感情线
+
+
+*****
+
+####  仟音一心  
+##### 1461#       发表于 2023-11-27 18:51
+
+宇宙爆弹怪兽瓦拉隆 其炮弹可以直接改变星球轨道
+<img src="https://p.sda1.dev/14/e8470dbc286e50f5724155e73df7b7e3/CMP_20231127185132408.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 1462#       发表于 2023-11-27 18:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如爆星
+
+
+*****
+
+####  䬜鷘䳵䶵䮻  
+##### 1463#       发表于 2023-11-27 19:37
+
+拍的挺好的，可惜后面还是摆脱不了小黑屋卖玩具的命运
+
+以及，布莱泽身上秘密也挺多的，他那意义不明的怪叫和乱跳到底是怎么回事
+
+
+*****
+
+####  kcalb  
+##### 1464#       发表于 2023-11-27 22:57
+
+这些真得算是秘密，而不是增加角色辨识度的演出变化球么？反正是独立宇宙，不考警备队编制也可以
+
+少说不说，不就是主线本来就信息量不足，还要给结局留点，大概率是春秋笔法了，瞅着这第三波并不像黑幕，还像个中期皮肤的怪兽兵器
+
+反而剧场版这个人型蟑螂大只佬更像和野人打得有来有回的夙敌生态位
+
+
+*****
+
+####  kal_008  
+##### 1465#       发表于 2023-11-28 09:58
+
+我觉得编剧大概率不懂改变星球轨道是个什么级别，单纯要摧毁人类只需要让月球脱离轨道就可以完事儿，国内观众年初看过流浪地球2都该知道这是个什么水平的灾难
+
+当然要是致敬老7的黑暗地带那一集当我没说
+
+
+*****
+
+####  Sliurus  
+##### 1466#       发表于 2023-11-28 18:50
+
+下集居然是副队长的单元回，这剧情编排绝对是出问题了吧，难道是代哥坐不住要提前卖强化形态？
+
+这集突出一个看了个寂寞，如何潜入我觉得并不重要，但是惠美发现了什么也不说，突然打个电话回去，主线关键回就这么简单带过了
+
+
+*****
+
+####  Sokukei  
+##### 1467#       发表于 2023-11-30 18:45
+
+感觉这集是两集塞一起了
+能成功收尾就好 我开始忐忑了
+
+
+*****
+
+####  橙冰  
+##### 1468#       发表于 2023-12-1 09:55
+
+这周副队长回，下周看标题估计大部分谜题就要揭开了
+
+
+*****
+
+####  mishidexieyu  
+##### 1469#       发表于 2023-12-1 11:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉副队长回反而有些唐突 这集对主线的情绪刚刚调动起来
+
+
+*****
+
+####  Piano-Forest  
+##### 1470#         楼主| 发表于 2023-12-2 00:14
+
+12月剧集剧照（19～23话）
+<img src="https://p.sda1.dev/14/28ab4fdd7c0b91f8f0291081af96d315/20231201132118.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/b97784fa7533c5654885997c1ff3e06e/20231201132118_20231201132132.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/14/9d4a6da6e40b2f9ed49c36f24aec92f1/20231201132200.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/d49a3b1344a88e5894487563bdb8a56e/20231201132200_20231201132225.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/14/76b1c2385178b89f9a7681516f952a81/20231201132340.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/8ed8e7e13d5c8e65fdd2054afdf88135/20231201132340_20231201132359.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/14/3289d9e05e7a968cc7a5cfc7830cab71/20231201132526.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/14/9f22df4345d81ced98d96defb23720ed/20231201132603.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 1471#       发表于 2023-12-2 10:22
+
+先斩后奏于是被穿小鞋了吗……
+
+
+*****
+
+####  nonodundun  
+##### 1472#       发表于 2023-12-2 10:43
+
+最后突然捧起一抔土说这是自己儿子守下的土地，话是好的但演出来的效果有点难绷
+
+
+*****
+
+####  游蜓  
+##### 1473#       发表于 2023-12-2 11:08
+
+草，卖玩具的画面认真整整啊。前半段打架看着很舒服，动作画面都很连贯。开强化就拉跨了，你这光给个变身场面，连怎么脱离束缚的画面都没给，z里面布鲁顿那集好歹有变形态躲攻击加脱困的处理，到布莱泽这就直接脱离了？咋脱离的也不展现，真就嗯卖玩具是吧。这集更是连队长怎么跑出来变身都没了。
+
+另外阿斯加隆多给点戏份啊，几乎就是个换情报的，很多时候和怪兽一照面没打几下就寄了。
+
+最后老爹那突然煽情也很突兀。连着几集节奏都很怪，难受
+
+
+*****
+
+####  hqtkkb  
+##### 1474#       发表于 2023-12-2 13:10
+
+怎么特摄也有换皮怪这种东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  無個性  
+##### 1475#       发表于 2023-12-2 13:47
+
+特摄最多的就是换皮重涂怪了，从昭和开始就在魔改皮套
+
+
+*****
+
+####  hgcg-ix  
+##### 1476#       发表于 2023-12-2 13:59
+
+那啥，布莱泽在下一层，你指着的是老司机
+
+<img src="https://img.saraba1st.com/forum/202312/02/135857xq55nzi5lq5t9b3m.jpg" referrerpolicy="no-referrer">
+
+<strong>img-1f7843b4fa80e3b6454c1ec78d175b1e.jpg</strong> (258.99 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 13:58 上传
+
+
+*****
+
+####  不停打滚  
+##### 1477#       发表于 2023-12-2 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63201683&amp;ptid=2104492" target="_blank">hqtkkb 发表于 2023-12-2 13:10</a>
+
+怎么特摄也有换皮怪这种东西啊</blockquote>
+不知道吗？哥斯拉皮套在奥特篷也换皮出过场的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  世界的膀胱者  
+##### 1478#       发表于 2023-12-2 19:42
+
+要一线部队全国巡演，你防卫队是否过于血汗工厂<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  刹那的王牌  
+##### 1479#       发表于 2023-12-2 20:42
+
+迟了一周才说，火龙登场时布莱泽高兴的怪跳，火龙也跟着扇翅膀，这画面我还挺喜欢的
+
+
+*****
+
+####  待宵  
+##### 1480#       发表于 2023-12-2 21:10
+
+上周强化初登场时这一瞬由于光线的原因吧，我总觉得布莱泽左臂像是脱了皮套的人类左臂
+
+这集倒是没用这个画面
+
+<img src="https://img.saraba1st.com/forum/202312/02/210645puauhu2rsby60ozu.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20231202210622.jpg</strong> (166.16 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-2 21:06 上传
+
+
+*****
+
+####  不灭的旋律  
+##### 1481#       发表于 2023-12-2 21:35
+
+回老家被催婚蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+对这种大型怪兽野人一开始撞不动做得挺好的，结果还是被抓尾摔甩出去了。为了撑打戏野人肉搏了半天剑都不用就显得尴尬了。后半不要拉跨啊！
+
+
+*****
+
+####  kcalb  
+##### 1482#       发表于 2023-12-2 23:17
+
+没人觉得这怪的配色和野人是同一套么，看起来就像布莱泽兽化版
+
+
+*****
+
+####  ques0712  
+##### 1483#       发表于 2023-12-3 03:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63200548&amp;ptid=2104492" target="_blank">nonodundun 发表于 2023-12-2 10:43</a>
+最后突然捧起一抔土说这是自己儿子守下的土地，话是好的但演出来的效果有点难绷 ...</blockquote>
+我是这么看的，之前的土壤被虫子吸走了氮元素，导致发灰、贫瘠，已经持续了一个月。
+时间结束后他爸做常规耕作之后把面上的土翻开发现内层土壤特别肥沃（那个土有特写，黑、湿、粘），有感而发。
+当然，如果找虫子给贫瘠的土一个特写，最后给丰沃的土一个特写，那就更好了。
+
+
+*****
+
+####  hcho  
+##### 1484#       发表于 2023-12-3 14:13
+
+布莱泽每集都很稳啊，稳到没什么讨论度了，但是真好看，这两年看得最舒服的特摄了
+
+
+*****
+
+####  洛克萨斯  
+##### 1485#       发表于 2023-12-3 17:00
+
+这个黏液有点强了吧，没有火鸡变身就翻车了
+
+
+*****
+
+####  Sliurus  
+##### 1486#       发表于 2023-12-3 19:49
+
+这集平成味很浓啊，从内容到特摄上都是
+
+最后老伯的感叹我是这样理解的，因为妻子逝世，所以老伯有点没安全感，希望儿子们都留在自己身边。跟村里人结婚和继承家业本质都是一样的，就是希望副队能回家陪自己。最后发现贫瘠的泥土下面还有沃土，就是寓意副队虽然表面离家工作很无情，但是他依然热爱这片土地（家人），他只是用另一种方式来守护它，而不一定需要一直留在村子里。丢炸弹前的道歉，可能也是副队觉得会破坏老家的土地所以有点顾虑。
+
+
+*****
+
+####  zzf111  
+##### 1487#       发表于 2023-12-3 20:22
+
+野人这被怪兽扑倒发出无助的威胁声【 惨 叫 】太草了，好像女骑士vs兽人样板戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Y.Cassano  
+##### 1488#       发表于 2023-12-3 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63212830&amp;ptid=2104492" target="_blank">Sliurus 发表于 2023-12-3 19:49</a>
+
+这集平成味很浓啊，从内容到特摄上都是
+
+最后老伯的感叹我是这样理解的，因为妻子逝世，所以老伯有点没安全 ...</blockquote>
+我的理解也差不多吧。当然老头子老家土地出问题病倒之后，这个希望儿子留在老家的想法会十分突出，因此引发了后面，骗回家相亲的一套操作。但是布莱泽好几次单人回都“野心”很大，要交代一堆东西，但是受限于长度没法细讲，讲出来的故事总有囫囵吞枣的地方。
+
+
+*****
+
+####  喷火飞龙  
+##### 1489#       发表于 2023-12-6 10:09
+
+这一集虽然有些地方处理得有点怪，但有份莫名的温柔在里面。尤其是辉明老爸在自己遇袭的时候问，“儿子你做的工作一直都这么危险的吗”，作为自己是儿子且有儿子的观众来说，代入感一下就出来了。
+
+其实成年子女在外打拼时偶尔回家，和老家的人们发生各类互动，在戏剧表现上一直有很多文章可做。虽然ACG作品因为受众原因有时淡化处理，但三笔两笔也能把气氛烘托出来——看完这集又想起高达X里威兹回家那段，其实有点相像。
+
+
+*****
+
+####  刹那的王牌  
+##### 1490#       发表于 2023-12-6 10:36
+
+隔壁提了句副队长拿录音骗怪兽幼体有危险本质和父亲骗自己病倒是一样的，所以丢炸弹的时候理解了自己的父亲，也凝重的对怪兽道了歉
+
+挺不错嘛
+
+
+*****
+
+####  athena_1982  
+##### 1491#       发表于 2023-12-8 23:03
+
+刚看完，野人怎么挣脱手脚束缚没写，队长怎么跑出来变身也没写，剧情跳的有点严重啊，都不连贯了
+
+快收尾了，希望布莱泽能平稳落地吧
+
+
+*****
+
+####  nonodundun  
+##### 1492#       发表于 2023-12-9 10:31
+
+下集居然还是单元回<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 1493#       发表于 2023-12-9 11:03
+
+这集。。。感觉没讲什么东西啊
+
+巨大月光感觉已经是明示地球反侵略了，要不是军方实验海星的emp，估计都引不出来
+
+泰信这集的塑造，我其实没太理解哪里有拔高的地方了
+
+
+*****
+
+####  acejoe  
+##### 1494#       发表于 2023-12-9 13:02
+
+这集一般，好水啊
+
+
+*****
+
+####  Case  
+##### 1495#       发表于 2023-12-9 17:34
+
+ 本帖最后由 Case 于 2023-12-9 17:35 编辑 
+
+阿斯加隆带货回嘛。
+
+这集最好玩的部分就是队长钻空子了吧。
+
+驾驶阿斯加隆转移≠我出击作战。
+
+
+*****
+
+####  刹那的王牌  
+##### 1496#       发表于 2023-12-9 22:08
+
+别的都好，就是让阿斯加隆错失人头有点不满意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  athena_1982  
+##### 1497#       发表于 2023-12-10 17:26
+
+这集空战看的还是很爽的，文戏就一般了。据说这话是泰信的个人回？我是没感觉。
+
+月光明显是被宇宙海星的EMP吸引出来的，被打爆了有点惨啊。
+
+地球人又开始作死使用怪兽的力量了，想起托雷基亚对太孙说的，“你以为怪兽的力量是可以毫无代价的使用的吗？”
+
+布莱泽变身+召唤火鸟+召唤大宝剑三段放一起观感就有点冗长了，买玩具也不能这么玩吧。
+
+
+*****
+
+####  Yugao  
+##### 1498#       发表于 2023-12-10 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能来一集弦人和惠美接头交换情报被老婆孩子抓奸现场的
+
+
+*****
+
+####  不灭的旋律  
+##### 1499#       发表于 2023-12-10 21:48
+
+队里最强肌肉男居然还撑不住吗？不如直接上AI操纵。结尾千万别烂了
+
+
+*****
+
+####  洛克萨斯  
+##### 1500#       发表于 2023-12-10 22:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">龙龙这集那么努力都不给一个头么，没想到这次是驾驶员拖后腿了
 
