@@ -5702,3 +5702,188 @@ b站能搜到不少改版后的刷宝玉攻略，大致看过一眼，感觉box�
 
 飞机社的另一个伊甸之前出这种耐性转弱点的卡也以为强无敌了，结果就是出现各种阶段变属性、属性攻击吸收的恶心怪……
 
+*****
+
+####  lxshhh  
+##### 1387#       发表于 2023-12-11 15:23
+
+刚玩到第三章开头，队伍战斗力最高也就1w1，感觉已经没啥成长空间了，结果看到积分挑战里动不动十几万的，难道这游戏才刚开始么
+
+*****
+
+####  叶雾  
+##### 1388#       发表于 2023-12-11 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63293969&amp;ptid=2050204" target="_blank">lxshhh 发表于 2023-12-11 15:23</a>
+
+刚玩到第三章开头，队伍战斗力最高也就1w1，感觉已经没啥成长空间了，结果看到积分挑战里动不动十几万的， ...</blockquote>
+队伍战斗力跟积分挑战没关系
+
+队伍合理，战斗力1万7就差不多能打过最高难度了，当然后期有不少养成元素，想肝可以很肝
+
+
+*****
+
+####  花星空  
+##### 1389#       发表于 2023-12-11 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63293969&amp;ptid=2050204" target="_blank">lxshhh 发表于 2023-12-11 15:23</a>
+
+刚玩到第三章开头，队伍战斗力最高也就1w1，感觉已经没啥成长空间了，结果看到积分挑战里动不动十几万的， ...</blockquote>
+1W1还早得很啦，官方刚调了等级上限，加了新饰品，现在战力都膨胀了，正常抽卡强化配饰品啥的主力队能拉到1W67左右很正常的
+
+积分挑战的摆烂线现在都快到40W了，毕竟有个SS碎片在那里
+
+
+*****
+
+####  lxshhh  
+##### 1390#       发表于 2023-12-11 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63294051&amp;ptid=2050204" target="_blank">叶雾 发表于 2023-12-11 15:32</a>
+
+队伍战斗力跟积分挑战没关系
+
+队伍合理，战斗力1万7就差不多能打过最高难度了，当然后期有不少养成元素， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好吧，不过这部作为我人生的第二部手游目前为止体感很不错，第一部手游是那个什么穿越时空的猫，当初玩一半觉得自己真是个**直接弃游了。
+
+*****
+
+####  lxshhh  
+##### 1391#       发表于 2023-12-11 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63294068&amp;ptid=2050204" target="_blank">花星空 发表于 2023-12-11 15:34</a>
+
+1W1还早得很啦，官方刚调了等级上限，加了新饰品，现在战力都膨胀了，正常抽卡强化配饰品啥的主力队能拉 ...</blockquote>
+40w吗...我积分挑战现在打个9w分数都吃力，这怎么做到的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  道双晨曦  
+##### 1392#       发表于 2023-12-11 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63295911&amp;ptid=2050204" target="_blank">lxshhh 发表于 2023-12-11 17:59</a>
+
+40w吗...我积分挑战现在打个9w分数都吃力，这怎么做到的</blockquote>
+[炽天使部队入伍手册](https://bbs.nga.cn/read.php?tid=35380085)
+
+这个是我个人认为的红烧顶级入坑攻略，我一周年入坑的时候看的就这个，方方面面都讲得挺清楚了
+
+
+*****
+
+####  poor  
+##### 1393#       发表于 2023-12-11 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63295905&amp;ptid=2050204" target="_blank">lxshhh 发表于 2023-12-11 17:58</a>
+好吧，不过这部作为我人生的第二部手游目前为止体感很不错，第一部手游是那个什么穿越时空的猫， ...</blockquote>
+你为什么这么爱飞机社<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然时空猫我只玩过开头，不过听别人说红烧战力已经越来越向时空猫发展了
+
+
+*****
+
+####  花星空  
+##### 1394#       发表于 2023-12-12 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63295911&amp;ptid=2050204" target="_blank">lxshhh 发表于 2023-12-11 17:59</a>
+
+40w吗...我积分挑战现在打个9w分数都吃力，这怎么做到的</blockquote>
+总而言之一定要抽拐，火队的四叶，雷队的夏洛新皮，通用的孔明原皮和圣华旗袍皮，这几个拐齐了随便配配队起码二三十万轻轻松松的
+
+
+*****
+
+####  lxshhh  
+##### 1395#       发表于 2023-12-12 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63301096&amp;ptid=2050204" target="_blank">花星空 发表于 2023-12-12 09:22</a>
+总而言之一定要抽拐，火队的四叶，雷队的夏洛新皮，通用的孔明原皮和圣华旗袍皮，这几个拐齐了随便配配队 ...</blockquote>
+孔明原来是这么关键的角色吗，因为没抽到SSR还有羁绊剧情里感觉塑造得不是很讨我喜所以我压根就没打算培育来着..圣华原皮我倒是有的，四叶是萝莉吗，我不喜欢萝莉啊唉，这些角色是一直能抽到吗，还是要等下一次活动。
+
+
+*****
+
+####  范坚强  
+##### 1396#       发表于 2023-12-12 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63302906&amp;ptid=2050204" target="_blank">lxshhh 发表于 2023-12-12 12:01</a>
+
+孔明原来是这么关键的角色吗，因为没抽到SSR还有羁绊剧情里感觉塑造得不是很讨我喜所以我压根就没打算培 ...</blockquote>
+目前人权 孔明原皮 圣华旗袍(前期将就可以原皮星罗或者对癌忍装玛丽) 老六(宇亚)原皮 越级打加个原皮苍井 有这些基本打完四上没压力 打分有对应属性打手18w稳了 夏洛新皮是颠覆目前体系但是要有强力雷c和拐配合
+
+
+*****
+
+####  lvyuanqi  
+##### 1397#       发表于 2023-12-12 22:42
+
+玩了2个月，打到四下day8，小招只能打掉dp了，感觉要来不及拿十连券了。。。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  lvyuanqi  
+##### 1398#       发表于 2023-12-12 22:54
+
+<blockquote>引用第1394楼lxshhh于2023-12-12 12:01发表的  :
+
+引用:花星空 发表于 2023-12-12 09:22总而言之一定要抽拐，火队的四叶，雷队的夏洛新皮......</blockquote>
+同同新人，理论能抽到，不过概率太低了，要抽卡还是得等周年，这破jb游戏，送2十连，竟然是要过四上和四下。。尼玛得打不过
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  lxshhh  
+##### 1399#       发表于 2023-12-13 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63309663&amp;ptid=2050204" target="_blank">lvyuanqi 发表于 2023-12-12 22:42</a>
+
+玩了2个月，打到四下day8，小招只能打掉dp了，感觉要来不及拿十连券了。。。
+
+----发送自 STAGE1 App for A ...</blockquote>
+十连券是指通关主线送的那个券吗？第四章大概是什么战斗力，我还指望能赶上打新开的断章呢
+
+
+*****
+
+####  bobosnader  
+##### 1400#       发表于 2023-12-13 12:00
+
+我感觉这游戏的玩点就是抽卡没有限定角色而且角色之间的差距极大==
+
+
+*****
+
+####  lvyuanqi  
+##### 1401#       发表于 2023-12-13 18:48
+
+<blockquote>引用第1398楼lxshhh于2023-12-13 11:50发表的  :
+
+引用:lvyuanqi 发表于 2023-12-12 22:42玩了2个月，打到四下day8，小招只......</blockquote>
+四上不难，四下的话，我没有进行宝珠强化，没怎么弄词条，就随便搞了六星装备，反正是打到四下day8打不过了，当然我卡也一般
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  范坚强  
+##### 1402#       发表于 2023-12-13 19:12
+
+<blockquote>lvyuanqi 发表于 2023-12-12 22:54
+同同新人，理论能抽到，不过概率太低了，要抽卡还是得等周年，这破jb游戏，送2十连，竟然是要过四上和四下 ...</blockquote>
+道中直接甩大招吧 算好了莽过去就行 东西可以后面才拿
+
+
+*****
+
+####  lxshhh  
+##### 1403#       发表于 2023-12-13 20:56
+
+刚推完观察报告，这就是准哥的实力吗，情绪的反转拿捏得太到位了，爱了爱了
+
