@@ -2051,3 +2051,81 @@ good👍🏻
 
 这个月有点忙啊，啥live都有绫总
 
+*****
+
+####  stedckk  
+##### 14708#       发表于 2023-12-10 19:21
+
+<img src="https://img.saraba1st.com/forum/202312/10/192144nyxmzgdczdmm23j7.jpg" referrerpolicy="no-referrer">
+
+<strong>a5d4fbf01c0108cbe1fa52c129640360.jpg</strong> (300.78 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-10 19:21 上传
+
+
+*****
+
+####  Fami水  
+##### 14709#       发表于 2023-12-10 20:04
+
+有live么
+
+
+*****
+
+####  夏小筱ss  
+##### 14710#       发表于 2023-12-11 14:21
+
+估计是了
+
+*****
+
+####  夏小筱ss  
+##### 14711#       发表于 2023-12-11 14:22
+
+<img src="https://img.saraba1st.com/forum/202312/11/142159delkn5mt330eh7lh.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1702212763858.jpg</strong> (135.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-11 14:21 上传
+
+
+*****
+
+####  Badwoman  
+##### 14712#       发表于 2023-12-12 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stmule  
+##### 14713#       发表于 2023-12-13 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63293280&amp;ptid=1914409" target="_blank">夏小筱ss 发表于 2023-12-11 14:22</a></blockquote>
+那么怎样才能买到呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  因为你不会  
+##### 14714#       发表于 2023-12-13 23:44
+
+仔细一看咱们绫总已经混了这么多年了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  一仙  
+##### 14715#       发表于 2023-12-14 17:54
+
+还能再混一年
+

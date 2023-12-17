@@ -570,3 +570,10 @@ CGSS八周年营业额骤减，去年有7亿，今年目前还只有2.86亿
 
 PS：今天下午开活动，到时候就知道大石泉的声优是谁了。
 
+*****
+
+####  kobushi  
+##### 5406#       发表于 2023-12-14 18:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">12月了，今年的CG圣诞老人下次活动该附声了吧
+

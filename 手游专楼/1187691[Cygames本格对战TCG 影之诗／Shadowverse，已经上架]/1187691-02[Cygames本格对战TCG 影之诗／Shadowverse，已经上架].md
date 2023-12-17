@@ -2876,3 +2876,35 @@ s1szb楼都凉了半年了吗<img src="https://static.saraba1st.com/image/smiley
 
 这UI是几乎没啥变化啊唉 不过这国服刚搞了新系统岂不是有点小背刺，看能不能对接回去吧
 
+*****
+
+####  areklose  
+##### 1837#       发表于 2023-12-14 18:18
+
+依据'Shadowverse'的游玩状况，除了可获得'Shadowverse: Worlds Beyond'的游戏内道具，也能使用战绩功能。
+
+〈列举部分继承要素〉
+
+‧各个Grand Master的卡背
+
+‧依据排行榜或赛事排名获得游戏内道具
+
+‧依据持有的主战者造型获得游戏内道具
+
+‧游戏程式'Shadowverse'的战绩显示功能
+
+*内容将可能在未经预告的状况下进行变更。
+
+*合作等部分角色除外。
+
+除了上列所述之内容外，也预定会提供其他经由'Shadowverse'继承的要素，以及透过连动可获得的奖励。
+
+有关继承要素的详情，请静待日后发布的资讯。
+
+*****
+
+####  仓鼠吃火锅  
+##### 1838#       发表于 2023-12-14 18:19
+
+新pv转动都直接用原汁原味老卡图，不装了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">笑死真就新卡直接用旧卡图
+
