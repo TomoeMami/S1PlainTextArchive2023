@@ -1527,3 +1527,27 @@ pvp是觉醒地狙 打拳
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  rgauss  
+##### 963#         楼主| 发表于 2023-12-14 11:27
+
+ 本帖最后由 rgauss 于 2023-12-14 11:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nmmd 中士是某个画师的心头好果然没错 不然怎么能混到觉醒的
+
+卡门这**终于死了 开香槟了
+露娜快来科芬吧 当老板暖铺的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RUANHYC  
+##### 964#       发表于 2023-12-15 01:01
+
+我是没想到露娜连起源都是这么搞笑，准备吃汉堡的时候被转化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+卡门似了以后对着泳装冲也没有负罪感了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
