@@ -4460,3 +4460,253 @@ ps5断电又来电之后是关机状态。
 凌晨的时候看亚马逊还有货，这会看欧美亚马逊和几个大点的零售商 ...</blockquote>
 以销定产（
 
+*****
+
+####  泰坦失足  
+##### 420#       发表于 2023-12-13 12:52
+
+[https://www.bilibili.com/video/BV15N4y1h7k7](https://www.bilibili.com/video/BV15N4y1h7k7)
+
+都没注意数毛社PSP评测视频两周前就出了，现在出了篝火游戏合作翻译的中文版
+
+
+*****
+
+####  御风沐雪  
+##### 421#       发表于 2023-12-13 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也想搞一个了，现在拿着sd串家里PC玩博3，感觉比直接运行体验好太多。还不如干脆点入
+
+
+*****
+
+####  qianoooo  
+##### 422#       发表于 2023-12-13 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63314315&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-13 12:56</a>
+
+也想搞一个了，现在拿着sd串家里PC玩博3，感觉比直接运行体验好太多。还不如干脆点入 ...</blockquote>
+sd现在有很好用的ps串流工具啊 可以实现50ms延迟左右
+
+*****
+
+####  医生狼多  
+##### 423#         楼主| 发表于 2023-12-13 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63314315&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-13 12:56</a>
+也想搞一个了，现在拿着sd串家里PC玩博3，感觉比直接运行体验好太多。还不如干脆点入 ...</blockquote>
+不是追求串流外围体验的话sd的chiaki就能胜任了
+如果想要更大&amp;素质好（比起初版sd）的屏幕，轻重量和ds振动才考虑psp，而且现在开始跌价了，要买我也建议再等等
+
+
+*****
+
+####  kooor555  
+##### 424#       发表于 2023-12-13 13:58
+
+200美元能卖到2500也是离谱
+
+
+*****
+
+####  御风沐雪  
+##### 425#       发表于 2023-12-13 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63314644&amp;ptid=2149659" target="_blank">医生狼多 发表于 2023-12-13 13:33</a>
+
+不是追求串流外围体验的话sd的chiaki就能胜任了
+
+如果想要更大&amp;素质好（比起初版sd）的屏幕，轻重量和ds振 ...</blockquote>
+就是SD太重了，我P5是用SD串的XB玩的。想搞几个纯粹点的串流机，要求轻便，手柄好。
+
+
+*****
+
+####  彩虹肥宅  
+##### 426#       发表于 2023-12-13 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63317568&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-13 18:14</a>
+就是SD太重了，我P5是用SD串的XB玩的。想搞几个纯粹点的串流机，要求轻便，手柄好。 ...</blockquote>
+你可以等等沙雕4，不知道联发科的u串流水平如何
+
+—— 来自 OPPO PGJM10, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  喵喵叫的猫  
+##### 427#       发表于 2023-12-13 20:50
+
+话说有人买了日版pulse explore吗
+这耳机有没有语音提示（类似蓝牙连接之类的）
+或者app上可以改提示语音语言吗
+
+真服了想着最近串流用的多
+ebay上拍2个便宜的美版欧版，一个说没货砍单，一个非让我加运费加了还好几天不发货
+价格都赶上咸鱼日版现货了
+
+
+*****
+
+####  Fuero  
+##### 428#       发表于 2023-12-13 20:57
+
+<blockquote>喵喵叫的猫 发表于 2023-12-13 20:50
+话说有人买了日版pulse explore吗
+
+这耳机有没有语音提示（类似蓝牙连接之类的）
+
+或者app上可以改提示语音语 ...</blockquote>
+我在等国行价格，但是现在的inzone buds感觉已经足够了
+
+
+*****
+
+####  御风沐雪  
+##### 429#       发表于 2023-12-14 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63317999&amp;ptid=2149659" target="_blank">彩虹肥宅 发表于 2023-12-13 19:01</a>
+
+你可以等等沙雕4，不知道联发科的u串流水平如何
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2 ...</blockquote>
+研究下
+
+
+*****
+
+####  医生狼多  
+##### 430#         楼主| 发表于 2023-12-14 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63321996&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-14 08:58</a>
+研究下</blockquote>
+不太建议，屏幕说是和3.5同款，那就只有五寸，串流看字小的游戏会很痛苦
+
+
+*****
+
+####  汝者  
+##### 431#       发表于 2023-12-14 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63317568&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-13 18:14</a>
+
+就是SD太重了，我P5是用SD串的XB玩的。想搞几个纯粹点的串流机，要求轻便，手柄好。 ...</blockquote>
+奥丁2
+
+*****
+
+####  汝者  
+##### 432#       发表于 2023-12-14 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63317999&amp;ptid=2149659" target="_blank">彩虹肥宅 发表于 2023-12-13 19:01</a>
+
+你可以等等沙雕4，不知道联发科的u串流水平如何
+
+—— 来自 OPPO PGJM10, Android 13上的 S1Next-鹅版 v2 ...</blockquote>
+865硬件延迟6ms
+
+田鸡9000硬件延迟20ms
+
+手上相关设备moonlight搭配sunshine的数据
+
+*****
+
+####  御风沐雪  
+##### 433#       发表于 2023-12-14 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63322443&amp;ptid=2149659" target="_blank">汝者 发表于 2023-12-14 09:45</a>
+
+奥丁2</blockquote>
+1999有点贵，买个奥丁1？
+
+
+*****
+
+####  汝者  
+##### 434#       发表于 2023-12-14 10:04
+
+ 本帖最后由 汝者 于 2023-12-14 10:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63322492&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-14 09:50</a>
+
+1999有点贵，买个奥丁1？</blockquote>
+2的话玩模拟器基本无敌了 
+
+性能上干掉8gen3旗舰手机不是问题
+
+而且手柄和屏幕都比1好很多
+
+如果要性价比
+
+1的话收二手 记得要买845的
+
+*****
+
+####  无名士  
+##### 435#       发表于 2023-12-14 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63318993&amp;ptid=2149659" target="_blank">喵喵叫的猫 发表于 2023-12-13 20:50</a>
+
+话说有人买了日版pulse explore吗
+
+这耳机有没有语音提示（类似蓝牙连接之类的）
+
+或者app上可以改提示语音语 ...</blockquote>
+只通过接收器链接过PS5，没啥语音提示，画面上会有提示。
+
+
+*****
+
+####  御风沐雪  
+##### 436#       发表于 2023-12-14 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63322640&amp;ptid=2149659" target="_blank">汝者 发表于 2023-12-14 10:04</a>
+
+2的话玩模拟器基本无敌了 
+
+性能上干掉8gen3旗舰手机不是问题</blockquote>
+tb了一下2 如果没预定的话，现在吃现得2600多了，，
+
+
+*****
+
+####  black  
+##### 437#       发表于 2023-12-14 11:52
+
+更新后好像不需要一直开加速器了？
+
+
+*****
+
+####  刘震云  
+##### 438#       发表于 2023-12-14 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63318993&amp;ptid=2149659" target="_blank">喵喵叫的猫 发表于 2023-12-13 20:50</a>
+
+话说有人买了日版pulse explore吗
+
+这耳机有没有语音提示（类似蓝牙连接之类的）
+
+或者app上可以改提示语音语 ...</blockquote>
+索尼的耳机linkbuds s以后都没语音提示了（连接，降噪，环境声，关闭）
+
+但是电量低的时候还是会有语音提示电量低
+
+
+*****
+
+####  汝者  
+##### 439#       发表于 2023-12-14 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63323230&amp;ptid=2149659" target="_blank">御风沐雪 发表于 2023-12-14 10:46</a>
+
+tb了一下2 如果没预定的话，现在吃现得2600多了，，</blockquote>
+现在还能预定 8+128 2099吧
+
+
+*****
+
+####  black  
+##### 440#       发表于 2023-12-14 13:29
+
+之前我加速器一关串流就断了，这次更新后好像不需要一直验证了，有试过的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
