@@ -7715,3 +7715,26 @@ sif2剧情里设定上这次所有情歌都是每个人自己写的，这就是�
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  仟音一心  
+##### 7422#       发表于 2023-12-13 16:39
+
+6th场刊
+<img src="https://p.sda1.dev/14/21ff5c2fbc0076911c03988eb12253b5/CMP_20231213163702176.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 7423#       发表于 2023-12-16 02:49
+
+彼方ちゃん誕生日おめ！🎂
+
+#近江彼方誕生祭2023
+
+#近江彼方生誕祭2023 
+
+#虹ヶ咲
+<img src="https://p.sda1.dev/14/e0d30e29e12c1654f3027d37d44c7fc9/20231215_232341.jpg" referrerpolicy="no-referrer">
+
