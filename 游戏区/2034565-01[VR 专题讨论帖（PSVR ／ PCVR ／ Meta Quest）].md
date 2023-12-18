@@ -3871,3 +3871,27 @@ quest3到了 上次用还是rift2 现在清晰度真的高了不是一个档次�
 我们要去莱恩霍姆学习如何使用撬棍（quest3串流与手柄定位测试）
 [https://www.bilibili.com/video/BV1uu4y1W7WK/](https://www.bilibili.com/video/BV1uu4y1W7WK/)
 
+*****
+
+####  bypass  
+##### 303#         楼主| 发表于 2023-12-15 09:46
+
+<img src="https://img.saraba1st.com/forum/202312/15/094640apqfjr7qxbqkafj7.png" referrerpolicy="no-referrer">
+
+<strong>IMG_1564.png</strong> (170.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-15 09:46 上传
+
+IGN 给了阿斯加德之怒 2 满分
+
+
+*****
+
+####  BK10  
+##### 304#       发表于 2023-12-15 09:57
+
+不知道阿斯加德之怒2民间汉化要多久
+
