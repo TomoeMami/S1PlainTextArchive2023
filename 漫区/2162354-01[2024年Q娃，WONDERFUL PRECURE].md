@@ -2053,3 +2053,343 @@ lillian-&gt;lilian 意义不变
 
 nyammy-&gt;nyummy 意义也没变，还是nya-yummy
 
+*****
+
+####  新HGCG  
+##### 214#         楼主| 发表于 2023-12-11 22:16
+
+ 本帖最后由 新HGCG 于 2023-12-11 22:18 编辑 
+
+小道消息，粉红是狗变Q娃，白是猫变Q娃
+
+剩下两个是人变Q娃
+
+可能是
+
+侦探和狗VS怪盗和猫
+
+
+*****
+
+####  takayama  
+##### 215#       发表于 2023-12-11 22:36
+
+明年的话CV就蹲个佐藤利奈吧，隔壁美战结束后，也差不多该轮到世纪末霸者炮姐了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便再带个阳子太太更好，反正已经两个敌役了，差不多也要转正了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  放哨的狼  
+##### 216#       发表于 2023-12-11 23:30
+
+明年这配置这么看还挺有趣的，宠物和人可以内部交叉cp，稳定的四角恋<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qjw114514  
+##### 217#       发表于 2023-12-11 23:31
+
+q娃队内关系终于发展到主人宠物了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 218#       发表于 2023-12-12 00:24
+
+我记得蓝女人也不怎么像怪盗风格吧，可能是侦探助手
+
+幼女助手是一个侦探不可或缺的重要组成部分
+
+*****
+
+####  凡人  
+##### 219#       发表于 2023-12-12 00:32
+
+现在想起来站位就是猫狗人人，之前还想为什么这么站，难道说明年就是简单粗暴的猫配狗人配人
+
+
+*****
+
+####  HANDAIYV  
+##### 220#       发表于 2023-12-12 00:52
+
+如果真是侦探和怪盗的话，那追加会是像快警战队那样是双形态吗
+
+
+*****
+
+####  jaewoongh_  
+##### 221#       发表于 2023-12-12 07:54
+
+小道消息如果成真的话还挺期待的
+
+*****
+
+####  梦诗歌雪  
+##### 222#       发表于 2023-12-12 07:57
+
+真猫狗还是妖精猫狗啊，妖精猫狗那和往年的妖精q娃也没啥区别，除非日常都是动物状态
+
+*****
+
+####  modedd  
+##### 223#       发表于 2023-12-12 08:02
+
+woc，人**兽随便就能拓展一大堆关系性，这点子可比什么大姐姐小男孩天才多了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  你妈的为什么  
+##### 224#       发表于 2023-12-12 08:35
+
+请关注**关系性？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NZ-333  
+##### 225#       发表于 2023-12-12 08:38
+
+鲁邦连者vs巡逻连者是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+追加战士是有双形态非人非兽的precure x吗
+
+*****
+
+####  1096beam  
+##### 226#       发表于 2023-12-12 08:41
+
+大概是兽和各种宠物交流再传达给人来解除人和宠物各种误会矛盾的套路？还是感觉如果粉毛大女主不能直接和普通人交流的话太影薄了
+
+
+*****
+
+####  pokemon最爱  
+##### 227#       发表于 2023-12-12 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63299747&amp;ptid=2162354" target="_blank">凡人 发表于 2023-12-12 00:32</a>
+
+现在想起来站位就是猫狗人人，之前还想为什么这么站，难道说明年就是简单粗暴的猫配狗人配人 ...</blockquote>
+那个偷跑周边里是粉紫一组蓝绿一组，所以应该都是人和宠物配（
+
+*****
+
+####  pokemon最爱  
+##### 228#       发表于 2023-12-12 10:40
+
+之前偷跑图里Wonderful和Nyummy身上的犬和猫要素很明显，相应的Friend和Lilian没有什么动物元素，所以粉蓝是犬猫（从偷跑图以及Logo看Nyummy虽然是白头发但是分类应该是蓝Q）紫绿是主人吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">算是能从偷跑图推测的内容不奇怪。
+
+*****
+
+####  暗黑能乐  
+##### 229#       发表于 2023-12-12 10:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是感觉好怪，是宠物永久变人，还是变身才变人
+
+
+*****
+
+####  粉儿alice  
+##### 230#       发表于 2023-12-12 11:26
+
+偷跑包就紫的衣服挺像侦探的
+这样的话明年编剧会不会是三条陆
+
+*****
+
+####  pokemon最爱  
+##### 231#       发表于 2023-12-12 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63302472&amp;ptid=2162354" target="_blank">粉儿alice 发表于 2023-12-12 11:26</a>
+
+偷跑包就紫的衣服挺像侦探的
+
+这样的话明年编剧会不会是三条陆</blockquote>
+二人一体的Q娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sliurus  
+##### 232#       发表于 2023-12-12 11:35
+
+估计是绑定人 兽变身，可能又是要过几集才到另一组变身，这几年都不怎么急着把人凑齐
+
+加上可能存在的追加，今年大概是六人（？）组
+
+
+*****
+
+####  最强惠酱  
+##### 233#       发表于 2023-12-12 12:20
+
+假如猫狗喜欢上男人岂不是很刺激<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  友情的结晶  
+##### 234#       发表于 2023-12-12 16:57
+
+这次总没有带婴儿了吧，不然**女女养女儿给小友的影响多不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  pokemon最爱  
+##### 235#       发表于 2023-12-12 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63306431&amp;ptid=2162354" target="_blank">友情的结晶 发表于 2023-12-12 16:57</a>
+
+这次总没有带婴儿了吧，不然**女女养女儿给小友的影响多不好
+
+论坛助手,iPhone ...</blockquote>
+但养宝宝妖精（并且是追加）的可能性依然不小<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 236#       发表于 2023-12-13 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63310281&amp;ptid=2162354" target="_blank">pokemon最爱 发表于 2023-12-12 23:58</a>
+但养宝宝妖精（并且是追加）的可能性依然不小</blockquote>
+养宠物本来就和养娃有点像，重了
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  最强惠酱  
+##### 237#       发表于 2023-12-13 10:01
+
+希望猫狗主角都不会说人话，变身后才能讲，语言不通戏剧性会更强一些
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  放哨的狼  
+##### 238#       发表于 2023-12-13 11:25
+
+然后来个宠物初次变身后发现自己终于可以说人话给主人表达爱了，一直疯狂喊主人名字啥的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 239#         楼主| 发表于 2023-12-14 21:31
+
+カラフルエボリューション♥変身ワンダフルパクト
+
+キュアワンダフルとフレンディがワンダフルパクトで変身！クリスタルを回転させると鏡が光のショーを開始し、変身を合図します。ミニゲームも収録されています。
+
+フレンディタクト
+
+フレンドリータクトをキラリンの救出と浄化の道具として使おう！ 5 つのミニゲームや番組の音楽を含むソング モードも含まれています。
+
+どうぶつおせわがた~っぷり!あつめておせわしよ♥キラニコトランク
+
+この 3 インチのデジタル ケースを使用すると、どこにいてもニコ ガーデンにアクセスし、集めたすべてのキラニコでミニゲームをプレイできます。 充電ケーブルが含まれています。
+
+---------------
+
+プリコーデドール なかよしわんにゃんセット
+
+セットには、残りのプリキュアドールラインにフィットする6インチ未満のサイズのコムギとユキちゃんが含まれています。 彼らが座るためのバスケットも含まれています。
+
+キラニコトランクケース
+
+このキャリング ケースは、すべてのきらりんが遊べる 25x20 インチのニコ ガーデンに展開でき、きらりん コムギを入手する唯一の方法です。
+
+ずっとおともだち♥おしゃべりたっぷりこむぎ
+
+このコムギのぬいぐるみは高さ約 9 インチで、90 行以上のセリフが含まれています。撫でたり、餌をあげたり、おしゃべりしたり、あなたとの関わり方に応じて性格が進化します。
+
+ず~っといっしょ♥おしゃべりユキちゃん
+
+高さ約7.5インチのゆきちゃんのぬいぐるみは、なで方に応じておしゃべりしてくれます! ミニゲームもできます! 9.5×4.5インチのブランケットも付属します。
+
+---------------
+
+看来成员里还真有两个不是人类？
+
+
+*****
+
+####  粉儿alice  
+##### 240#       发表于 2023-12-14 22:12
+
+こむぎ　ユキ
+
+一个叫小麦 一个叫小雪
+确实是会给小猫小狗起的名字
+
+
+*****
+
+####  帝下室の年糕  
+##### 241#       发表于 2023-12-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63330627&amp;ptid=2162354" target="_blank">新HGCG 发表于 2023-12-14 21:31</a>
+
+カラフルエボリューション♥変身ワンダフルパクト
+
+キュアワンダフルとフレンディがワンダフルパクトで変身 ...</blockquote>
+【キュアワンダフル】と【フレンディ】がワンダフルパクトで変身！
+
+真是双人变身？
+
+*****
+
+####  Sliurus  
+##### 242#       发表于 2023-12-14 22:23
+
+我就说是人 兽变身，这种组合肯定是绑定的，就看有没有魄力设成没有人类常态
+
+
+*****
+
+####  pokemon最爱  
+##### 243#       发表于 2023-12-14 23:04
+
+不意外，毕竟之前偷跑的图里Wonderful和Friendy的图上是粉线紫线各占一半组成心形（Nyammy和Lillian也是蓝绿线各一半组成心形）
+
+看起来又是没有单体技能只有合体技能？净化技用武器名是Friendy指挥棒，应该是经典二人Q娃的两个人一起才能开大的设定。
+
+
+*****
+
+####  新HGCG  
+##### 244#         楼主| 发表于 2023-12-15 07:24
+
+看来**组合跑不掉了
+
+
+*****
+
+####  最强惠酱  
+##### 245#       发表于 2023-12-15 08:20
+
+看来小猫小狗还是会说话<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  暗黑能乐  
+##### 246#       发表于 2023-12-15 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人和猫谁才是主子
+
+—— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
