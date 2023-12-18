@@ -265,3 +265,88 @@ github 上没 push 2.5.4 的代码吗，我看GitHub上的代码还是 2.5.3，�
 
 MIUI装不了鹅球了
 
+*****
+
+####  冰风血羽  
+##### 1442#       发表于 2023-12-14 11:35
+
+ 本帖最后由 冰风血羽 于 2023-12-14 11:37 编辑 
+
+请问使用黑魔法看发言就网络错误怎么解决呢，强制使用IP也不行
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  被雨困住的城市  
+##### 1443#       发表于 2023-12-14 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=62933383&amp;ptid=1220112" target="_blank">lovepefe 发表于 2023-11-4 09:29</a>
+没法上play  gihub上是旧版 求个分享</blockquote>
+https://cowtransfer.com/s/972c5a3cf35546 点击链接查看 [ S1 Next Goose_2.5.4.apk ] ，或访问奶牛快传 cowtransfer.com 输入传输口令 uk3rwk 查看；
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  卡密sama  
+##### 1444#       发表于 2023-12-14 11:55
+
+ 本帖最后由 卡密sama 于 2023-12-14 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63324213&amp;ptid=1220112" target="_blank">被雨困住的城市 发表于 2023-12-14 11:52</a>
+[https://cowtransfer.com/s/972c5a3cf35546](https://cowtransfer.com/s/972c5a3cf35546) 点击链接查看 [ S1 Next Goose_2.5.4.apk ] ，或访问奶牛快传 ...</blockquote>
+显示<blockquote>链接已被封禁</blockquote>
+
+[求个新版的鹅球 - 卓明谷 - Stage1st - stage1/s1 游戏动漫论坛 (saraba1st.com)](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2112688&amp;page=1&amp;authorid=491627)
+
+找到一个可以下的，正好也是你的回复，这个可以下。
+
+
+*****
+
+####  被雨困住的城市  
+##### 1445#       发表于 2023-12-14 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63324238&amp;ptid=1220112" target="_blank">卡密sama 发表于 2023-12-14 11:55</a>
+显示</blockquote>
+谢谢，我把那个链接复制过来吧
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  赞卡机  
+##### 1446#       发表于 2023-12-15 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63323955&amp;ptid=1220112" target="_blank">冰风血羽 发表于 2023-12-14 11:35</a>
+请问使用黑魔法看发言就网络错误怎么解决呢，强制使用IP也不行
+
+—— 来自 realme RMX3706, Android 13上的 ...</blockquote>
+同“网络错误”问题，也是这个月才开始的
+
+
+*****
+
+####  wfefe  
+##### 1447#       发表于 2023-12-15 17:14
+
+换了手机后，鹅球没办法复制了，查了下，权限都给了。啥原因。
+
+—— 来自 HONOR REP-AN00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  被雨困住的城市  
+##### 1448#       发表于 2023-12-15 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63338859&amp;ptid=1220112" target="_blank">wfefe 发表于 2023-12-15 17:14</a>
+换了手机后，鹅球没办法复制了，查了下，权限都给了。啥原因。
+
+—— 来自 HONOR REP-AN00, Android 13上的 ...</blockquote>
+设置里设置一下
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
