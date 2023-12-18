@@ -1105,3 +1105,62 @@ asmr第二弹出了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3-4s只能凹到33秒，摆了
 
+*****
+
+####  铁火辉夜  
+##### 105#       发表于 2023-12-15 21:58
+
+日服直播画的饼，原创活动的新角色落地和11个皮肤追进度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+QQ图片20231215215549.jpg
+(49.43 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/15/215740k5sz3333jlaaggsg.jpg" referrerpolicy="no-referrer">
+
+QQ图片20231215215716.jpg
+(69.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/15/215740cj8jhi87kjqhgkwh.jpg" referrerpolicy="no-referrer">
+
+QQ图片20231215215720.jpg
+(62.2 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/15/215740i9qyy39hhnk50zjt.jpg" referrerpolicy="no-referrer">
+
+QQ图片20231215215724.jpg
+(62.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/15/215740cdpript5res5seen.jpg" referrerpolicy="no-referrer">
+
+QQ图片20231215215727.jpg
+(58.73 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-15 21:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/15/215740sdudzop8ip31h67p.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 106#       发表于 2023-12-15 22:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">poi的鼠标垫挺想要的
+
