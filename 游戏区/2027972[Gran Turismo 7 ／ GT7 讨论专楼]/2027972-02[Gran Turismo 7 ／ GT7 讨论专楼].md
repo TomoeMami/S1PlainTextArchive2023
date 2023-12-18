@@ -1193,3 +1193,35 @@ sm山内又把刷钱修了</blockquote>
 
 —— 来自 Xiaomi 2304FPN6DC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  高达TR-6  
+##### 1829#       发表于 2023-12-13 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63123996&amp;ptid=2027972" target="_blank">發發 发表于 2023-11-24 01:24</a>
+问个问题啊，类似斯帕一小时这种，下雨之后半雨胎跑到雨停，主行车线基本干了之后，不急着进站换胎 ...</blockquote>
+走非赛车线无非就是过弯要把速度降得更低，速度低了就能拐过来。反正都走内外内了圈速就不管了。
+spa1小时我记得通常都是入夜下一场雨，到白天雨停一阵，然后又下一波雨，最后天晴干的特别快吧。半雨拖着主要是白天停雨到再下雨那阵子，撑到下雨了那时候的半雨也磨得很厉害了。有时候我觉得比起用半雨硬撑不如干脆早点换个软胎跑赛车线，就是比较刺激（
+
+
+*****
+
+####  Totokei  
+##### 1830#       发表于 2023-12-14 21:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">肝了150公里大师S5终于过了，再也不想在雪地里开车了
+
+
+*****
+
+####  Tnsbilws  
+##### 1831#       发表于 2023-12-15 10:55
+
+ 本帖最后由 Tnsbilws 于 2023-12-15 10:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63330679&amp;ptid=2027972" target="_blank">Totokei 发表于 2023-12-14 21:35</a>
+
+肝了150公里大师S5终于过了，再也不想在雪地里开车了</blockquote>
+没事，还有F1铃鹿等着你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+参考的影子记录只比金牌快十分之2秒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我凹了600公里。最后只快了十分之3来着
+
