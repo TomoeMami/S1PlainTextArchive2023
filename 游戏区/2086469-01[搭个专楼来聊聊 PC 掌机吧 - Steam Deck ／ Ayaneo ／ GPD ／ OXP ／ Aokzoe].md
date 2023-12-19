@@ -5286,3 +5286,121 @@ rog把电源键设置成睡眠，之前待机再继续玩一直好好的，最�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+*****
+
+####  zfly  
+##### 1012#       发表于 2023-12-13 15:03
+
+LegionSpace预计在12.14开放小范围OTA升级。
+
+本轮更新的主要内容：
+
+1、摇杆死区和灵敏度设置
+
+2、增加西瓜键映射Legion L+RS
+
+3、解决右菜单置顶问题，及和游戏抢焦点问题
+
+4、增加触摸板震动开关和震动等级
+
+5、增加View/Menu切换按键布局
+
+6、解决灯效和节电模式下Legion R失效的问题
+
+7、陀螺仪摇杆修复
+
+好起来了，legion go 这前端似乎可以慢慢到能用水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  筒井彩芽  
+##### 1013#       发表于 2023-12-13 15:07
+
+Skull &amp; Co 的sd壳+包买来用了下就退了...那个包顶带壳后的按键，放包里机子在那自己开关，而且带壳机子好重啊，还是裸奔好，或者有没有机身膜推荐下<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clyde-wang  
+##### 1014#       发表于 2023-12-13 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63281291&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-12-10 13:24</a>
+amd这边下一代芯片是啥计划？我看要出的80都是换皮？</blockquote>
+目前看起来明年的新品都是7480的换皮…对于新游戏的压力会大不少
+
+*****
+
+####  医生狼多  
+##### 1015#       发表于 2023-12-13 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63315692&amp;ptid=2086469" target="_blank">clyde-wang 发表于 2023-12-13 15:15</a>
+目前看起来明年的新品都是7480的换皮…对于新游戏的压力会大不少</blockquote>
+只能相信ultra了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  clyde-wang  
+##### 1016#       发表于 2023-12-13 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63315748&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-12-13 15:21</a>
+只能相信ultra了</blockquote>
+苏妈这两年的技术，真的让人不敢轻易相信
+
+
+*****
+
+####  医生狼多  
+##### 1017#       发表于 2023-12-13 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63315914&amp;ptid=2086469" target="_blank">clyde-wang 发表于 2023-12-13 15:36</a>
+苏妈这两年的技术，真的让人不敢轻易相信</blockquote>
+ultra不是英特尔的吗
+
+*****
+
+####  clyde-wang  
+##### 1018#       发表于 2023-12-13 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63315993&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-12-13 15:43</a>
+ultra不是英特尔的吗</blockquote>
+哦，我以为说的是他们改版的那几款所谓的ultra，英特尔战未来，我个人觉得还得等一段时间，但是功耗比这个问题真的很难解决，电池技术没有突破，那始终都是便携设备的终极难题
+
+
+*****
+
+####  bypass  
+##### 1019#         楼主| 发表于 2023-12-13 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63315606&amp;ptid=2086469" target="_blank">筒井彩芽 发表于 2023-12-13 15:07</a>
+
+Skull &amp; Co 的sd壳+包买来用了下就退了...那个包顶带壳后的按键，放包里机子在那自己开关，而且带壳机子好 ...</blockquote>
+我也退了他们家的 ROG Ally 壳。为了握把牺牲重量和降低指纹识别识别率我觉得不太值。
+
+
+*****
+
+####  bypass  
+##### 1020#         楼主| 发表于 2023-12-13 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63315748&amp;ptid=2086469" target="_blank">医生狼多 发表于 2023-12-13 15:21</a>
+
+只能相信ultra了</blockquote>
+可以相信 Ultra，但绝不能相信 Intel 家的破驱动 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  qappip  
+##### 1021#       发表于 2023-12-16 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我日 ，联想go 手柄印射只能选择手柄按键么 键盘和鼠标都没有， fps模式 又屏蔽 触摸屏 好**
+
+
+*****
+
+####  hockfly  
+##### 1022#       发表于 2023-12-16 16:35
+
+最近微软又整大活，Xbox app在很多平台上都不能正常打开。我的Ally 也中招了，重装了好几次，浪费了几个小时，今天终于正常了
+
