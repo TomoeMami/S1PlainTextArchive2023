@@ -2262,3 +2262,12 @@ gaia出了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说是just给神乐踢了自己搞，然后一堆机翻就算了还有一地技能描述错误
 
+*****
+
+####  WntFlm  
+##### 208#       发表于 2023-12-16 23:02
+
+后知后觉，没想到现在还能看到有人比神乐还烂。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+现在翻译问题修复了吗？
+
