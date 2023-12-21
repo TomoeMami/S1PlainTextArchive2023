@@ -3495,3 +3495,10 @@ ns版解锁了
 就是玩一乐还是可以的呗？剧情没啥雷点我就直接购入了</blockquote>
 有啥雷点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 315#         楼主| 发表于 2023-12-16 19:48
+
+那个，虽然动画拉了，但水团live是真的强无敌。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
