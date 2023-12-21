@@ -4710,3 +4710,10 @@ tb了一下2 如果没预定的话，现在吃现得2600多了，，</blockquote
 
 之前我加速器一关串流就断了，这次更新后好像不需要一直验证了，有试过的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  无名士  
+##### 441#       发表于 2023-12-18 09:10
+
+有人用pulse explore连接过portal吗？我耳机到的早，先用接收器连接了PS5，然后按说明，怎么也连不上portal了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
