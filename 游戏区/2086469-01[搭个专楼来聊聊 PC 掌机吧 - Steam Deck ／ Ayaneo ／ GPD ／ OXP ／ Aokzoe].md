@@ -5404,3 +5404,12 @@ Skull &amp; Co 的sd壳+包买来用了下就退了...那个包顶带壳后的�
 
 最近微软又整大活，Xbox app在很多平台上都不能正常打开。我的Ally 也中招了，重装了好几次，浪费了几个小时，今天终于正常了
 
+*****
+
+####  bypass  
+##### 1023#         楼主| 发表于 2023-12-19 16:41
+
+[https://www.bilibili.com/video/BV1NG411Y7JT](https://www.bilibili.com/video/BV1NG411Y7JT)
+
+感觉掌机也可以试试这个 mod <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
