@@ -7193,3 +7193,148 @@ FAZE!
 
 G2米垃圾被炸鱼了哈哈哈哈，呼吸0-14，图二还是OP哈哈哈哈。太会宠粉了，好久不打比赛一上来就这么乐。
 
+*****
+
+####  六道仙鱼  
+##### 3941#       发表于 2023-12-17 23:08
+
+提前恭喜一下小蜜蜂。妥妥冠军。mezii一来就两冠，可真爽吧
+
+*****
+
+####  heseran  
+##### 3942#       发表于 2023-12-17 23:11
+
+载物的图一太可怕了
+
+
+*****
+
+####  六道仙鱼  
+##### 3943#       发表于 2023-12-17 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63359575&amp;ptid=1857369" target="_blank">heseran 发表于 2023-12-17 23:11</a>
+
+载物的图一太可怕了</blockquote>
+毕竟是载物啊。mvp感觉也是载的。mezii之前数据挺好的，半决和决赛差了点
+
+*****
+
+####  heseran  
+##### 3944#       发表于 2023-12-17 23:25
+
+这波玩门太难绷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ropz跑过来在门外接了一发盲狙
+
+*****
+
+####  六道仙鱼  
+##### 3945#       发表于 2023-12-17 23:27
+
+这门玩爽了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Rainwedell  
+##### 3946#       发表于 2023-12-17 23:33
+
+ 本帖最后由 Rainwedell 于 2023-12-17 23:35 编辑 
+
+感觉蜜蜂夺冠了，目前残局胜负上蜜蜂基本全赢了，Rain今天打的也很差
+
+*****
+
+####  六道仙鱼  
+##### 3947#       发表于 2023-12-17 23:38
+
+老头是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到决赛还想啃老，就到点了
+
+
+*****
+
+####  TiiTiiLL  
+##### 3948#       发表于 2023-12-17 23:47
+
+妹子太爽了，刚来直接两个S级赛事冠军
+
+*****
+
+####  六道仙鱼  
+##### 3949#       发表于 2023-12-17 23:50
+
+最近小蜜蜂比赛BO3都打不满3把，稍微差点意思了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">恭喜小蜜蜂
+
+*****
+
+####  Rainwedell  
+##### 3950#       发表于 2023-12-17 23:50
+
+恭喜蜜蜂，目前这个年龄结构有望出现新的王朝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  六道仙鱼  
+##### 3951#       发表于 2023-12-17 23:57
+
+只要小蜜蜂管理层不搞勾八降薪骚操作，王朝大概率是有的。怕就怕载物在手，肆无忌惮降薪了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 3952#       发表于 2023-12-17 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63359973&amp;ptid=1857369" target="_blank">六道仙鱼 发表于 2023-12-17 23:57</a>
+只要小蜜蜂管理层不搞勾八降薪骚操作，王朝大概率是有的。怕就怕载物在手，肆无忌惮降薪了 ...</blockquote>
+反正火仔和meiz不贵，应该没得降，也就留留spinx
+
+*****
+
+####  六道仙鱼  
+##### 3953#       发表于 2023-12-18 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63359985&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2023-12-17 23:58</a>
+
+反正火仔和meiz不贵，应该没得降，也就留留spinx</blockquote>
+想起来spinx当初也是全员降薪才签下的<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">小蜜蜂这cs分部是真的抠
+
+
+*****
+
+####  恶搞之王  
+##### 3954#       发表于 2023-12-18 01:03
+
+其实要我说蜜蜂并不是完全的抠
+
+降薪那事更像是管理层不想留zonic了，魔男那边据说是没让他降薪，只是魔男想跟着zonic
+
+zonic的战术体系下，载物有点扮演以前的设备的意思，虽然这没啥不好的，设备那角色也不是凡夫俗子能承担的，但说实话屈才了，这TM可是载物啊
+
+光头的那套东西才是最大化利用载物能力的玩法，只不过以前的队友太逆天了，上限不行
+
+
+*****
+
+####  天妇罗  
+##### 3955#       发表于 2023-12-18 06:38
+
+又是全胜夺冠，天选之子太超规了
+
+
+*****
+
+####  csolfans  
+##### 3956#       发表于 2023-12-20 21:09
+
+（不知道在这里合不合适）请教下坛友，现在那个平台还能csgo？
+
+
+*****
+
+####  Rainwedell  
+##### 3957#       发表于 2023-12-21 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391292&amp;ptid=1857369" target="_blank">csolfans 发表于 2023-12-20 21:09</a>
+（不知道在这里合不合适）请教下坛友，现在那个平台还能csgo？</blockquote>
+5e目前还保留了一个怀旧服，但我没进去打过。别的话，社区服还有不少有的，我自己打过kod社区。
+

@@ -3395,3 +3395,183 @@ TVアニメ「#SYNDUALITY Noir」第2クール
 这衣服不是大哥的吗？也太贴身了吧</blockquote>
 这腿细得和C妈画得差不多（
 
+*****
+
+####  zero12  
+##### 3314#       发表于 2023-12-20 16:29
+
+这个新pv，白皮女主怎么搞的再也不会出现一样
+
+
+*****
+
+####  RE㐅ia  
+##### 3315#       发表于 2023-12-20 16:40
+
+<blockquote>zero12 发表于 2023-12-20 16:29
+这个新pv，白皮女主怎么搞的再也不会出现一样</blockquote>
+蓝天白云诺瓦.jpg
+
+
+*****
+
+####  aptx8285144  
+##### 3316#       发表于 2023-12-20 16:47
+
+这站位，大哥你不会是打算跳反吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 3317#         楼主| 发表于 2023-12-20 17:07
+
+第二季度PV：[https://youtu.be/exI1FS75bRc](https://youtu.be/exI1FS75bRc)
+
+OP：「アイレ」ARCANA PROJECT
+
+ED：「Drifters」STEREO DIVE 
+<img src="https://p.sda1.dev/14/b7109ea7ac9571afd9aca5af2b2b4b80/20231220_170548.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 3318#       发表于 2023-12-20 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63388680&amp;ptid=2092345" target="_blank">Piano-Forest 发表于 2023-12-20 17:07</a>
+
+第二季度PV：https://youtu.be/exI1FS75bRc
+
+OP：「アイレ」ARCANA PROJECT</blockquote>
+PV里的音乐还挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 3319#       发表于 2023-12-20 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63388154&amp;ptid=2092345" target="_blank">zero12 发表于 2023-12-20 16:29</a>
+
+这个新pv，白皮女主怎么搞的再也不会出现一样</blockquote>
+宣传图还有白诺娃
+
+*****
+
+####  zero12  
+##### 3320#       发表于 2023-12-20 17:18
+
+有的女人根本不值得上海报
+
+*****
+
+####  andychen  
+##### 3321#       发表于 2023-12-20 17:18
+
+刚补完结局，这真就XB2大型复刻吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下一季开头要和阿光哦不黑皮组一段时间队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  DARILBALDE  
+##### 3322#       发表于 2023-12-20 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer">
+
+然后雏菊的实体剑和<img src="https://static.saraba1st.com/image/smiley/bundam2017/011.png" referrerpolicy="no-referrer">的光束剑互格做得有点...怪
+
+以及艾莉的frs比预期好点，等降价买一个（便宜的女人
+
+
+*****
+
+####  novyDC  
+##### 3323#       发表于 2023-12-20 20:54
+
+怎么连基友都黑化了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aptx8285144  
+##### 3324#       发表于 2023-12-20 21:01
+
+大哥：我和面具男是认识的，如果对方有诚意，那我先去那里看看，是反水还是卧底，你们自己猜（
+
+
+*****
+
+####  支仓爱理  
+##### 3325#       发表于 2023-12-20 21:55
+
+<img src="https://img.saraba1st.com/forum/202312/20/215516dp51heg5bj1kg51m.png" referrerpolicy="no-referrer">
+
+<strong>P3962XRYWC5HLS84B076ONW.png</strong> (142.44 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-20 21:55 上传
+
+可爱
+
+*****
+
+####  granly  
+##### 3326#       发表于 2023-12-20 21:59
+
+看了pv，期待后半部分
+
+
+*****
+
+####  6030sylar  
+##### 3327#       发表于 2023-12-20 22:10
+
+大哥也要黑吗，只有男主一个小白
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RE㐅ia  
+##### 3328#       发表于 2023-12-20 22:41
+
+<blockquote>6030sylar 发表于 2023-12-20 22:10
+大哥也要黑吗，只有男主一个小白
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+趁傻白甜诺瓦还没回来赶紧军训男主，能和黑假面46开就算成功
+
+
+*****
+
+####  aptx8285144  
+##### 3329#       发表于 2023-12-20 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391813&amp;ptid=2092345" target="_blank">支仓爱理 发表于 2023-12-20 21:55</a>
+
+可爱</blockquote>
+艾女士还是洗澡时的散发好看
+
+
+*****
+
+####  aptx8285144  
+##### 3330#       发表于 2023-12-20 22:57
+
+【【2024年1月/古贺葵】奇异贤伴 黑色天使 后半部分 正式PV【MCE汉化组】-哔哩哔哩】 [https://b23.tv/Ol9aywK](https://b23.tv/Ol9aywK)
+
+预告的中文翻译
+
+
+*****
+
+####  sliver1997  
+##### 3331#       发表于 2023-12-21 01:08
+
+艾莉的 frs 脸做得好奇怪，又是只能当服装配件包吗
+
