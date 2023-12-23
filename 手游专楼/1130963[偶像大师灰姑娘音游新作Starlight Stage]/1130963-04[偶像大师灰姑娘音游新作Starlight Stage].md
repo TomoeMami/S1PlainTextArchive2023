@@ -577,3 +577,10 @@ PS：今天下午开活动，到时候就知道大石泉的声优是谁了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">12月了，今年的CG圣诞老人下次活动该附声了吧
 
+*****
+
+####  kobushi  
+##### 5407#       发表于 2023-12-20 19:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">总选曲变圣诞曲……
+
