@@ -1225,3 +1225,25 @@ spa1小时我记得通常都是入夜下一场雨，到白天雨停一阵，然�
 
 参考的影子记录只比金牌快十分之2秒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我凹了600公里。最后只快了十分之3来着
 
+*****
+
+####  byisme001  
+##### 1832#       发表于 2023-12-21 10:07
+
+我还以为节日活动每天送券，结果一共才5抽，送的5星还还抽到个零件血亏
+
+
+*****
+
+####  760194962  
+##### 1833#       发表于 2023-12-21 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63334439&amp;ptid=2027972" target="_blank">Tnsbilws 发表于 2023-12-15 10:55</a>
+没事，还有F1铃鹿等着你
+
+参考的影子记录只比金牌快十分之2秒我凹了600公里。最后只快了十分 ...</blockquote>
+这个自动档真的能过吗 我换成手动挡简单点了
+不知道是不是技术提升了 现在碰不到打一两千公里才过的情况了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
