@@ -5413,3 +5413,18 @@ Skull &amp; Co 的sd壳+包买来用了下就退了...那个包顶带壳后的�
 
 感觉掌机也可以试试这个 mod <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  bypass  
+##### 1024#         楼主| 发表于 2023-12-22 18:00
+
+<img src="https://img.saraba1st.com/forum/202312/22/180015cbaffwdb1cdchacv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.15 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 18:00 上传
+
+大概是 for SteamOS。
+
