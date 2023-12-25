@@ -1541,3 +1541,461 @@ mv3，有没有可能吉他才是落单的</blockquote>
 
 这企划歌还挺合我胃口的，可惜这个3d有点接受不了，云一下好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  NZ-333  
+##### 170#       发表于 2023-12-20 20:35
+
+动画明年四月
+<img src="https://p.sda1.dev/14/8e71ba4f48f40f422e78aea3f0d5783d/QQ图片20231220202528.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  爱丁堡official  
+##### 171#       发表于 2023-12-20 20:36
+
+花田监督 四月番？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  水莲寺流歌  
+##### 172#       发表于 2023-12-20 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是你把mujica吓得不敢播的？
+
+
+*****
+
+####  oi99o  
+##### 173#       发表于 2023-12-20 20:49
+
+酒井和男+花田十辉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维豚  
+##### 174#       发表于 2023-12-20 20:50
+
+噔噔<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  后藤一里  
+##### 175#       发表于 2023-12-20 20:52
+
+就是你把孤独摇滚吓得24年只敢出两个总集篇的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  粉儿alice  
+##### 176#       发表于 2023-12-20 20:53
+
+介于这几年东大妈的尿性 看来是又新的乐子和笑话来看了呗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无意义小号  
+##### 177#       发表于 2023-12-20 20:55
+
+ 本帖最后由 无意义小号 于 2023-12-20 21:04 编辑 
+
+怎么又是花田十辉，明年4月京吹和这个，会是一会儿白花田一会儿黑花田么
+
+
+*****
+
+####  凡人  
+##### 178#       发表于 2023-12-20 21:06
+
+酒井的回归之作果然还是要和那个男人一起并肩而战
+
+*****
+
+####  渡辺梨加  
+##### 179#       发表于 2023-12-20 21:14
+
+草，既然花田这么忙，llsp第三季干脆换人写吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  moshizhe  
+##### 180#       发表于 2023-12-20 21:15
+
+4月还有京吹，感觉花田风评
+
+
+*****
+
+####  skives  
+##### 181#       发表于 2023-12-20 21:18
+
+这3D不对劲
+
+*****
+
+####  Piano-Forest  
+##### 182#         楼主| 发表于 2023-12-20 21:18
+
+先导PV：[https://youtu.be/r6fyHlyDsyw](https://youtu.be/r6fyHlyDsyw)
+
+2024年4月放送開始
+
+【スタッフ】
+
+原作・企画・製作：東映アニメーション
+
+シリーズ構成：花田十輝
+
+音楽プロデューサー：玉井健二 (agehasprings)
+
+劇伴音楽：田中ユウスケ (agehasprings)
+
+キャラクターデザイン：手島nari
+
+CGディレクター：鄭 載薫
+
+シリーズディレクター：酒井和男
+
+【キャスト】
+
+井芹仁菜：理名
+
+河原木桃香：夕莉
+
+安和すばる：美怜
+
+海老塚智：凪都
+
+ルパ：朱李
+<img src="https://p.sda1.dev/14/0800ed13893a1bc910653234db6d669c/20231220_210617.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  无意义小号  
+##### 183#       发表于 2023-12-20 21:19
+
+看了pv感觉还是比较传统王道的那种
+
+*****
+
+####  香雨香香  
+##### 184#       发表于 2023-12-20 21:20
+
+看mv里的人设主角好像终将成为你的女主，但是正片里的3D真是一言难尽
+
+*****
+
+####  moshizhe  
+##### 185#       发表于 2023-12-20 21:23
+
+这cv怎么都是两个字
+
+
+*****
+
+####  NZ-333  
+##### 186#       发表于 2023-12-20 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391446&amp;ptid=2050404" target="_blank">moshizhe 发表于 2023-12-20 21:23</a>
+
+这cv怎么都是两个字</blockquote>
+新人海选，统一艺名
+
+*****
+
+####  爱丁堡official  
+##### 187#       发表于 2023-12-20 21:29
+
+这3D太怪味了，感觉比邦邦的3D还路人debuff<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ⁣梦醒⁡  
+##### 188#       发表于 2023-12-20 21:30
+
+这画风咋恁阳光呢
+
+*****
+
+####  NZ-333  
+##### 189#       发表于 2023-12-20 21:30
+
+【【Girls Band Cry】名もなき何もかも【现场/动画PV】】 [https://www.bilibili.com/video/BV1uc41117UX](https://www.bilibili.com/video/BV1uc41117UX)
+
+*****
+
+####  NZ-333  
+##### 190#       发表于 2023-12-20 21:32
+
+【开阔天空！光之美少女 ED1～《ヒロガリズム》】 [https://www.bilibili.com/video/BV1kD4y1A7h7](https://www.bilibili.com/video/BV1kD4y1A7h7)
+
+东映从fresh开始的3d什么水平，看看今年q娃的ed就知道了
+
+
+*****
+
+####  バーチャルS1er  
+##### 191#       发表于 2023-12-20 21:35
+
+花田+日本3d、对我的两个精准腻味点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kasuga_Mirai  
+##### 192#       发表于 2023-12-20 21:35
+
+这3D质感有种EX-ARM的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虽然知道比那个好多了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哆哆鸡  
+##### 193#       发表于 2023-12-20 21:39
+
+明年4月有好几部可能的漫区高楼，这部 动工的水母 京吹3  还有可能的mujica 漫区流量会再超外野吗<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9758, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  moshizhe  
+##### 194#       发表于 2023-12-20 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391624&amp;ptid=2050404" target="_blank">哆哆鸡 发表于 2023-12-20 21:39</a>
+
+明年4月有好几部可能的漫区高楼，这部 动工的水母 京吹3  还有可能的mujica 漫区流量会再超外野吗
+
+ ...</blockquote>
+怎么没算骨头
+
+*****
+
+####  最强惠酱  
+##### 195#       发表于 2023-12-20 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391555&amp;ptid=2050404" target="_blank">NZ-333 发表于 2023-12-20 21:32</a>
+【开阔天空！光之美少女 ED1～ ...</blockquote>
+抱q开始除去治q ed1外基本都是倒退水准，真正的水平是从微笑开始到食q，其中巅峰在公主和15周年剧场版，后续没有一个能超越公主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这pv动起来的感觉和以前的q娃cg挺像的，就是说q娃本篇成了弃子吗，今年剧场版cg也是比较烂的tv水准<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  NZ-333  
+##### 196#       发表于 2023-12-20 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391679&amp;ptid=2050404" target="_blank">最强惠酱 发表于 2023-12-20 21:44</a>
+
+抱q开始除去治q ed1外基本都是倒退水准，真正的水平是从微笑开始到食q，其中巅峰在公主和15周年剧场版， ...</blockquote>
+看明年的女人咯<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">明年还有美妙，指不定就是不想做了呢
+
+*****
+
+####  凡人  
+##### 197#       发表于 2023-12-20 21:52
+
+发布现场的粉丝们好配合啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  林登·万  
+##### 198#       发表于 2023-12-20 21:52
+
+大少女乐团时代
+
+
+*****
+
+####  没取名啊  
+##### 199#       发表于 2023-12-20 22:00
+
+cry的要素呢？
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 200#       发表于 2023-12-20 22:15
+
+之前看微博干到一半跑路的舅舅党说成片质量堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是就听听jk唱歌得了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  有骨气的百合  
+##### 201#       发表于 2023-12-20 22:20
+
+<img src="https://p.sda1.dev/14/f7b88491851ec5240ee7702ffa32a175/A+ Gallery_25.jpg" referrerpolicy="no-referrer">
+所以东映这又是整哪出，一边花钱买流量一边扣扣搜搜用便宜外包还砸自己的脚了
+
+*****
+
+####  有骨气的百合  
+##### 202#       发表于 2023-12-20 22:20
+
+风怒
+
+*****
+
+####  6030sylar  
+##### 203#       发表于 2023-12-20 22:22
+
+不抠才不是东映
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  moshizhe  
+##### 204#       发表于 2023-12-20 22:42
+
+这pv的3d看起来不如三次元
+
+*****
+
+####  Skyline_R  
+##### 205#       发表于 2023-12-20 22:43
+
+我倒要看看水团TV同班底换了批上司能拍到哪个水平儿去，就花田写mediamix的态度和酒井当监督的能力，别又闹出“夏洛特复仇复出成神之日”之类的笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Kfly  
+##### 206#       发表于 2023-12-20 22:59
+
+反正是我的四月必看，就怕没活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  最强惠酱  
+##### 207#       发表于 2023-12-20 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63392046&amp;ptid=2050404" target="_blank">有骨气的百合 发表于 2023-12-20 22:20</a>
+所以东映这又是整哪出，一边花钱买流量一边扣扣搜搜用便宜外包还砸自己的脚了 ...</blockquote>
+看微博天q建模也是国人做的来着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-S9110, Android 14上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Cloudslin  
+##### 208#       发表于 2023-12-21 00:07
+
+数字影像部时期还有点技术力可言的，没了之后你Q的ed舞社内只提供分镜，建模，和舞蹈动捕，制作都是外包，而且这两年外包还越来越便宜。
+
+*****
+
+####  Piano-Forest  
+##### 209#         楼主| 发表于 2023-12-21 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63391555&amp;ptid=2050404" target="_blank">NZ-333 发表于 2023-12-20 21:32</a>
+
+【开阔天空！光之美少女 ED1～ ...</blockquote>
+シリーズ20周年記念作品『ひろがるスカイ！プリキュア』後期エンディング制作の物語
+[https://cgworld.jp/article/202312-hiropre-1.html](https://cgworld.jp/article/202312-hiropre-1.html)
+[https://cgworld.jp/article/202312-hiropre-2.html](https://cgworld.jp/article/202312-hiropre-2.html)
+
+
+*****
+
+####  a85982313  
+##### 210#       发表于 2023-12-21 02:10
+
+好像看不到会火的因素
+
+
+*****
+
+####  a.r.m  
+##### 211#       发表于 2023-12-21 10:25
+
+先观望
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 212#       发表于 2023-12-21 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63392455&amp;ptid=2050404" target="_blank">Kfly 发表于 2023-12-20 22:59</a>
+反正是我的四月必看，就怕没活</blockquote>
+一时间不知道是水团那种不知所谓的活比较好，还是星2种世界就绕着一人转的活好。。
+
+只觉得这个cast自带一种幽默
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 213#       发表于 2023-12-21 11:25
+
+<img src="https://img.saraba1st.com/forum/202312/21/112502diirnafnxvc2piin.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1703129085259.jpg</strong> (228.36 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 11:25 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/112502rrp55cp8ik195dsp.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1703129088461.jpg</strong> (154.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 11:25 上传
+
+<img src="https://img.saraba1st.com/forum/202312/21/112502oiozj7uw66fy0qbv.jpg" referrerpolicy="no-referrer">
+
+<strong>Image_1703129090614.jpg</strong> (131.47 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-21 11:25 上传
+
+能不能把这段也加进动画里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  Kfly  
+##### 214#       发表于 2023-12-22 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63395245&amp;ptid=2050404" target="_blank">ads147147 发表于 2023-12-21 10:28</a>
+
+一时间不知道是水团那种不知所谓的活比较好，还是星2种世界就绕着一人转的活好。。
+
+只觉得这个cast自带 ...</blockquote>
+乐队体系下多讲主唱倒是比较合理的，当然还是得有个度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cherryjia12  
+##### 215#       发表于 2023-12-22 11:51
+
+这3d乍一看很廉价，但多看两眼又感觉不错。。
+
