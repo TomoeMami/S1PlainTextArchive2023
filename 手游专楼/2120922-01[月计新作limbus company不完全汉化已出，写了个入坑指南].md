@@ -6751,3 +6751,921 @@ syl 悔恨浮这种超长线表现真挺好的
 
 真是太大方了，我当场表演一个失去不存在的记忆。希望以后的bug都这么难修（不是
 
+*****
+
+####  erratic璃月  
+##### 432#       发表于 2023-11-30 19:22
+
+战舰都开出来了，太离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  久井路路  
+##### 433#       发表于 2023-11-30 20:18
+
+BGM日常超神。
+
+这次第五章Boss战的bgm《Compass》太好听了，以实玛利塑造得更是王道，简直可以说是目前我最喜欢的一章了
+
+
+*****
+
+####  erratic璃月  
+##### 434#       发表于 2023-11-30 22:03
+
+打完第五章以后玛丽初始ego的语音是不是变了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 435#       发表于 2023-12-1 20:06
+
+<img src="https://img.saraba1st.com/forum/202312/01/200023wt2nmohb3326mhtz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201_195904.jpg</strong> (296.95 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/200023e1ps3ipiff17l131.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201_195913.jpg</strong> (215.68 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/200023we24pxccxn25p555.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201_195923.jpg</strong> (235.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/200023xsls8kpy46m4q7jl.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201_195934.jpg</strong> (194.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:00 上传
+
+<img src="https://img.saraba1st.com/forum/202312/01/200024lhy9q2q8ufnxq6hx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201_195946.jpg</strong> (224.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:00 上传
+
+新池子，魁魁格希斯克利夫+星巴克李箱。
+
+下下周就该是船长玛丽了吧，可能再附带个二星中指？
+
+
+*****
+
+####  Jamaisvu  
+##### 436#       发表于 2023-12-1 20:19
+
+<blockquote>erratic璃月 发表于 2023-11-30 22:03
+打完第五章以后玛丽初始ego的语音是不是变了</blockquote>
+通关前：
+
+<img src="https://img.saraba1st.com/forum/202312/01/201935r3qh1z1glthxghdd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231201_201912.jpg</strong> (84.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:19 上传
+
+通关后：
+
+<img src="https://img.saraba1st.com/forum/202312/01/201936qyid55j58ycy5z8y.jpg" referrerpolicy="no-referrer">
+
+<strong>3E1CD4D237CB5FE5BD7E7FA6D803F7BC.jpg</strong> (43.83 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2023-12-1 20:19 上传
+
+*****
+
+####  Yuzutea  
+##### 437#       发表于 2023-12-1 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">YJ之前公告有说地牢3什么时候更新吗？
+
+
+*****
+
+####  alivekid  
+##### 438#       发表于 2023-12-3 09:28
+
+8月底开始没咋抽卡了
+
+想问下现在都培养哪些角色啊 谢谢
+
+
+*****
+
+####  Yuzutea  
+##### 439#       发表于 2023-12-3 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63208303&amp;ptid=2120922" target="_blank">alivekid 发表于 2023-12-3 09:28</a>
+
+8月底开始没咋抽卡了
+
+想问下现在都培养哪些角色啊 谢谢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">签到有签的话臼齿奥练一下
+
+九月之后的角色普池强的就W良和十协罗佳了
+
+新赛季的话海盗虫还挺好玩的
+
+
+*****
+
+####  Jamaisvu  
+##### 440#       发表于 2023-12-3 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63208303&amp;ptid=2120922" target="_blank">alivekid 发表于 2023-12-3 09:28</a>
+
+8月底开始没咋抽卡了
+
+想问下现在都培养哪些角色啊 谢谢</blockquote>
+个人理解：
+
+李箱：最好用的还是檀香梅配狐雨，如果组W菜刀队的话可以练一个W箱配次元刀。
+
+浮士德：
+
+N浮最泛用，不上场给N辛当辅助被动也行；
+
+七浮完美适配液袋，伤害和硬币比N浮强，但破裂体系暂未成型；
+
+悔恨浮作为真限定暂时换不到，据说输出很暴力，技能带AOE，但是EGO资源跟自己不匹配。
+
+战令给的TETH级ego9章2节估计是给六协会人格留的，目前用不到。
+
+堂吉诃德：
+
+W唐依然最强，不进体系单走也很厉害。
+
+五协唐攻击动画比较快，纯突刺人格，没W唐泛用，不过刷经验本挺好用。
+
+中指唐我没有，感觉需要等新的中指出来组体系队。
+
+良秀：
+
+W良是充能体系的最大一块拼图，自身充能满了点，但成型后就能组全自动菜刀队。新出的目盲ego和W良完美匹配，注意别用过载模式。
+
+话说为了刷经验本我把黑云良也四破了，出血队大C，未来可期。
+
+鸿璐：
+
+黑帮宝四破可以进流血体系，不上场被动也很有用。
+
+K大宝又硬又能打，和新出的珍珠ego相性不合。
+
+希斯克利夫：
+
+R兔唯一神，四破提升不大但加弹药。下周出魁魁格三星人格，强度未知。但是R兔唯一神。
+
+以实玛利：
+
+三星人格都很强。R鹿适合充能队，六玛与红艳煞相性好。
+
+水玛突刺人格适合沉沦和振动体系，但暂时得不到。
+
+下下周估计出亚哈船长人格，兴许会再次提高强度上限。
+
+罗佳：
+
+十罗/神罗最强，带四破冰桥可以单刷纽本火牛。
+
+辛克莱：
+
+N辛唯一神。不组N社体系的话可以不四破，四破只加火伤和被动光环。
+
+战令给的HE级ego9章2节能和N辛搭配，想用可以带着。
+
+奥提斯：
+
+七协奥辅助被动很强，签到给的臼齿奥输出非常暴力，可以根据上不上场考虑用谁。
+
+格里高尔：
+
+二协最强，能打能抗，暖机比较简单，1技能拼点失败都有正收益，罪孽资源和金苹果完美匹配。
+
+船长虫是版本之子呼吸队的一员，技能暖机后伤害不俗，上限需要等亚哈船长出来看看呼吸体系如何。
+
+
+*****
+
+####  Yuzutea  
+##### 441#       发表于 2023-12-3 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我唐三个都四破四十了
+
+中指唐日常和镜牢比5唐表现好一些，但是也没好太多，动画比5唐长
+
+至于三号线应该还是必须用W唐
+
+
+*****
+
+####  alivekid  
+##### 442#       发表于 2023-12-4 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63209881&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-12-3 13:32</a>
+
+个人理解：
+
+李箱：最好用的还是檀香梅配狐雨，如果组W菜刀队的话可以练一个W箱配次元刀。</blockquote>
+感谢大佬的详细评价 我看看要抽谁
+
+
+*****
+
+####  Jamaisvu  
+##### 443#       发表于 2023-12-4 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63215806&amp;ptid=2120922" target="_blank">alivekid 发表于 2023-12-4 08:17</a>
+
+感谢大佬的详细评价 我看看要抽谁</blockquote>
+考虑到魔女之夜的存在（脑叶公司和废墟图书馆的联动活动，每个季度开一次，限定卡池只能抽取，下次魔女之夜才开兑换），平时的狂气最好留着攒井。赛季人格和常驻人格有喜欢的和需要的，直接碎片换更好。有付费狂气的话可以每天一抽等出金。
+
+月计最近可能觉得流水不行，又是限定卡池，又是付费播报员尤里，还搞出冤大头横幅这种东西（2700狂气买赛季战令+10级经验+直升狗粮券+特殊横幅），骗氪之心路人皆知，手里资源还是要合理调配。
+
+（不过这游戏几乎能直接肝出全图鉴已经够良心了...）
+
+
+*****
+
+####  erratic璃月  
+##### 444#       发表于 2023-12-4 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63218256&amp;ptid=2120922" target="_blank">Jamaisvu 发表于 2023-12-4 12:25</a>
+
+考虑到魔女之夜的存在（脑叶公司和废墟图书馆的联动活动，每个季度开一次，限定卡池只能抽取，下次魔女之 ...</blockquote>
+不得不说玩完边狱之后看着其他手游一堆进阶资源以及超长的每日任务和每周任务就头大。
+
+而牌子语音之类其实比起其他骗氪手段还是略显纯良了一些。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 445#       发表于 2023-12-4 14:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉再出点强度差不多的人格叮当宝中指唐船长虫的流血呼吸就能配起来了啊
+
+
+*****
+
+####  Jamaisvu  
+##### 446#       发表于 2023-12-4 17:33
+
+周四的更新中，李箱的狐雨ego因为过于IMBA，抢了同级ego的就业空间，所以要提升到waw级，还没异想解析到IV的可以尽快升级，之后就要涨费用了。
+
+
+*****
+
+####  erratic璃月  
+##### 447#       发表于 2023-12-4 18:33
+
+这就是狐雨的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  erratic璃月  
+##### 448#       发表于 2023-12-4 18:44
+
+yj终于要推色卡队了，魁魁格的23技能都是紫色，也算探索罪孽资源获取效率的一个方向吧。
+
+
+*****
+
+####  Jamaisvu  
+##### 449#       发表于 2023-12-4 19:58
+
+<img src="https://img.saraba1st.com/forum/202312/04/195747qjjgcbjw4lyzj8g8.jpg" referrerpolicy="no-referrer">
+
+<strong>CB7DDAA4D789F730BDDCE944582E4682.jpg</strong> (376.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:57 上传
+
+<img src="https://img.saraba1st.com/forum/202312/04/195748hpucgpws5snpx4i4.jpg" referrerpolicy="no-referrer">
+
+<strong>5B1F69133927F32850ECE485DC84B818.jpg</strong> (308.08 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-4 19:57 上传
+
+魁魁格终究是没有逃脱中指的烙印，刺破纹身，留下的血也闪着紫光...
+
+（话说希斯的代表色也正好是紫色）
+
+
+*****
+
+####  Jamaisvu  
+##### 450#       发表于 2023-12-7 12:44
+
+ 本帖最后由 Jamaisvu 于 2023-12-7 12:52 编辑 
+
+船夫三技能点数16起步，最大25。看起来很强，在嫉妒队里的强度应该不亚于普通阵容里的R兔吧...
+
+
+*****
+
+####  Yuzutea  
+##### 451#       发表于 2023-12-7 13:01
+
+ 本帖最后由 Yuzutea 于 2023-12-7 13:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下困难镜牢纯嫉妒队实在不太行
+
+看看亚哈人格行不行吧
+
+
+*****
+
+####  erratic璃月  
+##### 452#       发表于 2023-12-8 17:33
+
+罗佳执行ego，不愧是你啊yj<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 453#       发表于 2023-12-8 18:35
+
+<img src="https://img.saraba1st.com/forum/202312/08/183106lfssbsaknakbaz5k.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208_183030.jpg</strong> (293.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/183107a86lzk6p61d5lllk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208_183043.jpg</strong> (132.86 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 18:31 上传
+
+<img src="https://img.saraba1st.com/forum/202312/08/183107emh977aaha9zr93z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231208_183054.jpg</strong> (190.53 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-8 18:31 上传
+
+理智圣洁，侵蚀妖异，执行简直是站在我审美顶点的ego啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+（好希望赶紧出执行ego人格...技术解放联盟快去多挖几个L社废墟啊！）
+
+
+*****
+
+####  Yuzutea  
+##### 454#       发表于 2023-12-8 19:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Yuzutea  
+##### 455#       发表于 2023-12-9 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛玛的船长皮不会要给镜牢3同步出吧
+
+
+*****
+
+####  Jamaisvu  
+##### 456#       发表于 2023-12-10 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63276769&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-12-9 21:15</a>
+
+玛玛的船长皮不会要给镜牢3同步出吧</blockquote>
+如果出船长玛丽的同时真开镜牢3那也算双喜临门...
+
+看了一下第四章，赛季卡池有玫瑰二人组、雨狐玫虫、花箱绿玛、K宝红辛，镜牢2是六月29日和K宝池同步开的，如果船玛不是最后的赛季人格，那湖中镜可能还会晚点...
+
+（顶多再出个末兄末姐，总不至于直接出色收吧）
+
+
+*****
+
+####  Yuzutea  
+##### 457#       发表于 2023-12-10 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才打最后那迷宫
+
+这章剧情好啊，除了一点都不白鲸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 458#       发表于 2023-12-11 19:09
+
+<img src="https://img.saraba1st.com/forum/202312/11/190342m1twjwlw18efalje.png" referrerpolicy="no-referrer">
+
+<strong>1702292572668.png</strong> (458.93 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-11 19:03 上传
+
+罗佳的执行ego，觉醒回血加盾，侵蚀引震输出。
+
+结合被动来看，默尔索版更偏向输出，罗佳版则是生存为主。
+
+
+*****
+
+####  Jamaisvu  
+##### 459#       发表于 2023-12-11 19:16
+
+<img src="https://img.saraba1st.com/forum/202312/11/191218bypig4z1dqxb0pxi.png" referrerpolicy="no-referrer">
+
+<strong>1702293103272.png</strong> (217.63 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-11 19:12 上传
+
+12.14周四开镜牢3，关镜牢2和困难模式，下周四更新重开困难奖励。
+
+下周四估计就是最后的赛季卡池（不算限定）船长玛利，接下来就该圣诞活动了。
+
+*****
+
+####  Jamaisvu  
+##### 460#       发表于 2023-12-11 19:21
+
+<img src="https://img.saraba1st.com/forum/202312/11/191946pxhrmzojxoyt4xof.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231211_191918.jpg</strong> (40.35 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-11 19:19 上传
+
+圣诞活动叫20号巷的奇迹，该不会是在玩韩国男团EXO歌曲《十二月的奇迹》的梗吧。
+
+
+*****
+
+####  哩子ayil  
+##### 461#       发表于 2023-12-11 19:29
+
+侵蚀罗佳太帅了吧
+
+这是下周镜牢2没得玩了？
+
+我镜牢2甚至现在都还没点满这就3了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 462#       发表于 2023-12-11 19:38
+
+ 本帖最后由 Jamaisvu 于 2023-12-11 19:42 编辑 
+
+镜牢3更新总结：
+
+三个镜牢合为一体，前两个不再开放。
+
+普通难度4层，最大编队6人，人格等级固定40级。
+
+开局带1、2星人格，或编入上次没用过的人格，会多给经费；起始编队人格不参与战斗，多给星芒。
+
+初始ego可以根据增益效果随机获取，选择上次通关没用的增益，多给星芒。
+
+普通战斗得不到ego，精英战获得ego概率降低。
+
+ego可以升级、合成和售卖，商店ego可刷新。
+
+星光增益可以解锁部分ego并提高ego获取效率和等级。
+
+每层通关后可以在选择ego时可以主动选择敌方增益，不选ego的话那敌方增益随机。
+
+奖励和层数挂钩而非节点数，不想赌最后一层boss好不好打的，过了倒数第二层可以直接撤。通关奖励没变化。
+
+*****
+
+####  Jamaisvu  
+##### 463#       发表于 2023-12-11 19:41
+
+如果起得早，周四九点前可以抓紧刷一把困难地牢，过了点奖励加成就没啦。
+
+
+*****
+
+####  Yuzutea  
+##### 464#       发表于 2023-12-14 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这新镜牢也太折磨了我草
+
+
+*****
+
+####  Jamaisvu  
+##### 465#       发表于 2023-12-14 12:49
+
+关底boss六十级3000多血，不敢相信困难模式有多折磨...
+
+
+*****
+
+####  Yuzutea  
+##### 466#       发表于 2023-12-14 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打了三把
+
+试了呼吸充能沉沦
+
+事实证明除了沉沦这种高血量高耐性是没法打
+
+
+*****
+
+####  钟于123  
+##### 467#       发表于 2023-12-14 18:46
+
+玩了下沉沦和充能队，破裂队据说可以但是我人不齐。
+
+首先mvp 悔恨浮 廉价aoe清杂太舒服了
+
+沉沦队 
+
+核心：花箱 水玛 罗佳 
+
+优点是道中随便p，ego强力（狐雨 红炎杀 冰桥 执行），流程舒服。
+
+罗佳有执行之后，在ego上几乎完爆锁子了，配上十罗完美工具人。
+
+缺点是爆发需要前戏，一个侵蚀冰桥爆下来就200多，然而boss几千血，不靠升级沉沦饰品还是要运营几回合的，连续冰桥忧郁也不太够，要么上个浅蓝人要么赌打火机饰品。
+
+充能队
+
+我的队伍：1w良秀 2w唐 3玫瑰罗 4R鹿玛丽 5兔子 6R锁 (没w箱）
+
+优点爆发高，斩打突齐全，道中充能大招各种秒，打boss一回合一套大招下来1500+，流程最快的一队。
+
+缺点需要手操，铜牛坐牢，以及资源需求大（道中w良充能不够自残，理智，充能）。
+
+生命恢复和充能可以靠ego饰品。理智只能靠水袋，boss战很难回上来。以及boss战必须等迅速压制，发牌靠后的话状态就不太好保持了。
+
+总之只要能秒掉boss就没有缺点。
+
+
+*****
+
+####  Yuzutea  
+##### 468#       发表于 2023-12-14 19:04
+
+ 本帖最后由 Yuzutea 于 2023-12-14 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63328892&amp;ptid=2120922" target="_blank">钟于123 发表于 2023-12-14 18:46</a>
+
+玩了下沉沦和充能队，破裂队据说可以但是我人不齐。
+
+首先mvp 悔恨浮 廉价aoe清杂太舒服了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破裂队可以开局刷雷击木
+
+伤害比沉沦高，但是破裂那些人点数太低了，我打了三把破裂队打机器人这种还好，打烤冷面这种基本上没一个点拼的过的，你用EGO拼又上不了破裂
+
+明天削弱之后如果BOSS能随便P那破裂队优势巨大
+
+syl这商店概率绝对有问题吧
+
+我打了好几把最后商店600块钱刷五次全是那五六个东西在那三个格子来回出
+
+
+*****
+
+####  钟于123  
+##### 469#       发表于 2023-12-14 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63329047&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-12-14 19:04</a>
+
+破裂队可以开局刷雷击木
+
+伤害比沉沦高，但是破裂那些人点数太低了，我打了三把破裂队打机器人这种 ...</blockquote>
+刷开局就另说了。。
+
+破裂队的话，应该是k宝拉骰子尽量偷刀吧，点数是有点尴尬。
+
+主要还是靠ego饰品，胡了拿到4级破裂饰品就纯爽局。
+
+商店更新是挺离谱的，等后续优化吧。
+
+一个商店只能买，要去另一个商店强化+合成真的很蠢。
+
+刷新都是同样的饰品在刷，买了的格子还锁着不让刷。。
+
+合成就更坑了，只有3个3级合成赌4级饰品一个用处。
+
+
+*****
+
+####  Jamaisvu  
+##### 470#       发表于 2023-12-14 20:20
+
+镜牢3出补丁削弱了，加了拿ego饰品的概率，降低了敌人的等级和血量，还把为人勿哭的反烧伤被动删了——虽然烧伤队依然不成型。
+
+
+*****
+
+####  Yuzutea  
+##### 471#       发表于 2023-12-15 00:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星光点完应该是开局抽2选2还是好刷的
+
+我现在刷的来说初始EGO好像三阶每个体系只有一个，呼吸是四叶草，充能是电线杆，破裂是雷击木，沉沦是那新的罗盘
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沉沦要是初始能刷仲冬夜还好点，那罗盘现在这种人格情况下撑不起来体系
+
+
+*****
+
+####  Jamaisvu  
+##### 472#       发表于 2023-12-15 08:56
+
+<blockquote>Yuzutea 发表于 2023-12-15 00:30
+星光点完应该是开局抽2选2还是好刷的
+
+我现在刷的来说初始EGO好像三阶每个体系只有一个，呼吸是四叶 ...</blockquote>
+充能是避雷针吧，我想了半天电线杆是啥2333
+
+
+*****
+
+####  Jamaisvu  
+##### 473#       发表于 2023-12-15 18:19
+
+五协会的三星辛克莱和二星奥提斯，月计你好自由。
+
+该不会船长玛丽要在圣诞活动后，开三号线的时候再出吧...
+
+
+*****
+
+####  Yuzutea  
+##### 474#       发表于 2023-12-15 23:29
+
+ 本帖最后由 Yuzutea 于 2023-12-15 23:30 编辑 
+
+电狼避雷针那部位不是叫电线杆吗，我叫习惯了，还是说这两不是一个东西的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl YJ之前我记得预告不是有个很圣诞感觉的插图吗，圣诞应该是那个吧
+
+翻了下前面是小夫和唐，应该是这赛季活动人格了吧
+
+
+*****
+
+####  钟于123  
+##### 475#       发表于 2023-12-17 16:02
+
+我一个充能队运气好拿完了破裂的饰品。。第二层结束拿到快感，第四层拿到雷击木，我还有个玫瑰王冠
+
+站着不动对面就全死了，而且快感还能升级的。。
+
+破裂确实是镜牢上限+逃课最强的了，但是强度都是靠饰品，破裂人格有点尴尬。饰品拿齐了人格就锦上添花，没拿齐又不够无脑，主要还是人格撑不起来。
+
+
+*****
+
+####  Yuzutea  
+##### 476#       发表于 2023-12-17 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63355445&amp;ptid=2120922" target="_blank">钟于123 发表于 2023-12-17 16:02</a>
+
+我一个充能队运气好拿完了破裂的饰品。。第二层结束拿到快感，第四层拿到雷击木，我还有个玫瑰王冠
+
+站着不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按我想法是YJ在水玛时期被炎上那波节奏之后卡池强度是有调过的
+
+在那之后的卡强度和在那之前的卡强度可以说是16点数和18点数的两个时代
+
+破裂和燃烧的问题就是在这了，这两队大部分卡都是旧时代的卡，点数大部分技能都是16，17点，刚好就比现在BOSS少一点，你就拼不过
+
+
+*****
+
+####  Yuzutea  
+##### 477#       发表于 2023-12-17 22:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这合成不是对应属性的概率那么大你开尼玛同属性合成呢？
+
+
+*****
+
+####  Jamaisvu  
+##### 478#       发表于 2023-12-18 18:54
+
+<img src="https://img.saraba1st.com/forum/202312/18/184731mlpmlh20crmrmrii.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1702896345849.jpg</strong> (489.37 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 18:47 上传
+
+<img src="https://img.saraba1st.com/forum/202312/18/184732i7b02zbkbs0b0w0j.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1702896352169.jpg</strong> (434.34 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-18 18:47 上传
+
+五协二人组技能前瞻，呼吸队再加两位突刺特化人格。
+
+呼吸队的打击人格不太多，只有二协罗佳和LCCB良秀，估计船长玛丽会在这方面进行补强...
+
+
+*****
+
+####  Yuzutea  
+##### 479#       发表于 2023-12-18 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们打充能队带鹿吗？
+
+
+*****
+
+####  Jamaisvu  
+##### 480#       发表于 2023-12-18 20:52
+
+<blockquote>Yuzutea 发表于 2023-12-18 19:40
+你们打充能队带鹿吗？</blockquote>
+我的充能队是W箱+W浮+W唐+W良+牛默+鹿玛，W宝当辅助提供被动，W默在破裂队（W箱也在）。
+
+有关键饰品的话充能很快，boss战开小唐电狼侵蚀群充。除非鹿子开局用三技能把队友打死，正常P就能过关。
+
+可惜避雷针升级满开局只给7充能，如果8充能鹿子就能全自动了。
+
+
+*****
+
+####  Jamaisvu  
+##### 481#       发表于 2023-12-18 20:59
+
+困难镜牢3有五层，规则和困难2差不多，奖励一样。星光增益会再加三个，然后全点完之后，溢出的可以在进本时消耗获得一次性增益......感觉就是负优化，没动力卷了，以后的新人估计玩得很累吧...
+
+
+*****
+
+####  Yuzutea  
+##### 482#       发表于 2023-12-19 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那初始第三个看图透是500星光买一个随机初始四星
+
+这要是困难能用也好，新手不至于打不过了
+
+
+*****
+
+####  Yuzutea  
+##### 483#       发表于 2023-12-21 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屯了3500星光还以为怎么都够了
+
+够狠啊YJ
+
+
+*****
+
+####  哩子ayil  
+##### 484#       发表于 2023-12-21 17:24
+
+听起来就好累，我镜2都只点了半边来的
+
+
+*****
+
+####  Jamaisvu  
+##### 485#       发表于 2023-12-22 21:01
+
+圣诞活动预告：
+
+<img src="https://img.saraba1st.com/forum/202312/22/204801gx6yvvpyexxppz8a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204301.jpg</strong> (248.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+HE鲁道夫女王的圣诞树（误）
+
+<img src="https://img.saraba1st.com/forum/202312/22/204802mjojjwlipmw0gzg5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204101.jpg</strong> (264.38 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/204802snd45kznc599atc9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204044.jpg</strong> (226.25 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/204803k8lh5rzq8ql8588d.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204130.jpg</strong> (226.69 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+Zayin果师袋
+
+<img src="https://img.saraba1st.com/forum/202312/22/204804w2ga6gvs51a7bg6s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204213.jpg</strong> (266.07 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/204805yaex7a97p3plpbtb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204149.jpg</strong> (234.4 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/204805u09zsq9gaou9ns8z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204229.jpg</strong> (180.85 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+怪物有小精灵、圣诞老人，这个胖山妖可能是克朗普斯吧，黑童话版的圣诞老人。
+
+（表现好的孩子有奖励，犯过罪的坏人有惩罚。）
+
+<img src="https://img.saraba1st.com/forum/202312/22/204806dhsxstz4mttho1xz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204347.jpg</strong> (179.31 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/204806jqgtgcps7ggwyayh.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204444.jpg</strong> (166.65 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+<img src="https://img.saraba1st.com/forum/202312/22/204807h5759parapxt9ifo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20231222_204431.jpg</strong> (170.83 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-22 20:48 上传
+
+人格的话还没出，不过提起圣诞节就想起维吉尔的孤儿院...出个小唐的加内特人格怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（真变成维导认识的人，能不能活着下车就难说了...）
+
