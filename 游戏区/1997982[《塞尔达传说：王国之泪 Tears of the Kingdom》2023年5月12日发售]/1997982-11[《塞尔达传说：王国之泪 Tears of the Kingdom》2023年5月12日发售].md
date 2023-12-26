@@ -7128,3 +7128,309 @@ amiibo 11月3日发售，感觉这俩滑翔伞都能夜光</blockquote>
 
 有一说一这张图也太好看了吧。。。多出点谷子手办啊可恶！<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+*****
+
+####  冷泉夜月  
+##### 15599#       发表于 2023-12-16 09:31
+
+IGN选出了他们的2023年度游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+IGN年度游戏2023.jpg
+(182.5 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-16 09:31 上传
+
+<img src="https://img.saraba1st.com/forum/202312/16/093134rv1qacg1v7pn1xxz.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 15600#       发表于 2023-12-16 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63344555&amp;ptid=1997982" target="_blank">冷泉夜月 发表于 2023-12-16 09:31</a>
+
+IGN选出了他们的2023年度游戏</blockquote>
+这俩G一家给一个是吧。
+
+
+*****
+
+####  牛奶笛  
+##### 15601#       发表于 2023-12-16 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ign算真爱了，当初灾厄启示录也能拿9分
+
+
+*****
+
+####  努斯万克  
+##### 15602#       发表于 2023-12-16 14:30
+
+终于打完盖侬了，玩了120h才通关收集率42<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 15603#       发表于 2023-12-16 15:43
+
+隐隐约约感觉可能没有后续的Amiibo了，比如五贤者，俩夫妻。
+
+进入世代末，老任突然对Amiibo和DLC态度冷淡。不知道大师之书之类的还有没有
+
+*****
+
+####  冷泉夜月  
+##### 15604#       发表于 2023-12-16 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63347022&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-12-16 15:43</a>
+
+隐隐约约感觉可能没有后续的Amiibo了，比如五贤者，俩夫妻。
+
+进入世代末，老任突然对Amiibo和DLC态度冷淡 ...</blockquote>
+amiibo多半是没了，没dlc也没有好的发售时机，设定集和OST应该还是会出的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 15605#       发表于 2023-12-16 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63344710&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-12-16 10:04</a>
+
+ign算真爱了，当初灾厄启示录也能拿9分</blockquote>
+ign哪次评史上最佳top100都少不了任天堂霸榜。确实是真爱了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  king520kyo  
+##### 15606#       发表于 2023-12-16 18:53
+
+所以王泪还出不出无双<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15607#       发表于 2023-12-16 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63348285&amp;ptid=1997982" target="_blank">king520kyo 发表于 2023-12-16 18:53</a>
+所以王泪还出不出无双
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+感觉故事讲很完整了，出无双意义不大？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  liekong  
+##### 15608#       发表于 2023-12-16 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63348406&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-12-16 19:08</a>
+感觉故事讲很完整了，出无双意义不大？
+
+—— 来自 S1Fun</blockquote>
+如果真的还出无双，故事应该只能讲是万年前的勇者了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  牛奶笛  
+##### 15609#       发表于 2023-12-16 21:17
+
+个人推测未来五年系列作品
+
+1、24年末—25年初  风之杖移植（唯一也是最佳选择，其他的工期都来不及，极大概率是新主机的第一部塞尔达）
+
+2、25年末  中概率王国之泪无双，小概率2D塞旧作复刻
+
+3、26年  大概率黄昏复刻、中概率（2D塞新作、2D塞旧作移植、以塞尔达为主角衍生，三选一）
+
+4、27年 旷野之息HD  小概率正作
+
+5 、28年 大概率正作
+
+
+*****
+
+####  kuarwbwe  
+##### 15610#       发表于 2023-12-17 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63349807&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2023-12-16 21:17</a>
+
+个人推测未来五年系列作品
+
+1、24年末—25年初  风之杖移植（唯一也是最佳选择，其他的工期都来不及，极大 ...</blockquote>
+26年塞尔达传说40周年。不知道到时候会有啥作品出来。
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 15611#       发表于 2023-12-17 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63351557&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-12-17 00:15</a>
+
+26年塞尔达传说40周年。不知道到时候会有啥作品出来。</blockquote>
+35周年的时候一点动静都没有，感觉你任现在已经不会像赶25周年那次一样赶工了（然后天剑成为了牺牲品）……
+
+慢慢做挺好的，但就是觉得再见到3D塞正作应该是新机中后期，机能可能又要不够用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  kuarwbwe  
+##### 15612#       发表于 2023-12-17 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63352070&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-12-17 02:11</a>
+
+35周年的时候一点动静都没有，感觉你任现在已经不会像赶25周年那次一样赶工了（然后天剑成为了牺牲品）… ...</blockquote>
+也未必就是正作，可能是外传、电影或者重置。但是初代重置这种东西又感觉放到50周年，100周年合适点。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  牛奶笛  
+##### 15613#       发表于 2023-12-17 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63351557&amp;ptid=1997982" target="_blank">kuarwbwe 发表于 2023-12-17 00:15</a>
+
+26年塞尔达传说40周年。不知道到时候会有啥作品出来。</blockquote>
+随缘啦，欧美玩家也吐槽马里奥35周年的时候没东西，结果现在不是什么特殊日子，出一堆马里奥游戏。
+
+我感觉在老任看来电影上映那一年比40周年重要，但二者应该很接近，一切都很顺利的话，26-27年电影，40周年、野炊10周年、黄昏20周年、正作、衍生会有一堆企划。
+
+
+*****
+
+####  竜破斬  
+##### 15614#       发表于 2023-12-17 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63352070&amp;ptid=1997982" target="_blank">Waldeinsamkeit 发表于 2023-12-17 02:11</a>
+
+35周年的时候一点动静都没有，感觉你任现在已经不会像赶25周年那次一样赶工了（然后天剑成为了牺牲品）… ...</blockquote>
+天剑算不上赶工吧，游戏的各种问题我觉得属于设计本身的问题。
+
+天剑是延期了一年刚好赶上25周年，任天堂就顺带做了比较大的宣发。2006到2011算起来天剑也有5年的开发时间，和botw差不太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jtwing  
+##### 15615#       发表于 2023-12-17 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">再次祈愿黄昏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  贝雷丝·艾斯纳  
+##### 15616#       发表于 2023-12-17 15:48
+
+同一个世界观有必要出俩无双吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+
+*****
+
+####  冷泉夜月  
+##### 15617#       发表于 2023-12-20 07:51
+
+Game Informer 评选的 2023 十大游戏，塞尔达传说王国之泪成为该网站的年度游戏。
+
+1) 塞尔达传说：王国之泪
+
+2) 博德之门3
+
+3) 漫威蜘蛛侠2
+
+4) 生化危机4重制
+
+5) 心灵杀手2
+
+6) 星球大战绝地：幸存者 
+
+7) 超级马力欧兄弟惊奇
+
+8) 退潮
+
+9) 星之海
+
+10) 街霸 6 ​​​
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JoelBirch  
+##### 15618#       发表于 2023-12-20 08:17
+
+以如今游戏的开发环境和流程来说，我觉得以后还是少期待什么周年啊纪念啊之类的东西，不管是老任还是隔壁卡婊，按自己的开发节奏和宣发流程把游戏完完整整端出来才是正道，追求其他的干嘛，赶上了是皆大欢喜，赶不上就算了呗，就别自作多情了
+
+
+*****
+
+####  chaosliu  
+##### 15619#       发表于 2023-12-21 10:26
+
+年底在抢进度通关，有些洞穴遗迹搞不懂为啥会在这个地区。比如卓拉地区的卓拉塔下方拿登山裤的洞穴（好像叫什么的近路）里面有一个遗迹，明显就是海拉鲁王国的军事基地，但没搞懂为啥会设置在卓拉地区，按道理不该是卓拉人的遗迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冷泉夜月  
+##### 15620#       发表于 2023-12-23 09:00
+
+Edge杂志评选的今年10大游戏
+
+Best Games of the Year:
+
+10. Counter-Strike 2
+
+9. A Highland Song
+
+8. Street Fighter 6
+
+7. Chants of Sennaar
+
+6. Alan Wake 2
+
+5. Cocoon
+
+4. Humanity
+
+3. Super Mario Bros. Wonder
+
+2. Baldur’s Gate 3
+
+1. The Legend of Zelda: Tears of the Kingdom ​​​
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  猫不萌  
+##### 15621#       发表于 2023-12-23 09:44
+
+感觉新机第一部塞尔达反而应该是旷野之息 hd，然后才是风之杖或者时之笛之类的复刻
+
+
+*****
+
+####  leove25  
+##### 15622#       发表于 2023-12-23 10:10
+
+polygon的年度最佳也是王泪，目前除了gs以外的大媒体年度最佳都是王泪。
+
