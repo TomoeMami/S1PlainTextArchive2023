@@ -2379,3 +2379,44 @@ Corey Hardt的专栏Thinky Puzzles Quarterly
 
 这代跑图好累，游戏10分钟，跑图解密各站一半
 
+*****
+
+####  BRAVADO  
+##### 160#       发表于 2023-12-22 12:46
+
+Baba is you作者新作(?)Mobile Suit Baba已在itch.io上发行，玩法是baba+into the breach，限时免费。
+[https://hempuli.itch.io/mobile-suit-baba](https://hempuli.itch.io/mobile-suit-baba)
+
+
+*****
+
+####  Junakr  
+##### 161#       发表于 2023-12-22 21:34
+
+Baba Is Mech 玩了几关挺有意思的，Baba 真的只会全程 Bababa<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  adslnet0519  
+##### 162#       发表于 2023-12-22 23:58
+
+塔洛斯的法则2爽到我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">截图截得停不下来，70g的奇观和风景确实很顶
+
+
+*****
+
+####  INDIASH  
+##### 163#       发表于 2023-12-23 01:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩梗是吧
+
+baba is ms.PNG
+(20.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 01:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/23/014158op8yk855y7bpdy75.png" referrerpolicy="no-referrer">
+

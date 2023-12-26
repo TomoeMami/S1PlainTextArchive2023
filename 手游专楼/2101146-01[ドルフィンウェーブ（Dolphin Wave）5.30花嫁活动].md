@@ -4174,3 +4174,10 @@ FES卡池角色及礼装（礼装也是LIVE2D！）
 
 狂出fes卡池，这游戏感觉快倒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  心之光  
+##### 403#       发表于 2023-12-22 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">其实是不是联动直接出联动角色更好点，套娃皮肤COSPLAY感觉怪怪的...
+
