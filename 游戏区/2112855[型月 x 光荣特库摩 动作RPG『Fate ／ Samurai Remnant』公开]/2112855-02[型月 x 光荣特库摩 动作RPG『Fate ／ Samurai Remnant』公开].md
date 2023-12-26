@@ -1883,3 +1883,45 @@ DLC情报留到年底的月球春晚了
 最难绷的是，女主角是男的，他还有个老婆。</blockquote>
 武尊这种有女装事迹的娘化才没意思的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+*****
+
+####  シャル  
+##### 1664#       发表于 2023-12-23 22:25
+
+ 本帖最后由 シャル 于 2023-12-23 22:29 编辑 
+
+更新了，增加凶剑难度
+
+回忆战可选人，可用蓝狗单挑金闪闪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是大木啥的master还是不能用
+
+可惜没红A<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+IMG_E4678.JPG
+(784.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 22:28 上传
+
+<img src="https://img.saraba1st.com/forum/202312/23/222813fggf6xx2mgzzsx9z.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  空洞骑士  
+##### 1665#       发表于 2023-12-23 22:45
+
+我说怎么感觉最新的更新一个月前见过，原来是一个月前预告12月下旬更新，我还以为是主机先更新了才更PC。增加2个难度和从者参与回想战居然要更新1个G的吗？
+
+
+*****
+
+####  rookie99  
+##### 1666#       发表于 2023-12-23 23:33
+
+<blockquote>godless2020 发表于 2023-11-20 14:12
+值得玩吗，不是原著党，割草的感觉如何？？？</blockquote>
+一般 本身素质在二次元动作游戏里还凑合，但核心战斗方法太刮痧了
+
