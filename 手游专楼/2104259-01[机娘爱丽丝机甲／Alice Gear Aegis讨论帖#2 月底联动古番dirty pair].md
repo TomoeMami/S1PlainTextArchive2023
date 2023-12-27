@@ -7466,3 +7466,287 @@ AGA的抽卡特别搞人心态， 我已经被气得删两次游戏了 ：）
 
 图是画了但是就是不发推转推，我看是闹别扭了只剩下商业关系？柏木和岛田年的十几年交情怕不是纸糊的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  不灭的旋律  
+##### 831#       发表于 2023-12-15 11:05
+
+DMM活动又开始了老规矩登录送福袋
+[https://games.dmm.com/cp/festival/winter/](https://games.dmm.com/cp/festival/winter/)
+
+
+*****
+
+####  冰风血羽  
+##### 832#       发表于 2023-12-15 17:17
+
+请问11区那边的过年或者周年庆有没有自选？多少钻？有的话我就买点月卡攒起来。
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  granly  
+##### 833#       发表于 2023-12-15 19:28
+
+<blockquote>冰风血羽 发表于 2023-12-15 17:17
+请问11区那边的过年或者周年庆有没有自选？多少钻？有的话我就买点月卡攒起来。
+
+—— 来自 realme RMX3706 ...</blockquote>
+周年有普池自选和an自选，记得好像是300钻一个，不知道明年会不会有fa自选
+
+
+*****
+
+####  江戸前ルナ  
+##### 834#         楼主| 发表于 2023-12-15 19:47
+
+必得200自选380吧，没记错的话。
+
+
+*****
+
+####  冰风血羽  
+##### 835#       发表于 2023-12-15 20:04
+
+每天一发15钻抽花音，现在剩下298，那看来是要买月卡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  genki  
+##### 836#       发表于 2023-12-15 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63280843&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-12-10 12:26</a>
+
+今天安里的第五年生日，竟然是岛田画图。岛田都隔了多久没画阿嘎了</blockquote>
+看了眼FANTIA，岛田上次画AGA是3月份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 837#       发表于 2023-12-15 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的DMMplayer只能从岛风GO那里启动，网页启动全部失败，要痛失福袋了
+
+
+*****
+
+####  江戸前ルナ  
+##### 838#         楼主| 发表于 2023-12-15 22:37
+
+ 本帖最后由 江戸前ルナ 于 2023-12-15 22:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63342029&amp;ptid=2104259" target="_blank">冰风血羽 发表于 2023-12-15 22:24</a>
+
+我的DMMplayer只能从岛风GO那里启动，网页启动全部失败，要痛失福袋了</blockquote>
+不用，登录账号的浏览器页面点入弹出的活动窗口参加活动就OK了。
+[https://games.dmm.co.jp/](https://games.dmm.co.jp/)
+
+
+*****
+
+####  madcow  
+##### 839#       发表于 2023-12-15 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">票满了去AN池扔了十票NEW了AN司哥，好微妙的感觉（
+
+
+*****
+
+####  冰风血羽  
+##### 840#       发表于 2023-12-16 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63342145&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-12-15 22:37</a>
+不用，登录账号的浏览器页面点入弹出的活动窗口参加活动就OK了。
+
+https://games.dmm.co.jp/
+
+ ...</blockquote>
+原来不是即时发送的么<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我是有从游戏列表里点击参加了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  冰风血羽  
+##### 841#       发表于 2023-12-17 13:50
+
+今天趁着有点材料拉了些装备的分支，手残暴论一下，怎么感觉近战武器分支都是改善手感而远程更难玩了。。。特别是俩AIT<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 842#         楼主| 发表于 2023-12-19 19:18
+
+预约解析<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 843#         楼主| 发表于 2023-12-19 19:37
+
+阿金不讲武德，我以为会是常规28号月底活动，见快爆票还砸了10票去抽sadone<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">（而且还抽不出
+
+
+*****
+
+####  不灭的旋律  
+##### 844#       发表于 2023-12-19 20:49
+
+年轻10岁的FA记者和女主播没人提<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+你游终于出过去版的角色了，你倒是出岛田的学生版记者啊
+
+
+*****
+
+####  江戸前ルナ  
+##### 845#         楼主| 发表于 2023-12-19 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63380098&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2023-12-19 20:49</a>
+
+年轻10岁的FA记者和女主播没人提
+
+你游终于出过去版的角色了，你倒是出岛田的学生版记者啊 ...</blockquote>
+标题啊（
+
+学生版最大呼声的不是1X岁的BBA吗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  不灭的旋律  
+##### 846#       发表于 2023-12-19 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63380171&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-12-19 20:57</a>
+
+标题啊（
+
+学生版最大呼声的不是1X岁的BBA吗</blockquote>
+你不说我都忘了岛田画过17岁BBA了
+[https://fantia.jp/posts/1263455](https://fantia.jp/posts/1263455)
+
+以后可以期待大人版的FA东云了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+[https://fantia.jp/posts/1457835](https://fantia.jp/posts/1457835)
+
+
+*****
+
+####  杂灰  
+##### 847#       发表于 2023-12-19 22:49
+
+请关注奔三女青年关系性<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  冰风血羽  
+##### 848#       发表于 2023-12-20 00:51
+
+预约解析好文明
+
+
+*****
+
+####  madcow  
+##### 849#       发表于 2023-12-20 01:06
+
+话是这么说啦，但是FA角色之前不是说是角色现在的新面貌啥的？不往下推往前倒腾也挺微妙的，整的头上插了便当旗一样（
+
+
+*****
+
+####  江戸前ルナ  
+##### 850#         楼主| 发表于 2023-12-21 16:06
+
+欺诈啊，真理的个人剧情都没啥猛料，就是怎么认识杏奈以及为啥变成了一个喜欢拍妹子的变态<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">当年她怎么无敌法也没提。反倒是公告加的那几个语音人名感觉全TM是卫星。
+
+谁来透一下FA杏奈的个人觉醒啊（
+
+
+*****
+
+####  Picavian  
+##### 851#       发表于 2023-12-21 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63398859&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2023-12-21 16:06</a>
+
+欺诈啊，真理的个人剧情都没啥猛料，就是怎么认识杏奈以及为啥变成了一个喜欢拍妹子的变态当年她怎 ...</blockquote>
+第一集：杏奈返校（桃学）讲往事，三地鼠那边出现过的欧林新也来了，这俩人是同期好友；
+
+第二集：杏奈在桃学讲留学前后的往事；
+
+第三集：杏奈从桃学开车回去，内心和过去的那个自己聊天
+
+没啦。
+
+
+*****
+
+####  江戸前ルナ  
+##### 852#         楼主| 发表于 2023-12-21 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63400641&amp;ptid=2104259" target="_blank">Picavian 发表于 2023-12-21 19:15</a>
+
+第一集：杏奈返校（桃学）讲往事，三地鼠那边出现过的欧林新也来了，这俩人是同期好友；
+
+第二集：杏奈在 ...</blockquote>
+谢。也是没什么猛料。这次活动剧情也是一部分，不过从之前文嘉阿星的活动来看估计也没了（
+
+
+*****
+
+####  Picavian  
+##### 853#       发表于 2023-12-22 15:38
+
+今天活动剧情里杏奈的母亲有出场，母女俩的姓氏不同且都是本名，估计又是家庭有点情况导致的。
+
+
+*****
+
+####  andychen  
+##### 854#       发表于 2023-12-24 21:10
+
+问一下现在PC版AGA该怎么打开？
+
+我更新完DMM PLAYER以后一直提示我国家限制，开了全局代理还是不行
+
+*****
+
+####  江戸前ルナ  
+##### 855#         楼主| 发表于 2023-12-24 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63428382&amp;ptid=2104259" target="_blank">andychen 发表于 2023-12-24 21:10</a>
+
+问一下现在PC版AGA该怎么打开？
+
+我更新完DMM PLAYER以后一直提示我国家限制，开了全局代理还是不行 ...</blockquote>
+1，CLASH开启TUN MODE加全局，日本IP。这个好久没用了不知道现在DMM墙加高以后还有没效。
+
+2，用ACGP的赛马娘等有专门启动DMM PLAYERER的模块打开DMMPLAYER就行。
+
+
+*****
+
+####  三郷雫  
+##### 856#       发表于 2023-12-24 21:30
+
+dmm必须日本ip吧，外国不行
+
+
+*****
+
+####  andychen  
+##### 857#       发表于 2023-12-24 22:08
+
+感谢，chash开了TUN模式就可以了
+
+PC上搓招的宽容度好像高了不少，不知道是不是太久没玩的错觉 
+
