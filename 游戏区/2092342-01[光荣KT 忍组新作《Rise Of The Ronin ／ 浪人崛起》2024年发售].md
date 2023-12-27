@@ -3945,3 +3945,743 @@ P5独占？？？暗荣吃屎吧</blockquote>
 
 忍龙大多数敌人可都是人形，瘦死的骆驼比马大，唯独人形敌人是忍者组最不需要担心的部分
 
+*****
+
+####  stair楼梯  
+##### 427#       发表于 2023-12-14 13:02
+
+ps港服开了预购，商店pv里有一个新镜头，就是钩索可以和上个pv扔爆桶一样扔敌人
+
+
+*****
+
+####  nage560  
+##### 428#       发表于 2023-12-14 13:28
+
+这价格是阿索还是暗荣定的？这卖相是真的有信心卖500W吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  kalavinka  
+##### 429#       发表于 2023-12-14 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63325386&amp;ptid=2092342" target="_blank">nage560 发表于 2023-12-14 13:28</a>
+这价格是阿索还是暗荣定的？这卖相是真的有信心卖500W吗</blockquote>
+不是哪个卖到500w哪个就是500w大作吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nage560  
+##### 430#       发表于 2023-12-14 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63325411&amp;ptid=2092342" target="_blank">kalavinka 发表于 2023-12-14 13:30</a>
+
+不是哪个卖到500w哪个就是500w大作吗</blockquote>
+按时间算应该指的就是这个了，狂野之心不像做了很多年的样子。
+
+
+*****
+
+####  ultraseven  
+##### 431#       发表于 2023-12-14 13:36
+
+日版分两个评级？一个D级一个Z级
+
+
+*****
+
+####  被雨困住的城市  
+##### 432#       发表于 2023-12-14 13:45
+
+38重制跳票了，倒是这个游戏比想象中早
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  karastar  
+##### 433#       发表于 2023-12-14 13:52
+
+可是这个游戏公布的时候光荣说过不是500w啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bm7号  
+##### 434#       发表于 2023-12-14 14:06
+
+光荣这么长时间没有新游戏出？gust快凑一个啊。
+
+
+*****
+
+####  clover293  
+##### 435#       发表于 2023-12-14 14:45
+
+前面lz好像发过这个不是500万吧
+
+而且发500万推的那个人是。。。望月崇
+
+
+*****
+
+####  woshenc  
+##### 436#       发表于 2023-12-14 15:08
+
+这个不是500w的话，难道是卧龙还是狂野之心？
+
+*****
+
+####  karastar  
+##### 437#       发表于 2023-12-14 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63326508&amp;ptid=2092342" target="_blank">woshenc 发表于 2023-12-14 15:08</a>
+
+这个不是500w的话，难道是卧龙还是狂野之心？</blockquote>
+都不是啊，不要光荣发个游戏你们就说是500W，按光荣的说法500W还在制作中呢
+
+
+*****
+
+####  asakura20005  
+##### 438#       发表于 2023-12-14 15:14
+
+关于500w，光荣年报里的说法是“创造一个500w销量级别的新ip，每年创造一款200w销量级别作品”，所以还真有可能是哪个先卖到500w哪个就是这个传说的500w
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  碎镜子  
+##### 439#       发表于 2023-12-14 15:15
+
+ps5独占500w，我信了
+
+
+*****
+
+####  hourousha  
+##### 440#       发表于 2023-12-17 00:17
+
+是不是不用指望这游戏的画面超过N年前的对马岛了？
+
+
+*****
+
+####  陈词与芍药  
+##### 441#       发表于 2023-12-17 06:30
+
+这游戏7年前开始提出项目的，如果有什么能代表光荣的500w新ip，那只有这个最适合了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  940045933  
+##### 442#       发表于 2023-12-17 08:13
+
+就光荣这狗屎技术力，500w梦里可能会有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2186A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  BadYanL  
+##### 443#       发表于 2023-12-19 14:24
+
+ 本帖最后由 BadYanL 于 2023-12-19 14:33 编辑 
+
+[GI新访谈](https://www.gameinformer.com/preview/2023/12/19/team-ninja-discusses-crafting-its-first-open-world-where-you-shouldnt-kill)，一些新料
+
+-三个主要城市，横滨，京都，江户
+
+-有分支选项和多结局
+
+<img src="https://img.saraba1st.com/forum/202312/19/142450y0y6mgeh9hdkyhg4.jpg" referrerpolicy="no-referrer">
+
+<strong>rotr_screen_1.jpg</strong> (121.9 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 14:24 上传
+
+<img src="https://img.saraba1st.com/forum/202312/19/142450lejpdbdb4k17pbzy.jpg" referrerpolicy="no-referrer">
+
+<strong>rotr_screen_5.jpg</strong> (101.72 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 14:24 上传
+
+<img src="https://img.saraba1st.com/forum/202312/19/142451omea77peef8cfqbz.jpg" referrerpolicy="no-referrer">
+
+<strong>rotr_screen_4.jpg</strong> (38.71 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 14:24 上传
+
+<img src="https://img.saraba1st.com/forum/202312/19/142451kwodvdqvdj9hohqb.jpg" referrerpolicy="no-referrer">
+
+<strong>rotr_screen_3.jpg</strong> (56.28 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-19 14:24 上传
+
+*****
+
+####  byisme001  
+##### 444#       发表于 2023-12-19 14:26
+
+有难度选项吗
+
+
+*****
+
+####  SergeGlenn  
+##### 445#       发表于 2023-12-19 14:59
+
+<blockquote>byisme001 发表于 2023-12-19 14:26
+有难度选项吗</blockquote>
+三个难度可选
+
+Obviously Team Ninja titles aren't designed to be easy for everyone to play, but we wanted to make this title more accessible to a wide range of players. We have developed three distinct difficulty modes that players can choose based on their preferences. The first is aimed at narrative-focused players, who want to experience the story and play without too much difficulty. Then we have an intermediate mode for players used to this kind of experience. Finally, we have a harder mode that is more in line with our previous games and meets the needs of hardcore gamers and Souls-like fans. - Yosuke Hayashi (Producer - Team Ninja) and Fumihiko Yasuda (Development Producer and Game Director)
+
+*****
+
+####  hallowilliam  
+##### 446#       发表于 2023-12-19 15:01
+
+其实这规模和成本的游戏卖100w已经很赚了
+
+
+*****
+
+####  drx66  
+##### 447#       发表于 2023-12-19 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63375929&amp;ptid=2092342" target="_blank">BadYanL 发表于 2023-12-19 14:24</a>
+
+GI新访谈，一些新料
+
+-三个主要城市，横滨，京都，江户（三城加起来共27平方公里）
+
+-有分支选项和多结局-双 ...</blockquote>
+这截图看着还是熟悉的仁味
+
+
+*****
+
+####  popchong  
+##### 448#       发表于 2023-12-19 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连几张有逼格的截图都截不出来
+
+*****
+
+####  黑修士  
+##### 449#       发表于 2023-12-19 16:45
+
+选择幕末题材据说也是襟川阳一的要求。没有试玩版，估计还是为了财报需求定的发售日在赶工。
+
+*****
+
+####  无意义小号  
+##### 450#       发表于 2023-12-19 16:50
+
+会有自定义捏人系统么，仁王2的捏人真的好评
+
+
+*****
+
+####  黑修士  
+##### 451#       发表于 2023-12-19 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63377770&amp;ptid=2092342" target="_blank">无意义小号 发表于 2023-12-19 16:50</a>
+
+会有自定义捏人系统么，仁王2的捏人真的好评</blockquote>
+有，双主角都可以捏。
+
+*****
+
+####  stair楼梯  
+##### 452#       发表于 2023-12-19 16:52
+
+这和龙信2一天发售的游戏，那边系统和新敌人都介绍了不少玩家心里都有点谱了，这边宣传还是遮遮掩掩的，这回也是连试玩都不愿意给，太牛了
+
+*****
+
+####  stair楼梯  
+##### 453#       发表于 2023-12-19 16:52
+
+ 本帖最后由 stair楼梯 于 2023-12-19 16:53 编辑 
+
+风怒
+
+*****
+
+####  无意义小号  
+##### 454#       发表于 2023-12-19 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63377797&amp;ptid=2092342" target="_blank">黑修士 发表于 2023-12-19 16:51</a>
+
+有，双主角都可以捏。</blockquote>
+那还是想玩一玩的
+
+
+*****
+
+####  黑修士  
+##### 455#       发表于 2023-12-19 17:03
+
+[https://www.famitsu.com/news/202312/19328207.html](https://www.famitsu.com/news/202312/19328207.html)
+
+现在看到宣传“集大成”的第一反应就是降低预期了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  byisme001  
+##### 456#       发表于 2023-12-19 17:06
+
+没有明星脸参演吗
+
+*****
+
+####  洛克萨斯  
+##### 457#       发表于 2023-12-19 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光荣现在到底是技术问题限制了美术的发挥还是忍者组的美术审美就是这么糟糕............
+
+
+*****
+
+####  laoz  
+##### 458#       发表于 2023-12-19 17:20
+
+突然跳出来现在连试玩都没有还行
+
+
+*****
+
+####  stair楼梯  
+##### 459#       发表于 2023-12-19 17:27
+
+<blockquote>洛克萨斯 发表于 2023-12-19 17:10
+光荣现在到底是技术问题限制了美术的发挥还是忍者组的美术审美就是这么糟糕............ ...</blockquote>
+仁王设定集就是黑红一片，只能说美术监督就好这一口
+
+
+*****
+
+####  Piano-Forest  
+##### 460#         楼主| 发表于 2023-12-19 17:54
+
+GI访谈：
+[https://www.gameinformer.com/pre ... e-you-shouldnt-kill](https://www.gameinformer.com/preview/2023/12/19/team-ninja-discusses-crafting-its-first-open-world-where-you-shouldnt-kill)
+
+Fami通访谈：
+[https://s.famitsu.com/news/202312/19328207.html](https://s.famitsu.com/news/202312/19328207.html)
+
+[https://weibo.com/1622008051/4980684814288250](https://weibo.com/1622008051/4980684814288250)
+
+《浪人崛起》制作人 早矢仕洋介 与开发制作人兼导演 安田文彦 采访要点：
+
+-企划在初代《仁王》发售前就在考虑筹划，开发正式起步则是在初代《仁王》发售之后，当时还只是小规模团队。
+
+-原本只是公司内部的企划项目，因为与SIE在《仁王》时期合作愉快（《仁王》系列海外发行由SIE负责），得到了SIE的高度评价，为此次合作奠定了基础。
+
+-选择以幕末为舞台，首先是考虑到《仁王》系列的影响，《仁王》系列中尽管也有描写其他时代的要素，但基础是战国，所以如果要制作一款新的游戏，我们认为应该选择一个与《仁王》不同时代的设定。其次，开发之际，KT代表取缔役社长 襟川阳一 也表达了希望“以幕末时代的横滨为舞台”的强烈愿望（KT本社位于横滨）。
+
+-本作舞台不仅有横滨，还有江户与京都，当然还有除此外的其他场景，不过主要内容是在构建为开放世界的这三个城市中进行冒险。
+
+-场景中既有作为剧情舞台的场所，也有各个城市的名胜景点，同时也准备了可以让玩家充分享受动作乐趣的内容，我们的目标不仅仅是创造一个广阔的开放世界，而是构筑一个游玩密度更高的开放世界。
+
+-会回应粉丝期待，“历史”要素浓厚，有众多与幕末时期有关的名人登场。
+
+-作为“浪人”的主角与形形**的人物相遇、展开物语，虽然以史实为基础，但玩家将通过游戏来亲身体验一段充满历史浪漫的虚构故事。顺便一提，此前公开的预购预告片中，第一个差点被斩首的人是吉田松阴。
+
+-主角被称为“隐刀”，接受过武士般的剑术和忍者般的身体动作等特殊训练。出于某些原因脱藩，成为自由浪人放荡于幕末之世。
+
+-“隐刀”是两人一组发挥力量的团队，与搭档一心同体，但在执行任务的过程中，发生了一些事件，使得主角成为了浪人，“隐刀”的存在为剧情的关键。
+
+-所以主角是有两个人的，且两人都支持玩家捏人自定义外形，然后操作其中之一推进剧情发展。宣传片中也有双人共斗的场面，实际游玩时也会有对应的动作。
+
+-为了能让玩家宛如穿越时空般更真实地体验开放世界的幕末，本次没有像《仁王》那样加入过多的幻想元素，而是想重点去刻画生活在那个时代的众多人物间的“因缘”。所以登场敌人基本都是人类，但他们会活用各式装备，战斗风格也各不相同。
+
+-根据主角与他人的“因缘”深浅，可以触发新剧情或是解放新的要素。大主线尽管是共通的，但希望和哪位幕末人物加深因缘是由玩家自由决定的，与主线不同的支线内容也是丰富多彩，所以请大家以任意攻略顺序享受浪人之旅。
+
+-装备品内容丰富，因为身处于一个东西方文化交融的时代，因此你大可以单手执日本刀、另一只手拿枪，或是和服配皮鞋也无所谓，大家能想象到的风格基本都可以在游戏中实现。
+
+-城市部分想去的地方大部分都可以到达，当然还是有些地方进不去的。玩家可以利用“钩绳”进行立体式移动，钩绳在战斗中亦可使用。
+
+-滑空装置名为“ABIKILU（阿鼻机流）”，是从日本古发明家设计图中获取到的灵感，然后将其引入游戏之中。
+
+-游戏支持最多3名玩家联机，以任务为单位进行协力游玩。在开放世界部分，则是在场景中加入了非同期型联网要素，详情请期待续报。
+
+-目前开发处于最后的收尾阶段，我们正在努力提高游戏品质、调整在线部分、修正BUG等。
+
+本作将于2024年3月22日发售，登陆PS5，Team Ninja开发，SIE发行
+
+*****
+
+####  病態極端  
+##### 461#       发表于 2023-12-19 17:58
+
+<blockquote>――“隠し刀”とは、具体的にはどんな存在なのですか？
+
+安田“隠し刀”は、つねにふたりひと組で力を発揮するチームと言いますか、ふたりでひとつの存在です。隠し刀として、主人公は“片割れ”と呼ばれる隠し刀のバディとさまざまな任務に当たっていた中、とある理由により浪人になります。この一心同体である“隠し刀”の存在が、物語の鍵となります。
+
+　なお、本作の主人公はキャラクタークリエイト方式です。主人公のふたりそれぞれ、別々にクリエイトすることが可能で、プレイヤーはどちらを操作して物語を進めていくのか選択することができます。</blockquote>
+
+說是雙自捏主角，可以分別做任務。
+
+原來換人系統是學的GTA5啊。
+
+
+*****
+
+####  zqqwe  
+##### 462#       发表于 2023-12-19 18:12
+
+看起来是偏向刺客信条那种大地图任务制，换下口味也是好事
+
+
+*****
+
+####  ef6270  
+##### 463#       发表于 2023-12-19 18:29
+
+不知道等到PC要多久……
+
+*****
+
+####  名字已被吃  
+##### 464#       发表于 2023-12-19 18:30
+
+龙信出来宣传过几次了，浪人又出来宣传过几次？
+
+—— 来自 Xiaomi 2203121C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  jokertx  
+##### 465#       发表于 2023-12-19 18:33
+
+以忍组的开发规模和开发周期来说，一个幕末开放世界游戏……感觉开放要素会非常单调
+
+----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  萌萌地镜头  
+##### 466#       发表于 2023-12-19 22:41
+
+开放世界做成啥样都行吧，反正玩忍组游戏也不是冲着地图来的，话说光荣在国际大奖上是不是至今为0啊，浪人能不能混个最佳动作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stair楼梯  
+##### 467#       发表于 2023-12-19 22:49
+
+拿不到的，tga有热度才能拿，仁2doome那年给了哈迪斯我还历历在目
+
+*****
+
+####  Dorohedoro  
+##### 468#       发表于 2023-12-19 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63381217&amp;ptid=2092342" target="_blank">萌萌地镜头 发表于 2023-12-19 22:41</a>
+
+开放世界做成啥样都行吧，反正玩忍组游戏也不是冲着地图来的，话说光荣在国际大奖上是不是至今为0啊，浪人 ...</blockquote>
+开放世界能做好地图的有吗，除了老头环和狂吹，这游戏地图要想做好最关键的就是千万别学那些罐头开放世界，最好在卧龙那种地图上继续升级
+
+
+*****
+
+####  stair楼梯  
+##### 469#       发表于 2023-12-19 23:20
+
+ 本帖最后由 stair楼梯 于 2023-12-19 23:21 编辑 
+
+这游戏还有差不多一个季度发售，玩家对这个开放世界开放到什么程度还是一无所知，官方连室内场景都没给几个让人怀疑是不是都没办法进入室内，到时候能有吉原么？
+
+
+*****
+
+####  纯白花火  
+##### 470#       发表于 2023-12-19 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能联机 可以啊
+
+*****
+
+####  karastar  
+##### 471#       发表于 2023-12-19 23:29
+
+我还是比较喜欢小而精的地图，类似2077那种
+
+
+*****
+
+####  BadYanL  
+##### 472#       发表于 2023-12-19 23:34
+
+ 本帖最后由 BadYanL 于 2023-12-19 23:35 编辑 
+
+忍者组第一次做开放世界，放低期待。
+
+真的有500万的底子何必找索尼发行，留着自己全赚不香吗？
+
+
+*****
+
+####  天宮奏  
+##### 473#       发表于 2023-12-20 00:02
+
+可以捏两个角色，这两个角色在剧情上绑定，能共斗。浪漫要素自选。开放世界。真就和龙信2打擂台啊hhh
+
+
+*****
+
+####  jy000129  
+##### 474#       发表于 2023-12-20 00:44
+
+忍者组主美的审美肯定是战犯级的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">技术再差也不可能只能靠红黑答辩来遮
+
+*****
+
+####  ddwhzh  
+##### 475#       发表于 2023-12-20 00:49
+
+说到底日本幕府大农村有什么好玩的，能做到刺客信条三水平就谢天谢地了。
+
+
+*****
+
+####  萌萌地镜头  
+##### 476#       发表于 2023-12-20 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63382046&amp;ptid=2092342" target="_blank">ddwhzh 发表于 2023-12-20 00:49</a>
+说到底日本幕府大农村有什么好玩的，能做到刺客信条三水平就谢天谢地了。就这预告pv透漏着去农村郊游还非得 ...</blockquote>
+大农村也得看谁来做，育碧那个日本刺客的城下町估计比浪人的江户还繁华
+
+
+*****
+
+####  umbasa  
+##### 477#       发表于 2023-12-20 08:00
+
+<blockquote>萌萌地镜头 发表于 2023-12-19 22:41
+开放世界做成啥样都行吧，反正玩忍组游戏也不是冲着地图来的，话说光荣在国际大奖上是不是至今为0啊，浪人 ...</blockquote>
+先把战犯主美枪毙了再谈国际大奖吧，卖相真的太差了。
+
+
+*****
+
+####  凛冬将至  
+##### 478#       发表于 2023-12-20 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63381659&amp;ptid=2092342" target="_blank">BadYanL 发表于 2023-12-19 23:34</a>
+
+忍者组第一次做开放世界，放低期待。
+
+真的有500万的底子何必找索尼发行，留着自己全赚不香吗？ ...</blockquote>
+光荣只在亚太地区有发行能力，欧美没能力。 
+
+*****
+
+####  紫沙狐  
+##### 479#       发表于 2023-12-20 08:42
+
+这卖相就不如仁王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  horacio  
+##### 480#       发表于 2023-12-20 09:25
+
+没人担心开放世界像三国无双8吗？
+
+
+*****
+
+####  洛克萨斯  
+##### 481#       发表于 2023-12-20 09:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小弟搭档小小弟...............ptsd了
+
+
+*****
+
+####  adretyu67.  
+##### 482#       发表于 2023-12-20 09:46
+
+经典ps5独占<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 483#         楼主| 发表于 2023-12-21 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63378612&amp;ptid=2092342" target="_blank">Piano-Forest 发表于 2023-12-19 17:54</a>
+
+GI访谈：
+
+https://www.gameinformer.com/preview/2023/12/19/team-ninja-discusses-crafting-its-first-ope ...</blockquote>
+fami通访谈全文翻译
+
+【自译 『浪人崛起』早矢仕P＆安田PD采访】 [https://b23.tv/50q0FhF](https://b23.tv/50q0FhF)
+
+巴哈访谈：
+[https://m.gamer.com.tw/gnn/detail.php?sn=261062](https://m.gamer.com.tw/gnn/detail.php?sn=261062)
+
+
+*****
+
+####  goohao  
+##### 484#       发表于 2023-12-21 22:52
+
+没有限定版 不错 不用预购
+
+
+*****
+
+####  ff2077  
+##### 485#       发表于 2023-12-21 23:00
+
+不给试玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  stair楼梯  
+##### 486#       发表于 2023-12-21 23:06
+
+看忍组自己转这游戏在esrb已经获得m评级，有大量诸如断 肢 断 头的血 腥效果，不知道ng断肢系统回归还是就pc版仁王那种
+
+
+*****
+
+####  ultraseven  
+##### 487#       发表于 2023-12-21 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63402700&amp;ptid=2092342" target="_blank">goohao 发表于 2023-12-21 22:52</a>
+
+没有限定版 不错 不用预购</blockquote>
+起码给个铁盒吧，仁王和卧龙都有
+
+
+*****
+
+####  你好s1  
+##### 488#       发表于 2023-12-24 13:42
+
+<img src="https://img.saraba1st.com/forum/202312/24/134106i56vp0aq1s3zpa6v.jpg" referrerpolicy="no-referrer">
+
+<strong>koei1.jpg</strong> (57.87 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 13:41 上传
+
+  光荣PPT最近泄露了。。。没啥新鲜的
+
+   但是，原定多平台，以及大家吵得很欢的是不是光荣500W IP，确定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  病態極端  
+##### 489#       发表于 2023-12-24 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63424747&amp;ptid=2092342" target="_blank">你好s1 发表于 2023-12-24 13:42</a>
+
+光荣PPT最近泄露了。。。没啥新鲜的
+
+   但是，原定多平台，以及大家吵得很欢的是不是光荣500W IP，确 ...</blockquote>
+為啥上X1X，不上XSX/XSS/X1<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  慕容断月  
+##### 490#       发表于 2023-12-24 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63402795&amp;ptid=2092342" target="_blank">stair楼梯 发表于 2023-12-21 23:06</a>
+
+看忍组自己转这游戏在esrb已经获得m评级，有大量诸如断 肢 断 头的血 腥效果，不知道ng断肢系统回归还是就p ...</blockquote>
+放一万个心，仁王那种，忍龙那种是跟系统绑定且有切实功能的， 浪人这个可能就是个效果罢了
+
+
+*****
+
+####  clover293  
+##### 491#       发表于 2023-12-24 17:47
+
+森田宏明就是一开始的爆料人啊，因为只有他和望月崇说过是500万。。。社长和别的人都没说过
+
+
+*****
+
+####  hentianwuya  
+##### 492#       发表于 2023-12-24 18:31
+
+真的是500万，我突然又对光荣有信心了，本来准备打完重生就卖掉PS5，现在决定继续首发浪人了。
+
+
+*****
+
+####  医生狼多  
+##### 493#       发表于 2023-12-24 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63427141&amp;ptid=2092342" target="_blank">hentianwuya 发表于 2023-12-24 18:31</a>
+真的是500万，我突然又对光荣有信心了，本来准备打完重生就卖掉PS5，现在决定继续首发浪人了。 ...</blockquote>
+现在改口没这么称呼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得还是不要报太高预期
+
+
+*****
+
+####  hentianwuya  
+##### 494#       发表于 2023-12-24 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63427221&amp;ptid=2092342" target="_blank">医生狼多 发表于 2023-12-24 18:40</a>
+
+现在改口没这么称呼了我觉得还是不要报太高预期</blockquote>
+我对忍组宽容度贼高，只要他们不瞎整活为了简化而简化就没事。
+
+*****
+
+####  小猪猪  
+##### 495#       发表于 2023-12-24 18:51
+
+暗荣找到一个卖得好就往死里撸，前有无双现在有魂，感觉就和无双一样只会越撸越低销量
+
+
+*****
+
+####  慕容断月  
+##### 496#       发表于 2023-12-24 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63427318&amp;ptid=2092342" target="_blank">小猪猪 发表于 2023-12-24 18:51</a>
+
+暗荣找到一个卖得好就往死里撸，前有无双现在有魂，感觉就和无双一样只会越撸越低销量 ...</blockquote>
+世界范围内只要搭上开放世界的顺风车，然后不像三国无双8那么脑残，一般情况下销量不会差哪里去，沙雕白皮对开放世界的追捧极其无脑
+
+
+*****
+
+####  Eadric  
+##### 497#       发表于 2023-12-24 19:26
+
+卖久一点打打折还是有可能的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
