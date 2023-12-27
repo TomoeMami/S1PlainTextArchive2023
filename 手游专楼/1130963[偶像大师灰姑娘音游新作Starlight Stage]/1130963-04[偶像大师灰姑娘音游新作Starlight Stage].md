@@ -584,3 +584,23 @@ PS：今天下午开活动，到时候就知道大石泉的声优是谁了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">总选曲变圣诞曲……
 
+*****
+
+####  两个路人  
+##### 5408#       发表于 2023-12-24 12:27
+
+石头拿去抽女警池了（没出货），没有存货给蚊香了。祝圣诞愉快，下次好运吧，哈哈
+
+不过，为什么这个蚊香看起来像是某巨乳染发呢？果然是假的吧
+
+<img src="https://p.sda1.dev/14/1711265bd62bedbe81d2c9e63f2980a3/20231224_121003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/e883f40630e1e2ff34a490a32bd756f7/20231224_121722.jpg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202312/24/122704xdm44z58mwcclwde.jpg" referrerpolicy="no-referrer">
+
+<strong>20231224_121740.jpg</strong> (168.7 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 12:27 上传
+
