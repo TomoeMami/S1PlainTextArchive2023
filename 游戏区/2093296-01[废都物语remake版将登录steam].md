@@ -1519,3 +1519,22 @@ PV里有
 天平上ns了玩的很开心，不知道废都物语没有没机会登陆ns
 （以及不知道天平DLC会不会第一时间登陆ns
 
+*****
+
+####  宛若青空  
+##### 569#       发表于 2023-12-24 16:01
+
+贴吧测试人员消息
+
+重制版开发全力推进中，预计明年春上线Steam页面，会同步放上试玩版，具体时间在等发行那边的安排。
+
+另CP30上天闻角川企业摊会提供试玩版，以及发一些无料
+
+<img src="https://img.saraba1st.com/forum/202312/24/160050xvppvlv9l45f9efg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_7002.jpeg</strong> (200.12 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 16:00 上传
+
