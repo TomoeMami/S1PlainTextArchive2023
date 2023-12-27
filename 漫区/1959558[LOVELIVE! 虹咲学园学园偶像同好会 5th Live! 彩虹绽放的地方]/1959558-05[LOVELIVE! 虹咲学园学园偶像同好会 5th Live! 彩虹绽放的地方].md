@@ -7738,3 +7738,263 @@ sif2剧情里设定上这次所有情歌都是每个人自己写的，这就是�
 #虹ヶ咲
 <img src="https://p.sda1.dev/14/e0d30e29e12c1654f3027d37d44c7fc9/20231215_232341.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 7424#       发表于 2023-12-19 18:54
+
+fami通漫画，堂堂复活！
+<img src="https://p.sda1.dev/14/03c8f41ea0ac8e06fe784ae74d1237af/CMP_20231219185307920.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7425#       发表于 2023-12-22 11:34
+
+明天就是6th了
+<img src="https://p.sda1.dev/14/c7b32bc3e63762a2590ddd2c72a15058/CMP_20231222113435927.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7426#       发表于 2023-12-23 17:02
+
+虹6th day1爱知公演马上开始
+
+<img src="https://p.sda1.dev/14/bc06621fb636d4151d3225f57c62a034/CMP_20231223170155033.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7427#       发表于 2023-12-23 17:12
+
+开场先给as送葬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7428#       发表于 2023-12-23 18:52
+
+Day1solo顺序
+雫
+栞子
+霞
+爱
+璃奈
+彼方
+R3
+步梦
+果林
+米娅
+一年级
+艾玛
+岚珠
+雪菜
+Q4
+
+
+*****
+
+####  仟音一心  
+##### 7429#       发表于 2023-12-23 19:20
+
+LLL第一次齐人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ads147147  
+##### 7430#       发表于 2023-12-23 20:21
+
+5201314菜宝稳得不行啊。。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  6030sylar  
+##### 7431#       发表于 2023-12-23 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">站萌p旁边，处刑啊，但是我喜欢
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  仟音一心  
+##### 7432#       发表于 2023-12-23 21:10
+
+虹6th爱知day1完整歌单
+
+KAGAYAKI Don't forget!
+MC&amp;CR
+小剧场1
+
+小悪魔LOVE♡ 
+咬福論 
+背伸びしたって 
+Request for U 
+私はマグネット 
+Cooking with Love 
+Feel Alive 
+Walking Dream 
+My Shadow 
+Lemonade 
+Waku Waku! Monday Morning 
+恋するSunflower 
+5201314 
+チェリーボム 
+Twinkle Town 
+サンタが町にやってくる 
+Sugar Sugar Yummy Yummy Parfait
+小剧场2 
+Go Our Way！ 
+Just Believe!!! 
+Fly with You!!
+
+Encore 
+L！L！L！ (Love the Life We Live) 
+Margaret（ワンコーラス） 
+夜明珠（イエミンジュ）（ワンコーラス） 
+Say Good-Bye 涙（ワンコーラス） 
+Sweet Eyes 
+TOKIMEKI Runners 
+わちゅごなどぅー
+MC2 
+OUR P13CES!!! 
+SINGING, DREAMING, NOW!
+
+*****
+
+####  仟音一心  
+##### 7433#       发表于 2023-12-23 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63420041&amp;ptid=1959558" target="_blank">ads147147 发表于 2023-12-23 20:21</a>
+5201314菜宝稳得不行啊。。
+
+—— 来自 OPPO PHN110, Android 13上的 S1Next-鹅版 v2.1.2</blockquote>
+而且现在看来5专舞蹈最激烈的就是这首
+
+
+*****
+
+####  仟音一心  
+##### 7434#       发表于 2023-12-24 16:09
+
+切咪不能出声，好在有璃奈板。
+
+
+*****
+
+####  仟音一心  
+##### 7435#       发表于 2023-12-24 18:25
+
+虹四格二期动画决定
+
+
+*****
+
+####  ads147147  
+##### 7436#       发表于 2023-12-24 18:42
+
+虹4格二期好耶，有望做成隔壁那样的常驻q版。。
+
+—— 来自 OPPO PHN110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  仟音一心  
+##### 7437#       发表于 2023-12-24 19:11
+
+虹四格二期2024.4.5首播
+原作：矢立肇
+原案：公野樱子
+漫画：ミヤコヒト
+导演：堀内勇冶
+CG导演：辰口智树
+动画制作：SUNRISE
+
+<img src="https://p.sda1.dev/14/61411f36f1c120c92d349a75b9c8938d/CMP_20231224191018202.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7438#       发表于 2023-12-24 19:20
+
+<img src="https://p.sda1.dev/14/562ecd6703911c09c7549289f7f581f6/CMP_20231224191642879.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  仟音一心  
+##### 7439#       发表于 2023-12-24 19:30
+
+DAY2 
+ーーTOKIMEKI Runners特殊映像ーー 
+KAGAYAKI Don't forget! 
+ーーMC&amp;CR①ーー 
+ーー幕間①ーー 
+チェリーボム 
+Cooking with Love 
+My Shadow 
+Waku Waku! Monday Morning 
+5201314 
+恋するSunflower 
+Request for U 
+背伸びしたって 
+Feel Alive 
+Walking Dream 
+私はマグネット 
+小悪魔LOVE♡ 
+Lemonade 
+咬福論 
+Twinkle Town 
+サンタが町にやってくる 
+Wawawa☆What's up! 
+ーー幕間②ーー 
+Go Our Way！ 
+Just Believe!!! 
+Fly with You!! 
+
+ーーEncoreーー 
+Love U my friends 
+あなたの理想のヒロイン 
+My Own Fairy-Tale 
+ヤダ！ 
+Sweet Eyes 
+TOKIMEKI Runners 
+わちゅごなどぅー 
+ーーMC②ーー 
+OUR P13CES!!! 
+SINGING, DREAMING, NOW!
+
+
+*****
+
+####  若荼泱  
+##### 7440#       发表于 2023-12-24 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63427662&amp;ptid=1959558" target="_blank">仟音一心 发表于 2023-12-24 19:30</a>
+DAY2 
+ーーTOKIMEKI Runners特殊映像ーー 
+KAGAYAKI Don't forget! </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看一半没看了，切咪还是上了啊，我以为角色歌这一趴她的就无了。
+
+
+*****
+
+####  仟音一心  
+##### 7441#       发表于 2023-12-24 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63427823&amp;ptid=1959558" target="_blank">若荼泱 发表于 2023-12-24 19:48</a>
+看一半没看了，切咪还是上了啊，我以为角色歌这一趴她的就无了。</blockquote>
+说了啊放原音
+
