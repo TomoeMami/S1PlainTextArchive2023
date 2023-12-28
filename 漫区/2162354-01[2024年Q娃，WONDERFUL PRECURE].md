@@ -2393,3 +2393,51 @@ woc，人**兽随便就能拓展一大堆关系性，这点子可比什么大姐
 
 —— 来自 Xiaomi 23049RAD8C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  新HGCG  
+##### 247#         楼主| 发表于 2023-12-25 18:41
+
+明天应该就有正式消息了罢
+
+*****
+
+####  凡人  
+##### 248#       发表于 2023-12-25 18:49
+
+期待。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  帝下室の年糕  
+##### 249#       发表于 2023-12-25 20:02
+
+杂志剪影，和上次包上面的人设一致
+
+<img src="https://img.saraba1st.com/forum/202312/25/200155rv0itrok9hryiebh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.59 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-25 20:01 上传
+
+
+*****
+
+####  wly  
+##### 250#       发表于 2023-12-25 21:22
+
+主角真叫cure wonderful了，集体唱名又要报一次wonderful precure，历史第一次吧
+
+
+*****
+
+####  6030sylar  
+##### 251#       发表于 2023-12-25 21:40
+
+蝴蝶姐明年叫wonderhoy<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">然后被后辈纠正读音
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
