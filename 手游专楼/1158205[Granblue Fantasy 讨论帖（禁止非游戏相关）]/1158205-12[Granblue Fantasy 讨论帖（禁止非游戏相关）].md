@@ -3088,3 +3088,252 @@ worlds beyond不就是转世的副标题么<img src="https://static.saraba1st.co
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  洛克萨斯  
+##### 17536#       发表于 2023-12-23 19:02
+
+第一个御姐型的神将啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202312/23/190229cfoy6josfo5db218.png" referrerpolicy="no-referrer">
+
+<strong>GGJH%@]2F7BRTMEX_UI6NI6_tmb.png</strong> (150.33 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-23 19:02 上传
+
+
+*****
+
+####  江戸前ルナ  
+##### 17537#       发表于 2023-12-23 19:14
+
+讲道理，以前的蛋姐就早已经不是旗袍包子头了啊
+
+*****
+
+####  jxzeroga0  
+##### 17538#       发表于 2023-12-23 19:22
+
+市来pro的极巴solo节目效果拉满啊，乐
+
+
+*****
+
+####  shinitakute  
+##### 17539#       发表于 2023-12-23 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">今年的兔子不就是御姐吗
+
+
+*****
+
+####  cenhr  
+##### 17540#       发表于 2023-12-23 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63419748&amp;ptid=1158205" target="_blank">shinitakute 发表于 2023-12-23 19:51</a>
+
+今年的兔子不就是御姐吗</blockquote>
+是辣妹性格吧，猪是辣妹外表而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  洛克萨斯  
+##### 17541#       发表于 2023-12-24 15:19
+
+**妈！晦气！太晦气了！草
+
+
+*****
+
+####  a85982313  
+##### 17542#       发表于 2023-12-24 15:25
+
+小福真是幽默哦，木口接731<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃咸菜的  
+##### 17543#       发表于 2023-12-24 15:29
+
+怎么，你不服气吗？
+
+*****
+
+####  琵琶晨光  
+##### 17544#       发表于 2023-12-24 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小福：中国玩家是仅次于日本玩家的第二大群体 小福能再表演下这个吗
+
+
+*****
+
+####  好奇害死喵  
+##### 17545#       发表于 2023-12-24 15:32
+
+妈的，六属方阵人哪里搞这么多沙漏
+
+*****
+
+####  Aureth  
+##### 17546#       发表于 2023-12-24 15:40
+
+真的无语
+
+—— 来自 vivo V2301A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  洛克萨斯  
+##### 17547#       发表于 2023-12-24 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">你就是这样感谢大家的支持是吧，好一个亲近感
+
+6I6](~VBYPVV)XP%S357}(T_tmb.jpg
+(60.75 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-24 15:41 上传
+
+<img src="https://img.saraba1st.com/forum/202312/24/154129xqqlxluuqlbbqbqf.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usoda  
+##### 17548#       发表于 2023-12-24 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63425627&amp;ptid=1158205" target="_blank">洛克萨斯 发表于 2023-12-24 15:42</a>
+
+你就是这样感谢大家的支持是吧，好一个亲近感</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的太他妈幽默了，这下成赛博案底了
+
+
+*****
+
+####  はちたや  
+##### 17549#       发表于 2023-12-24 16:10
+
+什么叫行将就木，这就叫行将就木
+
+
+*****
+
+####  kobushi  
+##### 17550#       发表于 2023-12-24 16:27
+
+ 本帖最后由 kobushi 于 2023-12-24 16:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Gqdsbnzctrg  
+##### 17551#       发表于 2023-12-24 17:48
+
+没有一点点对玩家群体的了解，这gbf真是在作死的路上狂奔了。
+
+*****
+
+####  欠陷制品  
+##### 17552#       发表于 2023-12-24 18:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太能整活了，这搞一下得弄的多少人不再奉陪
+
+*****
+
+####  adretyu67.  
+##### 17553#       发表于 2023-12-24 18:22
+
+找爆豪学院和管人我倒没太在意，毕竟小福整的奇妙行为不是一年两年了。
+
+方阵石限界吃沙漏，老王石限界吃老王。
+
+法武超限吃新法本，人人摊幺五零大饼。
+
+
+*****
+
+####  leeskies  
+##### 17554#       发表于 2023-12-24 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">不开沙漏获取途径 全是缺口
+
+
+*****
+
+####  Aachen2019  
+##### 17555#       发表于 2023-12-24 18:53
+
+拉了坨大的，真的越想越搞笑
+
+
+*****
+
+####  jxzeroga0  
+##### 17556#       发表于 2023-12-24 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">近几年看了最失望的一届fes，真就超越硬拖。现在砂总需求都要97个了，你一年四象联动能多几个？
+
+本体产能不足还可以说近期人手去relink了，场面联动搞出来的烂活更恶心，kmr还是活得太滋润了。
+
+
+*****
+
+####  Charizard  
+##### 17557#       发表于 2023-12-24 21:25
+
+这下成赛博案底了，乐
+
+—— 来自 HUAWEI ALN-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  cenhr  
+##### 17558#       发表于 2023-12-24 23:06
+
+大概是有底气，就算在我国口碑烂了，但世界各地可以补回损失吧
+
+
+*****
+
+####  whzfjd  
+##### 17559#       发表于 2023-12-25 00:18
+
+英雄学院在海外还火吗？你不如联动间谍过家家
+
+*****
+
+####  cenhr  
+##### 17560#       发表于 2023-12-25 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63429922&amp;ptid=1158205" target="_blank">whzfjd 发表于 2023-12-25 00:18</a>
+
+英雄学院在海外还火吗？你不如联动间谍过家家</blockquote>
+可能和管人一样只是某人喜欢？
+
+
+*****
+
+####  玛基  
+##### 17561#       发表于 2023-12-25 00:27
+
+木口我英方阵吃沙漏老王送完公布终突吃老王球法武新大牢，一套组合拳锤得说卜出话，小福最幽默的一集<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  psnsic8nag  
+##### 17562#       发表于 2023-12-25 09:48
+
+《笑死，我宁愿联动杏。
+
+鬼子学院哪怕不乳那也是饭圈学院，爆豪那逼脸比塔诺西人看着都让人恶心，整个一反社会易怒症》
+
+论如何让人折中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
