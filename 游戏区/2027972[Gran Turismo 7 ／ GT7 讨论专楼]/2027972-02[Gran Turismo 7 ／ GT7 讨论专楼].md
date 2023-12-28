@@ -1247,3 +1247,90 @@ spa1小时我记得通常都是入夜下一场雨，到白天雨停一阵，然�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  Tnsbilws  
+##### 1834#       发表于 2023-12-24 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63396860&amp;ptid=2027972" target="_blank">760194962 发表于 2023-12-21 12:43</a>
+
+这个自动档真的能过吗 我换成手动挡简单点了
+
+不知道是不是技术提升了 现在碰不到打一两千公里才过的情况 ...</blockquote>
+肯定不能，大师驾照的考试全都是手动挡打底的，金牌更是
+
+
+*****
+
+####  一个陆仁贾  
+##### 1835#       发表于 2023-12-25 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63334439&amp;ptid=2027972" target="_blank">Tnsbilws 发表于 2023-12-15 10:55</a>
+没事，还有F1铃鹿等着你
+
+参考的影子记录只比金牌快十分之2秒我凹了600公里。最后只快了十分 ...</blockquote>
+其实有些弯道的处理可以不学影子，b站有一些现实f1/超级方程式跑铃鹿的视频，按那个来能快一点，我跑完影子已经在我后视镜里了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  一个陆仁贾  
+##### 1836#       发表于 2023-12-25 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63396860&amp;ptid=2027972" target="_blank">760194962 发表于 2023-12-21 12:43</a>
+这个自动档真的能过吗 我换成手动挡简单点了
+不知道是不是技术提升了 现在碰不到打一两千公里才过的情况 ...</blockquote>
+自动挡很难，大师S10这车需要在直道3升5或4升6提高转数，这样操作能降低很多难度，而且这车涡轮太猛，有些地方不提前升档很容易失控
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  mcq_2  
+##### 1837#       发表于 2023-12-25 10:24
+
+我都忘记这游戏还有专楼了，昨天入了新款ps5跟gt7，今天晚上开始慢慢玩。
+
+
+*****
+
+####  760194962  
+##### 1838#       发表于 2023-12-25 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63428003&amp;ptid=2027972" target="_blank">Tnsbilws 发表于 2023-12-24 20:21</a>
+肯定不能，大师驾照的考试全都是手动挡打底的，金牌更是</blockquote>
+哦我在大师S10之前都是自动档全金的😆
+当然这不是个好范例 试了下手动之后确实值得学习 大师打完后打赛道体验的首高切手动挡不再像之前那样老撞墙心态爆炸了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  760194962  
+##### 1839#       发表于 2023-12-25 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63430155&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2023-12-25 01:00</a>
+其实有些弯道的处理可以不学影子，b站有一些现实f1/超级方程式跑铃鹿的视频，按那个来能快一点，我跑完影 ...</blockquote>
+这关的影子跟金牌要求时间本身就挺极限的 好像就差了两百毫秒左右
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  一个陆仁贾  
+##### 1840#       发表于 2023-12-25 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63432838&amp;ptid=2027972" target="_blank">760194962 发表于 2023-12-25 11:27</a>
+这关的影子跟金牌要求时间本身就挺极限的 好像就差了两百毫秒左右
+
+—— 来自 S1Fun ...</blockquote>
+其实它那个时间也还好了，这关最早是在线计时赛里面的，拿过来还得谨慎确定金牌线，搞太高到时候一堆人金不了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">实际上你突破它的成绩后，你自己的境界再看以前的成绩就有不一样的感觉了
+
+BV1Se411d7Ci，贴个本萌新的回放
+
+—— 来自 Xiaomi 2304FPN6DC, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

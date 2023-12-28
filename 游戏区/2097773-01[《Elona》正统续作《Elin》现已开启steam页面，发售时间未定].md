@@ -758,3 +758,18 @@ noa在X上表示，alpha测试今年年底开始，EA计划2024年年中。
 
 蒸汽上还写着发行日期2023年
 
+*****
+
+####  whose12222  
+##### 70#       发表于 2023-12-25 15:46
+
+仿佛a测开了，有人邮件收到key了吗
+
+
+*****
+
+####  jy000129  
+##### 71#       发表于 2023-12-25 16:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">看到某个群有人晒过
+
