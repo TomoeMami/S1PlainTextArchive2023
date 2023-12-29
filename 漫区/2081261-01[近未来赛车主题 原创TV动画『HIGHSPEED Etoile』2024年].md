@@ -1112,3 +1112,45 @@ gpx里就有女车手了。。。
 <img src="https://p.sda1.dev/14/5724ddff69150870d6f4990cd74e6b0e/20231128_215313.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/14/554c03412af31466898f40851f9baab9/20231128_215314.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 96#         楼主| 发表于 2023-12-26 18:43
+
+／
+
+キャラクタービジュアル公開🏎️
+
+＼
+
+ソフィア・B・時任(CV #堀江由衣)
+
+劉悠然(CV #諏訪彩花)
+
+の新ビジュアルを公開!!🏁
+
+それぞれの個性が垣間見える
+
+レースに臨む直前の姿に注目!!👀✨
+<img src="https://p.sda1.dev/14/6ef824a042396b22bba5afb1c7fce5f1/20231226_184240.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/14/8e8384449a34912276eefe7ff46b5247/20231226_184241.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ViviR  
+##### 97#       发表于 2023-12-26 19:59
+
+服装真不错
+
+
+*****
+
+####  Skyline_R  
+##### 98#       发表于 2023-12-26 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56659584&amp;ptid=2081261" target="_blank">aptx8285144 发表于 2022-7-15 17:16</a>
+
+女赛车手应该是acg历史第一次吧</blockquote>
+头D里开sil80那个不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
