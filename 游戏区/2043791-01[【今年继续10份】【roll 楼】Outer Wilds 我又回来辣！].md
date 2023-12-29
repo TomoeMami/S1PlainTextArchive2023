@@ -3449,3 +3449,938 @@ epic之前打折入手了一份
 所以游戏通鉴外野篇在哪呢</blockquote>
 只是讲讲剧情而已……再摸一小段时间估计就快了~
 
+*****
+
+####  redstarence  
+##### 411#         楼主| 发表于 2023-12-22 00:56
+
+各位晚上好，还是我！
+
+仍然遵循前两年旧例，今年继续roll10份星际拓荒考古学家版（steam国区礼物），2023年玩了很多游戏，可是仍然没有任何一个可以超越outer wilds，电子游戏在outer wilds问世的时候就已经在目前技术条件下走到了终点，名副其实的game of the century。已经三年多了，听到theme song的时候还是会想流泪
+
+希望有一天我可以送出100份星际拓荒以及2024的目标是学会烤棉花糖
+
+Born too late to explore the earth,
+
+Born too early to explore the galaxy,
+
+Born just in time to play Outer Wilds.
+
+roll 楼自412楼开始，在2024/12/31北京时间凌晨停止，回复即可参与，请roll到的坛友关注私信加一下我的steam 好友
+
+*****
+
+####  Aachen2019  
+##### 412#       发表于 2023-12-22 01:02
+
+凑个热闹
+
+*****
+
+####  Aachen2019  
+##### 413#       发表于 2023-12-22 01:02
+
+风怒
+
+*****
+
+####  今天你提了吗  
+##### 414#       发表于 2023-12-22 01:04
+
+楼主真是对这游戏爱得深沉
+
+已经有游戏了，dlc听说太哈人一直没敢玩，前排支持下
+
+
+*****
+
+####  chaucerling  
+##### 415#       发表于 2023-12-22 01:07
+
+当分母，roll到安利给朋友
+
+*****
+
+####  astrayveller  
+##### 416#       发表于 2023-12-22 01:12
+
+我到现在 回忆起那段冒险都会热泪盈眶……
+
+
+*****
+
+####  Corbeau99  
+##### 417#       发表于 2023-12-22 01:42
+
+看得出来确实是楼主心中的goat了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，本体和DLC都有了，抽到了我就送朋友一份，并狠狠的压力他打完<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，比再玩一遍更快乐的肯定是看没玩过的朋友玩一遍，想想就爽到了
+
+
+*****
+
+####  虚拟小仓星  
+##### 418#       发表于 2023-12-22 02:06
+
+哇，蹭蹭
+
+*****
+
+####  Dr.bright  
+##### 419#       发表于 2023-12-22 02:10
+
+可惜就是最开始云了个开头后因为怕晕一直没有自己去玩。再后来看到坛里的推荐贴，云通关了才后悔错过了欣赏这份艺术最好的方式。
+
+—— 来自 Xiaomi M2103K19I, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  azccc52  
+##### 420#       发表于 2023-12-22 02:12
+
+当个分母吧，抽到就努力尝试一下不擅长的恐怖游戏
+
+
+*****
+
+####  nailuo1993  
+##### 421#       发表于 2023-12-22 02:12
+
+来了来了
+
+
+*****
+
+####  莉拉厨  
+##### 422#       发表于 2023-12-22 02:31
+
+来当分母...好像我之前来过这贴？不确定
+
+
+*****
+
+####  diectt  
+##### 423#       发表于 2023-12-22 03:35
+
+哦哦 今年这游戏还没玩，很有兴趣
+
+*****
+
+####  摩天城  
+##### 424#       发表于 2023-12-22 03:38
+
+deck可玩，那凑一个
+
+
+*****
+
+####  玩玩而已  
+##### 425#       发表于 2023-12-22 04:46
+
+分母<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  unbalanced  
+##### 426#       发表于 2023-12-22 05:16
+
+分母+1
+
+
+*****
+
+####  冰风血羽  
+##### 427#       发表于 2023-12-22 07:01
+
+来当分母了
+
+—— 来自 realme RMX3706, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  萌萌地镜头  
+##### 428#       发表于 2023-12-22 07:01
+
+来了来了
+
+*****
+
+####  战术核辣条  
+##### 429#       发表于 2023-12-22 07:01
+
+可惜不能失忆再来一次
+
+—— 来自 nubia NX729J, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  meyouisee  
+##### 430#       发表于 2023-12-22 07:09
+
+凑个分母
+
+
+*****
+
+####  格雷殿下  
+##### 431#       发表于 2023-12-22 07:28
+
+刚来，什么东西？
+
+*****
+
+####  Waldeinsamkeit  
+##### 432#       发表于 2023-12-22 07:31
+
+继续参加，本体我其实买了，如果roll到我希望能送DLC<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  苟富贵daze  
+##### 433#       发表于 2023-12-22 07:34
+
+凑个分母
+
+*****
+
+####  仓颉北拳  
+##### 434#       发表于 2023-12-22 07:41
+
+早前刚学习了泥潭装机贴，参与下<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Bubblegum  
+##### 435#       发表于 2023-12-22 07:44
+
+来了来了
+
+
+*****
+
+####  chaosp  
+##### 436#       发表于 2023-12-22 07:54
+
+来来来
+
+
+*****
+
+####  liuxiaoyan23  
+##### 437#       发表于 2023-12-22 07:56
+
+roll
+
+
+*****
+
+####  litemania  
+##### 438#       发表于 2023-12-22 08:12
+
+正好元旦想玩，roll不到就自己买了（那看来是roll不到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Sissii  
+##### 439#       发表于 2023-12-22 08:16
+
+抽抽抽
+
+*****
+
+####  Parkerdk  
+##### 440#       发表于 2023-12-22 08:21
+
+安？凑个分母
+
+*****
+
+####  花生酥王  
+##### 441#       发表于 2023-12-22 08:22
+
+凑个分母<img src="https://sticker.inari.site/pesoguin/em48.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  modedd  
+##### 442#       发表于 2023-12-22 08:23
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+*****
+
+####  落油Я  
+##### 443#       发表于 2023-12-22 08:40
+
+当个分母，本体已经在epic上买来玩了，抽到就在steam再玩一次，顺便买份DLC玩下
+
+话说epic的星际拓荒很奇怪，玩完本体后想玩DLC，却怎么都找不到下载
+
+明明之前是已经买过了，去商店页面看也是已经入库了，就是找不到地方下
+
+然后N天后有了自动更新，我就知道是下载的DLC
+
+进游戏一看，果不其然
+
+epic这平台确实有点抽象
+
+
+*****
+
+####  MRhythm  
+##### 444#       发表于 2023-12-22 08:48
+
+来当分母
+
+*****
+
+####  lancerk  
+##### 445#       发表于 2023-12-22 08:51
+
+组成分母
+
+*****
+
+####  solmyrli  
+##### 446#       发表于 2023-12-22 08:51
+
+凑热闹，好游戏，中奖送朋友了～<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  beebeec  
+##### 447#       发表于 2023-12-22 08:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来了，没玩过试试
+
+*****
+
+####  喷气式纸飞机  
+##### 448#       发表于 2023-12-22 08:52
+
+我来拉低中奖率<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-AU52,Android 12](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  heseran  
+##### 449#       发表于 2023-12-22 08:54
+
+当个分母中了送给好朋友提升下他的游戏品味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  夜之光  
+##### 450#       发表于 2023-12-22 09:13
+
+来拉低中奖率
+
+
+*****
+
+####  土狼菌  
+##### 451#       发表于 2023-12-22 09:16
+
+分母来了，有原版的支持一下
+
+*****
+
+####  czddxy  
+##### 452#       发表于 2023-12-22 09:21
+
+这个一直在愿望单躺着，有朋友安利过
+
+*****
+
+####  北方暴雪  
+##### 453#       发表于 2023-12-22 09:22
+
+已经参加两次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  suikaMK2  
+##### 454#       发表于 2023-12-22 09:39
+
+来当分母<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  freez  
+##### 455#       发表于 2023-12-22 09:44
+
+我来拉低中奖率了～
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  投影机  
+##### 456#       发表于 2023-12-22 09:44
+
+分母以及
+
+*****
+
+####  菜菜菜菜  
+##### 457#       发表于 2023-12-22 09:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+当分母
+
+
+*****
+
+####  noli  
+##### 458#       发表于 2023-12-22 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">参与一下
+
+*****
+
+####  桐道悠  
+##### 459#       发表于 2023-12-22 09:55
+
+参与一下
+
+*****
+
+####  fdodo  
+##### 460#       发表于 2023-12-22 09:56
+
+salute楼主，身体力行大传教士
+
+—— 来自 OnePlus PHK110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  赛U灵  
+##### 461#       发表于 2023-12-22 10:25
+
+爱得深沉，好好好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">分母一下
+
+— from OPPO CPH1893, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  playboyz  
+##### 462#       发表于 2023-12-22 10:32
+
+好游戏，参与一下。
+
+
+*****
+
+####  彩虹肥宅  
+##### 463#       发表于 2023-12-22 10:36
+
+上一年抽中之后打完了，确实是很棒的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">（不参与抽奖）
+
+*****
+
+####  浮幽樱  
+##### 464#       发表于 2023-12-22 10:39
+
+当分母，抽到送给晕3d的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  First_Snow  
+##### 465#       发表于 2023-12-22 10:39
+
+lz好魄力~
+
+*****
+
+####  今天吃哪个嘉然  
+##### 466#       发表于 2023-12-22 10:43
+
+已经有了，抽到我顺延下一楼，好游戏支持一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h122h  
+##### 467#       发表于 2023-12-22 10:44
+
+分母分母！ 还希望市面上能再来一款这种探索感非常好的游戏！
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 468#       发表于 2023-12-22 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这是真爱粉啊
+
+
+*****
+
+####  潘达小兵卫  
+##### 469#       发表于 2023-12-22 10:57
+
+我也想学考棉花糖<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aaronluray  
+##### 470#       发表于 2023-12-22 11:15
+
+烤棉花糖还真挺难的，我就烤不好，每次都是偷吃饼干和巧克力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cxl6191467  
+##### 471#       发表于 2023-12-22 11:23
+
+来当分母<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2241HA, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  正义  
+##### 472#       发表于 2023-12-22 11:37
+
+想要
+
+
+*****
+
+####  museqsou  
+##### 473#       发表于 2023-12-22 11:44
+
+组成分母
+
+
+*****
+
+####  shinzero  
+##### 474#       发表于 2023-12-22 12:08
+
+分母来了 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  filo916  
+##### 475#       发表于 2023-12-22 13:10
+
+抽到送朋友按着他的头让他玩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王兰花秀丽  
+##### 476#       发表于 2023-12-22 13:23
+
+分母~
+
+
+*****
+
+####  afksorry  
+##### 477#       发表于 2023-12-22 13:28
+
+当分母
+
+*****
+
+####  你可以试试  
+##### 478#       发表于 2023-12-22 13:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">通了，送朋友吧
+
+
+*****
+
+####  EadsFu  
+##### 479#       发表于 2023-12-22 14:20
+
+之前在XGP通了本体，万一中了试试再steam上全成就。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  patapon3  
+##### 480#       发表于 2023-12-22 14:21
+
+活菩萨
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  猫不萌  
+##### 481#       发表于 2023-12-22 14:25
+
+ 本帖最后由 猫不萌 于 2023-12-22 14:28 编辑 
+
+分母！我先买一份
+
+*****
+
+####  不羁的傻风  
+##### 482#       发表于 2023-12-22 14:30
+
+当个分母，今年也是通了游戏，无比浪漫
+
+
+*****
+
+####  leyenda  
+##### 483#       发表于 2023-12-22 14:51
+
+分子来了
+
+
+*****
+
+####  JanShing  
+##### 484#       发表于 2023-12-22 15:31
+
+不是晕3D，我一定试试这游戏。。。碰碰运气看抽不抽得中
+
+
+*****
+
+####  我要你三更死  
+##### 485#       发表于 2023-12-22 15:40
+
+当分母
+
+
+*****
+
+####  syneetrei  
+##### 486#       发表于 2023-12-22 17:27
+
+参与一下
+
+今年冬促买了一千多块钱的游戏  这个放购物车几年了，还没买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  TOZZ  
+##### 487#       发表于 2023-12-22 23:31
+
+来当分母了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  张叔夜  
+##### 488#       发表于 2023-12-22 23:41
+
+牛逼，已经通了但是来混个分母
+
+—— 来自 Xiaomi 2210132C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+
+*****
+
+####  Zepp  
+##### 489#       发表于 2023-12-22 23:52
+
+来了来了，前两年都错过，今年至少要参与<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伤心花落  
+##### 490#       发表于 2023-12-22 23:53
+
+参与一下，结尾是真的浪漫
+
+
+*****
+
+####  敏感词好多  
+##### 491#       发表于 2023-12-22 23:55
+
+宇宙探索的终点，mobius啥时候出新作<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  RINALLy  
+##### 492#       发表于 2023-12-23 00:26
+
+分母来啦
+
+*****
+
+####  Dublin  
+##### 493#       发表于 2023-12-23 00:29
+
+好好好
+
+
+*****
+
+####  11--  
+##### 494#       发表于 2023-12-23 12:16
+
+继续来当分母
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  kkk9233  
+##### 495#       发表于 2023-12-23 17:56
+
+买了也要roll！
+
+
+*****
+
+####  yuanshenshen  
+##### 496#       发表于 2023-12-23 18:19
+
+通了 但还是要来roll
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  霖岚_  
+##### 497#       发表于 2023-12-23 18:25
+
+一直听说好评但手上游戏太多也就不太想买来玩……中了就试下吧
+
+*****
+
+####  Linkwjj  
+##### 498#       发表于 2023-12-23 18:27
+
+准备先买份Switch试试，roll到就不买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  她的猫  
+##### 499#       发表于 2023-12-23 19:14
+
+来来来，我来当个分母。
+
+
+*****
+
+####  社友者  
+##### 500#       发表于 2023-12-23 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">继续当分母
+
+*****
+
+####  tengshuo980  
+##### 501#       发表于 2023-12-23 19:42
+
+分母来了
+
+
+*****
+
+####  huawusuo  
+##### 502#       发表于 2023-12-23 19:44
+
+已经有了，来试试
+
+*****
+
+####  findjay  
+##### 503#       发表于 2023-12-23 19:51
+
+久闻这游戏大名，希望被抽到<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Fask  
+##### 504#       发表于 2023-12-23 20:41
+
+买过了，roll到了送朋友<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  狗命啊  
+##### 505#       发表于 2023-12-23 20:53
+
+分母来喽<img src="https://static.saraba1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wdorange  
+##### 506#       发表于 2023-12-23 21:07
+
+当下分母，不过要是抽不到也打算这回买来入坑了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  linearone7  
+##### 507#       发表于 2023-12-23 21:07
+
+分母分母
+
+*****
+
+####  发条之心  
+##### 508#       发表于 2023-12-23 21:12
+
+分母分母
+
+
+*****
+
+####  神隐の馒头  
+##### 509#       发表于 2023-12-23 21:20
+
+蹲一波
+
+
+*****
+
+####  martinium  
+##### 510#       发表于 2023-12-24 08:42
+
+打完之后又看两个录播打完的两遍，只能说每个人都有独特的经历。
+纯支持不参与了
+
+— from samsung SM-S911U1, Android 14 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+
+*****
+
+####  中已矣  
+##### 511#       发表于 2023-12-24 09:13
+
+还没买，不知道有没有时间玩
+
+
+*****
+
+####  尘落樱飞  
+##### 512#       发表于 2023-12-24 09:39
+
+来了来了
+
+*****
+
+####  Horusddt  
+##### 513#       发表于 2023-12-24 09:43
+
+牛的，当个分母
+
+
+*****
+
+####  indtability  
+##### 514#       发表于 2023-12-24 10:53
+
+中了就把dlc推完吧
+
+—— 来自 Xiaomi M2012K11AG, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  RainbowSealife  
+##### 515#       发表于 2023-12-24 21:01
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Xkarl  
+##### 516#       发表于 2023-12-24 21:05
+
+又是一年分母
+
+*****
+
+####  鲤人饺子  
+##### 517#       发表于 2023-12-24 21:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来了，祝楼主圣诞和新年都快乐
+
+
+*****
+
+####  admidi  
+##### 518#       发表于 2023-12-24 21:48
+
+楼主太强了……
+
+*****
+
+####  a1370303  
+##### 519#       发表于 2023-12-24 21:51
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无用人间  
+##### 520#       发表于 2023-12-26 14:05
+
+通了，但来当分母
+
+*****
+
+####  壳壳牛  
+##### 521#       发表于 2023-12-26 14:08
+
+非常好宇宙，爱来自鮟鱇鱼<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  siriii  
+##### 522#       发表于 2023-12-26 15:28
+
+再roll一下看看有没有机会<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuchulain2021  
+##### 523#       发表于 2023-12-26 15:31
+
+来当个分母
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  赛U灵  
+##### 524#       发表于 2023-12-26 16:41
+
+突然发现一个问题，主楼写的是2024年12月30<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">楼主是不是先写了2024一月一然后想了想又改成了12月三十啊ww
+
+— from OPPO CPH1893, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
