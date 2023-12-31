@@ -7669,3 +7669,91 @@ Zayin果师袋
 
 （真变成维导认识的人，能不能活着下车就难说了...）
 
+*****
+
+####  Jamaisvu  
+##### 486#       发表于 2023-12-25 22:15
+
+ 本帖最后由 Jamaisvu 于 2023-12-25 22:21 编辑 
+
+<img src="https://img.saraba1st.com/forum/202312/25/221405cjv7v67755k7ga6l.png" referrerpolicy="no-referrer">
+
+<strong>1703513570572.png</strong> (383.06 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-25 22:14 上传
+
+<img src="https://img.saraba1st.com/forum/202312/25/221406xz2lv8kgvn7z6kv2.png" referrerpolicy="no-referrer">
+
+<strong>1703513577709.png</strong> (492.56 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-25 22:14 上传
+
+奥提斯ego能够选择性增幅罪孽伤害，小夫就属于样样精通样样稀松了...
+
+预告是12.28开奥提斯的ego提取卡池，小夫是活动兑换赠送。
+
+貌似没有新人格？那小唐在封面出现了个寂寞...
+
+
+*****
+
+####  Yuzutea  
+##### 487#       发表于 2023-12-25 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真没人格啊
+
+
+*****
+
+####  Yuzutea  
+##### 488#       发表于 2023-12-26 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金笠那个5.5间章是魔女之夜还是普通活动人格？
+
+YJ之前有说魔女之夜是只出池子还是会有剧情吗
+
+
+*****
+
+####  Jamaisvu  
+##### 489#       发表于 2023-12-28 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63448260&amp;ptid=2120922" target="_blank">Yuzutea 发表于 2023-12-26 19:26</a>
+
+金笠那个5.5间章是魔女之夜还是普通活动人格？
+
+YJ之前有说魔女之夜是只出池子还是会有剧情吗
+
+ ...</blockquote>
+魔女之夜应该有特殊logo吧，不过金笠这种图书馆的经典角色（？）作联动也挺合适的。
+
+<img src="https://img.saraba1st.com/forum/202312/28/154028knjnxzxifjjij6in.jpg" referrerpolicy="no-referrer">
+
+<strong>1703749110381.jpg</strong> (63.18 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 15:40 上传
+
+<img src="https://img.saraba1st.com/forum/202312/28/154029l7ukbbqy1d17mdmv.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20231228_153802.jpg</strong> (31.6 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 15:40 上传
+
+剧情和副本说了会做的，第一次可能是缺钱了单纯捞一波？后续就该是正常活动了。
+
+<img src="https://img.saraba1st.com/forum/202312/28/154126xt639a9zpw8uwca1.png" referrerpolicy="no-referrer">
+
+<strong>1703748965969.png</strong> (93.13 KB, 下载次数: 0)
+
+下载附件
+
+2023-12-28 15:41 上传
+
