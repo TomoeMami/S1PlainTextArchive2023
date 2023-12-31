@@ -858,3 +858,49 @@ Not a bad start!
 
 开发视频看着动作性好高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 87#         楼主| 发表于 2023-12-28 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59111825&amp;ptid=2041706" target="_blank">Piano-Forest 发表于 2022-12-27 22:39</a>
+
+Bokeh Game Studio 外山圭一郎氏
+
+2023年のキ&amp;#x3 ...</blockquote>
+24年准备开始宣发（重要的一年）
+
+2024年はスタジオの初回作品である『野狗子: Slitterhead』の本格的露出も始まる勝負の年になります。
+
+今後の行く末を大きく左右するとても大事な一年となりますので、気合を入れて臨みたいと思います。
+
+
+*****
+
+####  ナルバレック  
+##### 88#       发表于 2023-12-28 09:36
+
+我估计会在微软的展示会上公布，某次泄露演示里我记得好像看到过XBOX控制器的图标
+
+
+*****
+
+####  pk1308  
+##### 89#       发表于 2023-12-28 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=63463156&amp;ptid=2041706" target="_blank">ナルバレック 发表于 2023-12-28 09:36</a>
+
+我估计会在微软的展示会上公布，某次泄露演示里我记得好像看到过XBOX控制器的图标 ...</blockquote>
+用的是xbox360的手柄，多半是为了省钱。
+
+
+*****
+
+####  barry.allen  
+##### 90#       发表于 2023-12-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=61631754&amp;ptid=2041706" target="_blank">半生不熟子 发表于 2023-7-11 21:09</a>
+
+什么幽灵线东京……</blockquote>
+幽灵线东京是反过来，在空无一人满是鬼怪的街道上把人的灵魂传回去<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
